@@ -1,31 +1,31 @@
-﻿Then Joseph went in and told Pharaoh, and said, "My father and my brothers, with their flocks, their herds, and all that they own, have come out of the land of Canaan; and look, they're in the land of Goshen." 
-From among his brothers he took five men, and presented them to Pharaoh. 
-Pharaoh said to his brothers, "What's your occupation?" They said to Pharaoh, "Your servants are shepherds, both we, and our fathers." 
-They also said to Pharaoh, "We have come to live as foreigners in the land, for there's no pasture for your servants' flocks. The famine is severe in the land of Canaan. Now, please let your servants dwell in the land of Goshen." 
-Pharaoh spoke to Joseph, saying, "Your father and your brothers have come to you. 
-The land of Egypt is before you. Make your father and your brothers dwell in the best of the land. Let them dwell in the land of Goshen. If you know any able men among them, then put them in charge of my livestock." 
-Joseph brought in Jacob, his father, and set him before Pharaoh; and Jacob blessed Pharaoh. 
-Pharaoh said to Jacob, "How old are you?" 
-Jacob said to Pharaoh, "The years of my pilgrimage are one hundred thirty years. The days of the years of my life have been few and bad. They haven't attained to the days of the years of the life of my fathers in the days of their pilgrimage." 
-Jacob blessed Pharaoh, and went out from the presence of Pharaoh. 
-Joseph placed his father and his brothers, and gave them a possession in the land of Egypt, in the best of the land, in the land of Rameses, as Pharaoh had commanded. 
-Joseph provided his father, his brothers, and all of his father's household with bread, according to the sizes of their families. 
-There was no bread in all the land; for the famine was very severe, so that the land of Egypt and the land of Canaan fainted by reason of the famine. 
-Joseph gathered up all the money that was found in the land of Egypt, and in the land of Canaan, for the grain which they bought: and Joseph brought the money into Pharaoh's house. 
-When the money was all spent in the land of Egypt, and in the land of Canaan, all the Egyptians came to Joseph, and said, "Give us bread, for why should we die in your presence? Our money fails." 
-Joseph said, "Give me your livestock; and I'll give you food for your livestock, if your money is gone." 
-They brought their livestock to Joseph, and Joseph gave them bread in exchange for the horses, and for the flocks, and for the herds, and for the donkeys: and he fed them with bread in exchange for all their livestock for that year. 
-When that year was ended, they came to him the second year, and said to him, "We won't hide from my lord how our money is all spent, and the herds of livestock are my lord's. There's nothing left in the sight of my lord, but our bodies, and our lands. 
-Why should we die before your eyes, both we and our land? Buy us and our land for bread, and we and our land will be servants to Pharaoh. Give us seed, that we can live, and not die, and that the land won't be desolate." 
-So Joseph bought all the land of Egypt for Pharaoh, for every man of the Egyptians sold his field, because the famine was severe on them, and the land became Pharaoh's. 
-As for the people, he moved them to the cities from one end of the border of Egypt even to the other end of it. 
-Only he didn't buy the land of the priests, for the priests had a portion from Pharaoh, and ate their portion which Pharaoh gave them. That's why they didn't sell their land. 
-Then Joseph said to the people, "Look, I have bought you and your land today for Pharaoh. Look, here's seed for you, and you will sow the land. 
-It'll happen at the harvests, that you will give a fifth to Pharaoh, and four parts will be your own, for seed of the field, for your food, for them of your households, and for food for your little ones." 
-They said, "You have saved our lives! Let's find favor in the sight of my lord, and we'll be Pharaoh's servants." 
-Joseph made it a statute concerning the land of Egypt to this day, that Pharaoh should have the fifth. Only the land of the priests alone didn't become Pharaoh's. 
-Israel lived in the land of Egypt, in the land of Goshen; and they got themselves possessions therein, and were fruitful, and multiplied exceedingly. 
-Jacob lived in the land of Egypt seventeen years. So the days of Jacob, the years of his life, were one hundred forty-seven years. 
-The time came near that Israel must die, and he called his son Joseph, and said to him, "If now I have found favor in your sight, please put your hand under my thigh, and deal kindly and truly with me. Please don't bury me in Egypt, 
-but when I sleep with my fathers, you will carry me out of Egypt, and bury me in their burying place." Joseph said, "I'll do as you have said." 
-Israel said, "Swear to me," and he swore to him. Then Israel bowed himself on the bed's head. 
+﻿Joseph went in and told Pharaoh, "My father and my brothers have come from Canaan with their flocks and herds and everything they own, and they're in Goshen." 
+He took five of his brothers and presented them to Pharaoh. 
+Pharaoh asked them, "What do you do for a living?" They said, "We're shepherds, sir, and so were our fathers." 
+They said to Pharaoh, "We've come to live here as foreigners, because there's no pasture for our flocks. The famine is severe in Canaan. So please let us live in Goshen." 
+Pharaoh said to Joseph, "Your father and your brothers have come to you. 
+The land is open to you. Settle them in the best part of it. Let them live in Goshen, and if you know of any capable men among them, put them in charge of my livestock." 
+Then Joseph brought his father Jacob in and presented him to Pharaoh, and Jacob blessed Pharaoh. 
+Pharaoh asked Jacob, "How old are you?" 
+Jacob said to Pharaoh, "I've been wandering a hundred and thirty years. My years have been few and hard, and they don't come close to what my fathers lived through." 
+Then Jacob blessed Pharaoh again and left. 
+Joseph settled his father and brothers and gave them property in Egypt, in the best part of the land, in the region of Rameses, as Pharaoh had ordered. 
+Joseph provided food for his father and brothers and for his father's whole household, according to how many there were in each family. 
+There was no food anywhere, because the famine was so severe that Egypt and Canaan were worn out by it. 
+Joseph collected all the money to be found in Egypt and Canaan in payment for the grain people bought, and he brought it into Pharaoh's house. 
+When the money in Egypt and Canaan ran out, all the Egyptians came to Joseph and said, "Give us food. Why should we die right here in front of you? Our money's gone." 
+Joseph said, "If your money's gone, bring me your livestock, and I'll give you food for it." 
+So they brought their livestock to Joseph, and he gave them food in exchange for their horses, their flocks, their herds and their donkeys. That year he fed them in exchange for all their livestock. 
+When that year ended, they came to him the next year and said, "We can't hide it from you, sir, that our money's spent and our livestock belongs to you. There's nothing left for you to take except our bodies and our land. 
+Why should we die in front of your eyes, we and our land as well? Buy us and our land for food, and we and our land will be Pharaoh's servants. Give us seed so we can live and not die, and so the land doesn't lie empty." 
+So Joseph bought all the land of Egypt for Pharaoh. Every Egyptian sold his field because the famine was so hard on them, and the land became Pharaoh's. 
+As for the people, he moved them into the cities, from one end of Egypt to the other. 
+The only land he didn't buy was the land of the priests, because they had an allowance from Pharaoh and lived on it. That's why they didn't sell their land. 
+Then Joseph said to the people, "I've bought you and your land for Pharaoh today. Here's seed for you, so you can plant the fields. 
+At harvest you'll give a fifth to Pharaoh, and the other four parts will be yours for seed to plant, for food for yourselves, for your households and for your children." 
+They said, "You've saved our lives. If you're pleased with us, we'll be Pharaoh's servants." 
+So Joseph made it a standing law for the land of Egypt, and it's still in force today, that Pharaoh gets a fifth. Only the land of the priests stayed out of Pharaoh's hands. 
+Israel lived in Egypt, in the land of Goshen. They acquired property there, had children, and grew very numerous. 
+Jacob lived in Egypt seventeen years, so his whole life came to a hundred and forty-seven years. 
+When the time came for Israel to die, he called for his son Joseph and said, "If you're pleased with me, put your hand under my thigh and promise to deal with me kindly and faithfully. Don't bury me in Egypt. 
+When I lie down with my fathers, carry me out of Egypt and bury me where they're buried." Joseph said, "I'll do what you've asked." 
+Israel said, "Swear to me," and Joseph swore to him. Then Israel bowed down at the head of the bed. 

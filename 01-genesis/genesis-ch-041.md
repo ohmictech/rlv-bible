@@ -1,57 +1,57 @@
-﻿At the end of two full years, Pharaoh dreamed, and look, he stood by the river. 
-Look, seven cattle came up out of the river. They were sleek and fat, and they fed in the marsh grass. 
-Look, seven other cattle came up after them out of the river, ugly and thin, and stood by the other cattle on the brink of the river. 
-The ugly and thin cattle ate up the seven sleek and fat cattle. So Pharaoh awoke. 
-He slept and dreamed a second time; and look, seven heads of grain came up on one stalk, healthy and good. 
-Look, seven heads of grain, thin and blasted with the east wind, sprung up after them. 
-The thin heads of grain swallowed up the seven healthy and full ears. Pharaoh awoke, and look, it was a dream. 
-In the morning, his spirit was troubled, and he sent and called for all of Egypt's magicians and wise men. Pharaoh told them his dreams, but there was no one who could interpret them to Pharaoh. 
-Then the chief cup bearer spoke to Pharaoh, saying, "I remember my faults today. 
-Pharaoh was angry with his servants, and put me in custody in the house of the captain of the guard, with the chief baker. 
-We dreamed a dream in one night, he and I. Each man dreamed according to the interpretation of his dream. 
-There was with us there a young man, a Hebrew, servant to the captain of the guard, and we told him, and he interpreted to us our dreams. He interpreted to each man according to his dream. 
-As he interpreted to us, so it was. He restored me to my office, and he hanged him." 
-Then Pharaoh sent and called Joseph, and they brought him hastily out of the dungeon. He shaved himself, changed his clothing, and came in to Pharaoh. 
-Pharaoh said to Joseph, "I have dreamed a dream, and there's no one who can interpret it. I have heard it said of you, that when you hear a dream you can interpret it." 
-Joseph answered Pharaoh, saying, "It isn't in me. God will give Pharaoh an answer of peace." 
-Pharaoh spoke to Joseph, "In my dream, look, I stood on the brink of the river; 
-and look, seven fat and sleek cattle came up out of the river. They fed in the marsh grass; 
-and look, seven other cattle came up after them, poor and very ugly and thin, such as I never saw in all the land of Egypt for ugliness. 
-The thin and ugly cattle ate up the first seven fat cattle; 
-and when they had eaten them up, it couldn't be known that they had eaten them, but they were still ugly, as at the beginning. So I awoke. 
-I saw in my dream, and look, seven heads of grain came up on one stalk, full and good; 
-and look, seven heads of grain, withered, thin, and blasted with the east wind, sprung up after them. 
-The thin heads of grain swallowed up the seven good heads of grain. I told it to the magicians, but there was no one who could explain it to me." 
-Joseph said to Pharaoh, "The dream of Pharaoh is one. What God is about to do he has declared to Pharaoh. 
-The seven good cattle are seven years; and the seven good heads of grain are seven years. The dream is one. 
-The seven thin and ugly cattle that came up after them are seven years, and also the seven empty heads of grain blasted with the east wind; they'll be seven years of famine. 
-That's the thing which I have spoken to Pharaoh. God has shown Pharaoh what he's about to do. 
-Look, seven years of great plenty throughout all the land of Egypt are coming. 
-Seven years of famine will arise after them, and all the plenty will be forgotten in the land of Egypt. The famine will consume the land, 
-and the plenty won't be known in the land by reason of that famine which follows; for it'll be very grievous. 
-The dream was doubled to Pharaoh, because the thing is established by God, and God will shortly bring it to pass. 
-"Now let Pharaoh look for a discreet and wise man, and set him over the land of Egypt. 
-Let Pharaoh do this, and let him appoint overseers over the land, and take up the fifth part of the land of Egypt's produce in the seven plenteous years. 
-Let them gather all the food of these good years that come, and store grain under the hand of Pharaoh for food in the cities, and let them keep it. 
-The food will be to supply the land against the seven years of famine, which will be in the land of Egypt; so that the land won't perish through the famine." 
-The thing was good in the eyes of Pharaoh, and in the eyes of all his servants. 
-Pharaoh said to his servants, "Can we find such a one as this, a man in whom is the Spirit of God?" 
-Pharaoh said to Joseph, "Because God has shown you all of this, there's no one so discreet and wise as you. 
-You will be over my house. All my people will be ruled according to your word. Only in the throne I'll be greater than you." 
-Pharaoh said to Joseph, "Look, I have set you over all the land of Egypt." 
-Pharaoh took off his signet ring from his hand, and put it on Joseph's hand, and arrayed him in robes of fine linen, and put a gold chain about his neck. 
-He made him ride in the second chariot which he had. They cried before him, "Bow the knee!" He set him over all the land of Egypt. 
-Pharaoh said to Joseph, "I'm Pharaoh. Without you, no man will lift up his hand or his foot in all the land of Egypt." 
-Pharaoh called Joseph's name Zaphenath-Paneah. He gave him Asenath, the daughter of Potiphera priest of On as a wife. Joseph went out over the land of Egypt. 
-Joseph was thirty years old when he stood before Pharaoh king of Egypt. Joseph went out from the presence of Pharaoh, and went throughout all the land of Egypt. 
-In the seven plenteous years the earth produced abundantly. 
-He gathered up all the food of the seven years which were in the land of Egypt, and laid up the food in the cities. He stored food in each city from the fields around that city. 
-Joseph laid up grain as the sand of the sea, very much, until he stopped counting, for it was without number. 
-To Joseph were born two sons before the year of famine came, whom Asenath, the daughter of Potiphera priest of On, bore to him. 
-Joseph called the name of the firstborn Manasseh, "For", he said, "God has made me forget all my toil, and all my father's house." 
-The name of the second, he called Ephraim: "God has made me fruitful in the land of my affliction." 
-The seven years of plenty, that were in the land of Egypt, came to an end. 
-The seven years of famine began to come, just as Joseph had said. There was famine in all lands, but in all the land of Egypt there was bread. 
-When all the land of Egypt was famished, the people cried to Pharaoh for bread, and Pharaoh said to all the Egyptians, "Go to Joseph. What he says to you, do." 
-The famine was over all the surface of the earth. Joseph opened all the store houses, and sold to the Egyptians. The famine was severe in the land of Egypt. 
-All countries came into Egypt, to Joseph, to buy grain, because the famine was severe in all the earth. 
+﻿Two years later, Pharaoh had a dream. He was standing beside the Nile, 
+and seven cows came up out of the river, sleek and fat, and they grazed in the reeds. 
+Then seven other cows came up after them, ugly and thin, and they stood beside the first cows on the riverbank. 
+The ugly, thin cows ate the seven sleek, fat cows. Then Pharaoh woke up. 
+He fell asleep and dreamed again. This time seven heads of grain grew on a single stalk, healthy and good. 
+Then seven more heads of grain sprouted after them, thin and scorched by the east wind. 
+The thin heads of grain swallowed the seven healthy, full heads. Then Pharaoh woke up and realized it was a dream. 
+In the morning he was uneasy, so he sent for all the magicians and wise men of Egypt. Pharaoh told them his dreams, but no one could explain them to him. 
+Then the chief cupbearer spoke up. He said to Pharaoh, "Today I remember something I did wrong. 
+Pharaoh was angry with his servants and put me under guard in the captain of the guard's house, along with the chief baker. 
+One night he and I both had dreams, and each dream had its own meaning. 
+There was a young Hebrew there with us, a servant of the captain of the guard. We told him our dreams and he explained them to us, each one according to its meaning. 
+And it turned out exactly as he said. I got my position back, and the other man was hanged." 
+So Pharaoh sent for Joseph, and they hurried him out of the dungeon. He shaved, changed his clothes, and came before Pharaoh. 
+Pharaoh said to Joseph, "I've had a dream, and no one can explain it. I'm told that when you hear a dream, you can tell what it means." 
+Joseph answered, "I can't do it myself. But God will give Pharaoh a favorable answer." 
+Then Pharaoh said to Joseph, "In my dream I was standing on the bank of the Nile, 
+and seven fat, sleek cows came up out of the river and grazed in the reeds. 
+Then seven other cows came up after them, scrawny, and so ugly and thin that I've never seen anything like them anywhere in Egypt. 
+The thin, ugly cows ate the first seven fat cows, 
+and after they'd eaten them there was no sign of it. They looked just as ugly as before. Then I woke up. 
+Then in my dream I saw seven heads of grain growing on a single stalk, full and good, 
+and seven more heads sprouted after them, withered, thin, and scorched by the east wind. 
+The thin heads swallowed the seven good heads. I told the magicians, but none of them could explain it to me." 
+Joseph said to Pharaoh, "Both of Pharaoh's dreams mean the same thing. God has shown Pharaoh what he's about to do. 
+The seven good cows are seven years, and the seven good heads of grain are seven years. It's one dream. 
+The seven thin, ugly cows that came up after them are seven years too, and so are the seven empty heads scorched by the east wind. There will be seven years of famine. 
+That's what I meant when I told Pharaoh: God has shown him what he's about to do. 
+Seven years of great plenty are coming all across Egypt, 
+but seven years of famine will follow them, and all that plenty will be forgotten in Egypt. The famine will wear the land out, 
+and nobody will remember the plenty because the famine that follows will be so severe. 
+The dream came to Pharaoh twice because God has settled the matter and will soon bring it about. 
+So let Pharaoh look for a sensible, wise man and put him in charge of Egypt. 
+Let Pharaoh appoint supervisors over the land and collect a fifth of everything Egypt produces during the seven good years. 
+Let them gather all the food from those good years and store the grain in the cities under Pharaoh's authority, and guard it. 
+That food will be a reserve for the land during the seven years of famine that will come on Egypt, so the land won't be wiped out by the famine." 
+The plan pleased Pharaoh and all his officials. 
+Pharaoh said to them, "Can we find anyone else like this, a man who has the Spirit of God in him?" 
+Then Pharaoh said to Joseph, "Since God has shown you all this, there's nobody as sensible and wise as you. 
+You'll be in charge of my household, and all my people will do what you say. Only the throne will make me greater than you." 
+Pharaoh said to Joseph, "I'm putting you in charge of the whole land of Egypt." 
+Then Pharaoh took his seal ring off his finger and put it on Joseph's finger. He dressed him in fine linen robes and hung a gold chain around his neck. 
+He had him ride in his second chariot, and men shouted ahead of him, "Make way!" So Joseph was put in charge of the whole land of Egypt. 
+Pharaoh said to Joseph, "I'm Pharaoh, but without your consent nobody in Egypt will lift a hand or a foot." 
+Pharaoh gave Joseph the name Zaphenath-Paneah, and gave him Asenath, daughter of Potiphera the priest of On, as his wife. And Joseph went out over the land of Egypt. 
+Joseph was thirty years old when he entered Pharaoh's service. He left Pharaoh's presence and traveled throughout Egypt. 
+During the seven good years the land produced abundantly. 
+Joseph gathered up all the food from those seven years in Egypt and stored it in the cities. He put the food from the fields around each city into that city. 
+Joseph stored up so much grain that it was like the sand of the sea, and he stopped counting because it couldn't be counted. 
+Before the famine came, two sons were born to Joseph by Asenath, daughter of Potiphera the priest of On. 
+Joseph named his firstborn Manasseh, saying, "God has made me forget all my troubles and my father's whole family." 
+He named the second Ephraim, saying, "God has made me fruitful in the land where I suffered." 
+The seven years of plenty in Egypt came to an end, 
+and the seven years of famine began, just as Joseph had said. There was famine everywhere else, but in Egypt there was still bread. 
+When the people of Egypt began to go hungry, they cried out to Pharaoh for bread, and Pharaoh told all the Egyptians, "Go to Joseph. Do whatever he tells you." 
+The famine spread over the whole earth, so Joseph opened all the storehouses and sold grain to the Egyptians. The famine was severe in Egypt, 
+and people from every country came to Egypt to buy grain from Joseph, because the famine was severe everywhere. 

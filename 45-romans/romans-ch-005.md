@@ -17,5 +17,5 @@ The gift is not as through one who drifted; for the verdict came by one to a sen
 For if by the false step of the one, death reigned through the one; so much more will those who receive the overflow of favor and of the gift of rightness reign in real life through the one, Jesus Christ. 
 So then as through one false step, everyone was sentenced; even so through one act of rightness, everyone was made right to life. 
 For as through the one man's disobedience everyone was made drift-prone, even so through the obedience of the one, everyone will be made right. 
-The law came in so that the false step might increase; but where wrongdoing overflowed, favor overflowed far more, 
-that as the drift reigned in death, even so favor might reign through rightness to the real life of the era through Jesus Christ our Lord. 
+The law came in so that the false step would increase; but where wrongdoing overflowed, favor overflowed far more, 
+that as the drift reigned in death, even so favor would reign through rightness to the real life of the era through Jesus Christ our Lord. 

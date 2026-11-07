@@ -8,7 +8,7 @@ What then? That which Israel seeks for, that he didn't obtain, but the chosen on
 According as it is written, "God gave them a spirit of numbness, eyes that they should not see, and ears that they should not hear, to this very day." 
 David says, "Let their table be made a snare, a trap, a stone in their way, and a payback to them. 
 Let their eyes be darkened, that they may not see. Always keep their backs bent." 
-I ask then, did they stumble that they might fall? Not a chance! But by their fall rescue has come to the nations, to provoke them to jealousy. 
+I ask then, did they stumble so that they would fall? Not a chance! But by their fall rescue has come to the nations, to provoke them to jealousy. 
 Now if their fall is the riches of the world, and their loss the riches of the nations, how much more their fullness! 
 I am speaking to you who are nations. Since I am a sent one to the nations, I make much of my work, 
 if by any means I may provoke to jealousy those who are my flesh, and may rescue some of them. 
@@ -16,7 +16,7 @@ For if the rejection of them is the bringing back of the world, what would their
 If the first fruit is set apart, so is the lump. If the root is set apart, so are the branches. 
 But if some of the branches were broken off, and you, being a wild olive, were grafted in among them and became partaker with them of the root and of the richness of the olive tree, 
 don't boast over the branches. But if you boast, remember that it is not you who support the root, but the root supports you. 
-You will say then, "Branches were broken off, that I might be grafted in." 
+You will say then, "Branches were broken off, so that I could be grafted in." 
 True; by their lack of trust they were broken off, and you stand by your trust. Don't be conceited, but fear; 
 for if God didn't spare the natural branches, neither will he spare you. 
 See then the goodness and severity of God. Toward those who fell, severity; but toward you, goodness, if you continue in his goodness; otherwise you also will be cut off. 
@@ -29,7 +29,7 @@ Concerning the Good News, they are enemies for your sake. But concerning the cho
 For the gifts and the calling of God can never be backtracked. 
 For as you in time past were disobedient to God, but now have obtained mercy by their disobedience, 
 even so these also have now been disobedient, that by the mercy shown to you they may also obtain mercy. 
-For God has locked everyone into disobedience, that he might have mercy on everyone. 
+For God has locked everyone into disobedience, so that he could have mercy on everyone. 
 Oh the depth of the riches both of the wisdom and the knowledge of God! How unsearchable are his verdicts, and his ways past tracing out! 
 "For who has known the mind of the Lord? Or who has been his counselor?" 
 "Or who has first given to him, and it will be repaid to him again?" 

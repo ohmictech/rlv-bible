@@ -1,7 +1,7 @@
 ﻿Or don't you know, brothers (for I speak to men who know the law), that the law has dominion over a man for as long as he lives? 
 For the woman that has a husband is bound by law to the husband while he lives, but if the husband dies, she is discharged from the law of the husband. 
 So then if, while the husband lives, she is joined to another man, she would be called an unfaithful wife. But if the husband dies, she is free from the law, so that she is no unfaithful wife, though she is joined to another man. 
-Therefore, my brothers, you also were made dead to the law through the body of Christ, that you would be joined to another, to him who was raised from the dead, that we might produce fruit to God. 
+Therefore, my brothers, you also were made dead to the law through the body of Christ, that you would be joined to another, to him who was raised from the dead, so that we would produce fruit to God. 
 For when we were in the flesh, the drift-driven passions that were through the law worked in our members to bring out fruit to death. 
 But now we have been discharged from the law, having died to that in which we were held; so that we serve in newness of the spirit, and not in oldness of the letter. 
 What shall we say then? Is the law the drift? May it never be! However, I wouldn't have known the drift except through the law. For I wouldn't have known coveting unless the law had said, "You shall not covet." 
@@ -10,7 +10,7 @@ I was alive apart from the law once, but when the commandment came, the drift re
 The commandment which was for real life, this I found to be for death; 
 for the drift, finding an opportunity through the commandment, led me astray, and through it killed me. 
 Therefore the law indeed is set apart, and the commandment set apart, right, and good. 
-Did then that which is good become death to me? May it never be! But the drift, that it might be shown to be the drift, was producing death in me through what is good; so that through the commandment the drift might be shown up for how utterly wrong it is. 
+Did then that which is good become death to me? May it never be! But the drift, so that it would be shown to be the drift, was producing death in me through what is good; so that through the commandment the drift would be shown up for how utterly wrong it is. 
 For we know that the law is spiritual, but I am fleshly, sold under the drift. 
 For I don't understand what I am doing. For I don't practice what I desire to do; but what I hate, that I do. 
 But if what I don't desire, that I do, I consent to the law that it is good. 

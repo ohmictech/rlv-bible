@@ -1,7 +1,7 @@
 ﻿There is therefore now no sentence for those who are in Christ Jesus, who don't walk according to the flesh, but according to the Spirit. 
 For the law of the Spirit of real life in Christ Jesus made me free from the law of the drift and of death. 
 For what the law could not do, because it was weak through the flesh, God did: he sent his own Son in the likeness of our drift-prone flesh, and, to deal with the drift, he passed sentence on it in the flesh, 
-that the ordinance of the law might be fulfilled in us who don't walk according to the flesh, but according to the Spirit. 
+so that the ordinance of the law would be fulfilled in us who don't walk according to the flesh, but according to the Spirit. 
 For those who live according to the flesh set their minds on the things of the flesh, but those who live according to the Spirit, the things of the Spirit. 
 For the mind of the flesh is death, but the mind of the Spirit is real life and wholeness; 
 because the mind of the flesh is hostile toward God, for it is not subject to God's law, neither indeed can it be. 
@@ -26,7 +26,7 @@ But if we expect what we don't see, we wait for it with patience.
 In the same way, the Spirit also helps our weaknesses, for we don't know how to pray as we ought. But the Spirit himself makes intercession for us with groanings which can't be uttered. 
 He who searches the hearts knows what is on the Spirit's mind, because he speaks on behalf of the set-apart ones according to God. 
 We know that all things work together for good for those who love God, for those who are called according to his purpose. 
-For those he knew ahead of time, he also marked out ahead of time to be shaped like the image of his Son, so that he might be the firstborn among many brothers and sisters. 
+For those he knew ahead of time, he also marked out ahead of time to be shaped like the image of his Son, so that he would be the firstborn among many brothers and sisters. 
 Those he marked out ahead of time, he also called. Those he called, he also made right. Those he made right, he also honored. 
 What then shall we say about these things? If God is for us, who can be against us? 
 He who didn't spare his own Son, but delivered him up for us all, how would he not also with him freely give us all things? 

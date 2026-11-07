@@ -22,7 +22,7 @@ As the Father raises the dead and gives them life, so the Son also gives life to
 The Father passes a verdict on no one, but he has given every verdict to the Son, 
 that all may honor the Son, even as they honor the Father. Whoever doesn't honor the Son doesn't honor the Father who sent him. 
 "Truly I tell you, whoever hears my word and trusts him who sent me has the real life of the era, and doesn't come under the verdict, but has crossed over out of death into life. 
-Truly I tell you, the time comes, and now is, when the dead will hear the Son of God's voice; and those who hear will live. 
+Truly I tell you, the time comes, and now is, when the dead will hear the Son of God's voice; and those who hear will truly live. 
 As the Father has life in himself, even so he gave to the Son also to have life in himself. 
 He also gave him authority to pass a verdict, because he's the Human One. 
 Don't be amazed at this, for the time comes in which everyone who's in the tombs will hear his voice 

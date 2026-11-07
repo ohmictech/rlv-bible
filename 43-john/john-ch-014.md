@@ -13,7 +13,7 @@ Truly I tell you, whoever trusts in me, the deeds that I do, they'll do also; an
 Whatever you'll ask in my name, I'll do it, that the Father may be honored in the Son. 
 If you'll ask anything in my name, I'll do it. 
 If you love me, keep my commandments. 
-I'll ask the Father, and he'll give you another one who comes alongside, that he may be with you forever: 
+I'll ask the Father, and he'll give you another one who comes alongside, that he may be with you for the eras: 
 the Spirit of truth, whom the world can't receive, for it doesn't see him and doesn't know him. You know him, for he makes his home with you and will be in you. 
 I won't leave you orphans. I'll come to you. 
 Yet a little while, and the world will see me no more; but you'll see me. Because I live, you'll live also. 

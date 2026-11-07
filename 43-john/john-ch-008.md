@@ -32,7 +32,7 @@ Jesus said to those Jewish people who had trusted him, "If you remain in my word
 You'll know the truth, and the truth will make you free." 
 They answered him, "We're Abraham's descendants, and have never been slaves to anyone. How do you say, 'You'll be made free'?" 
 Jesus answered them, "Truly I tell you, everyone who keeps drifting is a slave of their mistakes. 
-A slave doesn't live in the house forever. A son remains forever. 
+A slave doesn't live in the house for the eras. A son remains for the eras. 
 If the Son makes you free, you'll be free indeed. 
 I know that you're Abraham's descendants, yet you seek to kill me, because my word finds no place in you. 
 I say the things which I have seen with my Father; and you also do the things which you have seen with your father." 

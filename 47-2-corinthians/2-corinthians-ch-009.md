@@ -6,7 +6,7 @@ So I thought it necessary to beg the brothers to go on ahead to you and arrange 
 Remember this: he who sows sparingly will also reap sparingly. He who sows bountifully will also reap bountifully. 
 Let each person give as he has decided in his heart, not reluctantly or under pressure, for God loves a cheerful giver. 
 And God is able to make every gift overflow to you, so that you always have enough of everything and overflow into every good work. 
-As it's written, "He has scattered abroad. He has given to the poor. His rightness remains forever." 
+As it's written, "He has scattered abroad. He has given to the poor. His rightness remains for the eras." 
 Now may he who supplies seed to the sower and bread for food, supply and multiply your seed for sowing, and increase the fruits of your rightness, 
 you being made rich in everything for all generosity, which produces thanksgiving to God through us. 
 This service you perform not only makes up what the set-apart ones lack, but also overflows in much thanksgiving to God, 

@@ -52,7 +52,7 @@ He has shown strength with his arm. He has scattered the proud in the thoughts o
 He has brought rulers down from their thrones, and has lifted up the lowly. 
 He has filled the hungry with good things. He has sent the rich away empty. 
 He has helped Israel, his servant, remembering mercy, 
-as he spoke to our fathers, to Abraham and his offspring forever." 
+as he spoke to our fathers, to Abraham and his offspring for the eras." 
 Mary stayed with her about three months, and then returned to her house. 
 Now the time came for Elizabeth to give birth, and she gave birth to a son. 
 Her neighbors and her relatives heard that the Lord had shown her great mercy, and they celebrated with her. 

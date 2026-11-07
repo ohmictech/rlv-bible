@@ -12,7 +12,7 @@ So, knowing the fear of the Lord, we persuade people, but we're plainly known to
 We aren't commending ourselves to you again, but speak as giving you a reason to take pride on our behalf, so that you have something to answer those who boast in appearance and not in heart. 
 If we're out of our minds, it's for God. If we're of sound mind, it's for you. 
 The love of Christ drives us on, because we have concluded this: one died for all, all died. 
-He died for all, that those who live should no longer live to themselves, but to him who for their sakes died and rose again. 
+He died for all, that those who live should no longer live for themselves, but for him who for their sakes died and rose again. 
 So we know no one according to the flesh from now on. Even though we have known Christ according to the flesh, yet now we know him so no more. 
 So if anyone is in Christ, they're a new creation. The old things have passed away. Look, all things have become new. 
 But all things are from God, who made friends with us through Jesus Christ, and gave us the service of making friends; 

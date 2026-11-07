@@ -48,14 +48,14 @@ Truly I tell you, whoever trusts in me has the real life of the era.
 I am the bread of life. 
 Your fathers ate the manna in the wilderness and they died. 
 This is the bread which comes down out of the sky, that anyone may eat of it and not die. 
-I am the living bread which came down out of the sky. If anyone eats of this bread, they'll live forever. Yes, the bread which I'll give for the life of the world is my flesh." 
+I am the living bread which came down out of the sky. If anyone eats of this bread, they'll live for the eras. Yes, the bread which I'll give for the life of the world is my flesh." 
 The Jewish crowd contended with one another, saying, "How can this man give us his flesh to eat?" 
 Jesus said to them, "Truly I tell you, unless you eat the flesh of the Human One and drink his blood, you don't have life in yourselves. 
 Whoever eats my flesh and drinks my blood has the real life of the era, and I'll raise them up at the last day. 
 My flesh is food indeed, and my blood is drink indeed. 
 Whoever eats my flesh and drinks my blood makes their home in me, and I in them. 
 As the living Father sent me, and I truly live because of the Father, so whoever feeds on me will also truly live because of me. 
-This is the bread which came down out of the sky, not as our fathers ate the manna and died. Whoever eats this bread will live forever." 
+This is the bread which came down out of the sky, not as our fathers ate the manna and died. Whoever eats this bread will live for the eras." 
 He said these things in the gathering place, as he taught in Capernaum. 
 So many of his students, when they heard this, said, "This is a hard saying! Who can listen to it?" 
 But Jesus knowing in himself that his students grumbled at this, said to them, "Does this trap you? 

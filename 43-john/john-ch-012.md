@@ -31,7 +31,7 @@ Jesus answered, "This voice hasn't come for my sake, but for your sakes.
 Now is the verdict on this world. Now the ruler of this world will be cast out. 
 And I, if I'm lifted up from the earth, will draw everyone to myself." 
 But he said this, signifying by what kind of death he should die. 
-The crowd answered him, "We have heard out of the law that the Christ remains forever. How do you say, 'The Human One must be lifted up'? Who's this Human One?" 
+The crowd answered him, "We have heard out of the law that the Christ remains for the eras. How do you say, 'The Human One must be lifted up'? Who's this Human One?" 
 Jesus said to them, "Yet a little while the light is with you. Walk while you have the light, so that darkness doesn't overtake you. Whoever walks in the darkness doesn't know where they're going. 
 While you have the light, trust in the light, that you may become children of light." Jesus said these things, and he departed and hid himself from them. 
 But though he had done so many signs before them, yet they didn't trust in him, 

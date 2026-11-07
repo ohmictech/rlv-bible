@@ -10,7 +10,7 @@ But you aren't in the flesh but in the Spirit, if it's so that the Spirit of God
 If Christ is in you, the body is dead because of the drift, but the spirit is alive because of rightness. 
 But if the Spirit of him who raised up Jesus from the dead dwells in you, he who raised up Christ Jesus from the dead will also give life to your mortal bodies through his Spirit who dwells in you. 
 So then, brothers, we're debtors, not to the flesh, to live after the flesh. 
-If you live after the flesh, you must die; but if by the Spirit you put to death the bad habits of the body, you'll live. 
+If you live after the flesh, you must die; but if by the Spirit you put to death the bad habits of the body, you'll truly live. 
 As many as are led by the Spirit of God, these are children of God. 
 You didn't receive the spirit of bondage again to fear, but you received the Spirit of adoption, by whom we cry, "Abba! Father!" 
 The Spirit himself testifies with our spirit that we're children of God; 

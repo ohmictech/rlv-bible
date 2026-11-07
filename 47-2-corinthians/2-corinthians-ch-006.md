@@ -6,7 +6,7 @@ in beatings, in prisons, in riots, in toil, in nights without sleep, in days wit
 in purity, in knowledge, in patience, in kindness, in the Holy Spirit, in love without pretending, 
 in the word of truth, in the power of God, with the weapons of rightness in the right hand and the left, 
 through weight and dishonor, through bad report and good report, treated as liars and yet true, 
-as unknown and yet well known, as dying, and look, we live, as disciplined and not killed, 
+as unknown and yet well known, as dying, and look, we truly live, as disciplined and not killed, 
 as sorrowful yet always celebrating, as poor yet making many rich, as having nothing and yet possessing all things. 
 Our mouth is open to you, Corinthians. Our heart is enlarged. 
 You aren't restricted by us, but you're restricted by your own affections. 

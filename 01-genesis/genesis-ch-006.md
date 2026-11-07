@@ -1,22 +1,22 @@
-﻿When men began to multiply on the surface of the ground, and daughters were born to them, 
-God's sons saw that men's daughters were beautiful, and they took any that they wanted for themselves as wives. 
-God said, "My Spirit will not strive with man for the eras, because he also is flesh; so his days will be one hundred twenty years." 
-The Nephilim were on the earth in those days, and also after that, when God's sons came in to men's daughters and had children with them. Those were the mighty men who were of old, men of renown. 
-God saw that the guilt of man was great on the earth, and that every imagination of the thoughts of man's heart was continually only bad. 
-God was sorry that he had made man on the earth, and it grieved him in his heart. 
-God said, "I will destroy man whom I have created from the surface of the ground, man, along with animals, creeping things, and birds of the sky, for I am sorry that I have made them." 
+﻿When human beings began to increase on the face of the land, and daughters were born to them, 
+the sons of God saw that the daughters of human beings were beautiful, and they took any they wanted as wives. 
+God said, "My Spirit will not struggle with human beings for the eras, because they are flesh; so their days will be one hundred twenty years." 
+The Nephilim were on the earth in those days, and also afterward, when the sons of God came in to the daughters of human beings and had children with them. These were the mighty men of old, men of renown. 
+God saw how great human wrongdoing was on the earth, and that every thought in their hearts was only bad all the time. 
+God was sorry he had made human beings on the earth, and it grieved him deeply. 
+God said, "I will wipe out the human beings I created from the face of the land, along with the animals, the small crawling things, and the birds of the sky, because I am sorry I made them." 
 But Noah found favor in God's eyes. 
-This is the history of the generations of Noah: Noah was a righteous man, blameless among the people of his time. Noah walked with God. 
-Noah became the father of three sons: Shem, Ham, and Japheth. 
+This is the account of Noah's line: Noah was a right man, without fault among the people of his time. Noah walked with God. 
+Noah fathered three sons: Shem, Ham, and Japheth. 
 The earth was corrupt before God, and the earth was filled with violence. 
-God saw the earth, and saw that it was corrupt, for all flesh had corrupted their way on the earth. 
-God said to Noah, "I will bring an end to all flesh, for the earth is filled with violence through them. Behold, I will destroy them and the earth. 
-Make a ship of gopher wood. You shall make rooms in the ship, and shall seal it inside and outside with pitch. 
-This is how you shall make it. The length of the ship shall be three hundred cubits, its width fifty cubits, and its height thirty cubits. 
-You shall make a roof in the ship, and you shall finish it to a cubit upward. You shall set the door of the ship in its side. You shall make it with lower, second, and third levels. 
-I, even I, will bring the flood of waters on this earth, to destroy all flesh having the breath of life from under the sky. Everything that is on the earth will die. 
-But I will establish my covenant with you. You shall come into the ship, you, your sons, your wife, and your sons' wives with you. 
-Of every living thing of all flesh, you shall bring two of every sort into the ship, to keep them alive with you. They shall be male and female. 
-Of the birds after their kind, of the livestock after their kind, of every creeping thing of the ground after its kind, two of every sort will come to you, to keep them alive. 
+God saw that the earth was corrupt, because all flesh had corrupted its way on the earth. 
+God said to Noah, "I am going to put an end to all flesh, because the earth is full of violence because of them. Look, I will destroy them along with the earth. 
+Make yourself a ship of cypress wood. Make rooms in it and coat it inside and out with pitch. 
+This is how you are to build it: the ship is to be four hundred fifty feet long, seventy-five feet wide, and forty-five feet high. 
+Make a roof for the ship and finish it off eighteen inches above the top. Put the door in the side of the ship, and build it with a lower, a second, and a third deck. 
+I am going to bring a flood of waters on the earth to destroy all flesh that has the breath of life under the sky. Everything on the earth will die. 
+But I will make my covenant with you. You are to come into the ship, you, your sons, your wife, and your sons' wives with you. 
+Of every living thing, of all flesh, you are to bring two of every kind into the ship to keep them alive with you. They are to be male and female. 
+Of the birds of every kind, the livestock of every kind, and every small crawling thing on the ground of every kind, two of every sort will come to you to be kept alive. 
 Take with you some of all food that is eaten, and gather it to yourself; and it will be for food for you, and for them." 
 Thus Noah did. He did all that God commanded him. 

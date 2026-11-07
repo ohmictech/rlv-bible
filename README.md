@@ -74,7 +74,7 @@ Verse *V* sits on line *V*, so the verse number is the line number. Files are UT
 
 ## Building a reading edition
 
-`tools/build_pdf.py` turns the chapter files into a PDF. By default it makes one volume for the whole Bible, 6 by 9 inches, with a title page, contents, running heads, page numbers, book and chapter headings, and the verse number set small at the start of each verse. `--book genesis` builds a single book, `--per-book` writes a separate file for each book, `--layout inline` runs a chapter's verses together the way a printed Bible does, and `--justify` sets the verse lines to full measure instead of ragged right. Everything it writes goes to `build/`, which git ignores, so the text never has a second copy to fall out of step. It needs the packages in `tools/requirements.txt`.
+`tools/build_pdf.py` turns the chapter files into a PDF. By default it makes one volume for the whole Bible at 6 by 9 inches, set in two columns at 8.5 point with the verses of a chapter running together, which comes to about 1,200 pages. It carries a title page, contents, running heads, page numbers, book and chapter headings, and the verse number set small at the start of each verse. `--columns 1` gives a single wider column, `--font-size 10` sets the type, `--layout verse` gives every verse a line of its own, `--justify` sets the lines to full measure instead of ragged right, `--book genesis` builds a single book, and `--per-book` writes a separate file for each book. Everything it writes goes to `build/`, which git ignores, so the text never has a second copy to fall out of step. It needs the packages in `tools/requirements.txt`.
 
 ## Source and license
 

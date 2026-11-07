@@ -61,9 +61,10 @@ SERIF_BOLD = "Times-Bold"
 
 PAGE_WIDTH = 6 * inch
 PAGE_HEIGHT = 9 * inch
-MARGIN_SIDE = 0.75 * inch
-MARGIN_TOP = 0.8 * inch
-MARGIN_BOTTOM = 0.8 * inch
+MARGIN_SIDE = 0.6 * inch
+MARGIN_TOP = 0.7 * inch
+MARGIN_BOTTOM = 0.7 * inch
+GUTTER = 0.25 * inch
 
 GREY = colors.HexColor("#808080")
 
@@ -148,36 +149,37 @@ class TocMarker(Flowable):
 # -------------------------------------------------------------------- styles
 
 
-def styles(justify: bool = False) -> dict[str, ParagraphStyle]:
+def styles(justify: bool, base_size: float) -> dict[str, ParagraphStyle]:
+    leading = round(base_size * 1.32, 1)
     body = ParagraphStyle(
         "Body",
         fontName=SERIF,
-        fontSize=10.5,
-        leading=14.6,
+        fontSize=base_size,
+        leading=leading,
         alignment=TA_JUSTIFY if justify else TA_LEFT,
-        spaceAfter=3.4,
+        spaceAfter=round(base_size * 0.24, 2),
     )
     return {
         "body": body,
-        "body_first": ParagraphStyle("BodyFirst", parent=body, spaceBefore=4),
+        "body_first": ParagraphStyle("BodyFirst", parent=body, spaceBefore=round(base_size * 0.3, 2)),
         "chapter": ParagraphStyle(
             "Chapter",
             fontName=SERIF_ITALIC,
-            fontSize=12,
-            leading=15,
-            spaceBefore=16,
-            spaceAfter=6,
+            fontSize=round(base_size * 1.15, 1),
+            leading=round(base_size * 1.45, 1),
+            spaceBefore=round(base_size * 1.1, 1),
+            spaceAfter=round(base_size * 0.5, 1),
             alignment=TA_LEFT,
             keepWithNext=1,
         ),
         "book": ParagraphStyle(
             "Book",
             fontName=SERIF_BOLD,
-            fontSize=26,
-            leading=30,
+            fontSize=round(base_size * 1.8, 1),
+            leading=round(base_size * 2.1, 1),
             alignment=TA_CENTER,
             spaceBefore=0,
-            spaceAfter=18,
+            spaceAfter=round(base_size * 1.4, 1),
             keepWithNext=1,
         ),
         "title": ParagraphStyle(
@@ -244,7 +246,27 @@ def draw_running_head(canvas, doc, book_state: dict) -> None:
     canvas.restoreState()
 
 
-def make_documents(out_path: Path, book_state: dict, title: str):
+def make_frames(columns: int, prefix: str) -> list[Frame]:
+    """One frame per column, ordered left to right so text fills column by column."""
+    usable_width = PAGE_WIDTH - 2 * MARGIN_SIDE
+    usable_height = PAGE_HEIGHT - MARGIN_TOP - MARGIN_BOTTOM
+    if columns <= 1:
+        return [
+            Frame(MARGIN_SIDE, MARGIN_BOTTOM, usable_width, usable_height, id=f"{prefix}0",
+                  leftPadding=0, rightPadding=0, topPadding=0, bottomPadding=0)
+        ]
+    column_width = (usable_width - GUTTER * (columns - 1)) / columns
+    frames = []
+    for index in range(columns):
+        x = MARGIN_SIDE + index * (column_width + GUTTER)
+        frames.append(
+            Frame(x, MARGIN_BOTTOM, column_width, usable_height, id=f"{prefix}{index}",
+                  leftPadding=0, rightPadding=0, topPadding=0, bottomPadding=0)
+        )
+    return frames
+
+
+def make_documents(out_path: Path, book_state: dict, title: str, columns: int):
     """Return a document with the front matter and body page templates registered."""
 
     doc = BaseDocTemplate(
@@ -260,35 +282,12 @@ def make_documents(out_path: Path, book_state: dict, title: str):
         creator="tools/build_pdf.py",
     )
 
-    front_frame = Frame(
-        MARGIN_SIDE,
-        MARGIN_BOTTOM,
-        PAGE_WIDTH - 2 * MARGIN_SIDE,
-        PAGE_HEIGHT - MARGIN_TOP - MARGIN_BOTTOM,
-        id="front",
-        leftPadding=0,
-        rightPadding=0,
-        topPadding=0,
-        bottomPadding=0,
-    )
-    body_frame = Frame(
-        MARGIN_SIDE,
-        MARGIN_BOTTOM,
-        PAGE_WIDTH - 2 * MARGIN_SIDE,
-        PAGE_HEIGHT - MARGIN_TOP - MARGIN_BOTTOM,
-        id="body",
-        leftPadding=0,
-        rightPadding=0,
-        topPadding=0,
-        bottomPadding=0,
-    )
-
     doc.addPageTemplates(
         [
-            PageTemplate(id="front", frames=[front_frame], onPageEnd=draw_footer),
+            PageTemplate(id="front", frames=make_frames(1, "front"), onPageEnd=draw_footer),
             PageTemplate(
                 id="body",
-                frames=[body_frame],
+                frames=make_frames(columns, "body"),
                 onPageEnd=lambda canvas, doc: (draw_running_head(canvas, doc, book_state), draw_footer(canvas, doc)),
             ),
         ]
@@ -299,11 +298,11 @@ def make_documents(out_path: Path, book_state: dict, title: str):
 # ----------------------------------------------------------------------- story
 
 
-def verse_markup(verses: list[str], layout: str) -> list[str]:
+def verse_markup(verses: list[str], layout: str, number_size: float) -> list[str]:
     """Return paragraph markup strings, one per verse or one per chapter."""
 
     def marker(number: int) -> str:
-        return f'<super><font size="6.5" color="#7F7F7F">{number}</font></super>&nbsp;'
+        return f'<super><font size="{number_size}" color="#7F7F7F">{number}</font></super>&nbsp;'
 
     if layout == "inline":
         pieces = [f"{marker(index)}{escape(verse, {'\"': '&quot;'})}" for index, verse in enumerate(verses, start=1)]
@@ -320,11 +319,12 @@ def book_story(doc, book_state: dict, order: int, slug: str, book_dir: Path, lay
     story.append(TocMarker(doc, 0, title, key))
     story.append(Paragraph(escape(title), style["book"]))
     chapters = chapter_files(book_dir)
+    number_size = round(style["body"].fontSize * 0.62, 1)
     for number, path in chapters:
         verses = read_chapter(path)
         if len(chapters) > 1:
             story.append(Paragraph(f"Chapter {number}", style["chapter"]))
-        for index, chunk in enumerate(verse_markup(verses, layout)):
+        for index, chunk in enumerate(verse_markup(verses, layout, number_size)):
             paragraph_style = style["body_first"] if index == 0 else style["body"]
             story.append(Paragraph(chunk, paragraph_style))
     return story
@@ -350,10 +350,12 @@ def front_matter(doc, style: dict, include_contents: bool) -> list:
     return story
 
 
-def build_pdf(out_path: Path, books, layout: str, include_contents: bool, label: str, justify: bool) -> tuple[int, int]:
+def build_pdf(out_path: Path, books, layout: str, include_contents: bool, label: str, justify: bool,
+              columns: int, base_size: float) -> tuple[int, int]:
+    out_path.parent.mkdir(parents=True, exist_ok=True)
     book_state: dict = {"current": None}
-    doc = make_documents(out_path, book_state, label)
-    style = styles(justify)
+    doc = make_documents(out_path, book_state, label, columns)
+    style = styles(justify, base_size)
 
     story = front_matter(doc, style, include_contents)
     for index, (order, slug, book_dir) in enumerate(books):
@@ -376,8 +378,10 @@ def main(argv: list[str]) -> int:
     parser.add_argument("--book", action="append", default=None,
                         help="book slug, e.g. genesis or 1-corinthians. Repeatable.")
     parser.add_argument("--per-book", action="store_true", help="also write one PDF per book")
-    parser.add_argument("--layout", choices=("verse", "inline"), default="verse",
-                        help="verse = one paragraph per verse (default), inline = verses run together")
+    parser.add_argument("--layout", choices=("verse", "inline"), default="inline",
+                        help="inline = verses run together per chapter (default), verse = one paragraph per verse")
+    parser.add_argument("--columns", type=int, default=2, help="text columns per page, 1 or 2 (default 2)")
+    parser.add_argument("--font-size", type=float, default=8.5, help="body type size in points (default 8.5)")
     parser.add_argument("--no-contents", action="store_true", help="skip the contents pages")
     parser.add_argument("--justify", action="store_true", help="justify the verse lines instead of ragged right")
     parser.add_argument("--out", default=str(ROOT / "build"), help="output directory")
@@ -415,13 +419,14 @@ def main(argv: list[str]) -> int:
         for order, slug, book_dir in selected:
             out_path = out_dir / f"{order:02d}-{slug}.pdf"
             chapters, pages = build_pdf(out_path, [(order, slug, book_dir)], args.layout,
-                                        not args.no_contents, book_title(slug), args.justify)
+                                        not args.no_contents, book_title(slug), args.justify,
+                                        args.columns, args.font_size)
             print(f"{out_path.relative_to(ROOT)}  {chapters} chapters, {pages} pages", flush=True)
 
     if not args.book:
         out_path = out_dir / "the-bible-real-life-version.pdf"
         chapters, pages = build_pdf(out_path, selected, args.layout, not args.no_contents,
-                                    f"{TITLE}: {SUBTITLE}", args.justify)
+                                    f"{TITLE}: {SUBTITLE}", args.justify, args.columns, args.font_size)
         print(f"{out_path.relative_to(ROOT)}  {chapters} chapters, {pages} pages", flush=True)
 
     return 0

@@ -17,7 +17,7 @@ Look, these caused the children of Israel, through the counsel of Balaam, to com
 Now kill every male among the little ones, and kill every woman who has known man by lying with him. 
 But all the girls, who haven't known man by lying with him, keep alive for yourselves. 
 "Encamp outside of the camp for seven days. Whoever has killed any person, and whoever has touched any slain, purify yourselves on the third day and on the seventh day, you and your captives. 
-You shall purify every garment, and all that is made of skin, and all work of goats' hair, and all things made of wood." 
+You shall purify every garment, and all that's made of skin, and all work of goats' hair, and all things made of wood." 
 Eleazar the priest said to the men of war who went to the battle, "This is the statute of the law which God has commanded Moses. 
 However the gold, and the silver, the bronze, the iron, the tin, and the lead, 
 everything that may withstand the fire, you shall make to go through the fire, and it shall be clean; nevertheless it shall be purified with the water for impurity. All that doesn't withstand the fire you shall make to go through the water. 

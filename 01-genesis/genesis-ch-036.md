@@ -1,4 +1,4 @@
-﻿Now this is the history of the generations of Esau (that is, Edom). 
+﻿Now this is the history of the generations of Esau (that's, Edom). 
 Esau took his wives from the daughters of Canaan: Adah the daughter of Elon, the Hittite; and Oholibamah the daughter of Anah, the daughter of Zibeon, the Hivite; 
 and Basemath, Ishmael's daughter, sister of Nebaioth. 
 Adah bore to Esau Eliphaz. Basemath bore Reuel. 
@@ -16,7 +16,7 @@ These are the chiefs of the sons of Esau: the sons of Eliphaz the firstborn of E
 chief Korah, chief Gatam, chief Amalek. These are the chiefs who came of Eliphaz in the land of Edom. These are the sons of Adah. 
 These are the sons of Reuel, Esau's son: chief Nahath, chief Zerah, chief Shammah, chief Mizzah. These are the chiefs who came of Reuel in the land of Edom. These are the sons of Basemath, Esau's wife. 
 These are the sons of Oholibamah, Esau's wife: chief Jeush, chief Jalam, chief Korah. These are the chiefs who came of Oholibamah the daughter of Anah, Esau's wife. 
-These are the sons of Esau (that is, Edom), and these are their chiefs. 
+These are the sons of Esau (that's, Edom), and these are their chiefs. 
 These are the sons of Seir the Horite, the inhabitants of the land: Lotan, Shobal, Zibeon, Anah, 
 Dishon, Ezer, and Dishan. These are the chiefs who came of the Horites, the children of Seir in the land of Edom. 
 The children of Lotan were Hori and Heman. Lotan's sister was Timna. 

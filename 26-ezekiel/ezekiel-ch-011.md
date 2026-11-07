@@ -1,24 +1,24 @@
 ﻿Moreover the Spirit lifted me up and brought me to the east gate of God's house, which looks eastward. Look, twenty-five men were at the door of the gate; and I saw among them Jaazaniah the son of Azzur, and Pelatiah the son of Benaiah, princes of the people. 
 He said to me, "Son of man, these are the men who devise guilt, and who give guilty counsel in this city; 
-who say, 'The time isn't near to build houses. This is the cauldron, and we are the meat.' 
+who say, 'The time isn't near to build houses. This is the cauldron, and we're the meat.' 
 Therefore prophesy against them. Prophesy, son of man." 
 God's Spirit fell on me, and he said to me, "Speak, 'God says: "Thus you have said, house of Israel; for I know the things that come into your mind. 
 You have multiplied your slain in this city, and you have filled its streets with the slain." 
-"'Therefore God says: "Your slain whom you have laid in the middle of it, they are the meat, and this is the cauldron; but you will be brought out of the middle of it. 
-You have feared the sword; and I will bring the sword on you," says God. 
-"I will bring you out of the middle of it, and deliver you into the hands of strangers, and will execute judgments among you. 
-You will fall by the sword. I will judge you in the border of Israel. Then you will know that I am God. 
-This won't be your cauldron, neither will you be the meat in the middle of it. I will judge you in the border of Israel. 
-You will know that I am God, for you haven't walked in my statutes. You haven't executed my ordinances, but have done after the ordinances of the nations that are around you."'" 
+"'Therefore God says: "Your slain whom you have laid in the middle of it, they're the meat, and this is the cauldron; but you'll be brought out of the middle of it. 
+You have feared the sword; and I'll bring the sword on you," says God. 
+"I'll bring you out of the middle of it, and deliver you into the hands of strangers, and will execute judgments among you. 
+You'll fall by the sword. I'll judge you in the border of Israel. Then you'll know that I'm God. 
+This won't be your cauldron, neither will you be the meat in the middle of it. I'll judge you in the border of Israel. 
+You'll know that I'm God, for you haven't walked in my statutes. You haven't executed my ordinances, but have done after the ordinances of the nations that are around you."'" 
 When I prophesied, Pelatiah the son of Benaiah died. Then I fell down on my face, and cried with a loud voice, and said, "Ah God! Will you make a full end of the remnant of Israel?" 
 God's word came to me, saying, 
 "Son of man, your brothers, even your brothers, the men of your relatives, and all the house of Israel, everyone, are the ones to whom the inhabitants of Jerusalem have said, 'Go far away from God. This land has been given to us for a possession.' 
-"Therefore say, 'The God says: "Whereas I have removed them far off among the nations, and whereas I have scattered them among the countries, yet I will be to them a sanctuary for a little while in the countries where they have come."' 
-"Therefore say, 'The God says: "I will gather you from the peoples, and assemble you out of the countries where you have been scattered, and I will give you the land of Israel." 
-"'They will come there, and they will take away all its detestable things and all its abominations from there. 
-I will give them one heart, and I will put a new spirit within them. I will take the stony heart out of their flesh, and will give them a heart of flesh, 
-that they may walk in my statutes, and keep my ordinances, and do them. They will be my people, and I will be their God. 
-But as for them whose heart walks after the heart of their detestable things and their abominations, I will bring their way on their own heads,' says God." 
+"Therefore say, 'The God says: "Whereas I have removed them far off among the nations, and whereas I have scattered them among the countries, yet I'll be to them a sanctuary for a little while in the countries where they have come."' 
+"Therefore say, 'The God says: "I'll gather you from the peoples, and assemble you out of the countries where you have been scattered, and I'll give you the land of Israel." 
+"'They'll come there, and they'll take away all its detestable things and all its abominations from there. 
+I'll give them one heart, and I'll put a new spirit within them. I'll take the stony heart out of their flesh, and will give them a heart of flesh, 
+that they may walk in my statutes, and keep my ordinances, and do them. They'll be my people, and I'll be their God. 
+But as for them whose heart walks after the heart of their detestable things and their abominations, I'll bring their way on their own heads,' says God." 
 Then the cherubim lifted up their wings, and the wheels were beside them. The glory of the God of Israel was over them above. 
 God's glory went up from the middle of the city, and stood on the mountain which is on the east side of the city. 
 The Spirit lifted me up, and brought me in the vision by the Spirit of God into Chaldea, to the captives. So the vision that I had seen went up from me. 

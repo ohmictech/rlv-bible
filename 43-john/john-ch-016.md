@@ -1,33 +1,33 @@
 ﻿"I have said these things to you so that you wouldn't be tripped up. 
-They will put you out of the gathering places. Yes, the time is coming that whoever kills you will think that they offer service to God. 
-They will do these things because they haven't known the Father nor me. 
+They'll put you out of the gathering places. Yes, the time is coming that whoever kills you'll think that they offer service to God. 
+They'll do these things because they haven't known the Father nor me. 
 But I have told you these things so that when the time comes, you may remember that I told you about them. I didn't tell you these things from the beginning, because I was with you. 
-But now I am going to him who sent me, and none of you asks me, 'Where are you going?' 
+But now I'm going to him who sent me, and none of you asks me, 'Where are you going?' 
 But because I have told you these things, sorrow has filled your heart. 
-Nevertheless I tell you the truth: It is to your advantage that I go away; for if I don't go away, the one who comes alongside won't come to you. But if I go, I will send him to you. 
-When he has come, he will show the world the truth about mistakes, about rightness, and about the verdict; 
+Nevertheless I tell you the truth: It's to your advantage that I go away; for if I don't go away, the one who comes alongside won't come to you. But if I go, I'll send him to you. 
+When he has come, he'll show the world the truth about mistakes, about rightness, and about the verdict; 
 about mistakes, because they don't trust in me; 
-about rightness, because I am going to my Father, and you won't see me any more; 
+about rightness, because I'm going to my Father, and you won't see me any more; 
 about the verdict, because the ruler of this world has been judged. 
 "I still have many things to tell you, but you can't bear them now. 
-However, when he, the Spirit of truth, has come, he will guide you into all truth, for he won't speak from himself; but whatever he hears, he will speak. He will tell you things that are coming. 
-He will give me weight, for he will take from what is mine and will tell it to you. 
+However, when he, the Spirit of truth, has come, he'll guide you into all truth, for he won't speak from himself; but whatever he hears, he'll speak. He'll tell you things that are coming. 
+He'll give me weight, for he'll take from what's mine and will tell it to you. 
 All things that the Father has are mine; I said that he takes of mine and will tell it to you. 
-"A little while, and you won't see me. Again a little while, and you will see me." 
-Some of his students said to one another, "What is this that he says to us, 'A little while, and you won't see me, and again a little while, and you will see me,' and, 'Because I go to the Father'?" 
-They said, "What is this that he says, 'A little while'? We don't know what he is saying." 
-So Jesus perceived that they wanted to ask him, and he said to them, "Do you inquire among yourselves concerning this, that I said, 'A little while, and you won't see me, and again a little while, and you will see me'? 
-Truly I tell you that you will weep and lament, but the world will celebrate. You will be sorrowful, but your sorrow will be turned into joy. 
+"A little while, and you won't see me. Again a little while, and you'll see me." 
+Some of his students said to one another, "What's this that he says to us, 'A little while, and you won't see me, and again a little while, and you'll see me,' and, 'Because I go to the Father'?" 
+They said, "What's this that he says, 'A little while'? We don't know what he's saying." 
+So Jesus perceived that they wanted to ask him, and he said to them, "Do you inquire among yourselves concerning this, that I said, 'A little while, and you won't see me, and again a little while, and you'll see me'? 
+Truly I tell you that you'll weep and lament, but the world will celebrate. You'll be sorrowful, but your sorrow will be turned into joy. 
 A woman, when she gives birth, has sorrow because her time has come. But when she has delivered the child, she doesn't remember the anguish any more, for the joy that a human being is born into the world. 
-So you now have sorrow, but I will see you again, and your heart will celebrate, and no one will take your joy away from you. 
-"In that day you will ask me no questions. Truly I tell you, whatever you may ask of the Father in my name, he will give it to you. 
-Until now, you have asked nothing in my name. Ask, and you will receive, that your joy may be made complete. 
-"I have spoken these things to you in figures of speech. But the time is coming when I will no more speak to you in figures of speech, but will tell you plainly about the Father. 
-In that day you will ask in my name; and I don't say to you that I will pray to the Father for you, 
+So you now have sorrow, but I'll see you again, and your heart will celebrate, and no one will take your joy away from you. 
+"In that day you'll ask me no questions. Truly I tell you, whatever you may ask of the Father in my name, he'll give it to you. 
+Until now, you have asked nothing in my name. Ask, and you'll receive, that your joy may be made complete. 
+"I have spoken these things to you in figures of speech. But the time is coming when I'll no more speak to you in figures of speech, but will tell you plainly about the Father. 
+In that day you'll ask in my name; and I don't say to you that I'll pray to the Father for you, 
 for the Father himself loves you, because you have loved me, and have trusted that I came from God. 
 I came from the Father and have come into the world. Again, I leave the world and go to the Father." 
-His students said to him, "Look, now you are speaking plainly, and using no figures of speech. 
+His students said to him, "Look, now you're speaking plainly, and using no figures of speech. 
 Now we know that you know all things, and don't need for anyone to question you. By this we trust that you came from God." 
 Jesus answered them, "Do you now trust? 
-Look, the time is coming, yes, and has now come, that you will be scattered, everyone to his own place, and you will leave me alone. Yet I'm not alone, because the Father is with me. 
+Look, the time is coming, yes, and has now come, that you'll be scattered, everyone to his own place, and you'll leave me alone. Yet I'm not alone, because the Father is with me. 
 I have told you these things, that in me you may have wholeness. In the world you have trouble; but cheer up! I have overcome the world." 

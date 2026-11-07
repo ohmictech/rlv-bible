@@ -2,22 +2,22 @@
 and asked for letters from him to the gathering places of Damascus, that if he found any who were of the Way, whether men or women, he could bring them bound to Jerusalem. 
 As he traveled, he got close to Damascus, and suddenly a light from the sky shone around him. 
 He fell on the ground, and heard a voice saying to him, "Saul, Saul, why are you hunting me down?" 
-He said, "Who are you, Lord?" The Lord said, "I am Jesus, whom you are hunting down. 
-But get up and go into the city, then you will be told what you must do." 
+He said, "Who are you, Lord?" The Lord said, "I'm Jesus, whom you're hunting down. 
+But get up and go into the city, then you'll be told what you must do." 
 The men who traveled with him stood speechless, hearing the sound, but seeing no one. 
 Saul got up from the ground, and when his eyes were opened, he saw no one. They led him by the hand and brought him into Damascus. 
 He was without sight for three days, and neither ate nor drank. 
 Now there was a certain student at Damascus named Ananias. The Lord said to him in a vision, "Ananias!" He said, "Look, it's me, Lord." 
-The Lord said to him, "Get up and go to the street called Straight, and inquire in the house of Judah for one named Saul, a man of Tarsus. Look, he is praying, 
+The Lord said to him, "Get up and go to the street called Straight, and inquire in the house of Judah for one named Saul, a man of Tarsus. Look, he's praying, 
 and in a vision he has seen a man named Ananias coming in and laying his hands on him, so that he could receive his sight." 
 But Ananias answered, "Lord, I have heard from many about this man, how much harm he did to your set-apart ones at Jerusalem. 
 Here he has authority from the chief priests to bind everyone who calls on your name." 
-But the Lord said to him, "Go your way, for he is my chosen vessel to bear my name before the nations and kings, and the children of Israel. 
-I will show him how many things he must suffer for my name's sake." 
+But the Lord said to him, "Go your way, for he's my chosen vessel to bear my name before the nations and kings, and the children of Israel. 
+I'll show him how many things he must suffer for my name's sake." 
 Ananias departed and entered into the house. Laying his hands on him, he said, "Brother Saul, the Lord, who appeared to you on the road by which you came, has sent me that you may receive your sight and be filled with the Holy Spirit." 
 Immediately something like scales fell from his eyes, and he received his sight. He got up and was immersed. 
 He took food and was strengthened. Saul stayed several days with the students who were at Damascus. 
-Immediately in the gathering places he proclaimed the Christ, that he is the Son of God. 
+Immediately in the gathering places he proclaimed the Christ, that he's the Son of God. 
 Everyone who heard him were amazed, and said, "Isn't this he who in Jerusalem made havoc of those who called on this name? And he had come here intending to bring them bound before the chief priests!" 
 But Saul increased more in strength, and confounded the Jewish people living in Damascus, proving that this is the Christ. 
 When many days were fulfilled, the Jewish people conspired together to kill him, 

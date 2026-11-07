@@ -26,6 +26,6 @@ God made the wild animals of every kind, the livestock of every kind, and everyt
 God said, "Let's make human beings in our image, to be like us. Let them take charge of the fish of the sea, the birds of the sky, the livestock, all the earth, and every small thing that crawls on the earth." 
 God created man in his own image. In God's image he created him; male and female he created them. 
 God blessed them. God said to them, "Be fruitful, multiply, fill the earth, and subdue it. Take charge of the fish of the sea, the birds of the sky, and every living thing that moves on the earth." 
-God said, "Look, I have given you every plant that makes seed on all the earth, and every tree that bears fruit with seed in it. It will be your food. 
+God said, "Look, I have given you every plant that makes seed on all the earth, and every tree that bears fruit with seed in it. It'll be your food. 
 To every animal of the earth, every bird of the sky, and everything that crawls on the earth that has life in it, I have given every green plant for food;" and it was so. 
 God saw everything he had made, and look, it was very good. There was evening and there was morning, a sixth day. 

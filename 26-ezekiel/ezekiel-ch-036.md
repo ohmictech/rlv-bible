@@ -1,16 +1,16 @@
 ﻿You, son of man, prophesy to the mountains of Israel, and say, "You mountains of Israel, hear God's word. 
 The God says: 'Because the enemy has said against you, "Aha!" and, "The ancient high places are ours in possession!"' 
-So prophesy, and say, 'The God says: "Because, even because they have made you desolate, and swallowed you up on every side, that you might be a possession to the residue of the nations, and you are taken up in the lips of talkers, and the bad report of the people;" 
+So prophesy, and say, 'The God says: "Because, even because they have made you desolate, and swallowed you up on every side, that you might be a possession to the residue of the nations, and you're taken up in the lips of talkers, and the bad report of the people;" 
 So, you mountains of Israel, hear the word of God: The God says to the mountains and to the hills, to the watercourses and to the valleys, to the desolate wastes and to the cities that are forsaken, which have become a prey and derision to the residue of the nations that are all around; 
 So God says: "Surely in the fire of my jealousy I have spoken against the residue of the nations, and against all Edom, that have appointed my land to themselves for a possession with the joy of all their heart, with despite of soul, to cast it out for a prey."' 
 Therefore prophesy concerning the land of Israel, and tell the mountains, the hills, the watercourses and the valleys, 'The God says: "Look, I have spoken in my jealousy and in my wrath, because you have borne the shame of the nations." 
-So God says: "I have sworn, 'Surely the nations that are around you will bear their shame.' 
-"'"But you, mountains of Israel, you shall shoot out your branches and yield your fruit to my people Israel; for they are at hand to come. 
-For, look, I am for you, and I will come to you, and you will be tilled and sown. 
-I will multiply men on you, all the house of Israel, even all of it. The cities will be inhabited and the waste places will be built. 
-I will multiply man and animal on you. They will increase and be fruitful. I will cause you to be inhabited as you were before, and you will do better than at your beginnings. Then you will know that I am God. 
-Yes, I will cause men to walk on you, even my people Israel. They will possess you, and you will be their inheritance, and you will never again bereave them of their children." 
-"'The God says: "Because they say to you, 'You are a devourer of men, and have been a bereaver of your nation;' 
+So God says: "I have sworn, 'Surely the nations that are around you'll bear their shame.' 
+"'"But you, mountains of Israel, you shall shoot out your branches and yield your fruit to my people Israel; for they're at hand to come. 
+For, look, I'm for you, and I'll come to you, and you'll be tilled and sown. 
+I'll multiply men on you, all the house of Israel, even all of it. The cities will be inhabited and the waste places will be built. 
+I'll multiply man and animal on you. They'll increase and be fruitful. I'll cause you to be inhabited as you were before, and you'll do better than at your beginnings. Then you'll know that I'm God. 
+Yes, I'll cause men to walk on you, even my people Israel. They'll possess you, and you'll be their inheritance, and you'll never again bereave them of their children." 
+"'The God says: "Because they say to you, 'You're a devourer of men, and have been a bereaver of your nation;' 
 So you shall devour men no more, and not bereave your nation any more," says God. 
 "I won't let you hear the shame of the nations any more. You won't bear the reproach of the peoples any more, and you won't cause your nation to stumble any more," says God.'" 
 Moreover God's word came to me, saying, 
@@ -20,19 +20,19 @@ I scattered them among the nations, and they were dispersed through the countrie
 When they came to the nations where they went, they profaned my holy name, in that men said of them, 'These are God's people, and have left his land.' 
 But I had respect for my holy name, which the house of Israel had profaned among the nations where they went. 
 "So tell the house of Israel, 'The God says: "I don't do this for your sake, house of Israel, but for my holy name, which you have profaned among the nations where you went. 
-I will sanctify my great name, which has been profaned among the nations, which you have profaned among them. Then the nations will know that I am God," says God, "when I am proven holy in you before their eyes. 
-"'"For I will take you from among the nations and gather you out of all the countries, and will bring you into your own land. 
-I will sprinkle clean water on you, and you will be clean. I will cleanse you from all your filthiness and from all your idols. 
-I will also give you a new heart, and I will put a new spirit within you. I will take away the stony heart out of your flesh, and I will give you a heart of flesh. 
-I will put my Spirit within you, and cause you to walk in my statutes. You will keep my ordinances and do them. 
-You will dwell in the land that I gave to your fathers. You will be my people, and I will be your God. 
-I will save you from all your uncleanness. I will call for the grain and will multiply it, and lay no famine on you. 
-I will multiply the fruit of the tree and the increase of the field, that you may receive no more the reproach of famine among the nations. 
-"'"Then you will remember your bad ways, and your deeds that weren't good; and you will loathe yourselves in your own sight for your guilt and for your abominations. 
+I'll sanctify my great name, which has been profaned among the nations, which you have profaned among them. Then the nations will know that I'm God," says God, "when I'm proven holy in you before their eyes. 
+"'"For I'll take you from among the nations and gather you out of all the countries, and will bring you into your own land. 
+I'll sprinkle clean water on you, and you'll be clean. I'll cleanse you from all your filthiness and from all your idols. 
+I'll also give you a new heart, and I'll put a new spirit within you. I'll take away the stony heart out of your flesh, and I'll give you a heart of flesh. 
+I'll put my Spirit within you, and cause you to walk in my statutes. You'll keep my ordinances and do them. 
+You'll dwell in the land that I gave to your fathers. You'll be my people, and I'll be your God. 
+I'll save you from all your uncleanness. I'll call for the grain and will multiply it, and lay no famine on you. 
+I'll multiply the fruit of the tree and the increase of the field, that you may receive no more the reproach of famine among the nations. 
+"'"Then you'll remember your bad ways, and your deeds that weren't good; and you'll loathe yourselves in your own sight for your guilt and for your abominations. 
 I don't do this for your sake," says God. "Let it be known to you. Be ashamed and confounded for your ways, house of Israel." 
-"'The God says: "In the day that I cleanse you from all your guilt, I will cause the cities to be inhabited and the waste places will be built. 
+"'The God says: "In the day that I cleanse you from all your guilt, I'll cause the cities to be inhabited and the waste places will be built. 
 The land that was desolate will be tilled instead of being a desolation in the sight of everyone who passed by. 
-They will say, 'This land that was desolate has become like the garden of Eden. The waste, desolate, and ruined cities are fortified and inhabited.' 
-Then the nations that are left around you will know that I, God, have built the ruined places and planted that which was desolate. I, God, have spoken it, and I will do it." 
-"'The God says: "For this, moreover, I will be inquired of by the house of Israel, to do it for them: I will increase them with men like a flock. 
-As the flock for sacrifice, as the flock of Jerusalem in her appointed feasts, so the waste cities will be filled with flocks of men. Then they will know that I am God.'" 
+They'll say, 'This land that was desolate has become like the garden of Eden. The waste, desolate, and ruined cities are fortified and inhabited.' 
+Then the nations that are left around you'll know that I, God, have built the ruined places and planted that which was desolate. I, God, have spoken it, and I'll do it." 
+"'The God says: "For this, moreover, I'll be inquired of by the house of Israel, to do it for them: I'll increase them with men like a flock. 
+As the flock for sacrifice, as the flock of Jerusalem in her appointed feasts, so the waste cities will be filled with flocks of men. Then they'll know that I'm God.'" 

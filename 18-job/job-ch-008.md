@@ -3,20 +3,20 @@
 Does God pervert justice? Or does the Almighty pervert righteousness? 
 If your children have wronged him, he has delivered them into the hand of their disobedience. 
 If you want to seek God diligently, make your supplication to the Almighty. 
-If you were pure and upright, surely now he would awaken for you, and make the habitation of your righteousness prosperous. 
+If you were pure and upright, surely now he'd awaken for you, and make the habitation of your righteousness prosperous. 
 Though your beginning was small, yet your latter end would greatly increase. 
 "Please inquire of past generations. Find out about the learning of their fathers. 
-(For we are but of yesterday, and know nothing, because our days on earth are a shadow.) 
+(For we're but of yesterday, and know nothing, because our days on earth are a shadow.) 
 Shall they not teach you, tell you, and utter words out of their heart? 
 "Can the papyrus grow up without mire? Can the rushes grow without water? 
-While it is yet in its greenness, not cut down, it withers before any other reed. 
+While it's yet in its greenness, not cut down, it withers before any other reed. 
 So are the paths of everyone who forgets God. The hope of the godless man will perish, 
 whose confidence will break apart, whose trust is a spider's web. 
-He will lean on his house, but it won't stand. He will cling to it, but it won't endure. 
-He is green before the sun. His shoots go out along his garden. 
+He'll lean on his house, but it won't stand. He'll cling to it, but it won't endure. 
+He's green before the sun. His shoots go out along his garden. 
 His roots are wrapped around the rock pile. He sees the place of stones. 
-If he is destroyed from his place, then it will deny him, saying, 'I haven't seen you.' 
+If he's destroyed from his place, then it'll deny him, saying, 'I haven't seen you.' 
 Look, this is the joy of his way. Out of the earth, others will spring. 
 "Look, God won't cast away a blameless man, neither will he uphold the those who do bad. 
-He will still fill your mouth with laughter, your lips with shouting. 
-Those who hate you will be clothed with shame. The tent of the guilty will be no more." 
+He'll still fill your mouth with laughter, your lips with shouting. 
+Those who hate you'll be clothed with shame. The tent of the guilty will be no more." 

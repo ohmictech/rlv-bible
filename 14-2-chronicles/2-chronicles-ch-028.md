@@ -10,7 +10,7 @@ But a spokesman of God was there, whose name was Oded; and he went out to meet t
 Now you intend to degrade the children of Judah and Jerusalem as male and female slaves for yourselves. Aren't there even with you trespasses of your own against your God? 
 Now hear me, and send back the captives that you have taken captive from your brothers, for the fierce wrath of God is on you." 
 Then some of the heads of the children of Ephraim, Azariah the son of Johanan, Berechiah the son of Meshillemoth, Jehizkiah the son of Shallum, and Amasa the son of Hadlai, stood up against those who came from the war, 
-and said to them, "You must not bring in the captives here, for you intend that which will bring on us a trespass against God, to add to our mistakes and to our guilt; for our guilt is great, and there is fierce wrath against Israel." 
+and said to them, "You must not bring in the captives here, for you intend that which will bring on us a trespass against God, to add to our mistakes and to our guilt; for our guilt is great, and there's fierce wrath against Israel." 
 So the armed men left the captives and the plunder before the princes and all the assembly. 
 The men who have been mentioned by name rose up and took the captives, and with the plunder clothed everyone who was naked among them, dressed them, gave them sandals, gave them something to eat and to drink, anointed them, carried all the feeble of them on donkeys, and brought them to Jericho, the city of palm trees, to their brothers. Then they returned to Samaria. 
 At that time King Ahaz sent to the kings of Assyria to help him. 
@@ -20,8 +20,8 @@ God brought Judah low because of Ahaz king of Israel, because he acted without r
 Tilgath-pilneser king of Assyria came to him and gave him trouble, but didn't strengthen him. 
 Ahaz took away a portion out of God's house, and out of the house of the king and of the princes, and gave it to the king of Assyria; but it didn't help him. 
 In the time of his distress, he trespassed yet more against God, this same King Ahaz. 
-He sacrificed to the gods of Damascus which had defeated him. He said, "Because the gods of the kings of Syria helped them, I will sacrifice to them, that they may help me." But they were the ruin of him and of all Israel. 
+He sacrificed to the gods of Damascus which had defeated him. He said, "Because the gods of the kings of Syria helped them, I'll sacrifice to them, that they may help me." But they were the ruin of him and of all Israel. 
 Ahaz gathered together the vessels of God's house, cut the vessels of God's house in pieces, and shut up the doors of God's house; and he made himself altars in every corner of Jerusalem. 
 In every city of Judah he made high places to burn incense to other gods, and provoked the God of his fathers, to anger. 
-Now the rest of his acts, and all his ways, first and last, look, they are written in the book of the kings of Judah and Israel. 
+Now the rest of his acts, and all his ways, first and last, look, they're written in the book of the kings of Judah and Israel. 
 Ahaz slept with his fathers, and they buried him in the city, even in Jerusalem, because they didn't bring him into the tombs of the kings of Israel; and Hezekiah his son reigned in his place. 

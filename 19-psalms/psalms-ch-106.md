@@ -1,6 +1,6 @@
-﻿Praise God! Give thanks to God, for he is good, for his loving kindness endures for the eras. 
+﻿Praise God! Give thanks to God, for he's good, for his loving kindness endures for the eras. 
 Who can utter the mighty acts of God, or fully declare all his praise? 
-Blessed are those who keep justice. Blessed is one who does what is right at all times. 
+Blessed are those who keep justice. Blessed is one who does what's right at all times. 
 Remember me, God, with the favor that you show to your people. Visit me with your salvation, 
 that I may see the prosperity of your chosen, that I may rejoice in the gladness of your nation, that I may glory with your inheritance. 
 We have drifted with our fathers. We have committed guilt. We have done guiltily. 
@@ -20,11 +20,11 @@ They made a calf in Horeb, and worshiped a molten image.
 Thus they exchanged their glory for an image of a bull that eats grass. 
 They forgot God, their Savior, who had done great things in Egypt, 
 wondrous works in the land of Ham, and awesome things by the Red Sea. 
-So he said that he would destroy them, had Moses, his chosen, not stood before him in the breach, to turn away his wrath, so that he wouldn't destroy them. 
+So he said that he'd destroy them, had Moses, his chosen, not stood before him in the breach, to turn away his wrath, so that he wouldn't destroy them. 
 Yes, they despised the pleasant land. They didn't believe his word, 
 but murmured in their tents, and didn't listen to God's voice. 
-So he swore to them that he would overthrow them in the wilderness, 
-that he would overthrow their offspring among the nations, and scatter them in the lands. 
+So he swore to them that he'd overthrow them in the wilderness, 
+that he'd overthrow their offspring among the nations, and scatter them in the lands. 
 They joined themselves also to Baal Peor, and ate the sacrifices of the dead. 
 Thus they provoked him to anger with their deeds. The plague broke in on them. 
 Then Phinehas stood up and executed judgment, so the plague was stopped. 

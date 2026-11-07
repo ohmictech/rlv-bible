@@ -9,7 +9,7 @@ Poratha, Adalia, Aridatha,
 Parmashta, Arisai, Aridai, and Vaizatha, 
 the ten sons of Haman the son of Hammedatha, the Jews' enemy, but they didn't lay their hand on the plunder. 
 On that day, the number of those who were slain in the citadel of Susa was brought before the king. 
-The king said to Esther the queen, "The Jews have slain and destroyed five hundred men in the citadel of Susa, including the ten sons of Haman; what then have they done in the rest of the king's provinces! Now what is your petition? It shall be granted you. What is your further request? It shall be done." 
+The king said to Esther the queen, "The Jews have slain and destroyed five hundred men in the citadel of Susa, including the ten sons of Haman; what then have they done in the rest of the king's provinces! Now what's your petition? It shall be granted you. What's your further request? It shall be done." 
 Then Esther said, "If it pleases the king, let it be granted to the Jews who are in Susa to do tomorrow also according to today's decree, and let Haman's ten sons be hanged on the gallows." 
 The king commanded this to be done. A decree was given out in Susa; and they hanged Haman's ten sons. 
 The Jews who were in Susa gathered themselves together on the fourteenth day also of the month Adar, and killed three hundred men in Susa; but they didn't lay their hand on the plunder. 
@@ -21,10 +21,10 @@ Mordecai wrote these things, and sent letters to all the Jews who were in all th
 to enjoin them that they should keep the fourteenth and fifteenth days of the month Adar yearly, 
 as the days in which the Jews had rest from their enemies, and the month which was turned to them from sorrow to gladness, and from mourning into a holiday; that they should make them days of feasting and gladness, and of sending presents of food to one another, and gifts to the needy. 
 The Jews accepted the custom that they had begun, as Mordecai had written to them, 
-because Haman the son of Hammedatha, the Agagite, the enemy of all the Jews, had plotted against the Jews to destroy them, and had cast "Pur", that is the lot, to consume them and to destroy them; 
+because Haman the son of Hammedatha, the Agagite, the enemy of all the Jews, had plotted against the Jews to destroy them, and had cast "Pur", that's the lot, to consume them and to destroy them; 
 but when this became known to the king, he commanded by letters that his guilty plan, which he had planned against the Jews, should return on his own head, and that he and his sons should be hanged on the gallows. 
 So they called these days "Purim", from the word "Pur." Therefore because of all the words of this letter, and of that which they had seen concerning this matter, and that which had come to them, 
-the Jews established and imposed on themselves, on their descendants, and on everyone who joined themselves to them, so that it shouldn't fail that they would keep these two days according to what was written and according to its appointed time every year; 
+the Jews established and imposed on themselves, on their descendants, and on everyone who joined themselves to them, so that it shouldn't fail that they'd keep these two days according to what was written and according to its appointed time every year; 
 and that these days should be remembered and kept throughout every generation, every family, every province, and every city; and that these days of Purim shouldn't fail from among the Jews, nor their memory perish from their offspring. 
 Then Esther the queen, the daughter of Abihail, and Mordecai the Jew wrote with all authority to confirm this second letter of Purim. 
 He sent letters to all the Jews in the hundred twenty-seven provinces of the kingdom of Ahasuerus with words of peace and truth, 

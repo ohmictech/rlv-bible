@@ -4,11 +4,11 @@ It was like the appearance of the vision which I saw, even according to the visi
 God's glory came into the house by the way of the gate which faces toward the east. 
 The Spirit took me up and brought me into the inner court; and look, God's glory filled the house. 
 I heard one speaking to me out of the house, and a man stood by me. 
-He said to me, "Son of man, this is the place of my throne and the place of the soles of my feet, where I will dwell among the children of Israel for the eras. The house of Israel will no more defile my holy name, neither they nor their kings, by their prostitution and by the dead bodies of their kings in their high places; 
+He said to me, "Son of man, this is the place of my throne and the place of the soles of my feet, where I'll dwell among the children of Israel for the eras. The house of Israel will no more defile my holy name, neither they nor their kings, by their prostitution and by the dead bodies of their kings in their high places; 
 in their setting of their threshold by my threshold and their door post beside my door post. There was a wall between me and them; and they have defiled my holy name by their abominations which they have committed. So I have consumed them in my anger. 
-Now let them put away their prostitution, and the dead bodies of their kings far from me. Then I will dwell among them for the eras. 
+Now let them put away their prostitution, and the dead bodies of their kings far from me. Then I'll dwell among them for the eras. 
 "You, son of man, show the house to the house of Israel, that they may be ashamed of their guilt; and let them measure the pattern. 
-If they are ashamed of all that they have done, make known to them the form of the house, its fashion, its exits, its entrances, its structure, all its ordinances, all its forms, and all its laws; and write it in their sight, that they may keep the whole form of it, and all its ordinances, and do them. 
+If they're ashamed of all that they have done, make known to them the form of the house, its fashion, its exits, its entrances, its structure, all its ordinances, all its forms, and all its laws; and write it in their sight, that they may keep the whole form of it, and all its ordinances, and do them. 
 "This is the law of the house. On the top of the mountain the whole limit around it shall be most holy. Look, this is the law of the house. 
 "These are the measurements of the altar by cubits (the cubit is a cubit and a hand width): the bottom shall be a cubit, and the width a cubit, and its border around its edge a span; and this shall be the base of the altar. 
 From the bottom on the ground to the lower ledge shall be two cubits, and the width one cubit; and from the lesser ledge to the greater ledge shall be four cubits, and the width a cubit. 
@@ -24,4 +24,4 @@ When you have finished cleansing it, you shall offer a young bull without defect
 You shall bring them near to God, and the priests shall cast salt on them, and they shall offer them up for a burnt offering to God. 
 "Seven days you shall prepare every day a goat for an offering for wrongdoing. They shall also prepare a young bull and a ram out of the flock, without defect. 
 Seven days shall they make things right for the altar and purify it. So shall they consecrate it. 
-When they have accomplished the days, it shall be that on the eighth day and onward, the priests shall make your burnt offerings on the altar and your offerings for wholeness. Then I will accept you,' says God." 
+When they have accomplished the days, it shall be that on the eighth day and onward, the priests shall make your burnt offerings on the altar and your offerings for wholeness. Then I'll accept you,' says God." 

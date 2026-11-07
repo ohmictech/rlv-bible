@@ -1,10 +1,10 @@
-﻿Look, you are beautiful, my love. Look, you are beautiful. Your eyes are like doves behind your veil. Your hair is as a flock of goats, that descend from Mount Gilead. 
+﻿Look, you're beautiful, my love. Look, you're beautiful. Your eyes are like doves behind your veil. Your hair is as a flock of goats, that descend from Mount Gilead. 
 Your teeth are like a newly shorn flock, which have come up from the washing, where every one of them has twins. None is bereaved among them. 
 Your lips are like scarlet thread. Your mouth is lovely. Your temples are like a piece of a pomegranate behind your veil. 
 Your neck is like David's tower built for an armory, on which a thousand shields hang, all the shields of the mighty men. 
 Your two breasts are like two fawns that are twins of a roe, which feed among the lilies. 
-Until the day is cool, and the shadows flee away, I will go to the mountain of myrrh, to the hill of frankincense. 
-You are all beautiful, my love. There is no spot in you. 
+Until the day is cool, and the shadows flee away, I'll go to the mountain of myrrh, to the hill of frankincense. 
+You're all beautiful, my love. There's no spot in you. 
 Come with me from Lebanon, my bride, with me from Lebanon. Look from the top of Amana, from the top of Senir and Hermon, from the lions' dens, from the mountains of the leopards. 
 You have ravished my heart, my sister, my bride. You have ravished my heart with one of your eyes, with one chain of your neck. 
 How beautiful is your love, my sister, my bride! How much better is your love than wine, the fragrance of your perfumes than all kinds of spices! 

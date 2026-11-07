@@ -15,7 +15,7 @@ I put on righteousness, and it clothed me. My justice was as a robe and a diadem
 I was eyes to the blind, and feet to the lame. 
 I was a father to the needy. I researched the cause of him whom I didn't know. 
 I broke the jaws of the unrighteous and plucked the prey out of his teeth. 
-Then I said, 'I will die in my own house, I will count my days as the sand. 
+Then I said, 'I'll die in my own house, I'll count my days as the sand. 
 My root is spread out to the waters. The dew lies all night on my branch. 
 My glory is fresh in me. My bow is renewed in my hand.' 
 "Men listened to me, waited, and kept silence for my counsel. 

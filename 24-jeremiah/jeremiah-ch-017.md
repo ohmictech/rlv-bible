@@ -1,27 +1,27 @@
-﻿"The wrongdoing of Judah is written with a pen of iron, and with the point of a diamond. It is engraved on the tablet of their heart, and on the horns of your altars. 
+﻿"The wrongdoing of Judah is written with a pen of iron, and with the point of a diamond. It's engraved on the tablet of their heart, and on the horns of your altars. 
 Even their children remember their altars and their Asherah poles by the green trees on the high hills. 
-My mountain in the field, I will give your substance and all your treasures for a plunder, and your high places, because of wrongdoing, throughout all your borders. 
-You, even of yourself, will discontinue from your heritage that I gave you. I will cause you to serve your enemies in the land which you don't know, for you have kindled a fire in my anger which will burn for the eras." 
+My mountain in the field, I'll give your substance and all your treasures for a plunder, and your high places, because of wrongdoing, throughout all your borders. 
+You, even of yourself, will discontinue from your heritage that I gave you. I'll cause you to serve your enemies in the land which you don't know, for you have kindled a fire in my anger which will burn for the eras." 
 God says: "Cursed is the man who trusts in man, relies on strength of flesh, and whose heart departs from God. 
-He will be like a bush in the desert, and won't see when good comes, but will inhabit the parched places in the wilderness, an uninhabited salt land. 
+He'll be like a bush in the desert, and won't see when good comes, but will inhabit the parched places in the wilderness, an uninhabited salt land. 
 "Blessed is the man who trusts in God, and whose confidence is in God. 
-He will be as a tree planted by the waters, who spreads out its roots by the river, and won't fear when heat comes, but its leaf will be green, and won't be concerned in the year of drought. It won't cease from yielding fruit. 
-The heart is deceitful above all things and it is exceedingly corrupt. Who can know it? 
+He'll be as a tree planted by the waters, who spreads out its roots by the river, and won't fear when heat comes, but its leaf will be green, and won't be concerned in the year of drought. It won't cease from yielding fruit. 
+The heart is deceitful above all things and it's exceedingly corrupt. Who can know it? 
 "I, God, search the mind. I try the heart, even to give every man according to his ways, according to the fruit of his doings." 
-As the partridge that sits on eggs which she hasn't laid, so is he who gets riches, and not by right. In the middle of his days, they will leave him. At his end, he will be a fool. 
+As the partridge that sits on eggs which she hasn't laid, so is he who gets riches, and not by right. In the middle of his days, they'll leave him. At his end, he'll be a fool. 
 A glorious throne, set on high from the beginning, is the place of our sanctuary. 
-God, the hope of Israel, everyone who forsakes you will be disappointed. Those who depart from me will be written in the earth, because they have forsaken God, the spring of living waters. 
-Heal me, O God, and I will be healed. Save me, and I will be saved; for you are my praise. 
+God, the hope of Israel, everyone who forsakes you'll be disappointed. Those who depart from me will be written in the earth, because they have forsaken God, the spring of living waters. 
+Heal me, O God, and I'll be healed. Save me, and I'll be saved; for you're my praise. 
 Look, they ask me, "Where is God's word? Let it be fulfilled now." 
 As for me, I haven't hurried from being a shepherd after you. I haven't desired the woeful day. You know. That which came out of my lips was before your face. 
-Don't be a terror to me. You are my refuge in the day of bad. 
+Don't be a terror to me. You're my refuge in the day of bad. 
 Let them be disappointed who persecute me, but don't let me be disappointed. Let them be dismayed, but don't let me be dismayed. Bring on them the day of bad, and destroy them with double destruction. 
 God said this to me: "Go and stand in the gate of the children of the people, through which the kings of Judah come in and by which they go out, and in all the gates of Jerusalem. 
 Tell them, 'Hear God's word, you kings of Judah, all Judah, and all the inhabitants of Jerusalem, that enter in by these gates: 
 God says, "Be careful, and bear no burden on the Sabbath day, nor bring it in by the gates of Jerusalem. 
 Don't carry a burden out of your houses on the Sabbath day. Don't do any work, but make the Sabbath day holy, as I commanded your fathers. 
 But they didn't listen. They didn't turn their ear, but made their neck stiff, that they might not hear, and might not receive instruction. 
-It will happen, if you diligently listen to me," says God, "to bring in no burden through the gates of this city on the Sabbath day, but to make the Sabbath day holy, to do no work therein; 
+It'll happen, if you diligently listen to me," says God, "to bring in no burden through the gates of this city on the Sabbath day, but to make the Sabbath day holy, to do no work therein; 
 then there will enter in by the gates of this city kings and princes sitting on David's throne, riding in chariots and on horses, they and their princes, the men of Judah and the inhabitants of Jerusalem; and this city will remain for the eras. 
-They will come from the cities of Judah, and from the places around Jerusalem, from the land of Benjamin, from the lowland, from the hill country, and from the South, bringing burnt offerings, sacrifices, meal offerings, and frankincense, and bringing sacrifices of thanksgiving to God's house. 
-But if you won't listen to me to make the Sabbath day holy, and not to bear a burden and enter in at the gates of Jerusalem on the Sabbath day, then I will kindle a fire in its gates, and it will devour the palaces of Jerusalem. It won't be quenched."'" 
+They'll come from the cities of Judah, and from the places around Jerusalem, from the land of Benjamin, from the lowland, from the hill country, and from the South, bringing burnt offerings, sacrifices, meal offerings, and frankincense, and bringing sacrifices of thanksgiving to God's house. 
+But if you won't listen to me to make the Sabbath day holy, and not to bear a burden and enter in at the gates of Jerusalem on the Sabbath day, then I'll kindle a fire in its gates, and it'll devour the palaces of Jerusalem. It won't be quenched."'" 

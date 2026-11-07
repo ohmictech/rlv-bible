@@ -1,4 +1,4 @@
-﻿"'In the seventh month, on the first day of the month, you shall have a holy convocation; you shall do no regular work. It is a day of blowing of trumpets to you. 
+﻿"'In the seventh month, on the first day of the month, you shall have a holy convocation; you shall do no regular work. It's a day of blowing of trumpets to you. 
 You shall offer a burnt offering for a pleasant aroma to God: one young bull, one ram, seven male lambs a year old without defect; 
 and their meal offering, fine flour mixed with oil: three tenths for the bull, two tenths for the ram, 
 and one tenth for every lamb of the seven lambs; 

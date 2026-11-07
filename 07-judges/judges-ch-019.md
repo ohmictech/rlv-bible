@@ -9,19 +9,19 @@ He arose early in the morning on the fifth day to depart; and the young lady's f
 When the man rose up to depart, he, and his concubine, and his servant, his father-in-law, the young lady's father, said to him, "Look, now the day draws toward evening, please stay all night. Look, the day is ending. Stay here, that your heart may be merry; and tomorrow go on your way early, that you may go home." 
 But the man wouldn't stay that night, but he rose up and went near Jebus (also called Jerusalem). With him were a couple of saddled donkeys. His concubine also was with him. 
 When they were by Jebus, the day was far spent; and the servant said to his master, "Please come and let's enter into this city of the Jebusites, and stay in it." 
-His master said to him, "We won't enter into the city of a foreigner that isn't of the children of Israel; but we will pass over to Gibeah." 
-He said to his servant, "Come and let's draw near to one of these places; and we will lodge in Gibeah, or in Ramah." 
+His master said to him, "We won't enter into the city of a foreigner that isn't of the children of Israel; but we'll pass over to Gibeah." 
+He said to his servant, "Come and let's draw near to one of these places; and we'll lodge in Gibeah, or in Ramah." 
 So they passed on and went their way; and the sun went down on them near Gibeah, which belongs to Benjamin. 
 They went over there, to go in to stay in Gibeah. He went in, and sat down in the street of the city; for there was no one who took them into his house to stay. 
 Look, an old man came from his work out of the field at evening. Now the man was from the hill country of Ephraim, and he lived in Gibeah; but the men of the place were Benjamites. 
 He lifted up his eyes, and saw the wayfaring man in the street of the city; and the old man said, "Where are you going? Where did you come from?" 
-He said to him, "We are passing from Bethlehem Judah to the farther side of the hill country of Ephraim. I am from there, and I went to Bethlehem Judah. I am going to God's house; and there is no one who has taken me into his house. 
-Yet there is both straw and feed for our donkeys; and there is bread and wine also for me, and for your servant, and for the young man who is with your servants. There is no lack of anything." 
+He said to him, "We're passing from Bethlehem Judah to the farther side of the hill country of Ephraim. I'm from there, and I went to Bethlehem Judah. I'm going to God's house; and there's no one who has taken me into his house. 
+Yet there's both straw and feed for our donkeys; and there's bread and wine also for me, and for your servant, and for the young man who's with your servants. There's no lack of anything." 
 The old man said, "Peace be to you! Just let me supply all your needs, but don't sleep in the street." 
 So he brought him into his house, and gave the donkeys fodder. Then they washed their feet, and ate and drank. 
 As they were making their hearts merry, look, the men of the city, certain guilty fellows, surrounded the house, beating at the door; and they spoke to the master of the house, the old man, saying, "Bring out the man who came into your house, that we can have sex with him!" 
 The man, the master of the house, went out to them, and said to them, "No, my brothers, please don't act so guiltily; since this man has come into my house, don't do this folly. 
-Look, here is my virgin daughter and his concubine. I will bring them out now. Humble them, and do with them what seems good to you; but to this man don't do any such folly." 
+Look, here's my virgin daughter and his concubine. I'll bring them out now. Humble them, and do with them what seems good to you; but to this man don't do any such folly." 
 But the men wouldn't listen to him; so the man grabbed his concubine, and brought her out to them; and they had sex with her, and abused her all night until the morning. When the day began to dawn, they let her go. 
 Then the woman came in the dawning of the day, and fell down at the door of the man's house where her lord was, until it was light. 
 Her lord rose up in the morning and opened the doors of the house, and went out to go his way; and look, the woman his concubine had fallen down at the door of the house, with her hands on the threshold. 

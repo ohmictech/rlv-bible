@@ -4,7 +4,7 @@ or has found that which was lost, and lied about it, and swearing to a lie, in a
 then it shall be, if he has drifted, and is guilty, he shall restore that which he took by robbery, or the thing which he has gotten by oppression, or the deposit which was committed to him, or the lost thing which he found, 
 or any thing about which he has sworn falsely: he shall restore it in full, and shall add a fifth part more to it. He shall return it to him to whom it belongs in the day of his being found guilty. 
 He shall bring his trespass offering to God: a ram without defect from the flock, according to your estimation, for a trespass offering, to the priest. 
-The priest shall make things right for him before God, and he will be forgiven concerning whatever he does to become guilty." 
+The priest shall make things right for him before God, and he'll be forgiven concerning whatever he does to become guilty." 
 God spoke to Moses, saying, 
 "Command Aaron and his sons, saying, 'This is the law of the burnt offering: the burnt offering shall be on the hearth on the altar all night until the morning; and the fire of the altar shall be kept burning on it. 
 The priest shall put on his linen garment, and he shall put on his linen trousers upon his body; and he shall remove the ashes from where the fire has consumed the burnt offering on the altar, and he shall put them beside the altar. 
@@ -14,17 +14,17 @@ Fire shall be kept burning on the altar continually; it shall not go out.
 "'This is the law of the meal offering: the sons of Aaron shall offer it before God, before the altar. 
 He shall take from there his handful of the fine flour of the meal offering, and of its oil, and all the frankincense which is on the meal offering, and shall burn it on the altar for a pleasant aroma, as its memorial portion, to God. 
 That which is left of it Aaron and his sons shall eat. It shall be eaten without yeast in a holy place. They shall eat it in the court of the Tent of Meeting. 
-It shall not be baked with yeast. I have given it as their portion of my offerings made by fire. It is most holy, as are the offering for wrongdoing and the trespass offering. 
+It shall not be baked with yeast. I have given it as their portion of my offerings made by fire. It's most holy, as are the offering for wrongdoing and the trespass offering. 
 Every male among the children of Aaron shall eat of it, as their portion for the eras throughout your generations, from the offerings of God made by fire. Whoever touches them shall be holy.'" 
 God spoke to Moses, saying, 
-"This is the offering of Aaron and of his sons, which they shall offer to God in the day when he is anointed: one tenth of an ephah of fine flour for a meal offering perpetually, half of it in the morning, and half of it in the evening. 
-It shall be made with oil in a griddle. When it is soaked, you shall bring it in. You shall offer the meal offering in baked pieces for a pleasant aroma to God. 
+"This is the offering of Aaron and of his sons, which they shall offer to God in the day when he's anointed: one tenth of an ephah of fine flour for a meal offering perpetually, half of it in the morning, and half of it in the evening. 
+It shall be made with oil in a griddle. When it's soaked, you shall bring it in. You shall offer the meal offering in baked pieces for a pleasant aroma to God. 
 The anointed priest that will be in his place from among his sons shall offer it. By a statute for the eras, it shall be wholly burned to God. 
 Every meal offering of a priest shall be wholly burned. It shall not be eaten." 
 God spoke to Moses, saying, 
-"Speak to Aaron and to his sons, saying, 'This is the law of the offering for wrongdoing: in the place where the burnt offering is killed, the offering for wrongdoing shall be killed before God. It is most holy. 
+"Speak to Aaron and to his sons, saying, 'This is the law of the offering for wrongdoing: in the place where the burnt offering is killed, the offering for wrongdoing shall be killed before God. It's most holy. 
 The priest who offers it as an offering for wrongdoing shall eat it. It shall be eaten in a holy place, in the court of the Tent of Meeting. 
-Whatever shall touch its flesh shall be holy. When there is any of its blood sprinkled on a garment, you shall wash that on which it was sprinkled in a holy place. 
-But the earthen vessel in which it is boiled shall be broken; and if it is boiled in a bronze vessel, it shall be scoured, and rinsed in water. 
-Every male among the priests shall eat of it. It is most holy. 
+Whatever shall touch its flesh shall be holy. When there's any of its blood sprinkled on a garment, you shall wash that on which it was sprinkled in a holy place. 
+But the earthen vessel in which it's boiled shall be broken; and if it's boiled in a bronze vessel, it shall be scoured, and rinsed in water. 
+Every male among the priests shall eat of it. It's most holy. 
 No offering for wrongdoing, of which any of the blood is brought into the Tent of Meeting to make things right in the Holy Place, shall be eaten. It shall be burned with fire. 

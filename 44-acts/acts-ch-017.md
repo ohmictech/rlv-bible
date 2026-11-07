@@ -4,7 +4,7 @@ explaining and demonstrating that the Christ had to suffer and rise again from t
 Some of them were persuaded and joined Paul and Silas: of the devout Greeks a great crowd, and not a few of the chief women. 
 But the unpersuaded Jewish people took along some malicious men from the marketplace and gathering a crowd, set the city in an uproar. Assaulting the house of Jason, they sought to bring them out to the people. 
 When they didn't find them, they dragged Jason and certain brothers before the rulers of the city, crying, "These who have turned the world upside down have come here also, 
-whom Jason has received. These all act contrary to the decrees of Caesar, saying that there is another king, Jesus!" 
+whom Jason has received. These all act contrary to the decrees of Caesar, saying that there's another king, Jesus!" 
 The crowd and the rulers of the city were troubled when they heard these things. 
 When they had taken security from Jason and the rest, they let them go. 
 The brothers immediately sent Paul and Silas away by night to Beroea. When they arrived, they went into the Jewish gathering place. 
@@ -16,19 +16,19 @@ But those who escorted Paul brought him as far as Athens. Receiving a commandmen
 Now while Paul waited for them at Athens, his spirit was provoked within him as he saw the city full of idols. 
 So he reasoned in the gathering place with the Jewish people and the devout persons, and in the marketplace every day with those who met him. 
 Some of the Epicurean and Stoic philosophers also were conversing with him. Some said, "What does this babbler want to say?" Others said, "He seems to be advocating foreign deities," because he announced Jesus and the rising from the dead. 
-They took hold of him and brought him to the Areopagus, saying, "May we know what this new teaching is, which you are speaking about? 
+They took hold of him and brought him to the Areopagus, saying, "May we know what this new teaching is, which you're speaking about? 
 You bring certain strange things to our ears. We want to know what these things mean." 
 Now all the Athenians and the strangers living there spent their time in nothing else, but either to tell or to hear some new thing. 
-Paul stood in the middle of the Areopagus and said, "You men of Athens, I perceive that you are very religious in all things. 
+Paul stood in the middle of the Areopagus and said, "You men of Athens, I perceive that you're very religious in all things. 
 As I passed along and observed the objects of your worship, I also found an altar with this inscription: 'TO AN UNKNOWN GOD.' What you worship in ignorance, I announce to you. 
 The God who made the world and all things in it, he, being Lord of the sky and the land, doesn't dwell in temples made with hands. 
 He isn't served by men's hands, as though he needed anything, seeing he himself gives to all life and breath and all things. 
 He made from one blood every nation of people to dwell on all the surface of the land, having determined appointed seasons and the boundaries of their dwellings, 
 that they should seek the Lord, if perhaps they could reach out for him and find him, though he isn't far from each one of us. 
-'For in him we live, move, and have our being.' As some of your own poets have said, 'For we are also his offspring.' 
+'For in him we live, move, and have our being.' As some of your own poets have said, 'For we're also his offspring.' 
 Being then the offspring of God, we ought not to think that the Divine Nature is like gold, or silver, or stone, engraved by art and design of man. 
 The times of ignorance God overlooked. But now he commands that everyone everywhere should have a change of heart, 
-because he has appointed a day in which he will judge the world in rightness by the man whom he has ordained; of which he has given assurance to everyone, in that he has raised him from the dead." 
+because he has appointed a day in which he'll judge the world in rightness by the man whom he has ordained; of which he has given assurance to everyone, in that he has raised him from the dead." 
 Now when they heard of the rising of the dead, some mocked; but others said, "We want to hear you again concerning this." 
 Thus Paul went out from among them. 
 But certain men joined with him and trusted, including Dionysius the Areopagite, and a woman named Damaris, and others with them. 

@@ -1,25 +1,25 @@
 ﻿Elihu also continued, and said, 
-"Bear with me a little, and I will show you; for I still have something to say on God's behalf. 
-I will get my knowledge from afar, and will ascribe righteousness to my Maker. 
-Truly my words aren't false. One who is perfect in knowledge is with you. 
-"Look, God is mighty, and doesn't despise anyone. He is mighty in strength of understanding. 
+"Bear with me a little, and I'll show you; for I still have something to say on God's behalf. 
+I'll get my knowledge from afar, and will ascribe righteousness to my Maker. 
+Truly my words aren't false. One who's perfect in knowledge is with you. 
+"Look, God is mighty, and doesn't despise anyone. He's mighty in strength of understanding. 
 He doesn't preserve the life of the guilty, but gives justice to the afflicted. 
-He doesn't withdraw his eyes from the righteous, but with kings on the throne, he sets them for the eras, and they are exalted. 
-If they are bound in fetters, and are taken in the cords of afflictions, 
+He doesn't withdraw his eyes from the righteous, but with kings on the throne, he sets them for the eras, and they're exalted. 
+If they're bound in fetters, and are taken in the cords of afflictions, 
 then he shows them their work, and their rebellion, that they have behaved themselves proudly. 
 He also opens their ears to instruction, and commands that they return from guilt. 
-If they listen and serve him, they will spend their days in prosperity, and their years in pleasures. 
-But if they don't listen, they will perish by the sword; they will die without knowledge. 
+If they listen and serve him, they'll spend their days in prosperity, and their years in pleasures. 
+But if they don't listen, they'll perish by the sword; they'll die without knowledge. 
 "But those who are godless in heart lay up anger. They don't cry for help when he binds them. 
 They die in youth. Their life perishes among the unclean. 
 He delivers the afflicted by their affliction, and opens their ear in oppression. 
-Yes, he would have allured you out of distress, into a wide place, where there is no restriction. That which is set on your table would be full of fatness. 
-"But you are full of the judgment of the guilty. Judgment and justice take hold of you. 
+Yes, he'd have allured you out of distress, into a wide place, where there's no restriction. That which is set on your table would be full of fatness. 
+"But you're full of the judgment of the guilty. Judgment and justice take hold of you. 
 Don't let riches entice you to wrath, neither let the great size of a bribe turn you aside. 
 Would your wealth sustain you in distress, or all the might of your strength? 
 Don't desire the night, when people are cut off in their place. 
 Take heed, don't regard guilt; for you have chosen this rather than affliction. 
-Look, God is exalted in his power. Who is a teacher like him? 
+Look, God is exalted in his power. Who's a teacher like him? 
 Who has prescribed his way for him? Or who can say, 'You have committed unrighteousness'? 
 "Remember that you magnify his work, about which men have sung. 
 All men have looked on it. Man sees it afar off. 

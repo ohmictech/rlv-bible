@@ -7,5 +7,5 @@ Kill utterly the old man, the young man, the virgin, little children and women; 
 He said to them, "Defile the house, and fill the courts with the slain. Go out!" They went out, and struck in the city. 
 While they were killing, and I was left, I fell on my face, and cried, and said, "Ah God! Will you destroy all the residue of Israel in your pouring out of your wrath on Jerusalem?" 
 Then he said to me, "The guilt of the house of Israel and Judah is exceedingly great, and the land is full of blood, and the city full of perversion; for they say, 'God has forsaken the land, and God doesn't see.' 
-As for me also, my eye won't spare, neither will I have pity, but I will bring their way on their head." 
+As for me also, my eye won't spare, neither will I have pity, but I'll bring their way on their head." 
 Look, the man clothed in linen, who had the inkhorn by his side, reported the matter, saying, "I have done as you have commanded me." 

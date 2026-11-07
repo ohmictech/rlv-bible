@@ -1,15 +1,15 @@
 ﻿Then I returned and saw all the oppressions that are done under the sun: and look, the tears of those who were oppressed, and they had no comforter; and on the side of their oppressors there was power; but they had no comforter. 
 So I praised the dead who have been long dead more than the living who are yet alive. 
-Yes, better than them both is him who hasn't yet been, who hasn't seen the bad work that is done under the sun. 
-Then I saw all the labor and achievement that is the envy of a man's neighbor. This also is vanity and a striving after wind. 
+Yes, better than them both is him who hasn't yet been, who hasn't seen the bad work that's done under the sun. 
+Then I saw all the labor and achievement that's the envy of a man's neighbor. This also is vanity and a striving after wind. 
 The fool folds his hands together and ruins himself. 
 Better is a handful, with quietness, than two handfuls with labor and chasing after wind. 
 Then I returned and saw vanity under the sun. 
-There is one who is alone, and he has neither son nor brother. There is no end to all of his labor, neither are his eyes satisfied with wealth. "For whom then do I labor and deprive my soul of enjoyment?" This also is vanity. Yes, it is a miserable business. 
+There's one who's alone, and he has neither son nor brother. There's no end to all of his labor, neither are his eyes satisfied with wealth. "For whom then do I labor and deprive my soul of enjoyment?" This also is vanity. Yes, it's a miserable business. 
 Two are better than one, because they have a good reward for their labor. 
-If they fall, the one will lift up his fellow; but woe to him who is alone when he falls, and doesn't have another to lift him up. 
+If they fall, the one will lift up his fellow; but woe to him who's alone when he falls, and doesn't have another to lift him up. 
 Again, if two lie together, then they have warmth; but how can one keep warm alone? 
-If a man prevails against one who is alone, two shall withstand him; and a threefold cord isn't quickly broken. 
+If a man prevails against one who's alone, two shall withstand him; and a threefold cord isn't quickly broken. 
 Better is a poor and wise youth than an old and foolish king who doesn't know how to receive admonition any more. 
 Out of prison he came out to be king; yes, even in his kingdom he was born poor. 
 I saw all the living who walk under the sun, that they were with the youth, the other, who succeeded him. 

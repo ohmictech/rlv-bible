@@ -1,11 +1,11 @@
 ﻿Remember, God, what has come on us. Look, and see our reproach. 
 Our inheritance has been turned over to strangers, our houses to aliens. 
-We are orphans and fatherless. Our mothers are as widows. 
+We're orphans and fatherless. Our mothers are as widows. 
 We must pay for water to drink. Our wood is sold to us. 
-Our pursuers are on our necks. We are weary, and have no rest. 
+Our pursuers are on our necks. We're weary, and have no rest. 
 We have given our hands to the Egyptians, and to the Assyrians, to be satisfied with bread. 
 Our fathers drifted, and are no more. We have borne their guilt. 
-Servants rule over us. There is no one to deliver us out of their hand. 
+Servants rule over us. There's no one to deliver us out of their hand. 
 We get our bread at the peril of our lives, because of the sword in the wilderness. 
 Our skin is black like an oven, because of the burning heat of famine. 
 They ravished the women in Zion, the virgins in the cities of Judah. 
@@ -18,5 +18,5 @@ This our heart is faint. These things our eyes are dim:
 for the mountain of Zion, which is desolate. The foxes walk on it. 
 You, God, remain for the eras. Your throne is from generation to generation. 
 Why do you forget us for the eras, and forsake us for so long a time? 
-Turn us to yourself, God, and we will be turned. Renew our days as of old. 
-But you have utterly rejected us. You are very angry against us. 
+Turn us to yourself, God, and we'll be turned. Renew our days as of old. 
+But you have utterly rejected us. You're very angry against us. 

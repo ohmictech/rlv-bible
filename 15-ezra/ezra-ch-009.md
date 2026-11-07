@@ -3,13 +3,13 @@ They have taken of their daughters for themselves and for their sons, so that th
 When I heard this thing, I tore my garment and my robe, and pulled the hair out of my head and of my beard, and sat down confounded. 
 Then everyone who trembled at the words of the God of Israel were assembled to me because of the trespass of the exiles; and I sat confounded until the evening offering. 
 At the evening offering I rose up from my humiliation, even with my garment and my robe torn; and I fell on my knees, and spread out my hands to my God; 
-and I said, "My God, I am ashamed and blush to lift up my face to you, my God, for our guilt have increased over our head, and our guiltiness has grown up to the sky. 
-Since the days of our fathers we have been exceedingly guilty to this day; and for our guilt we, our kings, and our priests have been delivered into the hand of the kings of the lands, to the sword, to captivity, to plunder, and to confusion of face, as it is this day. 
+and I said, "My God, I'm ashamed and blush to lift up my face to you, my God, for our guilt have increased over our head, and our guiltiness has grown up to the sky. 
+Since the days of our fathers we have been exceedingly guilty to this day; and for our guilt we, our kings, and our priests have been delivered into the hand of the kings of the lands, to the sword, to captivity, to plunder, and to confusion of face, as it's this day. 
 Now for a little moment grace has been shown from our God, to leave us a remnant to escape, and to give us a stake in his holy place, that our God may lighten our eyes, and revive us a little in our bondage. 
-We are bondservants; yet our God hasn't forsaken us in our bondage, but has extended loving kindness to us in the sight of the kings of Persia, to revive us, to set up the house of our God, and to repair its ruins, and to give us a wall in Judah and in Jerusalem. 
+We're bondservants; yet our God hasn't forsaken us in our bondage, but has extended loving kindness to us in the sight of the kings of Persia, to revive us, to set up the house of our God, and to repair its ruins, and to give us a wall in Judah and in Jerusalem. 
 "Now, our God, what shall we say after this? We have forsaken your commandments, 
 which you have commanded by your servants the spokesmen, saying, 'The land to which you go to possess is an unclean land through the uncleanness of the peoples of the lands, through their abominations, which have filled it from one end to another with their filthiness. 
 Now don't give your daughters to their sons. Don't take their daughters to your sons, nor seek their peace or their prosperity for the eras, that you may be strong and eat the good of the land, and leave it for an inheritance to your children for the eras.' 
 "After all that has come on us for our bad deeds and for our great guilt, since you, our God, have punished us less than our guilt deserve, and have given us such a remnant, 
 shall we again break your commandments, and join ourselves with the peoples that do these abominations? Wouldn't you be angry with us until you had consumed us, so that there would be no remnant, nor any to escape? 
-the God of Israel, you are righteous; for we are left a remnant that has escaped, as it is today. Look, we are before you in our guiltiness; for no one can stand before you because of this." 
+the God of Israel, you're righteous; for we're left a remnant that has escaped, as it's today. Look, we're before you in our guiltiness; for no one can stand before you because of this." 

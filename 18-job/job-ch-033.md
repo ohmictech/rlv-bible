@@ -1,33 +1,33 @@
 ﻿"However, Job, please hear my speech, and listen to all my words. 
 See now, I have opened my mouth. My tongue has spoken in my mouth. 
-My words will utter the uprightness of my heart. That which my lips know they will speak sincerely. 
+My words will utter the uprightness of my heart. That which my lips know they'll speak sincerely. 
 The Spirit of God has made me, and the breath of the Almighty gives me life. 
 If you can, answer me. Set your words in order before me, and stand up. 
-Look, I am toward God even as you are. I am also formed out of the clay. 
+Look, I'm toward God even as you're. I'm also formed out of the clay. 
 Look, my terror won't make you afraid, neither will my pressure be heavy on you. 
 "Surely you have spoken in my hearing, I have heard the voice of your words, saying, 
-'I am clean, without disobedience. I am innocent, neither is there guilt in me. 
+'I'm clean, without disobedience. I'm innocent, neither is there guilt in me. 
 Look, he finds occasions against me. He counts me for his enemy. 
 He puts my feet in the stocks. He marks all my paths.' 
-"Look, I will answer you. In this you aren't just, for God is greater than man. 
+"Look, I'll answer you. In this you aren't just, for God is greater than man. 
 Why do you strive against him, because he doesn't give account of any of his matters? 
 God speaks once, yes twice, though man pays no attention. 
 In a dream, in a vision of the night, when deep sleep falls on men, in slumbering on the bed, 
 then he opens the ears of men, and seals their instruction, 
 that he may withdraw man from his purpose, and hide pride from man. 
 He keeps back his soul from the pit, and his life from perishing by the sword. 
-"He is chastened also with pain on his bed, with continual strife in his bones, 
+"He's chastened also with pain on his bed, with continual strife in his bones, 
 so that his life abhors bread, and his soul dainty food. 
 His flesh is so consumed away that it can't be seen. His bones that weren't seen stick out. 
 Yes, his soul draws near to the pit, and his life to the destroyers. 
-"If there is beside him an messenger, an interpreter, one among a thousand, to show to man what is right for him, 
+"If there's beside him an messenger, an interpreter, one among a thousand, to show to man what's right for him, 
 then God is gracious to him, and says, 'Deliver him from going down to the pit, I have found a ransom.' 
 His flesh will be fresher than a child's. He returns to the days of his youth. 
-He prays to God, and he is favorable to him, so that he sees his face with joy. He restores to man his righteousness. 
+He prays to God, and he's favorable to him, so that he sees his face with joy. He restores to man his righteousness. 
 He sings before men, and says, 'I have drifted, and perverted that which was right, and it didn't profit me. 
 He has bought back my soul from going into the pit. My life will see the light.' 
 "Look, God does all these things, twice, yes three times, with a man, 
 to bring back his soul from the pit, that he may be enlightened with the light of the living. 
-Mark well, Job, and listen to me. Hold your peace, and I will speak. 
+Mark well, Job, and listen to me. Hold your peace, and I'll speak. 
 If you have anything to say, answer me. Speak, for I desire to justify you. 
-If not, listen to me. Hold your peace, and I will teach you wisdom." 
+If not, listen to me. Hold your peace, and I'll teach you wisdom." 

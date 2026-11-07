@@ -1,8 +1,8 @@
 ﻿God's ark was in the country of the Philistines seven months. 
 The Philistines called for the priests and the diviners, saying, "What shall we do with God's ark? Show us how we should send it to its place." 
-They said, "If you send away the ark of the God of Israel, don't send it empty; but by all means return a trespass offering to him. Then you will be healed, and it will be known to you why his hand isn't removed from you." 
+They said, "If you send away the ark of the God of Israel, don't send it empty; but by all means return a trespass offering to him. Then you'll be healed, and it'll be known to you why his hand isn't removed from you." 
 Then they said, "What should the trespass offering be which we shall return to him?" They said, "Five golden tumors and five golden mice, for the number of the lords of the Philistines; for one plague was on you all, and on your lords. 
-So you shall make images of your tumors and images of your mice that mar the land; and you shall give glory to the God of Israel. Perhaps he will release his hand from you, from your gods, and from your land. 
+So you shall make images of your tumors and images of your mice that mar the land; and you shall give glory to the God of Israel. Perhaps he'll release his hand from you, from your gods, and from your land. 
 Why then do you harden your hearts as the Egyptians and Pharaoh hardened their hearts? When he had worked wonderfully among them, didn't they let the people go, and they departed? 
 "Now take and prepare yourselves a new cart and two milk cows on which there has come no yoke; and tie the cows to the cart, and bring their calves home from them; 
 and take God's ark and lay it on the cart. Put the jewels of gold, which you return him for a trespass offering, in a box by its side; and send it away, that it may go. 
@@ -17,5 +17,5 @@ When the five lords of the Philistines had seen it, they returned to Ekron the s
 These are the golden tumors which the Philistines returned for a trespass offering to God: for Ashdod one, for Gaza one, for Ashkelon one, for Gath one, for Ekron one; 
 and the golden mice, according to the number of all the cities of the Philistines belonging to the five lords, both of fortified cities and of country villages, even to the great stone on which they set down God's ark. That stone remains to this day in the field of Joshua of Beth Shemesh. 
 He struck of the men of Beth Shemesh, because they had looked into God's ark, he struck fifty thousand seventy of the men. Then the people mourned, because God had struck the people with a great slaughter. 
-The men of Beth Shemesh said, "Who is able to stand before God, this holy God? To whom shall he go up from us?" 
+The men of Beth Shemesh said, "Who's able to stand before God, this holy God? To whom shall he go up from us?" 
 They sent messengers to the inhabitants of Kiriath Jearim, saying, "The Philistines have brought back God's ark. Come down and bring it up to yourselves." 

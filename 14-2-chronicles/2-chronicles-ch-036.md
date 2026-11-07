@@ -5,7 +5,7 @@ The king of Egypt made Eliakim his brother king over Judah and Jerusalem, and ch
 Jehoiakim was twenty-five years old when he began to reign, and he reigned eleven years in Jerusalem. He did that which was bad in his God's sight. 
 Nebuchadnezzar king of Babylon came up against him, and bound him in fetters to carry him to Babylon. 
 Nebuchadnezzar also carried some of the vessels of God's house to Babylon, and put them in his temple at Babylon. 
-Now the rest of the acts of Jehoiakim, and his abominations which he did, and that which was found in him, look, they are written in the book of the kings of Israel and Judah; and Jehoiachin his son reigned in his place. 
+Now the rest of the acts of Jehoiakim, and his abominations which he did, and that which was found in him, look, they're written in the book of the kings of Israel and Judah; and Jehoiachin his son reigned in his place. 
 Jehoiachin was eight years old when he began to reign, and he reigned three months and ten days in Jerusalem. He did that which was bad in God's sight. 
 At the return of the year, King Nebuchadnezzar sent and brought him to Babylon, with the valuable vessels of God's house, and made Zedekiah his brother king over Judah and Jerusalem. 
 Zedekiah was twenty-one years old when he began to reign, and he reigned eleven years in Jerusalem. 
@@ -20,4 +20,4 @@ They burned God's house, broke down the wall of Jerusalem, burned all its palace
 He carried those who had escaped from the sword away to Babylon, and they were servants to him and his sons until the reign of the kingdom of Persia, 
 to fulfill God's word by Jeremiah's mouth, until the land had enjoyed its Sabbaths. As long as it lay desolate, it kept Sabbath, to fulfill seventy years. 
 Now in the first year of Cyrus king of Persia, that God's word by the mouth of Jeremiah might be accomplished, God stirred up the spirit of Cyrus king of Persia, so that he made a proclamation throughout all his kingdom, and put it also in writing, saying, 
-"Cyrus king of Persia says, 'The God of the sky has given all the kingdoms of the earth to me; and he has commanded me to build him a house in Jerusalem, which is in Judah. Whoever there is among you of all his people, his God be with him, and let him go up.'" 
+"Cyrus king of Persia says, 'The God of the sky has given all the kingdoms of the earth to me; and he has commanded me to build him a house in Jerusalem, which is in Judah. Whoever there's among you of all his people, his God be with him, and let him go up.'" 

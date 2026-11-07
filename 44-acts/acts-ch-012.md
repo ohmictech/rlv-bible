@@ -12,7 +12,7 @@ When Peter had come to himself, he said, "Now I truly know that the Lord has sen
 Thinking about that, he came to the house of Mary, the mother of John who was called Mark, where many were gathered together and were praying. 
 When Peter knocked at the door of the gate, a servant girl named Rhoda came to answer. 
 When she recognized Peter's voice, she didn't open the gate for joy, but ran in and reported that Peter was standing in front of the gate. 
-They said to her, "You are crazy!" But she insisted that it was so. They said, "It is his messenger." 
+They said to her, "You're crazy!" But she insisted that it was so. They said, "It's his messenger." 
 But Peter continued knocking. When they had opened, they saw him and were amazed. 
 But he motioned with his hand for them to be silent and told them how the Lord had brought him out of the prison. He said, "Tell these things to James and to the brothers." Then he departed and went to another place. 
 Now as soon as it was day, there was quite a stir among the soldiers about what had become of Peter. 

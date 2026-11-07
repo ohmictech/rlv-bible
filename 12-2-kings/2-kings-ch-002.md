@@ -6,8 +6,8 @@ The sons of the spokesmen who were at Jericho came near to Elisha, and said to h
 Elijah said to him, "Please wait here, for God has sent me to the Jordan." He said, "As God lives, and as your soul lives, I won't leave you." Then they both went on. 
 Fifty men of the sons of the spokesmen went and stood opposite them at a distance; and they both stood by the Jordan. 
 Elijah took his mantle, and rolled it up, and struck the waters; and they were divided here and there, so that they both went over on dry ground. 
-When they had gone over, Elijah said to Elisha, "Ask what I shall do for you, before I am taken from you." Elisha said, "Please let a double portion of your spirit be on me." 
-He said, "You have asked a hard thing. If you see me when I am taken from you, it will be so for you; but if not, it won't be so." 
+When they had gone over, Elijah said to Elisha, "Ask what I shall do for you, before I'm taken from you." Elisha said, "Please let a double portion of your spirit be on me." 
+He said, "You have asked a hard thing. If you see me when I'm taken from you, it'll be so for you; but if not, it won't be so." 
 As they continued on and talked, look, a chariot of fire and horses of fire separated them; and Elijah went up by a whirlwind into the sky. 
 Elisha saw it, and he cried, "My father, my father, the chariots of Israel and its horsemen!" He saw him no more. Then he took hold of his own clothes and tore them in two pieces. 
 He also took up Elijah's mantle that fell from him, and went back and stood by the bank of the Jordan. 

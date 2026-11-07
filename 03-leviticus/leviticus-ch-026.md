@@ -1,46 +1,46 @@
-﻿"'You shall make for yourselves no idols, and you shall not raise up a carved image or a pillar, and you shall not place any figured stone in your land, to bow down to it; for I am your God. 
-"'You shall keep my Sabbaths, and have reverence for my sanctuary. I am God. 
+﻿"'You shall make for yourselves no idols, and you shall not raise up a carved image or a pillar, and you shall not place any figured stone in your land, to bow down to it; for I'm your God. 
+"'You shall keep my Sabbaths, and have reverence for my sanctuary. I'm God. 
 "'If you walk in my statutes and keep my commandments, and do them, 
-then I will give you your rains in their season, and the land shall yield its increase, and the trees of the field shall yield their fruit. 
+then I'll give you your rains in their season, and the land shall yield its increase, and the trees of the field shall yield their fruit. 
 Your threshing shall continue until the vintage, and the vintage shall continue until the sowing time. You shall eat your bread to the full, and dwell in your land safely. 
-"'I will give peace in the land, and you shall lie down, and no one will make you afraid. I will remove bad animals out of the land, neither shall the sword go through your land. 
+"'I'll give peace in the land, and you shall lie down, and no one will make you afraid. I'll remove bad animals out of the land, neither shall the sword go through your land. 
 You shall chase your enemies, and they shall fall before you by the sword. 
 Five of you shall chase a hundred, and a hundred of you shall chase ten thousand; and your enemies shall fall before you by the sword. 
-"'I will have respect for you, make you fruitful, multiply you, and will establish my covenant with you. 
+"'I'll have respect for you, make you fruitful, multiply you, and will establish my covenant with you. 
 You shall eat old supplies long kept, and you shall move out the old because of the new. 
-I will set my tent among you, and my soul won't abhor you. 
-I will walk among you, and will be your God, and you will be my people. 
-I am your God, who brought you out of the land of Egypt, that you shouldn't be their slaves. I have broken the bars of your yoke, and made you walk upright. 
+I'll set my tent among you, and my soul won't abhor you. 
+I'll walk among you, and will be your God, and you'll be my people. 
+I'm your God, who brought you out of the land of Egypt, that you shouldn't be their slaves. I have broken the bars of your yoke, and made you walk upright. 
 "'But if you won't listen to me, and won't do all these commandments, 
 and if you shall reject my statutes, and if your soul abhors my ordinances, so that you won't do all my commandments, but break my covenant, 
-I also will do this to you: I will appoint terror over you, even consumption and fever, that shall consume the eyes, and make the soul to pine away. You will sow your seed in vain, for your enemies will eat it. 
-I will set my face against you, and you will be struck before your enemies. Those who hate you will rule over you; and you will flee when no one pursues you. 
-"'If you in spite of these things won't listen to me, then I will chastise you seven times more for your mistakes. 
-I will break the pride of your power, and I will make your sky like iron, and your soil like bronze. 
+I also will do this to you: I'll appoint terror over you, even consumption and fever, that shall consume the eyes, and make the soul to pine away. You'll sow your seed in vain, for your enemies will eat it. 
+I'll set my face against you, and you'll be struck before your enemies. Those who hate you'll rule over you; and you'll flee when no one pursues you. 
+"'If you in spite of these things won't listen to me, then I'll chastise you seven times more for your mistakes. 
+I'll break the pride of your power, and I'll make your sky like iron, and your soil like bronze. 
 Your strength will be spent in vain; for your land won't yield its increase, neither will the trees of the land yield their fruit. 
-"'If you walk contrary to me, and won't listen to me, then I will bring seven times more plagues on you according to your mistakes. 
-I will send the wild animals among you, which will rob you of your children, destroy your livestock, and make you few in number. Your roads will become desolate. 
+"'If you walk contrary to me, and won't listen to me, then I'll bring seven times more plagues on you according to your mistakes. 
+I'll send the wild animals among you, which will rob you of your children, destroy your livestock, and make you few in number. Your roads will become desolate. 
 "'If by these things you won't be turned back to me, but will walk contrary to me, 
-then I will also walk contrary to you; and I will strike you, even I, seven times for your mistakes. 
-I will bring a sword upon you that will execute the vengeance of the covenant. You will be gathered together within your cities, and I will send the pestilence among you. You will be delivered into the hand of the enemy. 
+then I'll also walk contrary to you; and I'll strike you, even I, seven times for your mistakes. 
+I'll bring a sword upon you that will execute the vengeance of the covenant. You'll be gathered together within your cities, and I'll send the pestilence among you. You'll be delivered into the hand of the enemy. 
 When I break your staff of bread, ten women shall bake your bread in one oven, and they shall deliver your bread again by weight. You shall eat, and not be satisfied. 
 "'If you in spite of this won't listen to me, but walk contrary to me, 
-then I will walk contrary to you in wrath. I will also chastise you seven times for your mistakes. 
-You will eat the flesh of your sons, and you will eat the flesh of your daughters. 
-I will destroy your high places, and cut down your incense altars, and cast your dead bodies upon the bodies of your idols; and my soul will abhor you. 
-I will lay your cities waste, and will bring your sanctuaries to desolation. I won't take delight in the sweet fragrance of your offerings. 
-I will bring the land into desolation, and your enemies who dwell in it will be astonished at it. 
-I will scatter you among the nations, and I will draw out the sword after you. Your land will be a desolation, and your cities shall be a waste. 
-Then the land will enjoy its Sabbaths as long as it lies desolate and you are in your enemies' land. Even then the land will rest and enjoy its Sabbaths. 
+then I'll walk contrary to you in wrath. I'll also chastise you seven times for your mistakes. 
+You'll eat the flesh of your sons, and you'll eat the flesh of your daughters. 
+I'll destroy your high places, and cut down your incense altars, and cast your dead bodies upon the bodies of your idols; and my soul will abhor you. 
+I'll lay your cities waste, and will bring your sanctuaries to desolation. I won't take delight in the sweet fragrance of your offerings. 
+I'll bring the land into desolation, and your enemies who dwell in it'll be astonished at it. 
+I'll scatter you among the nations, and I'll draw out the sword after you. Your land will be a desolation, and your cities shall be a waste. 
+Then the land will enjoy its Sabbaths as long as it lies desolate and you're in your enemies' land. Even then the land will rest and enjoy its Sabbaths. 
 As long as it lies desolate it shall have rest, even the rest which it didn't have in your Sabbaths when you lived on it. 
-"'As for those of you who are left, I will send a faintness into their hearts in the lands of their enemies. The sound of a driven leaf will put them to flight; and they shall flee, as one flees from the sword. They will fall when no one pursues. 
-They will stumble over one another, as it were before the sword, when no one pursues. You will have no power to stand before your enemies. 
-You will perish among the nations. The land of your enemies will eat you up. 
+"'As for those of you who are left, I'll send a faintness into their hearts in the lands of their enemies. The sound of a driven leaf will put them to flight; and they shall flee, as one flees from the sword. They'll fall when no one pursues. 
+They'll stumble over one another, as it were before the sword, when no one pursues. You'll have no power to stand before your enemies. 
+You'll perish among the nations. The land of your enemies will eat you up. 
 Those of you who are left will pine away in their guilt in your enemies' lands; and also in the guilt of their fathers they shall pine away with them. 
 "'If they confess their guilt and the guilt of their fathers, in their trespass which they trespassed against me; and also that because they walked contrary to me, 
 I also walked contrary to them, and brought them into the land of their enemies; if then their uncircumcised heart is humbled, and they then accept the punishment of their guilt, 
-then I will remember my covenant with Jacob, my covenant with Isaac, and also my covenant with Abraham; and I will remember the land. 
-The land also will be left by them, and will enjoy its Sabbaths while it lies desolate without them; and they will accept the punishment of their guilt because they rejected my ordinances, and their soul abhorred my statutes. 
-Yet for all that, when they are in the land of their enemies, I won't reject them, neither will I abhor them, to destroy them utterly and to break my covenant with them; for I am their God. 
-But I will for their sake remember the covenant of their ancestors, whom I brought out of the land of Egypt in the sight of the nations, that I might be their God. I am God.'" 
+then I'll remember my covenant with Jacob, my covenant with Isaac, and also my covenant with Abraham; and I'll remember the land. 
+The land also will be left by them, and will enjoy its Sabbaths while it lies desolate without them; and they'll accept the punishment of their guilt because they rejected my ordinances, and their soul abhorred my statutes. 
+Yet for all that, when they're in the land of their enemies, I won't reject them, neither will I abhor them, to destroy them utterly and to break my covenant with them; for I'm their God. 
+But I'll for their sake remember the covenant of their ancestors, whom I brought out of the land of Egypt in the sight of the nations, that I might be their God. I'm God.'" 
 These are the statutes, ordinances, and laws, which God made between him and the children of Israel in Mount Sinai by Moses. 

@@ -1,12 +1,12 @@
-﻿Don't speak harshly to an older man; urge him on as you would a father. Treat younger men as brothers, 
+﻿Don't speak harshly to an older man; urge him on as you'd a father. Treat younger men as brothers, 
 older women as mothers, and younger women as sisters, with all purity. 
 Honor widows who really are widows. 
 But if a widow has children or grandchildren, those younger ones should learn first to show devotion to their own family and to give back to their parents, because this is what pleases God. 
 The widow who really is one, and has been left all alone, has set her expectation on God and keeps on with requests and prayers night and day. 
-But the one who lives for pleasure is dead even while she is alive. 
+But the one who lives for pleasure is dead even while she's alive. 
 Give these instructions too, so that no one can be blamed. 
 But if anyone doesn't provide for his own people, and especially for his own household, he has turned his back on the trust and is worse than someone who has no trust. 
-No one should be put on the list of widows unless she is at least sixty, and has been faithful to one husband, 
+No one should be put on the list of widows unless she's at least sixty, and has been faithful to one husband, 
 and has a good name for good deeds, if she has raised children, if she has welcomed strangers, if she has washed the feet of the set-apart ones, if she has helped people in hard times, and if she has gone after every good work. 
 But don't put younger widows on the list; when their desires turn away from Christ, they want to marry, 
 and so they come under a verdict, because they have set aside the first promise they made. 

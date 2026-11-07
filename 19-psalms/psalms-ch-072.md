@@ -1,18 +1,18 @@
 ﻿By Solomon. God, give the king your justice; your righteousness to the royal son. 
-He will judge your people with righteousness, and your poor with justice. 
+He'll judge your people with righteousness, and your poor with justice. 
 The mountains shall bring prosperity to the people. The hills bring the fruit of righteousness. 
-He will judge the poor of the people. He will save the children of the needy, and will break the oppressor in pieces. 
+He'll judge the poor of the people. He'll save the children of the needy, and will break the oppressor in pieces. 
 They shall fear you while the sun endures; and as long as the moon, throughout all generations. 
-He will come down like rain on the mown grass, as showers that water the earth. 
+He'll come down like rain on the mown grass, as showers that water the earth. 
 In his days, the righteous shall flourish, and abundance of peace, until the moon is no more. 
 He shall have dominion also from sea to sea, from the River to the ends of the earth. 
 Those who dwell in the wilderness shall bow before him. His enemies shall lick the dust. 
 The kings of Tarshish and of the islands will bring tribute. The kings of Sheba and Seba shall offer gifts. 
 Yes, all kings shall fall down before him. All nations shall serve him. 
-He will deliver the needy when he cries; the poor, who has no helper. 
-He will have pity on the poor and needy. He will save the souls of the needy. 
-He will buy back their soul from oppression and violence. Their blood will be precious in his sight. 
-He will live; and Sheba's gold will be given to him. Men will pray for him continually. They will bless him all day long. 
+He'll deliver the needy when he cries; the poor, who has no helper. 
+He'll have pity on the poor and needy. He'll save the souls of the needy. 
+He'll buy back their soul from oppression and violence. Their blood will be precious in his sight. 
+He'll live; and Sheba's gold will be given to him. Men will pray for him continually. They'll bless him all day long. 
 Abundance of grain shall be throughout the land. Its fruit sways like Lebanon. Let it flourish, thriving like the grass of the field. 
 His name endures for the eras. His name continues as long as the sun. Men shall be blessed by him. All nations will call him blessed. 
 Praise be to the God of Israel, who alone does marvelous deeds. 

@@ -1,10 +1,10 @@
-﻿I will stand at my watch and set myself on the ramparts, and will look out to see what he will say to me, and what I will answer concerning my complaint. 
+﻿I'll stand at my watch and set myself on the ramparts, and will look out to see what he'll say to me, and what I'll answer concerning my complaint. 
 God answered me, "Write the vision, and make it plain on tablets, that he who runs may read it. 
-The vision is yet for the appointed time, and it hurries toward the end, and won't prove false. Though it takes time, wait for it, because it will surely come. It won't delay. 
+The vision is yet for the appointed time, and it hurries toward the end, and won't prove false. Though it takes time, wait for it, because it'll surely come. It won't delay. 
 Look, his soul is puffed up. It isn't upright in him, but the righteous will live by his faith. 
-Yes, moreover, wine is treacherous: an arrogant man who doesn't stay at home, who enlarges his desire as Hades; he is like death and can't be satisfied, but gathers to himself all nations and heaps to himself all peoples. 
+Yes, moreover, wine is treacherous: an arrogant man who doesn't stay at home, who enlarges his desire as Hades; he's like death and can't be satisfied, but gathers to himself all nations and heaps to himself all peoples. 
 Won't all these take up a parable against him, and a taunting proverb against him, and say, 'Woe to him who increases that which isn't his, and who enriches himself by extortion! How long?' 
-Won't your debtors rise up suddenly, and wake up those who make you tremble, and you will be their victim? 
+Won't your debtors rise up suddenly, and wake up those who make you tremble, and you'll be their victim? 
 Because you have plundered many nations, all the remnant of the peoples will plunder you because of men's blood, and for the violence done to the land, to the city and to everyone who dwells in it. 
 Woe to him who gets an bad gain for his house, that he may set his nest on high, that he may be delivered from the hand of bad! 
 You have devised shame to your house by cutting off many peoples, and have wronged your soul. 
@@ -12,9 +12,9 @@ The stone will cry out of the wall, and the beam out of the woodwork will answer
 Woe to him who builds a town with blood, and establishes a city by guilt! 
 Look, isn't it from the God of Armies that the peoples labor for the fire, and the nations weary themselves for vanity? 
 The earth will be filled with the knowledge of God's glory, as the waters cover the sea. 
-"Woe to him who gives his neighbor drink, pouring your inflaming wine until they are drunk, so that you may gaze at their naked bodies! 
-You are filled with shame, and not glory. You will also drink and be exposed! The cup of God's right hand will come around to you, and disgrace will cover your glory. 
+"Woe to him who gives his neighbor drink, pouring your inflaming wine until they're drunk, so that you may gaze at their naked bodies! 
+You're filled with shame, and not glory. You'll also drink and be exposed! The cup of God's right hand will come around to you, and disgrace will cover your glory. 
 The violence done to Lebanon will overwhelm you, and the destruction of the animals will terrify you, because of men's blood and for the violence done to the land, to every city and to those who dwell in them. 
 "What value does the engraved image have, that its maker has engraved it; the molten image, even the teacher of lies, that he who fashions its form trusts in it, to make mute idols? 
-Woe to him who says to the wood, 'Awake!' or to the mute stone, 'Arise!' Shall this teach? Look, it is overlaid with gold and silver, and there is no breath at all within it. 
+Woe to him who says to the wood, 'Awake!' or to the mute stone, 'Arise!' Shall this teach? Look, it's overlaid with gold and silver, and there's no breath at all within it. 
 But God is in his holy temple. Let all the earth be silent before him!" 

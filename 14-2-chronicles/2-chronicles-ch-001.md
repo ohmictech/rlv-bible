@@ -9,7 +9,7 @@ Solomon said to God, "You have shown great loving kindness to David my father, a
 Now, God, let your promise to David my father be established; for you have made me king over a people like the dust of the earth in multitude. 
 Now give me wisdom and knowledge, that I may go out and come in before this people; for who can judge this great people of yours?" 
 God said to Solomon, "Because this was in your heart, and you haven't asked riches, wealth, honor, or the life of those who hate you, nor yet have you asked for long life; but have asked for wisdom and knowledge for yourself, that you may judge my people, over whom I have made you king, 
-So wisdom and knowledge is granted to you. I will give you riches, wealth, and honor, such as none of the kings have had who have been before you, and none after you will have." 
+So wisdom and knowledge is granted to you. I'll give you riches, wealth, and honor, such as none of the kings have had who have been before you, and none after you'll have." 
 So Solomon came from the high place that was at Gibeon, from before the Tent of Meeting, to Jerusalem; and he reigned over Israel. 
 Solomon gathered chariots and horsemen. He had one thousand four hundred chariots and twelve thousand horsemen that he placed in the chariot cities, and with the king at Jerusalem. 
 The king made silver and gold to be as common as stones in Jerusalem, and he made cedars to be as common as the sycamore trees that are in the lowland. 

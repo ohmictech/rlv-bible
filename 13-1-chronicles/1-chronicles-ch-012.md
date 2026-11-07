@@ -14,9 +14,9 @@ Jeremiah the tenth, and Machbannai the eleventh.
 These of the sons of Gad were captains of the army. He who was least was equal to one hundred, and the greatest to one thousand. 
 These are those who went over the Jordan in the first month, when it had overflowed all its banks; and they put to flight everyone who lived in the valleys, both toward the east and toward the west. 
 Some of the children of Benjamin and Judah came to the stronghold to David. 
-David went out to meet them, and answered them, "If you have come peaceably to me to help me, my heart will be united with you; but if you have come to betray me to my adversaries, since there is no wrong in my hands, may the God of our fathers see this and rebuke it." 
-Then the Spirit came on Amasai, who was chief of the thirty, and he said, "We are yours, David, and on your side, you son of Jesse. Peace, peace be to you, and peace be to your helpers; for your God helps you." Then David received them and made them captains of the band. 
-Some of Manasseh also joined David when he came with the Philistines against Saul to battle, but they didn't help them, for the lords of the Philistines sent him away after consultation, saying, "He will desert to his master Saul to the jeopardy of our heads." 
+David went out to meet them, and answered them, "If you have come peaceably to me to help me, my heart will be united with you; but if you have come to betray me to my adversaries, since there's no wrong in my hands, may the God of our fathers see this and rebuke it." 
+Then the Spirit came on Amasai, who was chief of the thirty, and he said, "We're yours, David, and on your side, you son of Jesse. Peace, peace be to you, and peace be to your helpers; for your God helps you." Then David received them and made them captains of the band. 
+Some of Manasseh also joined David when he came with the Philistines against Saul to battle, but they didn't help them, for the lords of the Philistines sent him away after consultation, saying, "He'll desert to his master Saul to the jeopardy of our heads." 
 As he went to Ziklag, some from Manasseh joined him: Adnah, Jozabad, Jediael, Michael, Jozabad, Elihu, and Zillethai, captains of thousands who were of Manasseh. 
 They helped David against the band of raiders, for they were all mighty men of valor and were captains in the army. 
 From day to day men came to David to help him, until there was a great army, like God's army. 

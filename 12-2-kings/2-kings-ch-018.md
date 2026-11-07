@@ -11,16 +11,16 @@ At the end of three years they took it. In the sixth year of Hezekiah, which was
 The king of Assyria carried Israel away to Assyria, and put them in Halah, and on the Habor, the river of Gozan, and in the cities of the Medes, 
 because they didn't obey their God's voice, but transgressed his covenant, even all that Moses the servant of God commanded, and wouldn't hear it or do it. 
 Now in the fourteenth year of King Hezekiah, Sennacherib king of Assyria came up against all the fortified cities of Judah and took them. 
-Hezekiah king of Judah sent to the king of Assyria at Lachish, saying, "I have offended you. Withdraw from me. That which you put on me, I will bear." The king of Assyria appointed to Hezekiah king of Judah three hundred talents of silver and thirty talents of gold. 
+Hezekiah king of Judah sent to the king of Assyria at Lachish, saying, "I have offended you. Withdraw from me. That which you put on me, I'll bear." The king of Assyria appointed to Hezekiah king of Judah three hundred talents of silver and thirty talents of gold. 
 Hezekiah gave him all the silver that was found in God's house and in the treasures of the king's house. 
 At that time, Hezekiah cut off the gold from the doors of God's temple, and from the pillars which Hezekiah king of Judah had overlaid, and gave it to the king of Assyria. 
 The king of Assyria sent Tartan, Rabsaris, and Rabshakeh from Lachish to King Hezekiah with a great army to Jerusalem. They went up and came to Jerusalem. When they had come up, they came and stood by the conduit of the upper pool, which is in the highway of the fuller's field. 
 When they had called to the king, Eliakim the son of Hilkiah, who was over the household, and Shebnah the secretary, and Joah the son of Asaph the recorder came out to them. 
 Rabshakeh said to them, "Say now to Hezekiah, 'The great king, the king of Assyria, says, "What confidence is this in which you trust? 
-You say (but they are but vain words), 'There is counsel and strength for war.' Now on whom do you trust, that you have rebelled against me? 
-Now, look, you trust in the staff of this bruised reed, even in Egypt. If a man leans on it, it will go into his hand and pierce it. So is Pharaoh king of Egypt to everyone who trusts on him. 
+You say (but they're but vain words), 'There's counsel and strength for war.' Now on whom do you trust, that you have rebelled against me? 
+Now, look, you trust in the staff of this bruised reed, even in Egypt. If a man leans on it, it'll go into his hand and pierce it. So is Pharaoh king of Egypt to everyone who trusts on him. 
 But if you tell me, 'We trust in our God,' isn't that he whose high places and whose altars Hezekiah has taken away, and has said to Judah and to Jerusalem, 'You shall worship before this altar in Jerusalem'? 
-Now, please give pledges to my master the king of Assyria, and I will give you two thousand horses if you are able on your part to set riders on them. 
+Now, please give pledges to my master the king of Assyria, and I'll give you two thousand horses if you're able on your part to set riders on them. 
 How then can you turn away the face of one captain of the least of my master's servants, and put your trust on Egypt for chariots and for horsemen? 
 Have I now come up without God against this place to destroy it? God said to me, 'Go up against this land, and destroy it.'"'" 
 Then Eliakim the son of Hilkiah, Shebnah, and Joah, said to Rabshakeh, "Please speak to your servants in the Syrian language, for we understand it. Don't speak with us in the Jews' language, in the hearing of the people who are on the wall." 

@@ -1,9 +1,9 @@
 ﻿After these things, Jesus revealed himself again to the students at the lake of Tiberias. He revealed himself this way. 
 Simon Peter, Thomas called Didymus, Nathanael of Cana in Galilee, and the sons of Zebedee, and two others of his students were together. 
-Simon Peter said to them, "I'm going fishing." They told him, "We are also coming with you." They immediately went out and entered into the boat. That night, they caught nothing. 
+Simon Peter said to them, "I'm going fishing." They told him, "We're also coming with you." They immediately went out and entered into the boat. That night, they caught nothing. 
 But when day had already come, Jesus stood on the beach; yet the students didn't know that it was Jesus. 
 Jesus said to them, "Children, have you anything to eat?" They answered him, "No." 
-He said to them, "Cast the net on the right side of the boat, and you will find some." They cast it, and now they weren't able to draw it in because there were so many fish. 
+He said to them, "Cast the net on the right side of the boat, and you'll find some." They cast it, and now they weren't able to draw it in because there were so many fish. 
 That student whom Jesus loved said to Peter, "It's the Lord!" So when Simon Peter heard that it was the Lord, he wrapped his coat around himself (for he was naked), and threw himself into the sea. 
 But the other students came in the little boat (for they weren't far from the land, but about a hundred yards away), dragging the net full of fish. 
 So when they got out on the land, they saw a fire of coals there, with fish and bread laid on it. 
@@ -15,11 +15,11 @@ This is now the third time that Jesus was revealed to his students after he had 
 So when they had eaten their breakfast, Jesus said to Simon Peter, "Simon, son of Jonah, do you love me more than these?" He said to him, "Yes, Lord; you know that I have affection for you." He said to him, "Feed my lambs." 
 He said to him again a second time, "Simon, son of Jonah, do you love me?" He said to him, "Yes, Lord; you know that I have affection for you." He said to him, "Tend my sheep." 
 He said to him the third time, "Simon, son of Jonah, do you have affection for me?" Peter was grieved because he asked him the third time, "Do you have affection for me?" He said to him, "Lord, you know everything. You know that I have affection for you." Jesus said to him, "Feed my sheep. 
-Truly I tell you, when you were young, you dressed yourself and walked where you wanted to. But when you are old, you will stretch out your hands, and another will dress you and carry you where you don't want to go." 
-Now he said this, signifying by what kind of death he would give God weight. When he had said this, he said to him, "Follow me." 
-Then Peter, turning around, saw a student following. This was the student whom Jesus loved, the one who had also leaned on Jesus' chest at the supper and asked, "Lord, who is going to hand you over?" 
+Truly I tell you, when you were young, you dressed yourself and walked where you wanted to. But when you're old, you'll stretch out your hands, and another will dress you and carry you where you don't want to go." 
+Now he said this, signifying by what kind of death he'd give God weight. When he had said this, he said to him, "Follow me." 
+Then Peter, turning around, saw a student following. This was the student whom Jesus loved, the one who had also leaned on Jesus' chest at the supper and asked, "Lord, who's going to hand you over?" 
 Peter, seeing him, said to Jesus, "Lord, what about this man?" 
-Jesus said to him, "If I desire that he stay until I come, what is that to you? You follow me." 
-This saying went out among the brothers that this student wouldn't die. Yet Jesus didn't say to him that he wouldn't die, but, "If I desire that he stay until I come, what is that to you?" 
+Jesus said to him, "If I desire that he stay until I come, what's that to you? You follow me." 
+This saying went out among the brothers that this student wouldn't die. Yet Jesus didn't say to him that he wouldn't die, but, "If I desire that he stay until I come, what's that to you?" 
 This is the student who testifies about these things, and wrote these things. We know that his witness is true. 
 There are also many other things which Jesus did, which if they were all written down, I suppose that even the world itself wouldn't have room for the books that would be written. 

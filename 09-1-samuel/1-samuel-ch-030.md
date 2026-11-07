@@ -5,14 +5,14 @@ Then David and the people who were with him lifted up their voice and wept until
 David's two wives were taken captive, Ahinoam the Jezreelitess, and Abigail the wife of Nabal the Carmelite. 
 David was greatly distressed, for the people spoke of stoning him, because the souls of everyone was grieved, every man for his sons and for his daughters; but David strengthened himself in his God. 
 David said to Abiathar the priest, the son of Ahimelech, "Please bring the ephod here to me." Abiathar brought the ephod to David. 
-David inquired of God, saying, "If I pursue after this troop, will I overtake them?" He answered him, "Pursue, for you will surely overtake them, and will without fail recover all." 
+David inquired of God, saying, "If I pursue after this troop, will I overtake them?" He answered him, "Pursue, for you'll surely overtake them, and will without fail recover all." 
 So David went, he and the six hundred men who were with him, and came to the brook Besor, where those who were left behind stayed. 
 But David pursued, he and four hundred men; for two hundred stayed behind, who were so faint that they couldn't go over the brook Besor. 
 They found an Egyptian in the field, and brought him to David, and gave him bread, and he ate; and they gave him water to drink. 
 They gave him a piece of a cake of figs and two clusters of raisins. When he had eaten, his spirit came again to him; for he had eaten no bread, and drank no water for three days and three nights. 
-David asked him, "To whom do you belong? Where are you from?" He said, "I am a young man of Egypt, servant to an Amalekite; and my master left me, because three days ago I got sick. 
+David asked him, "To whom do you belong? Where are you from?" He said, "I'm a young man of Egypt, servant to an Amalekite; and my master left me, because three days ago I got sick. 
 We made a raid on the South of the Cherethites, and on that which belongs to Judah, and on the South of Caleb; and we burned Ziklag with fire." 
-David said to him, "Will you bring me down to this troop?" He said, "Swear to me by God that you won't kill me and not deliver me up into the hands of my master, and I will bring you down to this troop." 
+David said to him, "Will you bring me down to this troop?" He said, "Swear to me by God that you won't kill me and not deliver me up into the hands of my master, and I'll bring you down to this troop." 
 When he had brought him down, look, they were spread around over all the ground, eating, drinking, and dancing, because of all the great plunder that they had taken out of the land of the Philistines, and out of the land of Judah. 
 David struck them from the twilight even to the evening of the next day. Not a man of them escaped from there, except four hundred young men who rode on camels and fled. 
 David recovered all that the Amalekites had taken, and David rescued his two wives. 

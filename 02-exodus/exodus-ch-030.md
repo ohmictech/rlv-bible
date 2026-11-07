@@ -3,11 +3,11 @@ Its length shall be a cubit, and its width a cubit. It shall be square, and its 
 You shall overlay it with pure gold, its top, its sides around it, and its horns; and you shall make a gold molding around it. 
 You shall make two golden rings for it under its molding; on its two ribs, on its two sides you shall make them; and they shall be for places for poles with which to bear it. 
 You shall make the poles of acacia wood, and overlay them with gold. 
-You shall put it before the veil that is by the ark of the covenant, before the mercy seat that is over the covenant, where I will meet with you. 
+You shall put it before the veil that's by the ark of the covenant, before the mercy seat that's over the covenant, where I'll meet with you. 
 Aaron shall burn incense of sweet spices on it every morning. When he tends the lamps, he shall burn it. 
 When Aaron lights the lamps at evening, he shall burn it, a perpetual incense before God throughout your generations. 
 You shall offer no strange incense on it, nor burnt offering, nor meal offering; and you shall pour no drink offering on it. 
-Aaron shall make things right on its horns once in the year; with the blood of the offering for wrongdoing that makes things right once in the year he shall make things right for it throughout your generations. It is most holy to God." 
+Aaron shall make things right on its horns once in the year; with the blood of the offering for wrongdoing that makes things right once in the year he shall make things right for it throughout your generations. It's most holy to God." 
 God spoke to Moses, saying, 
 "When you take a census of the children of Israel, according to those who are counted among them, then each man shall give a ransom for his soul to God when you count them, that there be no plague among them when you count them. 
 They shall give this, everyone who passes over to those who are counted, half a shekel according to the shekel of the sanctuary (the shekel is twenty gerahs); half a shekel for an offering to God. 
@@ -29,10 +29,10 @@ the altar of burnt offering with all its utensils, and the bamistake with its ba
 You shall sanctify them, that they may be most holy. Whatever touches them shall be holy. 
 You shall anoint Aaron and his sons, and sanctify them, that they may minister to me in the priest's office. 
 You shall speak to the children of Israel, saying, 'This shall be a holy anointing oil to me throughout your generations. 
-It shall not be poured on man's flesh, and don't make any like it, according to its composition. It is holy. It shall be holy to you. 
+It shall not be poured on man's flesh, and don't make any like it, according to its composition. It's holy. It shall be holy to you. 
 Whoever compounds any like it, or whoever puts any of it on a stranger, he shall be cut off from his people.'" 
 God said to Moses, "Take to yourself sweet spices, gum remistake, onycha, and galbanum: sweet spices with pure frankincense. There shall be an equal weight of each. 
 You shall make incense of it, a perfume after the art of the perfumer, seasoned with salt, pure and holy. 
-You shall beat some of it very small, and put some of it before the covenant in the Tent of Meeting, where I will meet with you. It shall be to you most holy. 
+You shall beat some of it very small, and put some of it before the covenant in the Tent of Meeting, where I'll meet with you. It shall be to you most holy. 
 You shall not make this incense, according to its composition, for yourselves: it shall be to you holy for God. 
 Whoever shall make any like that, to smell of it, he shall be cut off from his people." 

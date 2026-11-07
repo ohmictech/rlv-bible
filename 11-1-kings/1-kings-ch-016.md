@@ -1,6 +1,6 @@
 ﻿God's word came to Jehu the son of Hanani against Baasha, saying, 
 "Because I exalted you out of the dust and made you prince over my people Israel, and you have walked in the way of Jeroboam and have made my people Israel to drift, to provoke me to anger with their mistakes, 
-Look, I will utterly sweep away Baasha and his house; and I will make your house like the house of Jeroboam the son of Nebat. 
+Look, I'll utterly sweep away Baasha and his house; and I'll make your house like the house of Jeroboam the son of Nebat. 
 The dogs will eat Baasha's descendants who die in the city; and he who dies of his in the field, the birds of the sky will eat." 
 Now the rest of the acts of Baasha, and what he did, and his might, aren't they written in the book of the chronicles of the kings of Israel? 
 Baasha slept with his fathers, and was buried in Tirzah; and Elah his son reigned in his place. 

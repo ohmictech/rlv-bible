@@ -10,10 +10,10 @@ But a voice answered me the second time out of the sky, 'What God has made clean
 This was done three times, and all were drawn up again into the sky. 
 Look, immediately three men stood before the house where I was, having been sent from Caesarea to me. 
 The Spirit told me to go with them, making no distinction. These six brothers also accompanied me, and we entered into the man's house. 
-He told us how he had seen the messenger standing in his house and saying to him, 'Send to Joppa and get Simon, who is called Peter, 
-who will speak to you words by which you will be made whole, you and all your house.' 
+He told us how he had seen the messenger standing in his house and saying to him, 'Send to Joppa and get Simon, who's called Peter, 
+who will speak to you words by which you'll be made whole, you and all your house.' 
 As I began to speak, the Holy Spirit fell on them, even as on us at the beginning. 
-I remembered the word of the Lord, how he said, 'John indeed immersed in water, but you will be immersed in the Holy Spirit.' 
+I remembered the word of the Lord, how he said, 'John indeed immersed in water, but you'll be immersed in the Holy Spirit.' 
 If then God gave to them the same gift as us when we trusted in the Lord Jesus Christ, who was I, that I could withstand God?" 
 When they heard these things, they quieted down and gave honor to God, saying, "Then God has also granted to the nations a change of heart that leads to life!" 
 They who were scattered abroad by the oppression that arose about Stephen traveled as far as Phoenicia, Cyprus, and Antioch, speaking the word to no one except Jewish people. 

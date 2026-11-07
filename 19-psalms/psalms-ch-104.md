@@ -1,4 +1,4 @@
-﻿Bless God, my soul. God, my God, you are very great. You are clothed with honor and majesty. 
+﻿Bless God, my soul. God, my God, you're very great. You're clothed with honor and majesty. 
 He covers himself with light as with a garment. He stretches out the sky like a curtain. 
 He lays the beams of his rooms in the waters. He makes the clouds his chariot. He walks on the wings of the wind. 
 He makes his messengers winds, and his servants flames of fire. 
@@ -17,19 +17,19 @@ God's trees are well watered, the cedars of Lebanon, which he has planted,
 where the birds make their nests. The stork makes its home in the cypress trees. 
 The high mountains are for the wild goats. The rocks are a refuge for the rock badgers. 
 He appointed the moon for seasons. The sun knows when to set. 
-You make darkness, and it is night, in which all the animals of the forest prowl. 
+You make darkness, and it's night, in which all the animals of the forest prowl. 
 The young lions roar after their prey, and seek their food from God. 
 The sun rises, and they steal away, and lie down in their dens. 
 Man goes out to his work, to his labor until the evening. 
 God, how many are your works! In wisdom, you have made them all. The earth is full of your riches. 
-There is the sea, great and wide, in which are innumerable living things, both small and large animals. 
+There's the sea, great and wide, in which are innumerable living things, both small and large animals. 
 There the ships go, and leviathan, whom you formed to play there. 
 These all wait for you, that you may give them their food in due season. 
-You give to them; they gather. You open your hand; they are satisfied with good. 
-You hide your face; they are troubled. You take away their breath; they die and return to the dust. 
-You send out your Spirit and they are created. You renew the face of the ground. 
+You give to them; they gather. You open your hand; they're satisfied with good. 
+You hide your face; they're troubled. You take away their breath; they die and return to the dust. 
+You send out your Spirit and they're created. You renew the face of the ground. 
 Let God's glory endure for the eras. Let God rejoice in his works. 
 He looks at the earth, and it trembles. He touches the mountains, and they smoke. 
-I will sing to God as long as I live. I will sing praise to my God while I have any being. 
-Let my meditation be sweet to him. I will rejoice in God. 
+I'll sing to God as long as I live. I'll sing praise to my God while I have any being. 
+Let my meditation be sweet to him. I'll rejoice in God. 
 Let those who have drifted be consumed out of the earth. Let the guilty be no more. Bless God, my soul. Praise God! 

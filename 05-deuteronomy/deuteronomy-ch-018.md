@@ -15,8 +15,8 @@ These nations that you shall dispossess listen to those who practice sorcery and
 Your God will raise up to you a spokesman from among you, of your brothers, like me. You shall listen to him. 
 This is according to all that you desired of your God in Horeb in the day of the assembly, saying, "Let me not hear again my God's voice, neither let me see this great fire any more, that I not die." 
 God said to me, "They have well said that which they have spoken. 
-I will raise them up a spokesman from among their brothers, like you. I will put my words in his mouth, and he shall speak to them all that I shall command him. 
-It shall happen, that whoever won't listen to my words which he shall speak in my name, I will require it of him. 
+I'll raise them up a spokesman from among their brothers, like you. I'll put my words in his mouth, and he shall speak to them all that I shall command him. 
+It shall happen, that whoever won't listen to my words which he shall speak in my name, I'll require it of him. 
 But the spokesman who speaks a word presumptuously in my name, which I haven't commanded him to speak, or who speaks in the name of other gods, that same spokesman shall die." 
 You may say in your heart, "How shall we know the word which God hasn't spoken?" 
-When a spokesman speaks in God's name, if the thing doesn't follow, nor happen, that is the thing which God hasn't spoken. The spokesman has spoken it presumptuously. You shall not be afraid of him. 
+When a spokesman speaks in God's name, if the thing doesn't follow, nor happen, that's the thing which God hasn't spoken. The spokesman has spoken it presumptuously. You shall not be afraid of him. 

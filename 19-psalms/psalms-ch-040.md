@@ -2,16 +2,16 @@
 He brought me up also out of a horrible pit, out of the miry clay. He set my feet on a rock, and gave me a firm place to stand. 
 He has put a new song in my mouth, even praise to our God. Many shall see it, and fear, and shall trust in God. 
 Blessed is the man who makes God his trust, and doesn't respect the proud, nor such as turn away to lies. 
-Many, God, my God, are the wonderful works which you have done, and your thoughts which are toward us. They can't be declared back to you. If I would declare and speak of them, they are more than can be counted. 
+Many, God, my God, are the wonderful works which you have done, and your thoughts which are toward us. They can't be declared back to you. If I'd declare and speak of them, they're more than can be counted. 
 Sacrifice and offering you didn't desire. You have opened my ears. You haven't required burnt offering and offering for wrongdoing. 
-Then I said, "Look, I have come. It is written about me in the book in the scroll. 
+Then I said, "Look, I have come. It's written about me in the book in the scroll. 
 I delight to do your will, my God. Yes, your law is within my heart." 
 I have proclaimed glad news of righteousness in the great assembly. Look, I won't seal my lips, God, you know. 
 I haven't hidden your righteousness within my heart. I have declared your faithfulness and your salvation. I haven't concealed your loving kindness and your truth from the great assembly. 
 Don't withhold your tender mercies from me, God. Let your loving kindness and your truth continually preserve me. 
-Innumerable bad things have surrounded me. My guilt have overtaken me, so that I'm not able to look up. They are more than the hairs of my head. My heart has failed me. 
+Innumerable bad things have surrounded me. My guilt have overtaken me, so that I'm not able to look up. They're more than the hairs of my head. My heart has failed me. 
 Be pleased, God, to deliver me. Hurry to help me, God. 
 Let them be disappointed and confounded together who seek after my soul to destroy it. Let them be turned backward and brought to dishonor who delight in my hurt. 
 Let them be desolate by reason of their shame that tell me, "Aha! Aha!" 
 Let everyone who seeks you rejoice and be glad in you. Let such as love your salvation say continually, "Let God be exalted!" 
-But I am poor and needy. May the Lord think about me. You are my help and my deliverer. Don't delay, my God. 
+But I'm poor and needy. May the Lord think about me. You're my help and my deliverer. Don't delay, my God. 

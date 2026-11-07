@@ -17,10 +17,10 @@ Now after some years, I came to bring gifts for the needy to my nation, and offe
 amid which certain Jewish people from Asia found me purified in the temple courts, not with a mob, nor with turmoil. 
 They ought to have been here before you and to make accusation if they had anything against me. 
 Or else let these men themselves say what injustice they found in me when I stood before the council, 
-unless it is for this one thing that I cried standing among them, 'Concerning the rising of the dead I am being judged before you today!'" 
-But Felix, having more exact knowledge concerning the Way, deferred them, saying, "When Lysias, the commanding officer, comes down, I will decide your case." 
+unless it's for this one thing that I cried standing among them, 'Concerning the rising of the dead I'm being judged before you today!'" 
+But Felix, having more exact knowledge concerning the Way, deferred them, saying, "When Lysias, the commanding officer, comes down, I'll decide your case." 
 He ordered the centurion that Paul should be kept in custody and should have some privileges, and not to forbid any of his friends to serve him or to visit him. 
 After some days, Felix came with Drusilla his wife, who was a Jewish woman, and sent for Paul and heard him concerning the trust in Christ Jesus. 
-As he reasoned about rightness, self-control, and the verdict to come, Felix was terrified, and answered, "Go your way for this time, and when it is convenient for me, I will summon you." 
+As he reasoned about rightness, self-control, and the verdict to come, Felix was terrified, and answered, "Go your way for this time, and when it's convenient for me, I'll summon you." 
 Meanwhile, he also hoped that money would be given to him by Paul, so that he could release him. So also he sent for him more often and talked with him. 
 But when two years were fulfilled, Felix was succeeded by Porcius Festus, and desiring to gain favor with the Jewish people, Felix left Paul in bonds. 

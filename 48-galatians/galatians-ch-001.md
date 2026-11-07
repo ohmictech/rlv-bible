@@ -3,7 +3,7 @@ and all the brothers with me, to the gatherings of Galatia:
 Favor and wholeness to you from God the Father and our Lord Jesus Christ, 
 who gave himself for our mistakes, to rescue us out of this present bad era, by the will of our God and Father, 
 to whom be the weight for all the eras. Amen. 
-I am amazed that you are so quickly turning away from the one who called you by the favor of Christ, to a different "good news", 
+I'm amazed that you're so quickly turning away from the one who called you by the favor of Christ, to a different "good news", 
 but there isn't another "good news." Only there are some who are troubling you and want to twist the Good News of Christ. 
 But even if we, or a messenger from the sky, announce to you any "good news" other than what we announced to you, let him be given over. 
 As we said before, so I say again now: if anyone announces to you any "good news" other than what you received, let him be given over. 
@@ -17,7 +17,7 @@ to unveil his Son in me, so that I might announce him among the nations, I didn'
 nor did I go up to Jerusalem to those who were sent ones before me, but I went away into Arabia. Then I returned to Damascus. 
 Then after three years I went up to Jerusalem to visit Peter, and stayed with him fifteen days. 
 But of the other sent ones I saw no one except James, the Lord's brother. 
-In what I am writing to you, look, before God, I'm not lying. 
+In what I'm writing to you, look, before God, I'm not lying. 
 Then I came to the regions of Syria and Cilicia. 
 I was still unknown by face to the gatherings of Judea that are in Christ, 
 but they only heard, "The one who once hunted us down now announces the trust he once tried to wreck." 

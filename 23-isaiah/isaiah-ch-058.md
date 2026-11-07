@@ -6,9 +6,9 @@ Is this the fast that I have chosen? A day for a man to humble his soul? Is it t
 "Isn't this the fast that I have chosen: to release the bonds of guilt, to undo the straps of the yoke, to let the oppressed go free, and that you break every yoke? 
 Isn't it to distribute your bread to the hungry, and that you bring the poor who are cast out to your house? When you see the naked, that you cover him; and that you not hide yourself from your own flesh? 
 Then your light will break out as the morning, and your healing will appear quickly; then your righteousness shall go before you, and God's glory will be your rear guard. 
-Then you will call, and God will answer. You will cry for help, and he will say, 'Here I am.' "If you take away from among you the yoke, finger pointing, and speaking guiltily; 
+Then you'll call, and God will answer. You'll cry for help, and he'll say, 'Here I'm.' "If you take away from among you the yoke, finger pointing, and speaking guiltily; 
 and if you pour out your soul to the hungry, and satisfy the afflicted soul, then your light will rise in darkness, and your obscurity will be as the noonday; 
-and God will guide you continually, satisfy your soul in dry places, and make your bones strong. You will be like a watered garden, and like a spring of water whose waters don't fail. 
-Those who will be of you will build the old waste places. You will raise up the foundations of many generations. You will be called Repairer of the Breach, Restorer of Paths with Dwellings. 
+and God will guide you continually, satisfy your soul in dry places, and make your bones strong. You'll be like a watered garden, and like a spring of water whose waters don't fail. 
+Those who will be of you'll build the old waste places. You'll raise up the foundations of many generations. You'll be called Repairer of the Breach, Restorer of Paths with Dwellings. 
 "If you turn away your foot from the Sabbath, from doing your pleasure on my holy day, and call the Sabbath a delight, and the holy of God honorable, and honor it, not doing your own ways, nor finding your own pleasure, nor speaking your own words, 
-then you will delight yourself in God, and I will make you to ride on the high places of the earth, and I will feed you with the heritage of Jacob your father;" for God's mouth has spoken it. 
+then you'll delight yourself in God, and I'll make you to ride on the high places of the earth, and I'll feed you with the heritage of Jacob your father;" for God's mouth has spoken it. 

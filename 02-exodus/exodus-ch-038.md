@@ -23,7 +23,7 @@ Bezalel the son of Uri, the son of Hur, of the tribe of Judah, made all that God
 With him was Oholiab, the son of Ahisamach, of the tribe of Dan, an engraver, and a skillful workman, and an embroiderer in blue, in purple, in scarlet, and in fine linen. 
 All the gold that was used for the work in all the work of the sanctuary, even the gold of the offering, was twenty-nine talents and seven hundred thirty shekels, according to the shekel of the sanctuary. 
 The silver of those who were counted of the congregation was one hundred talents and one thousand seven hundred seventy-five shekels, according to the shekel of the sanctuary: 
-a beka a head, that is, half a shekel, according to the shekel of the sanctuary, for everyone who passed over to those who were counted, from twenty years old and upward, for six hundred three thousand five hundred fifty men. 
+a beka a head, that's, half a shekel, according to the shekel of the sanctuary, for everyone who passed over to those who were counted, from twenty years old and upward, for six hundred three thousand five hundred fifty men. 
 The one hundred talents of silver were for casting the sockets of the sanctuary and the sockets of the veil: one hundred sockets for the one hundred talents, one talent per socket. 
 From the one thousand seven hundred seventy-five shekels he made hooks for the pillars, overlaid their capitals, and made fillets for them. 
 The bronze of the offering was seventy talents and two thousand four hundred shekels. 

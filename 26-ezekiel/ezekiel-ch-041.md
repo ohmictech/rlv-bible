@@ -19,7 +19,7 @@ It was made with cherubim and palm trees. A palm tree was between cherub and che
 so that there was the face of a man toward the palm tree on the one side, and the face of a young lion toward the palm tree on the other side. It was made like this through all the house all around. 
 Cherubim and palm trees were made from the ground to above the door. The wall of the temple was like this. 
 The door posts of the nave were squared. As for the face of the nave, its appearance was as the appearance of the temple. 
-The altar was of wood, three cubits high, and its length two cubits. Its corners, its base, and its walls were of wood. He said to me, "This is the table that is before God." 
+The altar was of wood, three cubits high, and its length two cubits. Its corners, its base, and its walls were of wood. He said to me, "This is the table that's before God." 
 The temple and the sanctuary had two doors. 
 The doors had two leaves each, two turning leaves: two for the one door, and two leaves for the other. 
 There were made on them, on the doors of the nave, cherubim and palm trees, like those made on the walls. There was a threshold of wood on the face of the porch outside. 

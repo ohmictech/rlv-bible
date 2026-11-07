@@ -5,11 +5,11 @@ So the young man, the young spokesman, went to Ramoth Gilead.
 When he came, look, the captains of the army were sitting. Then he said, "I have a message for you, captain." Jehu said, "To which one of us?" He said, "To you, O captain." 
 He arose, and went into the house. Then he poured the oil on his head, and said to him, "The God of Israel says, 'I have anointed you king over the people of God, even over Israel. 
 You must strike your master Ahab's house, that I may avenge the blood of my servants the spokesmen, and the blood of all the servants of God, at the hand of Jezebel. 
-The whole house of Ahab will perish. I will cut off from Ahab everyone who urinates against a wall, both him who is shut up and him who is left at large in Israel. 
-I will make Ahab's house like the house of Jeroboam the son of Nebat, and like the house of Baasha the son of Ahijah. 
+The whole house of Ahab will perish. I'll cut off from Ahab everyone who urinates against a wall, both him who's shut up and him who's left at large in Israel. 
+I'll make Ahab's house like the house of Jeroboam the son of Nebat, and like the house of Baasha the son of Ahijah. 
 The dogs will eat Jezebel on the plot of ground of Jezreel, and there shall be no one to bury her.'" Then he opened the door and fled. 
 When Jehu came out to the servants of his lord and one said to him, "Is all well? Why did this madman come to you?" He said to them, "You know the man and how he talks." 
-They said, "That is a lie. Tell us now." He said, "He said to me, 'God says, I have anointed you king over Israel.'" 
+They said, "That's a lie. Tell us now." He said, "He said to me, 'God says, I have anointed you king over Israel.'" 
 Then they hurried, and each man took his cloak, and put it under him on the top of the stairs, and blew the trumpet, saying, "Jehu is king." 
 So Jehu the son of Jehoshaphat the son of Nimshi conspired against Joram. (Now Joram was defending Ramoth Gilead, he and all Israel, because of Hazael king of Syria; 
 but King Joram had returned to be healed in Jezreel of the wounds which the Syrians had given him when he fought with Hazael king of Syria.) Jehu said, "If this is your thinking, then let no one escape and go out of the city to go to tell it in Jezreel." 
@@ -23,15 +23,15 @@ When Joram saw Jehu, he said, "Is it peace, Jehu?" He answered, "What peace, so 
 Joram turned his hands and fled, and said to Ahaziah, "This is treason, Ahaziah!" 
 Jehu drew his bow with his full strength, and struck Joram between his arms; and the arrow went out at his heart, and he sunk down in his chariot. 
 Then Jehu said to Bidkar his captain, "Pick him up, and throw him in the plot of the field of Naboth the Jezreelite; for remember how, when you and I rode together after Ahab his father, God laid this burden on him: 
-'Surely I have seen yesterday the blood of Naboth, and the blood of his sons,' says God; 'and I will repay you in this plot of ground,' says God. Now take and cast him onto the plot of ground, according to God's word." 
+'Surely I have seen yesterday the blood of Naboth, and the blood of his sons,' says God; 'and I'll repay you in this plot of ground,' says God. Now take and cast him onto the plot of ground, according to God's word." 
 But when Ahaziah the king of Judah saw this, he fled by the way of the garden house. Jehu followed after him, and said, "Strike him also in the chariot!" They struck him at the ascent of Gur, which is by Ibleam. He fled to Megiddo, and died there. 
 His servants carried him in a chariot to Jerusalem, and buried him in his tomb with his fathers in David's city. 
 In the eleventh year of Joram the son of Ahab, Ahaziah began to reign over Judah. 
 When Jehu had come to Jezreel, Jezebel heard of it; and she painted her eyes, and adorned her head, and looked out at the window. 
 As Jehu entered in at the gate, she said, "Do you come in peace, Zimri, you murderer of your master?" 
-He lifted up his face to the window, and said, "Who is on my side? Who?" Two or three eunuchs looked out at him. 
+He lifted up his face to the window, and said, "Who's on my side? Who?" Two or three eunuchs looked out at him. 
 He said, "Throw her down!" So they threw her down; and some of her blood was sprinkled on the wall, and on the horses. Then he trampled her under foot. 
-When he had come in, he ate and drank. Then he said, "See now to this cursed woman, and bury her; for she is a king's daughter." 
+When he had come in, he ate and drank. Then he said, "See now to this cursed woman, and bury her; for she's a king's daughter." 
 They went to bury her, but they found no more of her than the skull, the feet, and the palms of her hands. 
 So they came back, and told him. He said, "This is God's word, which he spoke by his servant Elijah the Tishbite, saying, 'The dogs will eat the flesh of Jezebel on the plot of Jezreel, 
 and the body of Jezebel will be as dung on the surface of the field on Jezreel's land, so that they won't say, "This is Jezebel."'" 

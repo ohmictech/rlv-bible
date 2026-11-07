@@ -10,5 +10,5 @@ God's word came to Zechariah, saying,
 Don't oppress the widow, the fatherless, the foreigner, nor the poor; and let none of you devise bad against his brother in your heart.' 
 But they refused to listen, and turned their backs, and stopped their ears, that they might not hear. 
 Yes, they made their hearts as hard as flint, lest they might hear the law and the words which the God of Armies had sent by his Spirit by the former spokesmen. So great wrath came from the God of Armies. 
-It has come to pass that, as he called and they refused to listen, so they will call and I won't listen," said the God of Armies; 
-"but I will scatter them with a whirlwind among all the nations which they haven't known. Thus the land was desolate after them, so that no man passed through nor returned; for they made the pleasant land desolate." 
+It has come to pass that, as he called and they refused to listen, so they'll call and I won't listen," said the God of Armies; 
+"but I'll scatter them with a whirlwind among all the nations which they haven't known. Thus the land was desolate after them, so that no man passed through nor returned; for they made the pleasant land desolate." 

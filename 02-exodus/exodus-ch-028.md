@@ -1,6 +1,6 @@
 ﻿"Bring Aaron your brother, and his sons with him, near to you from among the children of Israel, that he may minister to me in the priest's office: Aaron, with Nadab, Abihu, Eleazar, and Ithamar, Aaron's sons. 
 You shall make holy garments for Aaron your brother, for glory and for beauty. 
-You shall speak to everyone who is wise-hearted, whom I have filled with the spirit of wisdom, that they make Aaron's garments to sanctify him, that he may minister to me in the priest's office. 
+You shall speak to everyone who's wise-hearted, whom I have filled with the spirit of wisdom, that they make Aaron's garments to sanctify him, that he may minister to me in the priest's office. 
 These are the garments which they shall make: a breastplate, an ephod, a robe, a fitted tunic, a turban, and a sash. They shall make holy garments for Aaron your brother and his sons, that he may minister to me in the priest's office. 
 They shall use the gold, and the blue, and the purple, and the scarlet, and the fine linen. 
 "They shall make the ephod of gold, blue, purple, scarlet, and fine twined linen, the work of the skillful workman. 

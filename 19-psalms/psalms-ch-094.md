@@ -8,7 +8,7 @@ They say, "God won't see, neither will Jacob's God consider."
 Consider, you senseless among the people; you fools, when will you be wise? 
 He who implanted the ear, won't he hear? He who formed the eye, won't he see? 
 He who disciplines the nations, won't he punish? He who teaches man knows. 
-God knows the thoughts of man, that they are futile. 
+God knows the thoughts of man, that they're futile. 
 Blessed is the man whom you discipline, God, and teach out of your law, 
 that you may give him rest from the days of adversity, until the pit is dug for the guilty. 
 God won't reject his people, neither will he forsake his inheritance. 

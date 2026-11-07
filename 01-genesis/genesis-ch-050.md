@@ -1,8 +1,8 @@
 ﻿Joseph fell on his father's face, wept on him, and kissed him. 
 Joseph commanded his servants, the physicians, to embalm his father; and the physicians embalmed Israel. 
-Forty days were used for him, for that is how many days it takes to embalm. The Egyptians wept for Israel for seventy days. 
+Forty days were used for him, for that's how many days it takes to embalm. The Egyptians wept for Israel for seventy days. 
 When the days of weeping for him were past, Joseph spoke to Pharaoh's staff, saying, "If now I have found favor in your eyes, please speak in the ears of Pharaoh, saying, 
-'My father made me swear, saying, "Look, I am dying. Bury me in my grave which I have dug for myself in the land of Canaan." Now, please let me go up and bury my father, and I will come again.'" 
+'My father made me swear, saying, "Look, I'm dying. Bury me in my grave which I have dug for myself in the land of Canaan." Now, please let me go up and bury my father, and I'll come again.'" 
 Pharaoh said, "Go up, and bury your father, just like he made you swear." 
 Joseph went up to bury his father; and with him went up all the servants of Pharaoh, the elders of his house, all the elders of the land of Egypt, 
 all the house of Joseph, his brothers, and his father's house. Only their little ones, their flocks, and their herds, they left in the land of Goshen. 
@@ -15,12 +15,12 @@ Joseph returned into Egypt, he, and his brothers, and all that went up with him 
 When Joseph's brothers saw that their father was dead, they said, "It may be that Joseph will hate us, and will fully pay us back for all the bad which we did to him." 
 They sent a message to Joseph, saying, "Your father commanded before he died, saying, 
 'You shall tell Joseph, "Now please forgive the disobedience of your brothers, and their wrongdoing, because they did bad to you."' Now, please forgive the disobedience of the servants of the God of your father." Joseph wept when they spoke to him. 
-His brothers also went and fell down before his face; and they said, "Look, we are your servants." 
+His brothers also went and fell down before his face; and they said, "Look, we're your servants." 
 Joseph said to them, "Don't be afraid, for am I in the place of God? 
 As for you, you meant bad against me, but God meant it for good, to save many people alive, as is happening today. 
-Now don't be afraid. I will provide for you and your little ones." He comforted them, and spoke kindly to them. 
+Now don't be afraid. I'll provide for you and your little ones." He comforted them, and spoke kindly to them. 
 Joseph lived in Egypt, he, and his father's house. Joseph lived one hundred ten years. 
 Joseph saw Ephraim's children to the third generation. The children also of Machir, the son of Manasseh, were born on Joseph's knees. 
-Joseph said to his brothers, "I am dying, but God will surely visit you, and bring you up out of this land to the land which he swore to Abraham, to Isaac, and to Jacob." 
+Joseph said to his brothers, "I'm dying, but God will surely visit you, and bring you up out of this land to the land which he swore to Abraham, to Isaac, and to Jacob." 
 Joseph took an oath from the children of Israel, saying, "God will surely visit you, and you shall carry up my bones from here." 
 So Joseph died, being one hundred ten years old, and they embalmed him, and he was put in a coffin in Egypt. 

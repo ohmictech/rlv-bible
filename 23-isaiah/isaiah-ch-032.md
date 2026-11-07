@@ -5,9 +5,9 @@ The heart of the rash will understand knowledge, and the tongue of the stammerer
 The fool will no longer be called noble, nor the scoundrel be highly respected. 
 The fool will speak folly, and his heart will work guilt, to practice profanity, and to utter error against God, to make empty the soul of the hungry, and to cause the drink of the thirsty to fail. 
 The ways of the scoundrel are bad. He devises guilty plans to destroy the humble with lying words, even when the needy speaks right. 
-But the noble devises noble things, and he will continue in noble things. 
+But the noble devises noble things, and he'll continue in noble things. 
 Rise up, you women who are at ease! Hear my voice! You careless daughters, give ear to my speech! 
-Days beyond a year you will be troubled, you careless women; for the vintage will fail. The harvest won't come. 
+Days beyond a year you'll be troubled, you careless women; for the vintage will fail. The harvest won't come. 
 Tremble, you women who are at ease! Be troubled, you careless ones! Strip yourselves, make yourselves naked, and put sackcloth on your waist. 
 Beat your breasts for the pleasant fields, for the fruitful vine. 
 Thorns and briers will come up on my people's land; yes, on all the houses of joy in the joyous city. 

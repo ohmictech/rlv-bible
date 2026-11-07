@@ -4,7 +4,7 @@ Nevertheless he held to the drifts of Jeroboam the son of Nebat, with which he m
 Now Mesha king of Moab was a sheep breeder; and he supplied the king of Israel with one hundred thousand lambs and the wool of one hundred thousand rams. 
 But when Ahab was dead, the king of Moab rebelled against the king of Israel. 
 King Jehoram went out of Samaria at that time, and mustered all Israel. 
-He went and sent to Jehoshaphat the king of Judah, saying, "The king of Moab has rebelled against me. Will you go with me against Moab to battle?" He said, "I will go up. I am as you are, my people as your people, my horses as your horses." 
+He went and sent to Jehoshaphat the king of Judah, saying, "The king of Moab has rebelled against me. Will you go with me against Moab to battle?" He said, "I'll go up. I'm as you're, my people as your people, my horses as your horses." 
 Then he said, "Which way shall we go up?" Jehoram answered, "The way of the wilderness of Edom." 
 So the king of Israel went with the king of Judah and the king of Edom, and they marched for seven days along a circuitous route. There was no water for the army or for the animals that followed them. 
 The king of Israel said, "Alas! God has called these three kings together to deliver them into the hand of Moab." 
@@ -14,8 +14,8 @@ Elisha said to the king of Israel, "What have I to do with you? Go to the spokes
 Elisha said, "As the God of Armies lives, before whom I stand, surely, were it not that I respect the presence of Jehoshaphat the king of Judah, I wouldn't look toward you, nor see you. 
 But now bring me a musician." When the musician played, God's hand came on him. 
 He said, "God says, 'Make this valley full of trenches.' 
-For God says, 'You won't see wind, neither will you see rain, yet that valley will be filled with water, and you will drink, both you and your livestock and your other animals. 
-This is an easy thing in God's sight. He will also deliver the Moabites into your hand. 
+For God says, 'You won't see wind, neither will you see rain, yet that valley will be filled with water, and you'll drink, both you and your livestock and your other animals. 
+This is an easy thing in God's sight. He'll also deliver the Moabites into your hand. 
 You shall strike every fortified city and every choice city, and shall fell every good tree, and stop all springs of water, and mar every good piece of land with stones.'" 
 In the morning, about the time of offering the sacrifice, look, water came by the way of Edom, and the country was filled with water. 
 Now when all the Moabites heard that the kings had come up to fight against them, they gathered themselves together, everyone who was able to put on armor, young and old, and stood on the border. 

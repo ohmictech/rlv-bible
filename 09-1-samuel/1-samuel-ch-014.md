@@ -1,27 +1,27 @@
-﻿Now it happened on a day that Jonathan the son of Saul said to the young man who bore his armor, "Come! Let's go over to the Philistines' garrison that is on the other side." But he didn't tell his father. 
+﻿Now it happened on a day that Jonathan the son of Saul said to the young man who bore his armor, "Come! Let's go over to the Philistines' garrison that's on the other side." But he didn't tell his father. 
 Saul stayed in the uttermost part of Gibeah under the pomegranate tree which is in Migron; and the people who were with him were about six hundred men, 
 including Ahijah the son of Ahitub, Ichabod's brother, the son of Phinehas, the son of Eli the priest of God in Shiloh, wearing an ephod. The people didn't know that Jonathan was gone. 
 Between the passes, by which Jonathan sought to go over to the Philistines' garrison, there was a rocky crag on the one side and a rocky crag on the other side; and the name of the one was Bozez, and the name of the other Seneh. 
 The one crag rose up on the north in front of Michmash, and the other on the south in front of Geba. 
-Jonathan said to the young man who bore his armor, "Come! Let's go over to the garrison of these uncircumcised. It may be that God will work for us, for there is no restraint on God to save by many or by few." 
-His armor bearer said to him, "Do all that is in your heart. Go, and look, I am with you according to your heart." 
-Then Jonathan said, "Look, we will pass over to the men, and we will reveal ourselves to them. 
-If they say this to us, 'Wait until we come to you!' then we will stand still in our place and won't go up to them. 
-But if they say this, 'Come up to us!' then we will go up, for God has delivered them into our hand. This shall be the sign to us." 
+Jonathan said to the young man who bore his armor, "Come! Let's go over to the garrison of these uncircumcised. It may be that God will work for us, for there's no restraint on God to save by many or by few." 
+His armor bearer said to him, "Do all that's in your heart. Go, and look, I'm with you according to your heart." 
+Then Jonathan said, "Look, we'll pass over to the men, and we'll reveal ourselves to them. 
+If they say this to us, 'Wait until we come to you!' then we'll stand still in our place and won't go up to them. 
+But if they say this, 'Come up to us!' then we'll go up, for God has delivered them into our hand. This shall be the sign to us." 
 Both of them revealed themselves to the garrison of the Philistines; and the Philistines said, "Look, the Hebrews are coming out of the holes where they had hidden themselves!" 
-The men of the garrison answered Jonathan and his armor bearer, and said, "Come up to us, and we will show you something!" Jonathan said to his armor bearer, "Come up after me, for God has delivered them into the hand of Israel." 
+The men of the garrison answered Jonathan and his armor bearer, and said, "Come up to us, and we'll show you something!" Jonathan said to his armor bearer, "Come up after me, for God has delivered them into the hand of Israel." 
 Jonathan climbed up on his hands and on his feet, and his armor bearer after him, and they fell before Jonathan; and his armor bearer killed them after him. 
 That first slaughter, which Jonathan and his armor bearer made, was about twenty men, within as it were half a furrow's length in an acre of land. 
 There was a trembling in the camp, in the field, and among everyone; the garrison and the raiders also trembled; and the earth quaked, so there was an exceedingly great trembling. 
 The watchmen of Saul in Gibeah of Benjamin looked; and look, the multitude melted away and scattered. 
-Then Saul said to the people who were with him, "Count now, and see who is missing from us." When they had counted, look, Jonathan and his armor bearer weren't there. 
+Then Saul said to the people who were with him, "Count now, and see who's missing from us." When they had counted, look, Jonathan and his armor bearer weren't there. 
 Saul said to Ahijah, "Bring God's ark here." For God's ark was with the children of Israel at that time. 
 While Saul talked to the priest, the tumult that was in the camp of the Philistines went on and increased; and Saul said to the priest, "Withdraw your hand!" 
 Saul and everyone who was with him were gathered together, and came to the battle; and look, they were all striking each other with their swords in very great confusion. 
 Now the Hebrews who were with the Philistines before and who went up with them into the camp from all around, even they also turned to be with the Israelites who were with Saul and Jonathan. 
 Likewise all the men of Israel who had hidden themselves in the hill country of Ephraim, when they heard that the Philistines fled, even they also followed hard after them in the battle. 
 So God saved Israel that day; and the battle passed over by Beth Aven. 
-The men of Israel were distressed that day; for Saul had adjured the people, saying, "Cursed is the man who eats any food until it is evening, and I am avenged of my enemies." So none of the people tasted food. 
+The men of Israel were distressed that day; for Saul had adjured the people, saying, "Cursed is the man who eats any food until it's evening, and I'm avenged of my enemies." So none of the people tasted food. 
 Everyone came into the forest; and there was honey on the ground. 
 When the people had come to the forest, look, honey was dripping, but no one put his hand to his mouth, for the people feared the oath. 
 But Jonathan didn't hear when his father commanded the people with the oath. So he put out the end of the rod that was in his hand and dipped it in the honeycomb, and put his hand to his mouth; and his eyes brightened. 
@@ -36,7 +36,7 @@ Saul built an altar to God. This was the first altar that he built to God.
 Saul said, "Let's go down after the Philistines by night, and take plunder among them until the morning light. Let's not leave a man of them." They said, "Do whatever seems good to you." Then the priest said, "Let's draw near here to God." 
 Saul asked counsel of God: "Shall I go down after the Philistines? Will you deliver them into the hand of Israel?" But he didn't answer him that day. 
 Saul said, "Draw near here, all you chiefs of the people, and know and see in whom this wrongdoing lies today. 
-As God lives, who saves Israel, though it is in Jonathan my son, he shall surely die." But there wasn't a man among everyone who answered him. 
+As God lives, who saves Israel, though it's in Jonathan my son, he shall surely die." But there wasn't a man among everyone who answered him. 
 Then he said to all Israel, "You be on one side, and I and Jonathan my son will be on the other side." The people said to Saul, "Do what seems good to you." 
 So Saul said to the God of Israel, "Show the right." Jonathan and Saul were chosen, but the people escaped. 
 Saul said, "Cast lots between me and Jonathan my son." Jonathan was selected. 

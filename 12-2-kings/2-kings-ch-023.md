@@ -14,17 +14,17 @@ The king defiled the high places that were before Jerusalem, which were on the r
 He broke in pieces the pillars, cut down the Asherah poles, and filled their places with men's bones. 
 Moreover the altar that was at Bethel and the high place which Jeroboam the son of Nebat, who made Israel to drift, had made, even that altar and the high place he broke down; and he burned the high place and beat it to dust, and burned the Asherah. 
 As Josiah turned himself, he spied the tombs that were there in the mountain; and he sent, and took the bones out of the tombs, and burned them on the altar, and defiled it, according to God's word which the man of God proclaimed, who proclaimed these things. 
-Then he said, "What monument is that which I see?" The men of the city told him, "It is the tomb of the man of God who came from Judah and proclaimed these things that you have done against the altar of Bethel." 
+Then he said, "What monument is that which I see?" The men of the city told him, "It's the tomb of the man of God who came from Judah and proclaimed these things that you have done against the altar of Bethel." 
 He said, "Let him be! Let no one move his bones." So they let his bones alone, with the bones of the spokesman who came out of Samaria. 
 All the houses also of the high places that were in the cities of Samaria, which the kings of Israel had made to provoke God to anger, Josiah took away, and did to them according to all the acts that he had done in Bethel. 
 He killed all the priests of the high places that were there, on the altars, and burned men's bones on them; and he returned to Jerusalem. 
-The king commanded everyone, saying, "Keep the Passover to your God, as it is written in this book of the covenant." 
+The king commanded everyone, saying, "Keep the Passover to your God, as it's written in this book of the covenant." 
 Surely there wasn't kept such a Passover from the days of the judges who judged Israel, nor in all the days of the kings of Israel, nor of the kings of Judah; 
 but in the eighteenth year of King Josiah, this Passover was kept to God in Jerusalem. 
 Moreover, Josiah removed those who had familiar spirits, the wizards, and the teraphim, and the idols, and all the abominations that were seen in the land of Judah and in Jerusalem, that he might confirm the words of the law which were written in the book that Hilkiah the priest found in God's house. 
 There was no king like him before him, who turned to God with all his heart, and with all his soul, and with all his might, according to all the law of Moses; and there was none like him who arose after him. 
 Notwithstanding, God didn't turn from the fierceness of his great wrath, with which his anger burned against Judah, because of all the provocation with which Manasseh had provoked him. 
-God said, "I will also remove Judah out of my sight, as I have removed Israel; and I will cast off this city which I have chosen, even Jerusalem, and the house of which I said, 'My name shall be there.'" 
+God said, "I'll also remove Judah out of my sight, as I have removed Israel; and I'll cast off this city which I have chosen, even Jerusalem, and the house of which I said, 'My name shall be there.'" 
 Now the rest of the acts of Josiah, and all that he did, aren't they written in the book of the chronicles of the kings of Judah? 
 In his days Pharaoh Necoh king of Egypt went up against the king of Assyria to the river Euphrates; and King Josiah went against him, but Pharaoh Necoh killed him at Megiddo when he saw him. 
 His servants carried him dead in a chariot from Megiddo, brought him to Jerusalem, and buried him in his own tomb. The people of the land took Jehoahaz the son of Josiah, and anointed him, and made him king in his father's place. 

@@ -5,11 +5,11 @@ They brought up God's ark, the Tent of Meeting, and all the holy vessels that we
 King Solomon and all the congregation of Israel, who were assembled to him, were with him before the ark, sacrificing sheep and cattle that couldn't be counted or numbered for multitude. 
 The priests brought in the ark of God's covenant to its place, into the inner sanctuary of the house, to the most holy place, even under the cherubim's wings. 
 The cherubim spread their wings out over the place of the ark, and the cherubim covered the ark and its poles above. 
-The poles were so long that the ends of the poles were seen from the holy place before the inner sanctuary, but they weren't seen outside. They are there to this day. 
+The poles were so long that the ends of the poles were seen from the holy place before the inner sanctuary, but they weren't seen outside. They're there to this day. 
 There was nothing in the ark except the two stone tablets which Moses put there at Horeb, when God made a covenant with the children of Israel, when they came out of the land of Egypt. 
 It came to pass, when the priests had come out of the holy place, that the cloud filled God's house, 
 so that the priests couldn't stand to minister by reason of the cloud; for God's glory filled God's house. 
-Then Solomon said, "God has said that he would dwell in the thick darkness. 
+Then Solomon said, "God has said that he'd dwell in the thick darkness. 
 I have surely built you a house of habitation, a place for you to dwell in for the eras." 
 The king turned his face around and blessed all the assembly of Israel; and all the assembly of Israel stood. 
 He said, "Blessed is the God of Israel, who spoke with his mouth to David your father, and has with his hand fulfilled it, saying, 
@@ -20,8 +20,8 @@ Nevertheless, you shall not build the house; but your son who shall come out of 
 God has established his word that he spoke; for I have risen up in the place of David my father, and I sit on the throne of Israel, as God promised, and have built the house for the name of the God of Israel. 
 There I have set a place for the ark, in which is God's covenant, which he made with our fathers when he brought them out of the land of Egypt." 
 Solomon stood before God's altar in the presence of all the assembly of Israel, and spread out his hands toward the sky; 
-and he said, "the God of Israel, there is no God like you, in the sky above, or on earth beneath; who keeps covenant and loving kindness with your servants who walk before you with all their heart; 
-who has kept with your servant David my father that which you promised him. Yes, you spoke with your mouth, and have fulfilled it with your hand, as it is today. 
+and he said, "the God of Israel, there's no God like you, in the sky above, or on earth beneath; who keeps covenant and loving kindness with your servants who walk before you with all their heart; 
+who has kept with your servant David my father that which you promised him. Yes, you spoke with your mouth, and have fulfilled it with your hand, as it's today. 
 Now, may the God of Israel, keep with your servant David my father that which you have promised him, saying, 'There shall not fail from you a man in my sight to sit on the throne of Israel, if only your children take heed to their way, to walk before me as you have walked before me.' 
 "Now, God of Israel, please let your word be verified, which you spoke to your servant David my father. 
 But will God in very deed dwell on the earth? Look, the sky and the sky above the skies can't contain you; how much less this house that I have built! 
@@ -32,9 +32,9 @@ Listen to the supplication of your servant, and of your people Israel, when they
 then hear in the sky, and act, and judge your servants, condemning the guilty, to bring his way on his own head, and justifying the righteous, to give him according to his righteousness. 
 "When your people Israel are struck down before the enemy because they have wronged you, if they turn again to you and confess your name, and pray and make supplication to you in this house, 
 then hear in the sky, and forgive the wrongdoing of your people Israel, and bring them again to the land which you gave to their fathers. 
-"When the sky is shut up and there is no rain because they have wronged you, if they pray toward this place and confess your name, and turn from their wrongdoing when you afflict them, 
+"When the sky is shut up and there's no rain because they have wronged you, if they pray toward this place and confess your name, and turn from their wrongdoing when you afflict them, 
 then hear in the sky, and forgive the wrongdoing of your servants, and of your people Israel, when you teach them the good way in which they should walk; and send rain on your land which you have given to your people for an inheritance. 
-"If there is famine in the land, if there is pestilence, if there is blight, mildew, locust or caterpillar; if their enemy besieges them in the land of their cities, whatever plague, whatever sickness there is, 
+"If there's famine in the land, if there's pestilence, if there's blight, mildew, locust or caterpillar; if their enemy besieges them in the land of their cities, whatever plague, whatever sickness there's, 
 whatever prayer and supplication is made by any man, or by all your people Israel, who shall each know the plague of his own heart, and spread out his hands toward this house, 
 then hear in the sky, your dwelling place, and forgive, and act, and give to every man according to all his ways, whose heart you know (for you, even you only, know the hearts of all the children of men); 
 that they may fear you all the days that they live in the land which you gave to our fathers. 
@@ -43,12 +43,12 @@ that they may fear you all the days that they live in the land which you gave to
 hear in the sky, your dwelling place, and do according to all that the foreigner calls to you for; that everyones of the earth may know your name, to fear you, as do your people Israel, and that they may know that this house which I have built is called by your name. 
 "If your people go out to battle against their enemy, by whatever way you shall send them, and they pray to God toward the city which you have chosen, and toward the house which I have built for your name, 
 then hear in the sky their prayer and their supplication, and maintain their cause. 
-If they wrong you (for there is no man who doesn't drift), and you are angry with them and deliver them to the enemy, so that they carry them away captive to the land of the enemy, far off or near; 
-yet if they repent in the land where they are carried captive, and turn again, and make supplication to you in the land of those who carried them captive, saying, 'We have drifted and have done perversely; we have dealt guiltily,' 
+If they wrong you (for there's no man who doesn't drift), and you're angry with them and deliver them to the enemy, so that they carry them away captive to the land of the enemy, far off or near; 
+yet if they repent in the land where they're carried captive, and turn again, and make supplication to you in the land of those who carried them captive, saying, 'We have drifted and have done perversely; we have dealt guiltily,' 
 if they return to you with all their heart and with all their soul in the land of their enemies who carried them captive, and pray to you toward their land which you gave to their fathers, the city which you have chosen and the house which I have built for your name, 
 then hear their prayer and their supplication in the sky, your dwelling place, and maintain their cause; 
 and forgive your people who have wronged you, and all their rebellion in which they have transgressed against you; and give them compassion before those who carried them captive, that they may have compassion on them 
-(for they are your people and your inheritance, which you brought out of Egypt, from the middle of the iron furnace); 
+(for they're your people and your inheritance, which you brought out of Egypt, from the middle of the iron furnace); 
 that your eyes may be open to the supplication of your servant and to the supplication of your people Israel, to listen to them whenever they cry to you. 
 You separated them from among everyones of the earth to be your inheritance, as you spoke by Moses your servant, when you brought our fathers out of Egypt, God." 
 It was so, that when Solomon had finished praying all this prayer and supplication to God, he arose from before God's altar, from kneeling on his knees with his hands spread out toward the sky. 
@@ -57,8 +57,8 @@ He stood and blessed all the assembly of Israel with a loud voice, saying,
 May our God be with us as he was with our fathers. Let him not leave us or forsake us, 
 that he may incline our hearts to him, to walk in all his ways, and to keep his commandments, his statutes, and his ordinances, which he commanded our fathers. 
 Let these my words, with which I have made supplication before God, be near to our God day and night, that he may maintain the cause of his servant and the cause of his people Israel, as every day requires; 
-that everyones of the earth may know that God is the true God. There is no one else. 
-"Let your heart be perfect with our God, to walk in his statutes, and to keep his commandments, as it is today." 
+that everyones of the earth may know that God is the true God. There's no one else. 
+"Let your heart be perfect with our God, to walk in his statutes, and to keep his commandments, as it's today." 
 The king, and all Israel with him, offered sacrifice before God. 
 Solomon offered for the sacrifice of offerings for wholeness, which he offered to God, twenty two thousand head of cattle and one hundred twenty thousand sheep. So the king and all the children of Israel dedicated God's house. 
 The same day the king made the middle of the court holy that was before God's house; for there he offered the burnt offering, the meal offering, and the fat of the offerings for wholeness, because the bronze altar that was before God was too little to receive the burnt offering, the meal offering, and the fat of the offerings for wholeness. 

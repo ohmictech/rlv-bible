@@ -1,7 +1,7 @@
 ﻿They took their journey from Elim, and all the congregation of the children of Israel came to the wilderness of Sin, which is between Elim and Sinai, on the fifteenth day of the second month after their departing out of the land of Egypt. 
 The whole congregation of the children of Israel murmured against Moses and against Aaron in the wilderness; 
 and the children of Israel said to them, "We wish that we had died by God's hand in the land of Egypt, when we sat by the meat pots, when we ate our fill of bread, for you have brought us out into this wilderness to kill this whole assembly with hunger." 
-Then God said to Moses, "Look, I will rain bread from the sky for you, and the people shall go out and gather a day's portion every day, that I may test them, whether they will walk in my law or not. 
+Then God said to Moses, "Look, I'll rain bread from the sky for you, and the people shall go out and gather a day's portion every day, that I may test them, whether they'll walk in my law or not. 
 It shall come to pass on the sixth day, that they shall prepare that which they bring in, and it shall be twice as much as they gather daily." 
 Moses and Aaron said to all the children of Israel, "At evening, you shall know that God has brought you out from the land of Egypt. 
 In the morning, you shall see God's glory; because he hears your murmurings against God. Who are we, that you murmur against us?" 
@@ -9,10 +9,10 @@ Moses said, "Now God will give you meat to eat in the evening, and in the mornin
 Moses said to Aaron, "Tell all the congregation of the children of Israel, 'Come close to God, for he has heard your murmurings.'" 
 As Aaron spoke to the whole congregation of the children of Israel, they looked toward the wilderness, and look, God's glory appeared in the cloud. 
 God spoke to Moses, saying, 
-"I have heard the murmurings of the children of Israel. Speak to them, saying, 'At evening you shall eat meat, and in the morning you shall be filled with bread. Then you will know that I am your God.'" 
+"I have heard the murmurings of the children of Israel. Speak to them, saying, 'At evening you shall eat meat, and in the morning you shall be filled with bread. Then you'll know that I'm your God.'" 
 In the evening, quail came up and covered the camp; and in the morning the dew lay around the camp. 
 When the dew that lay had gone, look, on the surface of the wilderness was a small round thing, small as the frost on the ground. 
-When the children of Israel saw it, they said to one another, "What is it?" For they didn't know what it was. Moses said to them, "It is the bread which God has given you to eat. 
+When the children of Israel saw it, they said to one another, "What's it?" For they didn't know what it was. Moses said to them, "It's the bread which God has given you to eat. 
 This is the thing which God has commanded: 'Gather of it everyone according to his eating; an omer a head, according to the number of your persons, you shall take it, every man for those who are in his tent.'" 
 The children of Israel did so, and some gathered more, some less. 
 When they measured it with an omer, he who gathered much had nothing over, and he who gathered little had no lack. They each gathered according to his eating. 

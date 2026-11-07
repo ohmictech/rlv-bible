@@ -1,9 +1,9 @@
-﻿You shall not sacrifice to your God an ox or a sheep in which is a defect or anything bad; for that is an abomination to your God. 
-If there is found among you, within any of your gates which your God gives you, a man or woman who does that which is bad in your God's sight in transgressing his covenant, 
+﻿You shall not sacrifice to your God an ox or a sheep in which is a defect or anything bad; for that's an abomination to your God. 
+If there's found among you, within any of your gates which your God gives you, a man or woman who does that which is bad in your God's sight in transgressing his covenant, 
 and has gone and served other gods and worshiped them, or the sun, or the moon, or any of the stars of the sky, which I haven't commanded, 
-and you are told, and you have heard of it, then you shall inquire diligently. Look, if it is true, and the thing certain, that such abomination is done in Israel, 
+and you're told, and you have heard of it, then you shall inquire diligently. Look, if it's true, and the thing certain, that such abomination is done in Israel, 
 then you shall bring out that man or that woman who has done this bad thing to your gates, even that same man or woman; and you shall stone them to death with stones. 
-At the mouth of two witnesses, or three witnesses, he who is to die shall be put to death. At the mouth of one witness he shall not be put to death. 
+At the mouth of two witnesses, or three witnesses, he who's to die shall be put to death. At the mouth of one witness he shall not be put to death. 
 The hands of the witnesses shall be first on him to put him to death, and afterward the hands of everyone. So you shall remove the bad from among you. 
 If there arises a matter too hard for you in judgment, between blood and blood, between plea and plea, and between stroke and stroke, being matters of controversy within your gates, then you shall arise, and go up to the place which your God chooses. 
 You shall come to the priests who are Levites and to the judge who shall be in those days. You shall inquire, and they shall give you the verdict. 
@@ -11,7 +11,7 @@ You shall do according to the decisions of the verdict which they shall give you
 According to the decisions of the law which they shall teach you, and according to the judgment which they shall tell you, you shall do. You shall not turn away from the sentence which they announce to you, to the right hand, nor to the left. 
 The man who does presumptuously in not listening to the priest who stands to minister there before your God, or to the judge, even that man shall die. You shall put away the bad from Israel. 
 Everyone shall hear and fear, and do no more presumptuously. 
-When you have come to the land which your God gives you, and possess it and dwell in it, and say, "I will set a king over me, like all the nations that are around me," 
+When you have come to the land which your God gives you, and possess it and dwell in it, and say, "I'll set a king over me, like all the nations that are around me," 
 you shall surely set him whom your God chooses as king over yourselves. You shall set as king over you one from among your brothers. You may not put a foreigner over you, who isn't your brother. 
 Only he shall not multiply horses to himself, nor cause the people to return to Egypt, to the end that he may multiply horses; because God has said to you, "You shall not go back that way again." 
 He shall not multiply wives to himself, that his heart not turn away. He shall not greatly multiply to himself silver and gold. 

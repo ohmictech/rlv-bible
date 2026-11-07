@@ -1,12 +1,12 @@
 ﻿Who has believed our message? To whom has God's arm been revealed? 
-He grew up before him as a tender plant, and as a root out of dry ground. He has no good looks or majesty. When we see him, there is no beauty that we should desire him. 
+He grew up before him as a tender plant, and as a root out of dry ground. He has no good looks or majesty. When we see him, there's no beauty that we should desire him. 
 He was despised and rejected by men, a man of suffering and acquainted with disease. He was despised as one from whom men hide their face; and we didn't respect him. 
 Surely he has borne our sickness and carried our suffering; yet we considered him plagued, struck by God, and afflicted. 
-But he was pierced for our rebellion. He was crushed for our guilt. The punishment that brought our peace was on him; and by his wounds we are healed. 
+But he was pierced for our rebellion. He was crushed for our guilt. The punishment that brought our peace was on him; and by his wounds we're healed. 
 All we like sheep have gone astray. Everyone has turned to his own way; and God has laid on him the guilt of us all. 
-He was oppressed, yet when he was afflicted he didn't open his mouth. As a lamb that is led to the slaughter, and as a sheep that before its shearers is silent, so he didn't open his mouth. 
+He was oppressed, yet when he was afflicted he didn't open his mouth. As a lamb that's led to the slaughter, and as a sheep that before its shearers is silent, so he didn't open his mouth. 
 He was taken away by oppression and judgment. As for his generation, who considered that he was cut off out of the land of the living and stricken for the disobedience of my people? 
 They made his grave with the guilty, and with a rich man in his death, although he had done no violence, nor was any deceit in his mouth. 
-Yet it pleased God to bruise him. He has caused him to suffer. When you make his soul an offering for wrongdoing, he will see his offspring. He will prolong his days and God's pleasure will prosper in his hand. 
-After the suffering of his soul, he will see the light and be satisfied. My righteous servant will justify everyone by the knowledge of himself; and he will bear their guilt. 
-So I will give him a portion with the great. He will divide the plunder with the strong, because he poured out his soul to death and was counted with the transgressors; yet he bore the drifts of many and made intercession for the transgressors. 
+Yet it pleased God to bruise him. He has caused him to suffer. When you make his soul an offering for wrongdoing, he'll see his offspring. He'll prolong his days and God's pleasure will prosper in his hand. 
+After the suffering of his soul, he'll see the light and be satisfied. My righteous servant will justify everyone by the knowledge of himself; and he'll bear their guilt. 
+So I'll give him a portion with the great. He'll divide the plunder with the strong, because he poured out his soul to death and was counted with the transgressors; yet he bore the drifts of many and made intercession for the transgressors. 

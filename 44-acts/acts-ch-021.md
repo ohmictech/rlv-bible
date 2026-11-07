@@ -10,18 +10,18 @@ Now this man had four virgin daughters who spoke for God.
 As we stayed there some days, a certain spokesman named Agabus came down from Judea. 
 Coming to us and taking Paul's belt, he bound his own feet and hands, and said, "The Holy Spirit says: 'So the Jewish leaders at Jerusalem will bind the man who owns this belt, and will hand him over into the hands of the nations.'" 
 When we heard these things, both we and the people of that place begged him not to go up to Jerusalem. 
-Then Paul answered, "What are you doing, weeping and breaking my heart? I am ready not only to be bound, but also to die at Jerusalem for the name of the Lord Jesus." 
+Then Paul answered, "What are you doing, weeping and breaking my heart? I'm ready not only to be bound, but also to die at Jerusalem for the name of the Lord Jesus." 
 When he wouldn't be persuaded, we ceased, saying, "The Lord's will be done." 
 After these days we took up our baggage and went up to Jerusalem. 
-Some of the students from Caesarea also went with us, bringing one Mnason of Cyprus, an early student, with whom we would stay. 
+Some of the students from Caesarea also went with us, bringing one Mnason of Cyprus, an early student, with whom we'd stay. 
 When we had come to Jerusalem, the brothers received us gladly. 
 The day following, Paul went in with us to James; and all the elders were present. 
 When he had greeted them, he reported one by one the things which God had worked among the nations through his work. 
-They, when they heard it, gave honor to God. They said to him, "You see, brother, how many thousands there are among the Jewish people of those who have trusted, and they are all devoted to the law. 
+They, when they heard it, gave honor to God. They said to him, "You see, brother, how many thousands there are among the Jewish people of those who have trusted, and they're all devoted to the law. 
 They have been informed about you, that you teach all the Jewish people who are among the nations to forsake Moses, telling them not to circumcise their children and not to walk after the customs. 
-What then? The gathering must certainly meet, for they will hear that you have come. 
+What then? The gathering must certainly meet, for they'll hear that you have come. 
 So do what we tell you. We have four men who have taken a vow. 
-Take them and purify yourself with them, and pay their expenses for them, that they may shave their heads. Then all will know that there is no truth in the things that they have been informed about you, but that you yourself also walk keeping the law. 
+Take them and purify yourself with them, and pay their expenses for them, that they may shave their heads. Then all will know that there's no truth in the things that they have been informed about you, but that you yourself also walk keeping the law. 
 But concerning the nations who trust, we have written our decision that they should observe no such thing, except that they should keep themselves from food offered to idols, from blood, from strangled things, and from sleeping around." 
 Then Paul took the men, and the next day purified himself and went with them into the temple courts, declaring the fulfillment of the days of washing, until the offering was offered for every one of them. 
 When the seven days were almost completed, the Jewish leaders from Asia, when they saw him in the temple courts, stirred up all the crowd and laid hands on him, 
@@ -36,5 +36,5 @@ When he came to the stairs, he was carried by the soldiers because of the violen
 for the crowd of the people followed after, crying out, "Away with him!" 
 As Paul was about to be brought into the barracks, he asked the commanding officer, "May I speak to you?" He said, "Do you know Greek? 
 Aren't you then the Egyptian who before these days stirred up to sedition and led out into the wilderness the four thousand men of the Assassins?" 
-But Paul said, "I am a Jewish man from Tarsus in Cilicia, a citizen of no insignificant city. I beg you, allow me to speak to the people." 
+But Paul said, "I'm a Jewish man from Tarsus in Cilicia, a citizen of no insignificant city. I beg you, allow me to speak to the people." 
 When he had given him permission, Paul, standing on the stairs, beckoned with his hand to the people. When there was a great silence, he spoke to them in the Hebrew language, saying, 

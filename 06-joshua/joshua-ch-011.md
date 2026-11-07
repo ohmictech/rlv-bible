@@ -1,9 +1,9 @@
 ﻿When Jabin king of Hazor heard of it, he sent to Jobab king of Madon, to the king of Shimron, to the king of Achshaph, 
 and to the kings who were on the north, in the hill country, in the Arabah south of Chinneroth, in the lowland, and in the heights of Dor on the west, 
 to the Canaanite on the east and on the west, the Amorite, the Hittite, the Perizzite, the Jebusite in the hill country, and the Hivite under Hermon in the land of Mizpah. 
-They went out, they and all their armies with them, many people, even as the sand that is on the seashore in multitude, with very many horses and chariots. 
+They went out, they and all their armies with them, many people, even as the sand that's on the seashore in multitude, with very many horses and chariots. 
 All these kings met together; and they came and encamped together at the waters of Merom, to fight with Israel. 
-God said to Joshua, "Don't be afraid because of them; for tomorrow at this time, I will deliver them up all slain before Israel. You shall hamstring their horses and burn their chariots with fire." 
+God said to Joshua, "Don't be afraid because of them; for tomorrow at this time, I'll deliver them up all slain before Israel. You shall hamstring their horses and burn their chariots with fire." 
 So Joshua came suddenly, with all the warriors, against them by the waters of Merom, and attacked them. 
 God delivered them into the hand of Israel, and they struck them, and chased them to great Sidon, and to Misrephoth Maim, and to the valley of Mizpah eastward. They struck them until they left them no one remaining. 
 Joshua did to them as God told him. He hamstrung their horses and burned their chariots with fire. 

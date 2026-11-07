@@ -1,8 +1,8 @@
 ﻿Now while Ezra prayed and made confession, weeping and casting himself down before God's house, there was gathered together to him out of Israel a very great assembly of men and women and children; for the people wept very bitterly. 
-Shecaniah the son of Jehiel, one of the sons of Elam, answered Ezra, "We have trespassed against our God, and have married foreign women of the peoples of the land. Yet now there is hope for Israel concerning this thing. 
+Shecaniah the son of Jehiel, one of the sons of Elam, answered Ezra, "We have trespassed against our God, and have married foreign women of the peoples of the land. Yet now there's hope for Israel concerning this thing. 
 Now let's make a covenant with our God to put away all the wives and those who are born of them, according to the counsel of my lord and of those who tremble at the commandment of our God. Let it be done according to the law. 
-Arise, for the matter belongs to you and we are with you. Be courageous, and do it." 
-Then Ezra arose, and made the chiefs of the priests, the Levites, and all Israel to swear that they would do according to this word. So they swore. 
+Arise, for the matter belongs to you and we're with you. Be courageous, and do it." 
+Then Ezra arose, and made the chiefs of the priests, the Levites, and all Israel to swear that they'd do according to this word. So they swore. 
 Then Ezra rose up from before God's house, and went into the room of Jehohanan the son of Eliashib. When he came there, he didn't eat bread or drink water, for he mourned because of the trespass of the exiles. 
 They made a proclamation throughout Judah and Jerusalem to all the children of the captivity, that they should gather themselves together to Jerusalem; 
 and that whoever didn't come within three days, according to the counsel of the princes and the elders, all his possessions should be forfeited, and he himself separated from the assembly of the captivity. 
@@ -10,13 +10,13 @@ Then all the men of Judah and Benjamin gathered themselves together to Jerusalem
 Ezra the priest stood up and said to them, "You have trespassed, and have married foreign women, increasing the guilt of Israel. 
 Now make confession to the God of your fathers and do his pleasure. Separate yourselves from the peoples of the land and from the foreign women." 
 Then all the assembly answered with a loud voice, "We must do as you have said concerning us. 
-But the people are many, and it is a time of much rain, and we aren't able to stand outside. This isn't a work of one day or two, for we have greatly transgressed in this matter. 
-Now let our princes be appointed for all the assembly, and let everyone who is in our cities who have married foreign women come at appointed times, and with them the elders of every city and its judges, until the fierce wrath of our God is turned from us, until this matter is resolved." 
+But the people are many, and it's a time of much rain, and we aren't able to stand outside. This isn't a work of one day or two, for we have greatly transgressed in this matter. 
+Now let our princes be appointed for all the assembly, and let everyone who's in our cities who have married foreign women come at appointed times, and with them the elders of every city and its judges, until the fierce wrath of our God is turned from us, until this matter is resolved." 
 Only Jonathan the son of Asahel and Jahzeiah the son of Tikvah stood up against this; and Meshullam and Shabbethai the Levite helped them. 
 The children of the captivity did so. Ezra the priest, with certain heads of fathers' households, after their fathers' houses, and everyone by their names, were set apart; and they sat down in the first day of the tenth month to examine the matter. 
 They finished with all the men who had married foreign women by the first day of the first month. 
 Among the sons of the priests there were found who had married foreign women: of the sons of Jeshua, the son of Jozadak, and his brothers: Maaseiah, Eliezer, Jarib, and Gedaliah. 
-They gave their hand that they would put away their wives; and being guilty, they offered a ram of the flock for their guilt. 
+They gave their hand that they'd put away their wives; and being guilty, they offered a ram of the flock for their guilt. 
 Of the sons of Immer: Hanani and Zebadiah. 
 Of the sons of Harim: Maaseiah, Elijah, Shemaiah, Jehiel, and Uzziah. 
 Of the sons of Pashhur: Elioenai, Maaseiah, Ishmael, Nethanel, Jozabad, and Elasah. 

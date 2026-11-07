@@ -1,4 +1,4 @@
-﻿Give thanks to God, for he is good, for his loving kindness endures for the eras. 
+﻿Give thanks to God, for he's good, for his loving kindness endures for the eras. 
 Give thanks to the God of gods, for his loving kindness endures for the eras. 
 Give thanks to the Lord of lords, for his loving kindness endures for the eras; 
 to him who alone does great wonders, for his loving kindness endures for the eras; 

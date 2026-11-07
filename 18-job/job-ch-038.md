@@ -1,6 +1,6 @@
 ﻿Then God answered Job out of the whirlwind, 
-"Who is this who darkens counsel by words without knowledge? 
-Brace yourself like a man, for I will question you, then you answer me! 
+"Who's this who darkens counsel by words without knowledge? 
+Brace yourself like a man, for I'll question you, then you answer me! 
 "Where were you when I laid the foundations of the earth? Declare, if you have understanding. 
 Who determined its measures, if you know? Or who stretched the line on it? 
 What were its foundations fastened on? Or who laid its cornerstone, 
@@ -11,19 +11,19 @@ marked out for it my bound, set bars and doors,
 and said, 'You may come here, but no further. Your proud waves shall be stopped here'? 
 "Have you commanded the morning in your days, and caused the dawn to know its place, 
 that it might take hold of the ends of the earth, and shake the guilty out of it? 
-It is changed as clay under the seal, and presented as a garment. 
+It's changed as clay under the seal, and presented as a garment. 
 From the guilty, their light is withheld. The high arm is broken. 
 "Have you entered into the springs of the sea? Or have you walked in the recesses of the deep? 
 Have the gates of death been revealed to you? Or have you seen the gates of the shadow of death? 
 Have you comprehended the earth in its width? Declare, if you know it all. 
-"What is the way to the dwelling of light? As for darkness, where is its place, 
+"What's the way to the dwelling of light? As for darkness, where is its place, 
 that you should take it to its bound, that you should discern the paths to its house? 
 Surely you know, for you were born then, and the number of your days is great! 
 Have you entered the storehouses of the snow, or have you seen the storehouses of the hail, 
 which I have reserved against the time of trouble, against the day of battle and war? 
 By what way is the lightning distributed, or the east wind scattered on the earth? 
 Who has cut a channel for the flood water, or the path for the thunderstorm, 
-to cause it to rain on a land where there is no man, on the wilderness, in which there is no man, 
+to cause it to rain on a land where there's no man, on the wilderness, in which there's no man, 
 to satisfy the waste and desolate ground, to cause the tender grass to grow? 
 Does the rain have a father? Or who fathers the drops of dew? 
 Whose womb did the ice come out of? Who has given birth to the gray frost of the sky? 
@@ -32,7 +32,7 @@ The waters become hard like stone, when the surface of the deep is frozen.
 Can you lead the constellations out in their season? Or can you guide the Bear with her cubs? 
 Do you know the laws of the sky? Can you establish its dominion over the earth? 
 "Can you lift up your voice to the clouds, that abundance of waters may cover you? 
-Can you send out lightnings, that they may go? Do they report to you, 'Here we are'? 
+Can you send out lightnings, that they may go? Do they report to you, 'Here we're'? 
 Who has put wisdom in the inward parts? Or who has given understanding to the mind? 
 Who can count the clouds by wisdom? Or who can pour out the containers of the sky, 
 when the dust runs into a mass, and the clods of earth stick together? 

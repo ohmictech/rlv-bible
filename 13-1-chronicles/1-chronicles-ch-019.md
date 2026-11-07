@@ -1,5 +1,5 @@
 ﻿After this, Nahash the king of the children of Ammon died, and his son reigned in his place. 
-David said, "I will show kindness to Hanun the son of Nahash, because his father showed kindness to me." So David sent messengers to comfort him concerning his father. David's servants came into the land of the children of Ammon to Hanun to comfort him. 
+David said, "I'll show kindness to Hanun the son of Nahash, because his father showed kindness to me." So David sent messengers to comfort him concerning his father. David's servants came into the land of the children of Ammon to Hanun to comfort him. 
 But the princes of the children of Ammon said to Hanun, "Do you think that David honors your father, in that he has sent comforters to you? Haven't his servants come to you to search, to overthrow, and to spy out the land?" 
 So Hanun took David's servants, shaved them, and cut off their garments in the middle at their buttocks, and sent them away. 
 Then some people went and told David how the men were treated. He sent to meet them; for the men were greatly humiliated. The king said, "Stay at Jericho until your beards have grown, and then return." 
@@ -9,7 +9,7 @@ When David heard of it, he sent Joab with all the army of the mighty men.
 The children of Ammon came out, and put the battle in array at the gate of the city; and the kings who had come were by themselves in the field. 
 Now when Joab saw that the battle was set against him before and behind, he chose some of all the choice men of Israel, and put them in array against the Syrians. 
 The rest of the people he committed into the hand of Abishai his brother; and they put themselves in array against the children of Ammon. 
-He said, "If the Syrians are too strong for me, then you are to help me; but if the children of Ammon are too strong for you, then I will help you. 
+He said, "If the Syrians are too strong for me, then you're to help me; but if the children of Ammon are too strong for you, then I'll help you. 
 Be courageous, and let's be strong for our people and for the cities of our God. May God do that which seems good to him." 
 So Joab and the people who were with him came near to the front of the Syrians to the battle; and they fled before him. 
 When the children of Ammon saw that the Syrians had fled, they likewise fled before Abishai his brother, and entered into the city. Then Joab came to Jerusalem. 

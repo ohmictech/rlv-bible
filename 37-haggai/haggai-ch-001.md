@@ -5,11 +5,11 @@ Then God's word came by Haggai the spokesman, saying,
 Now this is what the God of Armies says: 'Consider your ways. 
 You have sown much, and bring in little. You eat, but you don't have enough. You drink, but you aren't filled with drink. You clothe yourselves, but no one is warm; and he who earns wages earns wages to put them into a bag with holes in it.' 
 "This is what the God of Armies says: 'Consider your ways. 
-Go up to the mountain, bring wood, and build the house. I will take pleasure in it, and I will be glorified," says God. 
+Go up to the mountain, bring wood, and build the house. I'll take pleasure in it, and I'll be glorified," says God. 
 "You looked for much, and, look, it came to little; and when you brought it home, I blew it away. Why?" says the God of Armies, "Because of my house that lies waste, while each of you is busy with his own house. 
 So for your sake the sky withhold the dew, and the earth withholds its fruit. 
 I called for a drought on the land, on the mountains, on the grain, on the new wine, on the oil, on that which the ground produces, on men, on livestock, and on all the labor of the hands." 
 Then Zerubbabel the son of Shealtiel and Joshua the son of Jehozadak, the high priest, with all the remnant of the people, obeyed their God's voice, and the words of Haggai the spokesman, as their God had sent him; and the people feared God. 
-Then Haggai, God's messenger, spoke God's message to the people, saying, "I am with you," says God. 
+Then Haggai, God's messenger, spoke God's message to the people, saying, "I'm with you," says God. 
 God stirred up the spirit of Zerubbabel the son of Shealtiel, governor of Judah, and the spirit of Joshua the son of Jehozadak, the high priest, and the spirit of all the remnant of the people; and they came and worked on the house of the God of Armies, their God, 
 in the twenty-fourth day of the month, in the sixth month, in the second year of Darius the king. 

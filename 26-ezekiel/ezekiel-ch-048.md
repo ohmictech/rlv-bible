@@ -11,7 +11,7 @@ These, even for the priests, shall be the holy offering: toward the north twenty
 It shall be for the priests who are sanctified of the sons of Zadok, who have kept my instruction, who didn't go astray when the children of Israel went astray, as the Levites went astray. 
 It shall be to them an offering from the offering of the land, a most holy thing, by the border of the Levites. 
 "Alongside the border of the priests, the Levites shall have twenty-five thousand cubits in length and ten thousand in width. All the length shall be twenty-five thousand, and the width ten thousand. 
-They shall sell none of it, nor exchange it, nor shall the first fruits of the land be alienated, for it is holy to God. 
+They shall sell none of it, nor exchange it, nor shall the first fruits of the land be alienated, for it's holy to God. 
 "The five thousand cubits that are left in the width, in front of the twenty-five thousand, shall be for common use, for the city, for dwelling and for pasture lands; and the city shall be in the middle of it. 
 These shall be its measurements: the north side four thousand and five hundred, and the south side four thousand and five hundred, and on the east side four thousand and five hundred, and the west side four thousand and five hundred. 
 The city shall have pasture lands: toward the north two hundred fifty, and toward the south two hundred fifty, and toward the east two hundred fifty, and toward the west two hundred fifty. 

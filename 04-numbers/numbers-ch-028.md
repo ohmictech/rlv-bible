@@ -3,7 +3,7 @@
 You shall tell them, 'This is the offering made by fire which you shall offer to God: male lambs a year old without defect, two day by day, for a continual burnt offering. 
 You shall offer the one lamb in the morning, and you shall offer the other lamb at evening, 
 with one tenth of an ephah of fine flour for a meal offering, mixed with the fourth part of a hin of beaten oil. 
-It is a continual burnt offering which was ordained in Mount Sinai for a pleasant aroma, an offering made by fire to God. 
+It's a continual burnt offering which was ordained in Mount Sinai for a pleasant aroma, an offering made by fire to God. 
 Its drink offering shall be the fourth part of a hin for each lamb. You shall pour out a drink offering of strong drink to God in the holy place. 
 The other lamb you shall offer at evening. As the meal offering of the morning, and as its drink offering, you shall offer it, an offering made by fire, for a pleasant aroma to God. 
 "'On the Sabbath day, you shall offer two male lambs a year old without defect, and two tenths of an ephah of fine flour for a meal offering mixed with oil, and its drink offering: 
@@ -28,4 +28,4 @@ but you shall offer a burnt offering for a pleasant aroma to God: two young bull
 and their meal offering, fine flour mixed with oil, three tenths for each bull, two tenths for the one ram, 
 one tenth for every lamb of the seven lambs; 
 and one male goat, to make things right for you. 
-Besides the continual burnt offering and its meal offering, you shall offer them and their drink offerings. See that they are without defect. 
+Besides the continual burnt offering and its meal offering, you shall offer them and their drink offerings. See that they're without defect. 

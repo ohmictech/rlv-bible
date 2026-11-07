@@ -5,13 +5,13 @@ The captain of the guard assigned them to Joseph, and he took care of them. They
 They both dreamed a dream, each man his dream, in one night, each man according to the interpretation of his dream, the cup bearer and the baker of the king of Egypt, who were bound in the prison. 
 Joseph came in to them in the morning, and saw them, and saw that they were sad. 
 He asked Pharaoh's officers who were with him in custody in his master's house, saying, "Why do you look so sad today?" 
-They said to him, "We have dreamed a dream, and there is no one who can interpret it." Joseph said to them, "Don't interpretations belong to God? Please tell it to me." 
+They said to him, "We have dreamed a dream, and there's no one who can interpret it." Joseph said to them, "Don't interpretations belong to God? Please tell it to me." 
 The chief cup bearer told his dream to Joseph, and said to him, "In my dream, look, a vine was in front of me, 
 and in the vine were three branches. It was as though it budded, it blossomed, and its clusters produced ripe grapes. 
 Pharaoh's cup was in my hand; and I took the grapes, and pressed them into Pharaoh's cup, and I gave the cup into Pharaoh's hand." 
 Joseph said to him, "This is its interpretation: the three branches are three days. 
-Within three more days, Pharaoh will lift up your head, and restore you to your office. You will give Pharaoh's cup into his hand, the way you did when you were his cup bearer. 
-But remember me when it is well with you. Please show kindness to me, and make mention of me to Pharaoh, and bring me out of this house. 
+Within three more days, Pharaoh will lift up your head, and restore you to your office. You'll give Pharaoh's cup into his hand, the way you did when you were his cup bearer. 
+But remember me when it's well with you. Please show kindness to me, and make mention of me to Pharaoh, and bring me out of this house. 
 Indeed, I was stolen away out of the land of the Hebrews, and here also I have done nothing that they should put me into the dungeon." 
 When the chief baker saw that the interpretation was good, he said to Joseph, "I also was in my dream, and look, three baskets of white bread were on my head. 
 In the uppermost basket there were all kinds of baked food for Pharaoh, and the birds ate them out of the basket on my head." 

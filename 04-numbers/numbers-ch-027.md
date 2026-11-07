@@ -8,7 +8,7 @@ God spoke to Moses, saying,
 You shall speak to the children of Israel, saying, 'If a man dies, and has no son, then you shall cause his inheritance to pass to his daughter. 
 If he has no daughter, then you shall give his inheritance to his brothers. 
 If he has no brothers, then you shall give his inheritance to his father's brothers. 
-If his father has no brothers, then you shall give his inheritance to his kinsman who is next to him of his family, and he shall possess it. This shall be a statute and ordinance for the children of Israel, as God commanded Moses.'" 
+If his father has no brothers, then you shall give his inheritance to his kinsman who's next to him of his family, and he shall possess it. This shall be a statute and ordinance for the children of Israel, as God commanded Moses.'" 
 God said to Moses, "Go up into this mountain of Abarim, and see the land which I have given to the children of Israel. 
 When you have seen it, you also shall be gathered to your people, as Aaron your brother was gathered; 
 because in the strife of the congregation, you rebelled against my word in the wilderness of Zin, to honor me as holy at the waters before their eyes." (These are the waters of Meribah of Kadesh in the wilderness of Zin.) 

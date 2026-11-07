@@ -1,12 +1,12 @@
 ﻿David assembled all the princes of Israel, the princes of the tribes, the captains of the companies who served the king by division, the captains of thousands, the captains of hundreds, and the rulers over all the substance and possessions of the king and of his sons, with the officers and the mighty men, even all the mighty men of valor, to Jerusalem. 
 Then David the king stood up on his feet and said, "Hear me, my brothers and my people! As for me, it was in my heart to build a house of rest for the ark of God's covenant, and for the footstool of our God; and I had prepared for the building. 
-But God said to me, 'You shall not build a house for my name, because you are a man of war and have shed blood.' 
+But God said to me, 'You shall not build a house for my name, because you're a man of war and have shed blood.' 
 However the God of Israel, chose me out of all the house of my father to be king over Israel for the eras. He has chosen Judah to be prince; and in the house of Judah, the house of my father; and among the sons of my father he took pleasure in me to make me king over all Israel. 
 Of all my sons (for God has given me many sons), he has chosen Solomon my son to sit on the throne of God's kingdom over Israel. 
-He said to me, 'Solomon, your son, shall build my house and my courts; for I have chosen him to be my son, and I will be his father. 
-I will establish his kingdom for the eras if he continues to do my commandments and my ordinances, as it is today.' 
+He said to me, 'Solomon, your son, shall build my house and my courts; for I have chosen him to be my son, and I'll be his father. 
+I'll establish his kingdom for the eras if he continues to do my commandments and my ordinances, as it's today.' 
 Now, in the sight of all Israel, God's assembly, and in the audience of our God, observe and seek out all the commandments of your God, that you may possess this good land, and leave it for an inheritance to your children after you for the eras. 
-You, Solomon my son, know the God of your father, and serve him with a perfect heart and with a willing mind; for God searches all hearts, and understands all the imaginations of the thoughts. If you seek him, he will be found by you; but if you forsake him, he will cast you off for the eras. 
+You, Solomon my son, know the God of your father, and serve him with a perfect heart and with a willing mind; for God searches all hearts, and understands all the imaginations of the thoughts. If you seek him, he'll be found by you; but if you forsake him, he'll cast you off for the eras. 
 Take heed now, for God has chosen you to build a house for the sanctuary. Be strong, and do it." 
 Then David gave to Solomon his son the plans for the porch of the temple, for its houses, for its treasuries, for its upper rooms, for its inner rooms, for the place of the mercy seat; 
 and the plans of all that he had by the Spirit, for the courts of God's house, for all the surrounding rooms, for the treasuries of God's house, and for the treasuries of the dedicated things; 

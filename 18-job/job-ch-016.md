@@ -1,8 +1,8 @@
 ﻿Then Job answered, 
-"I have heard many such things. You are all miserable comforters! 
+"I have heard many such things. You're all miserable comforters! 
 Shall vain words have an end? Or what provokes you that you answer? 
 I also could speak as you do. If your soul were in my soul's place, I could join words together against you, and shake my head at you, 
-but I would strengthen you with my mouth. The solace of my lips would relieve you. 
+but I'd strengthen you with my mouth. The solace of my lips would relieve you. 
 "Though I speak, my grief isn't subsided. Though I forbear, what am I eased? 
 But now, God, you have surely worn me out. You have made all my company desolate. 
 You have shriveled me up. This is a witness against me. My leanness rises up against me. It testifies to my face. 
@@ -14,9 +14,9 @@ His archers surround me. He splits my kidneys apart, and doesn't spare. He pours
 He breaks me with breach on breach. He runs at me like a giant. 
 I have sewed sackcloth on my skin, and have thrust my horn in the dust. 
 My face is red with weeping. Deep darkness is on my eyelids, 
-although there is no violence in my hands, and my prayer is pure. 
+although there's no violence in my hands, and my prayer is pure. 
 "Earth, don't cover my blood. Let my cry have no place to rest. 
 Even now, look, my witness is in the sky. He who vouches for me is on high. 
 My friends scoff at me. My eyes pour out tears to God, 
-that he would maintain the right of a man with God, of a son of man with his neighbor! 
-When a few years have come, I will go the way of no return. 
+that he'd maintain the right of a man with God, of a son of man with his neighbor! 
+When a few years have come, I'll go the way of no return. 

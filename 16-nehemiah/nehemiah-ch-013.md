@@ -18,7 +18,7 @@ Then I contended with the nobles of Judah, and said to them, "What bad thing is 
 Didn't your fathers do this, and didn't our God bring all this bad on us and on this city? Yet you bring more wrath on Israel by profaning the Sabbath." 
 It came to pass that when the gates of Jerusalem began to be dark before the Sabbath, I commanded that the doors should be shut, and commanded that they shouldn't be opened until after the Sabbath. I set some of my servants over the gates, so that no burden should be brought in on the Sabbath day. 
 So the merchants and sellers of all kinds of wares camped outside of Jerusalem once or twice. 
-Then I testified against them, and said to them, "Why do you stay around the wall? If you do so again, I will lay hands on you." From that time on, they didn't come on the Sabbath. 
+Then I testified against them, and said to them, "Why do you stay around the wall? If you do so again, I'll lay hands on you." From that time on, they didn't come on the Sabbath. 
 I commanded the Levites that they should purify themselves, and that they should come and keep the gates, to sanctify the Sabbath day. Remember me for this also, my God, and spare me according to the greatness of your loving kindness. 
 In those days I also saw the Jews who had married women of Ashdod, of Ammon, and of Moab; 
 and their children spoke half in the speech of Ashdod, and couldn't speak in the Jews' language, but according to the language of each people. 

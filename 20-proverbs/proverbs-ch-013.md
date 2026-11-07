@@ -9,14 +9,14 @@ The ransom of a man's life is his riches, but the poor hear no threats.
 The light of the righteous shines brightly, but the lamp of the guilty is snuffed out. 
 Pride only breeds quarrels, but wisdom is with people who take advice. 
 Wealth gained dishonestly dwindles away, but he who gathers by hand makes it grow. 
-Hope deferred makes the heart sick, but when longing is fulfilled, it is a tree of life. 
+Hope deferred makes the heart sick, but when longing is fulfilled, it's a tree of life. 
 Whoever despises instruction will pay for it, but he who respects a command will be rewarded. 
 The teaching of the wise is a spring of life, to turn from the snares of death. 
 Good understanding wins favor, but the way of the unfaithful is hard. 
 Every prudent man acts from knowledge, but a fool exposes folly. 
 A guilty messenger falls into trouble, but a trustworthy envoy gains healing. 
 Poverty and shame come to him who refuses discipline, but he who heeds correction shall be honored. 
-Longing fulfilled is sweet to the soul, but fools detest turning from what is bad. 
+Longing fulfilled is sweet to the soul, but fools detest turning from what's bad. 
 One who walks with wise men grows wise, but a companion of fools suffers harm. 
 Misfortune pursues those who have drifted, but prosperity rewards the righteous. 
 A good man leaves an inheritance to his children's children, but the wealth of the one who drifts is stored for the righteous. 

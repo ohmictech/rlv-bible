@@ -15,9 +15,9 @@ Of the tribe of Naphtali, Nahbi the son of Vophsi.
 Of the tribe of Gad, Geuel the son of Machi. 
 These are the names of the men who Moses sent to spy out the land. Moses called Hoshea the son of Nun Joshua. 
 Moses sent them to spy out the land of Canaan, and said to them, "Go up this way by the South, and go up into the hill country. 
-See the land, what it is; and the people who dwell therein, whether they are strong or weak, whether they are few or many; 
-and what the land is that they dwell in, whether it is good or bad; and what cities they are that they dwell in, whether in camps, or in strongholds; 
-and what the land is, whether it is fertile or poor, whether there is wood therein, or not. Be courageous, and bring some of the fruit of the land." Now the time was the time of the first-ripe grapes. 
+See the land, what it's; and the people who dwell therein, whether they're strong or weak, whether they're few or many; 
+and what the land is that they dwell in, whether it's good or bad; and what cities they're that they dwell in, whether in camps, or in strongholds; 
+and what the land is, whether it's fertile or poor, whether there's wood therein, or not. Be courageous, and bring some of the fruit of the land." Now the time was the time of the first-ripe grapes. 
 So they went up, and spied out the land from the wilderness of Zin to Rehob, to the entrance of Hamath. 
 They went up by the South, and came to Hebron; and Ahiman, Sheshai, and Talmai, the children of Anak, were there. (Now Hebron was built seven years before Zoan in Egypt.) 
 They came to the valley of Eshcol, and cut down from there a branch with one cluster of grapes, and they bore it on a staff between two. They also brought some of the pomegranates and figs. 
@@ -27,7 +27,7 @@ They went and came to Moses, to Aaron, and to all the congregation of the childr
 They told him, and said, "We came to the land where you sent us. Surely it flows with milk and honey, and this is its fruit. 
 However, the people who dwell in the land are strong, and the cities are fortified and very large. Moreover, we saw the children of Anak there. 
 Amalek dwells in the land of the South. The Hittite, the Jebusite, and the Amorite dwell in the hill country. The Canaanite dwells by the sea, and along the side of the Jordan." 
-Caleb stilled the people before Moses, and said, "Let's go up at once, and possess it; for we are well able to overcome it!" 
-But the men who went up with him said, "We aren't able to go up against the people; for they are stronger than we." 
+Caleb stilled the people before Moses, and said, "Let's go up at once, and possess it; for we're well able to overcome it!" 
+But the men who went up with him said, "We aren't able to go up against the people; for they're stronger than we." 
 They brought up an bad report of the land which they had spied out to the children of Israel, saying, "The land, through which we have gone to spy it out, is a land that eats up its inhabitants; and everyone who we saw in it are men of great stature. 
 There we saw the Nephilim, the sons of Anak, who come from the Nephilim. We were in our own sight as grasshoppers, and so we were in their sight." 

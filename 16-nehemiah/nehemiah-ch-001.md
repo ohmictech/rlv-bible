@@ -5,7 +5,7 @@ When I heard these words, I sat down and wept, and mourned several days; and I f
 and said, "I beg you, the God of the sky, the great and awesome God who keeps covenant and loving kindness with those who love him and keep his commandments, 
 let your ear now be attentive and your eyes open, that you may listen to the prayer of your servant which I pray before you at this time, day and night, for the children of Israel your servants, while I confess the drifts of the children of Israel which we have wronged you. Yes, I and my father's house have drifted. 
 We have dealt very corruptly against you, and haven't kept the commandments, nor the statutes, nor the ordinances, which you commanded your servant Moses. 
-"Remember, I beg you, the word that you commanded your servant Moses, saying, 'If you trespass, I will scatter you among the peoples; 
-but if you return to me, and keep my commandments and do them, though your outcasts were in the uttermost part of the sky, yet I will gather them from there, and will bring them to the place that I have chosen, to cause my name to dwell there.' 
+"Remember, I beg you, the word that you commanded your servant Moses, saying, 'If you trespass, I'll scatter you among the peoples; 
+but if you return to me, and keep my commandments and do them, though your outcasts were in the uttermost part of the sky, yet I'll gather them from there, and will bring them to the place that I have chosen, to cause my name to dwell there.' 
 "Now these are your servants and your people, whom you have bought back by your great power and by your strong hand. 
 Lord, I beg you, let your ear be attentive now to the prayer of your servant, and to the prayer of your servants who delight to fear your name; and please prosper your servant today, and grant him mercy in the sight of this man." Now I was cup bearer to the king. 

@@ -9,31 +9,31 @@ You go up to the feast. I'm not yet going up to this feast, because my time isn'
 Having said these things to them, he stayed in Galilee. 
 But when his brothers had gone up to the feast, then he also went up, not publicly, but as it were in secret. 
 The Jewish leaders sought him at the feast, and said, "Where is he?" 
-There was much muttering among the crowds concerning him. Some said, "He is a good man." Others said, "Not so, but he leads the crowd astray." 
+There was much muttering among the crowds concerning him. Some said, "He's a good man." Others said, "Not so, but he leads the crowd astray." 
 Yet no one spoke openly of him for fear of the Jewish leaders. 
 But when it was now the middle of the feast, Jesus went up into the temple courts and taught. 
 The Jewish leaders were amazed, saying, "How does this man know so much, never having been educated?" 
 Jesus answered them, "My teaching isn't mine, but his who sent me. 
-If anyone desires to do his will, they will know about the teaching, whether it is from God or if I am speaking from myself. 
+If anyone desires to do his will, they'll know about the teaching, whether it's from God or if I'm speaking from myself. 
 Whoever speaks from themselves seeks their own weight, but whoever seeks the weight of him who sent him is true, and no wrong is in them. 
 Didn't Moses give you the law, and yet none of you keeps the law? Why do you seek to kill me?" 
 The crowd answered, "You have an unclean spirit! Who seeks to kill you?" 
-Jesus answered them, "I did one deed, and you are all amazed because of it. 
-Moses has given you circumcision (not that it is of Moses, but of the fathers), and on the Sabbath you circumcise a boy. 
+Jesus answered them, "I did one deed, and you're all amazed because of it. 
+Moses has given you circumcision (not that it's of Moses, but of the fathers), and on the Sabbath you circumcise a boy. 
 If a boy receives circumcision on the Sabbath, that the law of Moses may not be broken, are you angry with me because I made a whole man healthy on the Sabbath? 
 Don't pass a verdict by appearances, but pass a right verdict." 
 So some of them of Jerusalem said, "Isn't this he whom they seek to kill? 
 Look, he speaks openly, and they say nothing to him. Can it be that the rulers indeed know that this is truly the Christ? 
 However, we know where this man comes from, but when the Christ comes, no one will know where he comes from." 
 Jesus cried out in the temple courts, teaching and saying, "You both know me, and know where I am from. I haven't come of myself, but he who sent me is true, whom you don't know. 
-I know him, because I am from him, and he sent me." 
+I know him, because I'm from him, and he sent me." 
 They sought to take him; but no one laid a hand on him, because his time hadn't yet come. 
 But of the crowd, many trusted in him. They said, "When the Christ comes, he won't do more signs than those which this man has done, will he?" 
 The strict religious ones heard the crowd muttering these things concerning him, and the chief priests and the strict religious ones sent temple guards to arrest him. 
-Then Jesus said, "I will be with you a little while longer, then I go to him who sent me. 
-You will seek me and won't find me. You can't come where I am." 
+Then Jesus said, "I'll be with you a little while longer, then I go to him who sent me. 
+You'll seek me and won't find me. You can't come where I am." 
 The Jewish leaders said among themselves, "Where will this man go that we won't find him? Will he go to the scattered Jews among the Greeks and teach the Greeks? 
-What is this word that he said, 'You will seek me and won't find me,' and 'Where I am, you can't come'?" 
+What's this word that he said, 'You'll seek me and won't find me,' and 'Where I'm, you can't come'?" 
 Now on the last and greatest day of the feast, Jesus stood and cried out, "If anyone is thirsty, let them come to me and drink! 
 Whoever trusts in me, as the Scripture has said, from within them will flow rivers of living water." 
 But he said this about the Spirit, which those trusting in him were to receive. The Holy Spirit wasn't yet given, because Jesus wasn't yet given honor. 

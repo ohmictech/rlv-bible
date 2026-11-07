@@ -14,28 +14,28 @@ He said to them, "Don't you understand this story? How will you understand all t
 The farmer sows the word. 
 The ones along the roadside are where the word is sown, and when they have heard, immediately the Adversary comes and takes away the word that has been sown in them. 
 These in the same way are those sown on the rocky places, who, when they hear the word, immediately receive it with joy. 
-They have no root in themselves but are short-lived. When pressure or being hunted down arises because of the word, they are immediately trapped. 
+They have no root in themselves but are short-lived. When pressure or being hunted down arises because of the word, they're immediately trapped. 
 Others are those who are sown among the thorns. These are those who have heard the word, 
 but the worries of this era, the deceitfulness of riches, and the desires for other things come in and choke the word, and it bears no fruit. 
 Those sown on the good ground are those who hear the word, accept it, and bear fruit, some thirty times, some sixty times, and some a hundred times." 
 He said to them, "Is a lamp brought to be put under a basket or under a bed? Isn't it put on a stand? 
-There is nothing hidden except to be made known, and nothing was made secret except to come to light. 
+There's nothing hidden except to be made known, and nothing was made secret except to come to light. 
 If anyone has ears to hear, let him hear." 
-He said to them, "Pay attention to what you hear. With the measure you use, it will be measured to you, and more will be given to you who hear. 
+He said to them, "Pay attention to what you hear. With the measure you use, it'll be measured to you, and more will be given to you who hear. 
 Whoever has, more will be given to him, and whoever doesn't have, even what he has will be taken away from him." 
 He said, "God's reign is like a man who scatters seed on the ground, 
 and sleeps and rises night and day, and the seed springs up and grows, though he doesn't know how. 
 The ground bears fruit by itself: first the blade, then the head, then the full grain in the head. 
 But when the fruit is ripe, immediately he puts in the sickle, because the harvest has come." 
 He said, "How will we compare God's reign? Or with what story will we illustrate it? 
-It's like a grain of mustard seed, which, when it is sown in the ground, is smaller than all the seeds that are on the earth, 
-yet when it is sown, it grows up and becomes greater than all the garden plants, and puts out great branches, so that the birds of the sky can nest under its shade." 
+It's like a grain of mustard seed, which, when it's sown in the ground, is smaller than all the seeds that are on the earth, 
+yet when it's sown, it grows up and becomes greater than all the garden plants, and puts out great branches, so that the birds of the sky can nest under its shade." 
 With many such stories he spoke the word to them, as they were able to hear it. 
 He didn't speak to them without a story, but privately to his own students he explained everything. 
 On that day, when evening had come, he said to them, "Let's go over to the other side." 
 Leaving the crowd, they took him with them in the boat, just as he was. Other small boats were with him. 
 A big windstorm arose, and the waves beat into the boat, so that the boat was already filling up. 
-He himself was in the stern, asleep on the cushion, and they woke him up and asked him, "Teacher, don't you care that we are dying?" 
+He himself was in the stern, asleep on the cushion, and they woke him up and asked him, "Teacher, don't you care that we're dying?" 
 He woke up and rebuked the wind, and said to the sea, "Hush! Be still!" The wind stopped and there was a great calm. 
 He said to them, "Why are you so afraid? How is it that you have no trust?" 
 They were terrified and said to one another, "Who then is this, that even the wind and the sea obey him?" 

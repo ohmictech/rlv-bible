@@ -1,15 +1,15 @@
 ﻿Then Samuel took the vial of oil and poured it on his head, then kissed him and said, "Hasn't God anointed you to be prince over his inheritance? 
-When you have departed from me today, then you will find two men by Rachel's tomb, on the border of Benjamin at Zelzah. They will tell you, 'The donkeys which you went to look for have been found; and look, your father has stopped caring about the donkeys and is anxious for you, saying, "What shall I do for my son?"' 
-"Then you will go on forward from there, and you will come to the oak of Tabor. Three men will meet you there going up to God to Bethel: one carrying three young goats, and another carrying three loaves of bread, and another carrying a container of wine. 
-They will greet you and give you two loaves of bread, which you shall receive from their hand. 
-"After that you will come to the hill of God, where the garrison of the Philistines is; and it will happen, when you have come there to the city, that you will meet a band of spokesmen coming down from the high place with a lute, a tambourine, a pipe, and a harp before them; and they will be prophesying. 
-Then God's Spirit will come mightily on you, then you will prophesy with them and will be turned into another man. 
-Let it be, when these signs have come to you, that you do what is appropriate for the occasion; for God is with you. 
-"Go down ahead of me to Gilgal; and look, I will come down to you to offer burnt offerings and to sacrifice sacrifices of offerings for wholeness. Wait seven days, until I come to you and show you what you are to do." 
+When you have departed from me today, then you'll find two men by Rachel's tomb, on the border of Benjamin at Zelzah. They'll tell you, 'The donkeys which you went to look for have been found; and look, your father has stopped caring about the donkeys and is anxious for you, saying, "What shall I do for my son?"' 
+"Then you'll go on forward from there, and you'll come to the oak of Tabor. Three men will meet you there going up to God to Bethel: one carrying three young goats, and another carrying three loaves of bread, and another carrying a container of wine. 
+They'll greet you and give you two loaves of bread, which you shall receive from their hand. 
+"After that you'll come to the hill of God, where the garrison of the Philistines is; and it'll happen, when you have come there to the city, that you'll meet a band of spokesmen coming down from the high place with a lute, a tambourine, a pipe, and a harp before them; and they'll be prophesying. 
+Then God's Spirit will come mightily on you, then you'll prophesy with them and will be turned into another man. 
+Let it be, when these signs have come to you, that you do what's appropriate for the occasion; for God is with you. 
+"Go down ahead of me to Gilgal; and look, I'll come down to you to offer burnt offerings and to sacrifice sacrifices of offerings for wholeness. Wait seven days, until I come to you and show you what you're to do." 
 It was so, that when he had turned his back to go from Samuel, God gave him another heart; and all those signs happened that day. 
 When they came there to the hill, look, a band of spokesmen met him; and the Spirit of God came mightily on him, and he prophesied among them. 
-When everyone who knew him before saw that, look, he prophesied with the spokesmen, then the people said to one another, "What is this that has come to the son of Kish? Is Saul also among the spokesmen?" 
-One from the same place answered, "Who is their father?" Therefore it became a proverb, "Is Saul also among the spokesmen?" 
+When everyone who knew him before saw that, look, he prophesied with the spokesmen, then the people said to one another, "What's this that has come to the son of Kish? Is Saul also among the spokesmen?" 
+One from the same place answered, "Who's their father?" Therefore it became a proverb, "Is Saul also among the spokesmen?" 
 When he had finished prophesying, he came to the high place. 
 Saul's uncle said to him and to his servant, "Where did you go?" He said, "To seek the donkeys. When we saw that they weren't found, we came to Samuel." 
 Saul's uncle said, "Please tell me what Samuel said to you." 
@@ -21,7 +21,7 @@ So Samuel brought all the tribes of Israel near, and the tribe of Benjamin was c
 He brought the tribe of Benjamin near by their families and the family of the Matrites was chosen. Then Saul the son of Kish was chosen; but when they looked for him, he couldn't be found. 
 So they asked of God further, "Is there yet a man to come here?" God answered, "Look, he has hidden himself among the baggage." 
 They ran and got him there. When he stood among the people, he was higher than any of the people from his shoulders and upward. 
-Samuel said to everyone, "Do you see him whom God has chosen, that there is no one like him among everyone?" Everyone shouted and said, "Long live the king!" 
+Samuel said to everyone, "Do you see him whom God has chosen, that there's no one like him among everyone?" Everyone shouted and said, "Long live the king!" 
 Then Samuel told the people the regulations of the kingdom, and wrote it in a book and laid it up before God. Samuel sent everyone away, every man to his house. 
 Saul also went to his house in Gibeah; and the army went with him, whose hearts God had touched. 
 But certain worthless fellows said, "How could this man save us?" They despised him, and brought him no tribute. But he held his peace. 

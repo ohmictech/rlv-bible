@@ -1,5 +1,5 @@
 ﻿A contemplation by Asaph. Hear my teaching, my people. Turn your ears to the words of my mouth. 
-I will open my mouth in a parable. I will utter dark sayings of old, 
+I'll open my mouth in a parable. I'll utter dark sayings of old, 
 which we have heard and known, and our fathers have told us. 
 We won't hide them from their children, telling to the generation to come the praises of God, his strength, and his wondrous deeds that he has done. 
 He established a covenant in Jacob, and appointed a teaching in Israel, which he commanded our fathers, that they should make them known to their children; 

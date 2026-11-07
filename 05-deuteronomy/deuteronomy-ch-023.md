@@ -1,13 +1,13 @@
-﻿He who is emasculated by crushing or cutting shall not enter into God's assembly. 
+﻿He who's emasculated by crushing or cutting shall not enter into God's assembly. 
 A person born of a forbidden union shall not enter into God's assembly; even to the tenth generation shall no one of his enter into God's assembly. 
 An Ammonite or a Moabite shall not enter into God's assembly; even to the tenth generation shall no one belonging to them enter into God's assembly for the eras, 
 because they didn't meet you with bread and with water on the way when you came out of Egypt, and because they hired against you Balaam the son of Beor from Pethor of Mesopotamia, to curse you. 
 Nevertheless your God wouldn't listen to Balaam, but your God turned the curse into a blessing to you, because your God loved you. 
 You shall not seek their peace nor their prosperity all your days for the eras. 
-You shall not abhor an Edomite, for he is your brother. You shall not abhor an Egyptian, because you lived as a foreigner in his land. 
+You shall not abhor an Edomite, for he's your brother. You shall not abhor an Egyptian, because you lived as a foreigner in his land. 
 The children of the third generation who are born to them may enter into God's assembly. 
 When you go out and camp against your enemies, then you shall keep yourselves from every bad thing. 
-If there is among you any man who isn't clean by reason of that which happens to him by night, then shall he go outside of the camp. He shall not come within the camp; 
+If there's among you any man who isn't clean by reason of that which happens to him by night, then shall he go outside of the camp. He shall not come within the camp; 
 but it shall be, when evening comes, he shall bathe himself in water. When the sun is down, he shall come within the camp. 
 You shall have a place also outside of the camp where you go relieve yourself. 
 You shall have a trowel among your weapons. It shall be, when you relieve yourself, you shall dig with it, and shall turn back and cover your excrement; 
@@ -16,7 +16,7 @@ You shall not deliver to his master a servant who has escaped from his master to
 He shall dwell with you, among you, in the place which he shall choose within one of your gates, where it pleases him best. You shall not oppress him. 
 There shall be no prostitute of the daughters of Israel, neither shall there be a sodomite of the sons of Israel. 
 You shall not bring the hire of a prostitute, or the wages of a male prostitute, into the house of your God for any vow; for both of these are an abomination to your God. 
-You shall not lend on interest to your brother: interest of money, interest of food, interest of anything that is lent on interest. 
+You shall not lend on interest to your brother: interest of money, interest of food, interest of anything that's lent on interest. 
 You may charge a foreigner interest; but you shall not charge your brother interest, that your God may bless you in all that you put your hand to, in the land where you go in to possess it. 
 When you vow a vow to your God, you shall not be slack to pay it, for your God will surely require it of you; and it would be guilt in you. 
 But if you refrain from making a vow, it shall be no wrongdoing in you. 

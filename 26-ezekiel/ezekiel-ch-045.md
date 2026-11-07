@@ -1,10 +1,10 @@
 ﻿"'"Moreover, when you divide by lot the land for inheritance, you shall offer an offering to God, a holy portion of the land. The length shall be the length of twenty-five thousand reeds, and the width shall be ten thousand. It shall be holy in all its border all around. 
 Of this there shall be a five hundred by five hundred square for the holy place, and fifty cubits for its pasture lands all around. 
 Of this measure you shall measure a length of twenty-five thousand, and a width of ten thousand. In it shall be the sanctuary, which is most holy. 
-It is a holy portion of the land; it shall be for the priests, the ministers of the sanctuary, who come near to minister to God. It shall be a place for their houses and a holy place for the sanctuary. 
+It's a holy portion of the land; it shall be for the priests, the ministers of the sanctuary, who come near to minister to God. It shall be a place for their houses and a holy place for the sanctuary. 
 Twenty-five thousand cubits in length and ten thousand in width shall be for the Levites, the ministers of the house, as a possession for themselves, for twenty rooms. 
 "'"You shall appoint the possession of the city five thousand cubits wide and twenty-five thousand long, side by side with the offering of the holy portion. It shall be for the whole house of Israel. 
-"'"What is for the prince shall be on the one side and on the other side of the holy allotment and of the possession of the city, in front of the holy allotment and in front of the possession of the city, on the west side westward, and on the east side eastward, and in length corresponding to one of the portions, from the west border to the east border. 
+"'"What's for the prince shall be on the one side and on the other side of the holy allotment and of the possession of the city, in front of the holy allotment and in front of the possession of the city, on the west side westward, and on the east side eastward, and in length corresponding to one of the portions, from the west border to the east border. 
 In the land it shall be to him for a possession in Israel. My princes shall no more oppress my people, but they shall give the land to the house of Israel according to their tribes." 
 "'The God says: "Enough, you princes of Israel! Remove violence and plunder, and execute justice and righteousness! Stop dispossessing my people!" says God. 
 "You shall have just balances, a just ephah, and a just bath. 
@@ -17,7 +17,7 @@ and one lamb of the flock out of two hundred, from the well-watered pastures of 
 It shall be the prince's part to give the burnt offerings, the meal offerings, and the drink offerings, in the feasts, and on the new moons, and on the Sabbaths, in all the appointed feasts of the house of Israel. He shall prepare the offering for wrongdoing, the meal offering, the burnt offering, and the offerings for wholeness, to make things right for the house of Israel." 
 "'The God says: "In the first month, on the first day of the month, you shall take a young bull without defect, and you shall cleanse the sanctuary. 
 The priest shall take of the blood of the offering for wrongdoing and put it on the door posts of the house, and on the four corners of the ledge of the altar, and on the posts of the gate of the inner court. 
-So you shall do on the seventh day of the month for everyone who errs, and for him who is simple. So you shall make things right for the house. 
+So you shall do on the seventh day of the month for everyone who errs, and for him who's simple. So you shall make things right for the house. 
 "'"In the first month, on the fourteenth day of the month, you shall have the Passover, a feast of seven days; unleavened bread shall be eaten. 
 On that day the prince shall prepare for himself and for everyone in the land a bull for an offering for wrongdoing. 
 The seven days of the feast he shall prepare a burnt offering to God, seven bulls and seven rams without defect daily the seven days; and a male goat daily for an offering for wrongdoing. 

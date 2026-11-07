@@ -1,17 +1,17 @@
 ﻿Don't boast about tomorrow; for you don't know what a day may bring. 
 Let another man praise you, and not your own mouth; a stranger, and not your own lips. 
 A stone is heavy, and sand is a burden; but a fool's provocation is heavier than both. 
-Wrath is cruel, and anger is overwhelming; but who is able to stand before jealousy? 
+Wrath is cruel, and anger is overwhelming; but who's able to stand before jealousy? 
 Better is open rebuke than hidden love. 
 The wounds of a friend are faithful, although the kisses of an enemy are profuse. 
 A full soul loathes a honeycomb; but to a hungry soul, every bitter thing is sweet. 
 As a bird that wanders from her nest, so is a man who wanders from his home. 
 Perfume and incense bring joy to the heart; so does earnest counsel from a man's friend. 
-Don't forsake your friend and your father's friend. Don't go to your brother's house in the day of your disaster. A neighbor who is near is better than a distant brother. 
+Don't forsake your friend and your father's friend. Don't go to your brother's house in the day of your disaster. A neighbor who's near is better than a distant brother. 
 Be wise, my son, and bring joy to my heart, then I can answer my tormentor. 
 A prudent man sees danger and takes refuge; but the simple pass on, and suffer for it. 
 Take his garment when he puts up collateral for a stranger. Hold it for a wayward woman! 
-He who blesses his neighbor with a loud voice early in the morning, it will be taken as a curse by him. 
+He who blesses his neighbor with a loud voice early in the morning, it'll be taken as a curse by him. 
 A continual dropping on a rainy day and a contentious wife are alike: 
 restraining her is like restraining the wind, or like grasping oil in his right hand. 
 Iron sharpens iron; so a man sharpens his friend's countenance. 

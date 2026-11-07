@@ -2,32 +2,32 @@
 All the ways of a man are clean in his own eyes, but God weighs the motives. 
 Commit your deeds to God, and your plans shall succeed. 
 God has made everything for its own end, yes, even the guilty for the day of bad. 
-Everyone who is proud in heart is an abomination to God; they shall certainly not be unpunished. 
-By mercy and truth guilt is atoned for. By the fear of God men depart from what is bad. 
+Everyone who's proud in heart is an abomination to God; they shall certainly not be unpunished. 
+By mercy and truth guilt is atoned for. By the fear of God men depart from what's bad. 
 When a man's ways please God, he makes even his enemies to be at peace with him. 
 Better is a little with righteousness, than great revenues with injustice. 
 A man's heart plans his course, but God directs his steps. 
 Inspired judgments are on the lips of the king. He shall not betray his mouth. 
 Honest balances and scales are God's; all the weights in the bag are his work. 
-It is an abomination for kings to do wrong, for the throne is established by righteousness. 
+It's an abomination for kings to do wrong, for the throne is established by righteousness. 
 Righteous lips are the delight of kings. They value one who speaks the truth. 
 The king's wrath is a messenger of death, but a wise man will pacify it. 
 In the light of the king's face is life. His favor is like a cloud of the spring rain. 
-How much better it is to get wisdom than gold! Yes, to get understanding is to be chosen rather than silver. 
-The highway of the upright is to depart from what is bad. He who keeps his way preserves his soul. 
+How much better it's to get wisdom than gold! Yes, to get understanding is to be chosen rather than silver. 
+The highway of the upright is to depart from what's bad. He who keeps his way preserves his soul. 
 Pride goes before destruction, and an arrogant spirit before a fall. 
-It is better to be of a lowly spirit with the poor, than to divide the plunder with the proud. 
+It's better to be of a lowly spirit with the poor, than to divide the plunder with the proud. 
 He who heeds the Word finds prosperity. Whoever trusts in God is blessed. 
 The wise in heart shall be called prudent. Pleasantness of the lips promotes instruction. 
 Understanding is a fountain of life to one who has it, but the punishment of fools is their folly. 
 The heart of the wise instructs his mouth, and adds learning to his lips. 
 Pleasant words are a honeycomb, sweet to the soul, and health to the bones. 
-There is a way which seems right to a man, but in the end it leads to death. 
+There's a way which seems right to a man, but in the end it leads to death. 
 The appetite of the laboring man labors for him, for his mouth urges him on. 
 A worthless man devises mischief. His speech is like a scorching fire. 
 A perverse man stirs up strife. A whisperer separates close friends. 
 A man of violence entices his neighbor, and leads him in a way that isn't good. 
 One who winks his eyes to plot perversities, one who compresses his lips, is bent on bad. 
-Gray hair is a crown of glory. It is attained by a life of righteousness. 
-One who is slow to anger is better than the mighty; one who rules his spirit, than he who takes a city. 
+Gray hair is a crown of glory. It's attained by a life of righteousness. 
+One who's slow to anger is better than the mighty; one who rules his spirit, than he who takes a city. 
 The lot is cast into the lap, but its every decision is from God. 

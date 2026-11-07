@@ -1,7 +1,7 @@
 ﻿The Chief Musician; on an instrument of Gath. A Psalm by David. God, our Lord, how majestic is your name in all the earth! You have set your glory above the sky! 
 From the lips of babes and infants you have established strength, because of your adversaries, that you might silence the enemy and the avenger. 
 When I consider your skies, the work of your fingers, the moon and the stars, which you have ordained, 
-what is man, that you think of him? What is the son of man, that you care for him? 
+what's man, that you think of him? What's the son of man, that you care for him? 
 You have made him a little lower than the messengers, and crowned him with glory and honor. 
 You make him ruler over the works of your hands. You have put all things under his feet: 
 All sheep and cattle, yes, and the animals of the field, 

@@ -1,7 +1,7 @@
 ﻿Now these are the nations which God left, to test Israel by them, even as many as hadn't known all the wars of Canaan; 
 only that the generations of the children of Israel might know, to teach them war, at least those who knew nothing of it before: 
 the five lords of the Philistines, all the Canaanites, the Sidonians, and the Hivites who lived on Mount Lebanon, from Mount Baal Hermon to the entrance of Hamath. 
-They were left to test Israel by them, to know whether they would listen to God's commandments, which he commanded their fathers by Moses. 
+They were left to test Israel by them, to know whether they'd listen to God's commandments, which he commanded their fathers by Moses. 
 The children of Israel lived among the Canaanites, the Hittites, the Amorites, the Perizzites, the Hivites, and the Jebusites. 
 They took their daughters to be their wives, and gave their own daughters to their sons and served their gods. 
 The children of Israel did that which was bad in God's sight, and forgot their God, and served the Baals and the Asheroth. 
@@ -21,7 +21,7 @@ Ehud came to him; and he was sitting by himself alone in the cool upper room. Eh
 Ehud put out his left hand, and took the sword from his right thigh, and thrust it into his body. 
 The handle also went in after the blade; and the fat closed on the blade, for he didn't draw the sword out of his body; and it came out behind. 
 Then Ehud went out onto the porch, and shut the doors of the upper room on him, and locked them. 
-After he had gone, his servants came and saw that the doors of the upper room were locked. They said, "Surely he is covering his feet in the upper room." 
+After he had gone, his servants came and saw that the doors of the upper room were locked. They said, "Surely he's covering his feet in the upper room." 
 They waited until they were ashamed; and look, he didn't open the doors of the upper room. So they took the key and opened them, and look, their lord had fallen down dead on the floor. 
 Ehud escaped while they waited, passed beyond the stone idols, and escaped to Seirah. 
 When he had come, he blew a trumpet in the hill country of Ephraim; and the children of Israel went down with him from the hill country, and he led them. 

@@ -4,7 +4,7 @@ he took counsel with his princes and his mighty men to stop the waters of the sp
 Then many people gathered together and they stopped all the springs and the brook that flowed through the middle of the land, saying, "Why should the kings of Assyria come, and find abundant water?" 
 He took courage, built up all the wall that was broken down, and raised it up to the towers, with the other wall outside, and strengthened Millo in David's city, and made weapons and shields in abundance. 
 He set captains of war over the people, gathered them together to him in the wide place at the gate of the city, and spoke encouragingly to them, saying, 
-"Be strong and courageous. Don't be afraid or dismayed because of the king of Assyria, nor for all the multitude who is with him; for there is a greater one with us than with him. 
+"Be strong and courageous. Don't be afraid or dismayed because of the king of Assyria, nor for all the multitude who's with him; for there's a greater one with us than with him. 
 An arm of flesh is with him, but our God is with us to help us and to fight our battles." The people rested themselves on the words of Hezekiah king of Judah. 
 After this, Sennacherib king of Assyria sent his servants to Jerusalem, (now he was attacking Lachish, and all his forces were with him), to Hezekiah king of Judah, and to all Judah who were at Jerusalem, saying, 
 Sennacherib king of Assyria says, "In whom do you trust, that you remain under siege in Jerusalem? 
@@ -29,5 +29,5 @@ also storehouses for the increase of grain, new wine, and oil; and stalls for al
 Moreover he provided for himself cities, and possessions of flocks and herds in abundance; for God had given him abundant possessions. 
 This same Hezekiah also stopped the upper spring of the waters of Gihon, and brought them straight down on the west side of David's city. Hezekiah prospered in all his works. 
 However, concerning the ambassadors of the princes of Babylon, who sent to him to inquire of the wonder that was done in the land, God left him to test him, that he might know all that was in his heart. 
-Now the rest of the acts of Hezekiah and his good deeds, look, they are written in the vision of Isaiah the spokesman, the son of Amoz, in the book of the kings of Judah and Israel. 
+Now the rest of the acts of Hezekiah and his good deeds, look, they're written in the vision of Isaiah the spokesman, the son of Amoz, in the book of the kings of Judah and Israel. 
 Hezekiah slept with his fathers, and they buried him in the ascent to the tombs of the sons of David. All Judah and the inhabitants of Jerusalem honored him at his death. Manasseh his son reigned in his place. 

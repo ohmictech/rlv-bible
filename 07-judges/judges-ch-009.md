@@ -1,6 +1,6 @@
 ﻿Abimelech the son of Jerubbaal went to Shechem to his mother's brothers, and spoke with them and with all the family of the house of his mother's father, saying, 
-"Please speak in the ears of all the men of Shechem, 'Is it better for you that all the sons of Jerubbaal, who are seventy persons, rule over you, or that one rule over you?' Remember also that I am your bone and your flesh." 
-His mother's brothers spoke of him in the ears of all the men of Shechem all these words. Their hearts inclined to follow Abimelech; for they said, "He is our brother." 
+"Please speak in the ears of all the men of Shechem, 'Is it better for you that all the sons of Jerubbaal, who are seventy persons, rule over you, or that one rule over you?' Remember also that I'm your bone and your flesh." 
+His mother's brothers spoke of him in the ears of all the men of Shechem all these words. Their hearts inclined to follow Abimelech; for they said, "He's our brother." 
 They gave him seventy pieces of silver out of the house of Baal Berith, with which Abimelech hired vain and reckless fellows who followed him. 
 He went to his father's house at Ophrah, and killed his brothers the sons of Jerubbaal, being seventy persons, on one stone; but Jotham the youngest son of Jerubbaal was left, for he hid himself. 
 All the men of Shechem assembled themselves together with all the house of Millo, and went and made Abimelech king by the oak of the pillar that was in Shechem. 
@@ -15,7 +15,7 @@ The trees set out to anoint a king over themselves. They said to the olive tree,
 "The bramble said to the trees, 'If in truth you anoint me king over you, then come and take refuge in my shade; and if not, let fire come out of the bramble, and devour the cedars of Lebanon.' 
 "Now, if you have dealt truly and righteously, in that you have made Abimelech king, and if you have dealt well with Jerubbaal and his house, and have done to him according to the deserving of his hands 
 (for my father fought for you, risked his life, and delivered you out of the hand of Midian; 
-and you have risen up against my father's house today and have slain his sons, seventy persons, on one stone, and have made Abimelech, the son of his female servant, king over the men of Shechem, because he is your brother); 
+and you have risen up against my father's house today and have slain his sons, seventy persons, on one stone, and have made Abimelech, the son of his female servant, king over the men of Shechem, because he's your brother); 
 if you then have dealt truly and righteously with Jerubbaal and with his house today, then rejoice in Abimelech, and let him also rejoice in you; 
 but if not, let fire come out from Abimelech and devour the men of Shechem and the house of Millo; and let fire come out from the men of Shechem and from the house of Millo and devour Abimelech." 
 Jotham ran away and fled, and went to Beer and lived there, for fear of Abimelech his brother. 
@@ -25,8 +25,8 @@ that the violence done to the seventy sons of Jerubbaal might come, and that the
 The men of Shechem set an ambush for him on the tops of the mountains, and they robbed everyone who came along that way by them; and Abimelech was told about it. 
 Gaal the son of Ebed came with his brothers and went over to Shechem; and the men of Shechem put their trust in him. 
 They went out into the field, harvested their vineyards, trod the grapes, celebrated, and went into the house of their god and ate and drank, and cursed Abimelech. 
-Gaal the son of Ebed said, "Who is Abimelech, and who is Shechem, that we should serve him? Isn't he the son of Jerubbaal? Isn't Zebul his officer? Serve the men of Hamor the father of Shechem, but why should we serve him? 
-I wish that this people were under my hand! Then I would remove Abimelech." He said to Abimelech, "Increase your army and come out!" 
+Gaal the son of Ebed said, "Who's Abimelech, and who's Shechem, that we should serve him? Isn't he the son of Jerubbaal? Isn't Zebul his officer? Serve the men of Hamor the father of Shechem, but why should we serve him? 
+I wish that this people were under my hand! Then I'd remove Abimelech." He said to Abimelech, "Increase your army and come out!" 
 When Zebul the ruler of the city heard the words of Gaal the son of Ebed, his anger burned. 
 He sent messengers to Abimelech craftily, saying, "Look, Gaal the son of Ebed and his brothers have come to Shechem; and look, they incite the city against you. 
 Now, go up by night, you and the people who are with you, and lie in wait in the field. 
@@ -35,7 +35,7 @@ Abimelech rose up, and everyone who was with him, by night, and they laid wait a
 Gaal the son of Ebed went out, and stood in the entrance of the gate of the city. Abimelech rose up, and the people who were with him, from the ambush. 
 When Gaal saw the people, he said to Zebul, "Look, people are coming down from the tops of the mountains." Zebul said to him, "You see the shadows of the mountains as if they were men." 
 Gaal spoke again and said, "Look, people are coming down by the middle of the land, and one company comes by the way of the oak of Meonenim." 
-Then Zebul said to him, "Now where is your mouth, that you said, 'Who is Abimelech, that we should serve him?' Isn't this the people that you have despised? Please go out now and fight with them." 
+Then Zebul said to him, "Now where is your mouth, that you said, 'Who's Abimelech, that we should serve him?' Isn't this the people that you have despised? Please go out now and fight with them." 
 Gaal went out before the men of Shechem, and fought with Abimelech. 
 Abimelech chased him, and he fled before him, and many fell wounded, even to the entrance of the gate. 
 Abimelech lived at Arumah; and Zebul drove out Gaal and his brothers, that they shouldn't dwell in Shechem. 

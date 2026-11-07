@@ -3,17 +3,17 @@ This is the way it shall be done: every creditor shall release that which he has
 Of a foreigner you may require it; but whatever of yours is with your brother, your hand shall release. 
 However there will be no poor with you (for God will surely bless you in the land which your God gives you for an inheritance to possess) 
 if only you diligently listen to your God's voice, to observe to do all this commandment which I command you today. 
-Your God will bless you, as he promised you. You will lend to many nations, but you won't borrow. You will rule over many nations, but they won't rule over you. 
+Your God will bless you, as he promised you. You'll lend to many nations, but you won't borrow. You'll rule over many nations, but they won't rule over you. 
 If a poor man, one of your brothers, is with you within any of your gates in your land which your God gives you, you shall not harden your heart, nor shut your hand from your poor brother; 
 but you shall surely open your hand to him, and shall surely lend him sufficient for his need, which he lacks. 
 Beware that there not be a guilty thought in your heart, saying, "The seventh year, the year of release, is at hand," and your eye be bad against your poor brother and you give him nothing; and he cry to God against you, and it be guilt on you. 
-You shall surely give, and your heart shall not be grieved when you give to him, because it is for this thing your God will bless you in all your work and in all that you put your hand to. 
+You shall surely give, and your heart shall not be grieved when you give to him, because it's for this thing your God will bless you in all your work and in all that you put your hand to. 
 The poor will never cease out of the land. So I command you to surely open your hand to your brother, to your needy, and to your poor, in your land. 
 If your brother, a Hebrew man, or a Hebrew woman, is sold to you and serves you six years, then in the seventh year you shall let him go free from you. 
 When you let him go free from you, you shall not let him go empty. 
 You shall furnish him liberally out of your flock, out of your threshing floor, and out of your wine press. As your God has blessed you, you shall give to him. 
 You shall remember that you were a slave in the land of Egypt, and your God bought back you. So I command you this thing today. 
-It shall be, if he tells you, "I won't go out from you," because he loves you and your house, because he is well with you, 
+It shall be, if he tells you, "I won't go out from you," because he loves you and your house, because he's well with you, 
 then you shall take an awl, and thrust it through his ear to the door, and he shall be your servant for the eras. Also to your female servant you shall do likewise. 
 It shall not seem hard to you when you let him go free from you, for he has been double the value of a hired hand as he served you six years. Your God will bless you in all that you do. 
 You shall dedicate all the firstborn males that are born of your herd and of your flock to your God. You shall do no work with the firstborn of your herd, nor shear the firstborn of your flock. 

@@ -1,6 +1,6 @@
 ﻿Saul spoke to Jonathan his son and to all his servants, that they should kill David. But Jonathan, Saul's son, greatly delighted in David. 
 Jonathan told David, saying, "Saul my father seeks to kill you. Now, please take care of yourself in the morning, live in a secret place, and hide yourself. 
-I will go out and stand beside my father in the field where you are, and I will talk with my father about you; and if I see anything, I will tell you." 
+I'll go out and stand beside my father in the field where you're, and I'll talk with my father about you; and if I see anything, I'll tell you." 
 Jonathan spoke good of David to Saul his father, and said to him, "Don't let the king wrong his servant, against David; because he hasn't wronged you, and because his works have been very good toward you; 
 for he put his life in his hand and struck the Philistine, and God worked a great victory for all Israel. You saw it and rejoiced. Why then will you wrong innocent blood, to kill David without a cause?" 
 Saul listened to the voice of Jonathan; and Saul swore, "As God lives, he shall not be put to death." 
@@ -8,10 +8,10 @@ Jonathan called David, and Jonathan showed him all those things. Then Jonathan b
 There was war again. David went out and fought with the Philistines, and killed them with a great slaughter; and they fled before him. 
 An harmful spirit from God was on Saul as he sat in his house with his spear in his hand; and David was playing music with his hand. 
 Saul sought to pin David to the wall with the spear, but he slipped away out of Saul's presence; and he stuck the spear into the wall. David fled and escaped that night. 
-Saul sent messengers to David's house to watch him and to kill him in the morning. Michal, David's wife, told him, saying, "If you don't save your life tonight, tomorrow you will be killed." 
+Saul sent messengers to David's house to watch him and to kill him in the morning. Michal, David's wife, told him, saying, "If you don't save your life tonight, tomorrow you'll be killed." 
 So Michal let David down through the window. He went away, fled, and escaped. 
 Michal took the teraphim and laid it in the bed, and put a pillow of goats' hair at its head and covered it with clothes. 
-When Saul sent messengers to take David, she said, "He is sick." 
+When Saul sent messengers to take David, she said, "He's sick." 
 Saul sent the messengers to see David, saying, "Bring him up to me in the bed, that I may kill him." 
 When the messengers came in, look, the teraphim was in the bed, with the pillow of goats' hair at its head. 
 Saul said to Michal, "Why have you deceived me like this and let my enemy go, so that he has escaped?" Michal answered Saul, "He said to me, 'Let me go! Why should I kill you?'" 
@@ -19,6 +19,6 @@ Now David fled and escaped, and came to Samuel at Ramah, and told him all that S
 Saul was told, saying, "Look, David is at Naioth in Ramah." 
 Saul sent messengers to seize David; and when they saw the company of the spokesmen prophesying, and Samuel standing as head over them, God's Spirit came on Saul's messengers, and they also prophesied. 
 When Saul was told, he sent other messengers, and they also prophesied. Saul sent messengers again the third time, and they also prophesied. 
-Then he also went to Ramah, and came to the great well that is in Secu: and he asked, "Where are Samuel and David?" One said, "Look, they are at Naioth in Ramah." 
+Then he also went to Ramah, and came to the great well that's in Secu: and he asked, "Where are Samuel and David?" One said, "Look, they're at Naioth in Ramah." 
 He went there to Naioth in Ramah. Then God's Spirit came on him also, and he went on, and prophesied, until he came to Naioth in Ramah. 
 He also stripped off his clothes. He also prophesied before Samuel and lay down naked all that day and all that night. So they say, "Is Saul also among the spokesmen?" 

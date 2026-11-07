@@ -6,4 +6,4 @@ Sing praises to God with the harp, with the harp and the voice of melody.
 With trumpets and sound of the ram's horn, make a joyful noise before the King, God. 
 Let the sea roar with its fullness; the world, and those who dwell therein. 
 Let the rivers clap their hands. Let the mountains sing for joy together. 
-Let them driftg before God, for he comes to judge the earth. He will judge the world with righteousness, and the peoples with equity. 
+Let them driftg before God, for he comes to judge the earth. He'll judge the world with righteousness, and the peoples with equity. 

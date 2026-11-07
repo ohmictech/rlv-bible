@@ -3,13 +3,13 @@ Let my sentence come out of your presence. Let your eyes look on equity.
 You have proved my heart. You have visited me in the night. You have tried me, and found nothing. I have resolved that my mouth shall not disobey. 
 As for the deeds of men, by the word of your lips, I have kept myself from the ways of the violent. 
 My steps have held fast to your paths. My feet haven't slipped. 
-I have called on you, for you will answer me, God. Turn your ear to me. Hear my speech. 
+I have called on you, for you'll answer me, God. Turn your ear to me. Hear my speech. 
 Show your marvelous loving kindness, you who save those who take refuge by your right hand from their enemies. 
 Keep me as the apple of your eye. Hide me under the shadow of your wings, 
 from the guilty who oppress me, my deadly enemies, who surround me. 
 They close up their callous hearts. With their mouth they speak proudly. 
 They have now surrounded us in our steps. They set their eyes to cast us down to the earth. 
-He is like a lion that is greedy of his prey, as it were a young lion lurking in secret places. 
+He's like a lion that's greedy of his prey, as it were a young lion lurking in secret places. 
 Arise, God, confront him. Cast him down. Deliver my soul from the guilty by your sword, 
 from men by your hand, God, from men of the world, whose portion is in this life. You fill the belly of your cherished ones. Your sons have plenty, and they store up wealth for their children. 
 As for me, I shall see your face in righteousness. I shall be satisfied, when I awake, with seeing your form. 

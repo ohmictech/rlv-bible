@@ -9,8 +9,8 @@ The door for the middle side rooms was in the right side of the house. They went
 So he built the house and finished it; and he covered the house with beams and planks of cedar. 
 He built the floors all along the house, each five cubits high; and they rested on the house with timbers of cedar. 
 God's word came to Solomon, saying, 
-"Concerning this house which you are building, if you will walk in my statutes, and execute my ordinances, and keep all my commandments to walk in them, then I will establish my word with you, which I spoke to David your father. 
-I will dwell among the children of Israel, and won't forsake my people Israel." 
+"Concerning this house which you're building, if you'll walk in my statutes, and execute my ordinances, and keep all my commandments to walk in them, then I'll establish my word with you, which I spoke to David your father. 
+I'll dwell among the children of Israel, and won't forsake my people Israel." 
 So Solomon built the house and finished it. 
 He built the walls of the house within with boards of cedar; from the floor of the house to the walls of the ceiling, he covered them on the inside with wood. He covered the floor of the house with cypress boards. 
 He built twenty cubits of the back part of the house with boards of cedar from the floor to the ceiling. He built this within, for an inner sanctuary, even for the most holy place. 

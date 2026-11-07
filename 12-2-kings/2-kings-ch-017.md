@@ -36,6 +36,6 @@ with whom God had made a covenant and commanded them, saying, "You shall not fea
 but you shall fear God, who brought you up out of the land of Egypt with great power and with an outstretched arm, and you shall bow yourselves to him, and you shall sacrifice to him. 
 The statutes and the ordinances, and the law and the commandment which he wrote for you, you shall observe to do for the eras more. You shall not fear other gods. 
 You shall not forget the covenant that I have made with you. You shall not fear other gods. 
-But you shall fear your God, and he will deliver you out of the hand of all your enemies." 
+But you shall fear your God, and he'll deliver you out of the hand of all your enemies." 
 However they didn't listen, but they did what they did before. 
 So these nations feared God, and also served their engraved images. Their children did likewise, and so did their children's children. They do as their fathers did to this day. 

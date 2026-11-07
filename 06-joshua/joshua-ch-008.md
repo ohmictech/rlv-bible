@@ -2,8 +2,8 @@
 You shall do to Ai and her king as you did to Jericho and her king, except you shall take its goods and its livestock for yourselves. Set an ambush for the city behind it." 
 So Joshua arose, with all the warriors, to go up to Ai. Joshua chose thirty thousand men, the mighty men of valor, and sent them out by night. 
 He commanded them, saying, "Look, you shall lie in ambush against the city, behind the city. Don't go very far from the city, but all of you be ready. 
-I and everyone who is with me will approach the city. It shall happen, when they come out against us, as at the first, that we will flee before them. 
-They will come out after us until we have drawn them away from the city; for they will say, 'They flee before us, like the first time.' So we will flee before them, 
+I and everyone who's with me will approach the city. It shall happen, when they come out against us, as at the first, that we'll flee before them. 
+They'll come out after us until we have drawn them away from the city; for they'll say, 'They flee before us, like the first time.' So we'll flee before them, 
 and you shall rise up from the ambush, and take possession of the city; for your God will deliver it into your hand. 
 It shall be, when you have seized the city, that you shall set the city on fire. You shall do this according to God's word. Look, I have commanded you." 
 Joshua sent them out; and they went to set up the ambush, and stayed between Bethel and Ai on the west side of Ai; but Joshua stayed among the people that night. 
@@ -15,7 +15,7 @@ When the king of Ai saw it, they hurried and rose up early, and the men of the c
 Joshua and all Israel made as if they were beaten before them, and fled by the way of the wilderness. 
 Everyone who was in the city were called together to pursue after them. They pursued Joshua, and were drawn away from the city. 
 There wasn't a man left in Ai or Bethel who didn't go out after Israel. They left the city open, and pursued Israel. 
-God said to Joshua, "Stretch out the javelin that is in your hand toward Ai, for I will give it into your hand." Joshua stretched out the javelin that was in his hand toward the city. 
+God said to Joshua, "Stretch out the javelin that's in your hand toward Ai, for I'll give it into your hand." Joshua stretched out the javelin that was in his hand toward the city. 
 The ambush arose quickly out of their place, and they ran as soon as he had stretched out his hand and entered into the city and took it. They hurried and set the city on fire. 
 When the men of Ai looked behind them, they saw, and look, the smoke of the city ascended up to the sky, and they had no power to flee this way or that way. The people who fled to the wilderness turned back on the pursuers. 
 When Joshua and all Israel saw that the ambush had taken the city, and that the smoke of the city ascended, then they turned back and killed the men of Ai. 
@@ -28,8 +28,8 @@ Israel took for themselves only the livestock and the goods of that city, accord
 So Joshua burned Ai and made it a heap for the eras, even a desolation, to this day. 
 He hanged the king of Ai on a tree until the evening. At sundown, Joshua commanded, and they took his body down from the tree and threw it at the entrance of the gate of the city, and raised a great heap of stones on it that remains to this day. 
 Then Joshua built an altar to the God of Israel, on Mount Ebal, 
-as Moses the servant of God commanded the children of Israel, as it is written in the book of the law of Moses: an altar of uncut stones, on which no one had lifted up any iron. They offered burnt offerings on it to God and sacrificed offerings for wholeness. 
+as Moses the servant of God commanded the children of Israel, as it's written in the book of the law of Moses: an altar of uncut stones, on which no one had lifted up any iron. They offered burnt offerings on it to God and sacrificed offerings for wholeness. 
 He wrote there on the stones a copy of Moses' law, which he wrote in the presence of the children of Israel. 
 All Israel, with their elders, officers, and judges, stood on both sides of the ark before the Levitical priests, who carried the ark of God's covenant, the foreigner as well as the native; half of them in front of Mount Gerizim, and half of them in front of Mount Ebal, as Moses the servant of God had commanded at the first, that they should bless the people of Israel. 
-Afterward he read all the words of the law, the blessing and the curse, according to all that is written in the book of the law. 
+Afterward he read all the words of the law, the blessing and the curse, according to all that's written in the book of the law. 
 There wasn't a word of all that Moses commanded which Joshua didn't read before all the assembly of Israel, with the women, the little ones, and the foreigners who were among them. 

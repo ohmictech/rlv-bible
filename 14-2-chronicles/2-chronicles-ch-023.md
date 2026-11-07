@@ -3,7 +3,7 @@ They went around in Judah and gathered the Levites out of all the cities of Juda
 All the assembly made a covenant with the king in God's house. Jehoiada said to them, "Look, the king's son must reign, as God has spoken concerning the sons of David. 
 This is the thing that you must do: a third part of you, who come in on the Sabbath, of the priests and of the Levites, shall be gatekeepers of the thresholds. 
 A third part shall be at the king's house; and a third part at the gate of the foundation. Everyone will be in the courts of God's house. 
-But let no one come into God's house except the priests and those who minister of the Levites. They shall come in, for they are holy, but everyone shall follow God's instructions. 
+But let no one come into God's house except the priests and those who minister of the Levites. They shall come in, for they're holy, but everyone shall follow God's instructions. 
 The Levites shall surround the king, every man with his weapons in his hand. Whoever comes into the house, let him be slain. Be with the king when he comes in and when he goes out." 
 So the Levites and all Judah did according to all that Jehoiada the priest commanded. They each took his men, those who were to come in on the Sabbath, with those who were to go out on the Sabbath, for Jehoiada the priest didn't dismiss the shift. 
 Jehoiada the priest delivered to the captains of hundreds the spears, bucklers, and shields that had been king David's, which were in God's house. 
@@ -15,7 +15,7 @@ Jehoiada the priest brought out the captains of hundreds who were set over the a
 So they made way for her. She went to the entrance of the horse gate to the king's house; and they killed her there. 
 Jehoiada made a covenant between himself, everyone, and the king, that they should be God's people. 
 Everyone went to the house of Baal, broke it down, broke his altars and his images in pieces, and killed Mattan the priest of Baal before the altars. 
-Jehoiada appointed the officers of God's house under the hand of the Levitical priests, whom David had distributed in God's house, to offer the burnt offerings of God, as it is written in the law of Moses, with rejoicing and with singing, as David had ordered. 
+Jehoiada appointed the officers of God's house under the hand of the Levitical priests, whom David had distributed in God's house, to offer the burnt offerings of God, as it's written in the law of Moses, with rejoicing and with singing, as David had ordered. 
 He set the gatekeepers at the gates of God's house, that no one who was unclean in anything should enter in. 
 He took the captains of hundreds, the nobles, the governors of the people, and everyone in the land, and brought the king down from God's house. They came through the upper gate to the king's house, and set the king on the throne of the kingdom. 
 So everyone in the land rejoiced, and the city was quiet. They had slain Athaliah with the sword. 

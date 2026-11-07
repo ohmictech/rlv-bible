@@ -1,5 +1,5 @@
 ﻿He entered the gathering place again, and a man was there whose hand was withered. 
-They were watching him to see whether he would heal him on the Sabbath, so that they could accuse him. 
+They were watching him to see whether he'd heal him on the Sabbath, so that they could accuse him. 
 He said to the man whose hand was withered, "Stand up." 
 He said to them, "Is it allowed on the Sabbath to do good or to do harm, to rescue a life or to kill?" But they were silent. 
 He looked around at them in anger, grieved at how hard their hearts were, and said to the man, "Stretch out your hand." He stretched it out, and his hand was restored, as healthy as the other. 
@@ -8,7 +8,7 @@ Jesus withdrew to the sea with his students, and a great crowd followed him from
 from Jerusalem, from Idumaea, from beyond the Jordan, and from around Tyre and Sidon. Hearing what great things he was doing, a great crowd came to him. 
 He told his students to keep a little boat ready for him because of the crowd, so that they wouldn't crush him. 
 He had healed many, so that everyone who had diseases pressed in on him to touch him. 
-The unclean spirits, whenever they saw him, fell down before him and cried, "You are the Son of God!" 
+The unclean spirits, whenever they saw him, fell down before him and cried, "You're the Son of God!" 
 He sternly warned them that they shouldn't make him known. 
 He went up into the mountain and called to himself those whom he wanted, and they went to him. 
 He appointed twelve to be with him, and to send them out to preach 

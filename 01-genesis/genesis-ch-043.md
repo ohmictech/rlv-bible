@@ -4,14 +4,14 @@ Judah spoke to him, saying, "The man solemnly warned us, saying, 'You shall not 
 If you'll send our brother with us, we'll go down and buy you food; 
 but if you don't send him, we won't go down, for the man said to us, 'You shall not see my face, unless your brother is with you.'" 
 Israel said, "Why did you treat me so badly, telling the man that you had another brother?" 
-They said, "The man asked directly concerning ourselves, and concerning our relatives, saying, 'Is your father still alive? Have you another brother?' We just answered his questions. Is there any way we could know that he would say, 'Bring your brother down'?" 
+They said, "The man asked directly concerning ourselves, and concerning our relatives, saying, 'Is your father still alive? Have you another brother?' We just answered his questions. Is there any way we could know that he'd say, 'Bring your brother down'?" 
 Judah said to Israel, his father, "Send the boy with me, and we'll get up and go, so that we may live, and not die, both we, and you, and also our little ones. 
 I'll be collateral for him. From my hand will you require him. If I don't bring him to you, and set him before you, then let me bear the blame for the eras; 
-for if we hadn't delayed, surely we would have returned a second time by now." 
+for if we hadn't delayed, surely we'd have returned a second time by now." 
 Their father, Israel, said to them, "If it must be so, then do this: Take from the choice fruits of the land in your bags, and carry down a present for the man, a little balm, a little honey, spices and myrrh, nuts, and almonds; 
 and take double money in your hand, and take back the money that was returned in the mouth of your sacks. Perhaps it was an oversight. 
 Take your brother also, get up, and return to the man. 
-May God Almighty give you mercy before the man, that he may release to you your other brother and Benjamin. If I am bereaved of my children, I am bereaved." 
+May God Almighty give you mercy before the man, that he may release to you your other brother and Benjamin. If I'm bereaved of my children, I'm bereaved." 
 The men took that present, and they took double money in their hand, and Benjamin; and got up, went down to Egypt, and stood before Joseph. 
 When Joseph saw Benjamin with them, he said to the steward of his house, "Bring the men into the house, and butcher an animal, and prepare; for the men will dine with me at noon." 
 The man did as Joseph commanded, and the man brought the men to Joseph's house. 
@@ -25,10 +25,10 @@ The man brought the men into Joseph's house, and gave them water, and they washe
 They prepared the present for Joseph's coming at noon, for they heard that they should eat bread there. 
 When Joseph came home, they brought him the present which was in their hand into the house, and bowed themselves down to the earth before him. 
 He asked them of their welfare, and said, "Is your father well, the old man of whom you spoke? Is he yet alive?" 
-They said, "Your servant, our father, is well. He is still alive." They bowed down humbly. 
+They said, "Your servant, our father, is well. He's still alive." They bowed down humbly. 
 He lifted up his eyes, and saw Benjamin, his brother, his mother's son, and said, "Is this your youngest brother, of whom you spoke to me?" He said, "God be gracious to you, my son." 
 Joseph hurried, for his heart yearned over his brother; and he sought a place to weep. He entered into his room, and wept there. 
 He washed his face, and came out. He controlled himself, and said, "Serve the meal." 
-They served him by himself, and them by themselves, and the Egyptians who ate with him by themselves, because the Egyptians don't eat with the Hebrews, for that is an abomination to the Egyptians. 
+They served him by himself, and them by themselves, and the Egyptians who ate with him by themselves, because the Egyptians don't eat with the Hebrews, for that's an abomination to the Egyptians. 
 They sat before him, the firstborn according to his birthright, and the youngest according to his youth, and the men marveled with one another. 
 He sent portions to them from before him, but Benjamin's portion was five times as much as any of theirs. They drank, and were merry with him. 

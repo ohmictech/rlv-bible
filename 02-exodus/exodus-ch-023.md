@@ -19,15 +19,15 @@ Three times in the year all your males shall appear before God.
 You shall bring the first of the first fruits of your ground into the house of your God. "You shall not boil a young goat in its mother's milk. 
 "Look, I send an messenger before you, to keep you by the way, and to bring you into the place which I have prepared. 
 Pay attention to him, and listen to his voice. Don't provoke him, for he won't pardon your disobedience, for my name is in him. 
-But if you indeed listen to his voice, and do all that I speak, then I will be an enemy to your enemies, and an adversary to your adversaries. 
-My messenger shall go before you, and bring you in to the Amorite, the Hittite, the Perizzite, the Canaanite, the Hivite, and the Jebusite; and I will cut them off. 
+But if you indeed listen to his voice, and do all that I speak, then I'll be an enemy to your enemies, and an adversary to your adversaries. 
+My messenger shall go before you, and bring you in to the Amorite, the Hittite, the Perizzite, the Canaanite, the Hivite, and the Jebusite; and I'll cut them off. 
 You shall not bow down to their gods, nor serve them, nor follow their practices, but you shall utterly overthrow them and demolish their pillars. 
-You shall serve your God, and he will bless your bread and your water, and I will take sickness away from among you. 
-No one will miscarry or be barren in your land. I will fulfill the number of your days. 
-I will send my terror before you, and will confuse everyone to whom you come, and I will make all your enemies turn their backs to you. 
-I will send the hornet before you, which will drive out the Hivite, the Canaanite, and the Hittite, from before you. 
+You shall serve your God, and he'll bless your bread and your water, and I'll take sickness away from among you. 
+No one will miscarry or be barren in your land. I'll fulfill the number of your days. 
+I'll send my terror before you, and will confuse everyone to whom you come, and I'll make all your enemies turn their backs to you. 
+I'll send the hornet before you, which will drive out the Hivite, the Canaanite, and the Hittite, from before you. 
 I won't drive them out from before you in one year, lest the land become desolate, and the animals of the field multiply against you. 
-Little by little I will drive them out from before you, until you have increased and inherit the land. 
-I will set your border from the Red Sea even to the sea of the Philistines, and from the wilderness to the River; for I will deliver the inhabitants of the land into your hand, and you shall drive them out before you. 
+Little by little I'll drive them out from before you, until you have increased and inherit the land. 
+I'll set your border from the Red Sea even to the sea of the Philistines, and from the wilderness to the River; for I'll deliver the inhabitants of the land into your hand, and you shall drive them out before you. 
 You shall make no covenant with them, nor with their gods. 
-They shall not dwell in your land, lest they make you wrong me, for if you serve their gods, it will surely be a snare to you." 
+They shall not dwell in your land, lest they make you wrong me, for if you serve their gods, it'll surely be a snare to you." 

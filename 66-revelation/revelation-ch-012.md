@@ -2,7 +2,7 @@
 She was pregnant, and she cried out in pain as she labored to give birth. 
 Then another sign appeared in the sky: a huge red dragon with seven heads and ten horns, and seven crowns on its heads. 
 Its tail swept away a third of the stars of the sky and threw them to the land. The dragon stood in front of the woman who was about to give birth, so that it could swallow her child the moment it was born. 
-She gave birth to a son, a male child, who is going to shepherd all the nations with an iron rod. Her child was caught up to God and to his throne. 
+She gave birth to a son, a male child, who's going to shepherd all the nations with an iron rod. Her child was caught up to God and to his throne. 
 The woman fled into the desert, where God had prepared a place for her, so that she could be taken care of there for one thousand two hundred sixty days. 
 Then war broke out in the sky. Michael and his messengers fought against the dragon, and the dragon and his messengers fought back, 
 but they didn't win, and there was no longer any place for them in the sky. 

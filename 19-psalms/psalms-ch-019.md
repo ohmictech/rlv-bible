@@ -1,14 +1,14 @@
 ﻿The Chief Musician. A Psalm by David. The sky declare the glory of God. The expanse shows his handiwork. 
 Day after day they pour out speech, and night after night they display knowledge. 
-There is no speech nor language where their voice isn't heard. 
+There's no speech nor language where their voice isn't heard. 
 Their voice has gone out through all the earth, their words to the end of the world. In them he has set a tent for the sun, 
 which is as a bridegroom coming out of his room, like a strong man rejoicing to run his course. 
-His going out is from the end of the sky, his circuit to its ends. There is nothing hidden from its heat. 
+His going out is from the end of the sky, his circuit to its ends. There's nothing hidden from its heat. 
 God's law is perfect, restoring the soul. God's covenant is sure, making wise the simple. 
 God's precepts are right, rejoicing the heart. God's commandment is pure, enlightening the eyes. 
 The fear of God is clean, enduring for the eras. God's ordinances are true, and righteous altogether. 
-They are more to be desired than gold, yes, than much fine gold, sweeter also than honey and the extract of the honeycomb. 
-Moreover your servant is warned by them. In keeping them there is great reward. 
+They're more to be desired than gold, yes, than much fine gold, sweeter also than honey and the extract of the honeycomb. 
+Moreover your servant is warned by them. In keeping them there's great reward. 
 Who can discern his errors? Forgive me from hidden errors. 
-Keep back your servant also from presumptuous mistakes. Let them not have dominion over me. Then I will be upright. I will be blameless and innocent of great rebellion. 
+Keep back your servant also from presumptuous mistakes. Let them not have dominion over me. Then I'll be upright. I'll be blameless and innocent of great rebellion. 
 Let the words of my mouth and the meditation of my heart be acceptable in your sight, God, my rock, and the one who buys me back. 

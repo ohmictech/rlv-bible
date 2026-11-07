@@ -2,23 +2,23 @@
 The high priest, Ananias, commanded those who stood by him to strike him on the mouth. 
 Then Paul said to him, "God will strike you, you whitewashed wall! Do you sit to judge me according to the law, and command me to be struck contrary to the law?" 
 Those who stood by said, "Do you malign God's high priest?" 
-Paul said, "I didn't know, brothers, that he was high priest. It is written, 'You shall not speak badly of a ruler of your people.'" 
-But when Paul perceived that the one part were of the religious elite and the other strict religious ones, he cried out in the council, "Men and brothers, I am a strict religious man, a son of strict religious ones. Concerning the hope and rising of the dead I am being judged!" 
+Paul said, "I didn't know, brothers, that he was high priest. It's written, 'You shall not speak badly of a ruler of your people.'" 
+But when Paul perceived that the one part were of the religious elite and the other strict religious ones, he cried out in the council, "Men and brothers, I'm a strict religious man, a son of strict religious ones. Concerning the hope and rising of the dead I'm being judged!" 
 When he had said this, an argument arose between the strict religious ones and the religious elite, and the crowd was divided. 
-The religious elite say that there is no rising, and no messenger, and no spirit; but the strict religious ones agree with all of these. 
+The religious elite say that there's no rising, and no messenger, and no spirit; but the strict religious ones agree with all of these. 
 A great clamor arose, and some of the Bible teachers of the strict religious ones' side stood up, and contended, saying, "We find nothing wrong with this man. But if a spirit or messenger has spoken to him, let's not fight against God!" 
 When a great argument arose, the commanding officer, fearing that Paul would be torn in pieces by them, commanded the soldiers to go down and take him by force from among them and bring him into the barracks. 
 The following night, the Lord stood by him and said, "Cheer up, Paul, for as you have testified about me at Jerusalem, so you must testify also at Rome." 
-When it was day, some of the Jewish leaders banded together and bound themselves under a curse, saying that they would neither eat nor drink until they had killed Paul. 
+When it was day, some of the Jewish leaders banded together and bound themselves under a curse, saying that they'd neither eat nor drink until they had killed Paul. 
 There were more than forty people who had made this conspiracy. 
 They came to the chief priests and the elders, and said, "We have bound ourselves under a great curse to taste nothing until we have killed Paul. 
-Now, you with the council inform the commanding officer that he should bring him down to you tomorrow, as though you were going to judge his case more exactly. We are ready to kill him before he comes near." 
+Now, you with the council inform the commanding officer that he should bring him down to you tomorrow, as though you were going to judge his case more exactly. We're ready to kill him before he comes near." 
 But Paul's sister's son heard they were lying in wait, and he came and entered into the barracks and told Paul. 
 Paul summoned one of the centurions and said, "Bring this young man to the commanding officer, for he has something to tell him." 
 So he took him and brought him to the commanding officer and said, "Paul, the prisoner, summoned me and asked me to bring this young man to you. He has something to tell you." 
-The commanding officer took him by the hand, and going aside, asked him privately, "What is it that you have to tell me?" 
+The commanding officer took him by the hand, and going aside, asked him privately, "What's it that you have to tell me?" 
 He said, "The Jewish leaders have agreed to ask you to bring Paul down to the council tomorrow, as though intending to inquire somewhat more accurately concerning him. 
-So don't yield to them, for more than forty men lie in wait for him, who have bound themselves under a curse to neither eat nor drink until they have killed him. Now they are ready, looking for the promise from you." 
+So don't yield to them, for more than forty men lie in wait for him, who have bound themselves under a curse to neither eat nor drink until they have killed him. Now they're ready, looking for the promise from you." 
 So the commanding officer let the young man go, charging him, "Tell no one that you have revealed these things to me." 
 He called to himself two of the centurions, and said, "Prepare two hundred soldiers to go as far as Caesarea, with seventy horsemen and two hundred men armed with spears, at nine at night." 
 He asked them to provide mounts, so that they could put Paul on one, and bring him safely to Felix the governor. 
@@ -32,4 +32,4 @@ So the soldiers, carrying out their orders, took Paul and brought him by night t
 But on the next day they left the horsemen to go with him, and returned to the barracks. 
 When they came to Caesarea and delivered the letter to the governor, they also presented Paul to him. 
 When the governor had read it, he asked what province he was from. When he understood that he was from Cilicia, he said, 
-"I will hear you fully when your accusers also arrive." He commanded that he be kept in Herod's palace. 
+"I'll hear you fully when your accusers also arrive." He commanded that he be kept in Herod's palace. 

@@ -1,37 +1,37 @@
 ﻿They continued three years without war between Syria and Israel. 
 In the third year, Jehoshaphat the king of Judah came down to the king of Israel. 
 The king of Israel said to his servants, "You know that Ramoth Gilead is ours, and we do nothing, and don't take it out of the hand of the king of Syria?" 
-He said to Jehoshaphat, "Will you go with me to battle to Ramoth Gilead?" Jehoshaphat said to the king of Israel, "I am as you are, my people as your people, my horses as your horses." 
+He said to Jehoshaphat, "Will you go with me to battle to Ramoth Gilead?" Jehoshaphat said to the king of Israel, "I'm as you're, my people as your people, my horses as your horses." 
 Jehoshaphat said to the king of Israel, "Please inquire first for God's word." 
 Then the king of Israel gathered the spokesmen together, about four hundred men, and said to them, "Should I go against Ramoth Gilead to battle, or should I refrain?" They said, "Go up; for the Lord will deliver it into the hand of the king." 
 But Jehoshaphat said, "Isn't there here a spokesman of God, that we may inquire of him?" 
-The king of Israel said to Jehoshaphat, "There is yet one man by whom we may inquire of God, Micaiah the son of Imlah; but I hate him, for he doesn't prophesy good concerning me, but bad." Jehoshaphat said, "Don't let the king say so." 
+The king of Israel said to Jehoshaphat, "There's yet one man by whom we may inquire of God, Micaiah the son of Imlah; but I hate him, for he doesn't prophesy good concerning me, but bad." Jehoshaphat said, "Don't let the king say so." 
 Then the king of Israel called an officer, and said, "Quickly get Micaiah the son of Imlah." 
 Now the king of Israel and Jehoshaphat the king of Judah were sitting each on his throne, arrayed in their robes, in an open place at the entrance of the gate of Samaria; and all the spokesmen were prophesying before them. 
-Zedekiah the son of Chenaanah made himself horns of iron, and said, "God says, 'With these you will push the Syrians, until they are consumed.'" 
+Zedekiah the son of Chenaanah made himself horns of iron, and said, "God says, 'With these you'll push the Syrians, until they're consumed.'" 
 All the spokesmen prophesied so, saying, "Go up to Ramoth Gilead and prosper; for God will deliver it into the hand of the king." 
 The messenger who went to call Micaiah spoke to him, saying, "See now, the spokesmen declare good to the king with one mouth. Please let your word be like the word of one of them, and speak good." 
-Micaiah said, "As God lives, what God says to me, that I will speak." 
+Micaiah said, "As God lives, what God says to me, that I'll speak." 
 When he had come to the king, the king said to him, "Micaiah, shall we go to Ramoth Gilead to battle, or shall we forbear?" He answered him, "Go up and prosper; and God will deliver it into the hand of the king." 
 The king said to him, "How many times do I have to adjure you that you speak to me nothing but the truth in God's name?" 
 He said, "I saw all Israel scattered on the mountains, as sheep that have no shepherd. God said, 'These have no master. Let them each return to his house in peace.'" 
 The king of Israel said to Jehoshaphat, "Didn't I tell you that he wouldn't prophesy good concerning me, but bad?" 
 Micaiah said, "Therefore hear God's word. I saw God sitting on his throne, and all the army of the sky standing by him on his right hand and on his left. 
 God said, 'Who will entice Ahab, that he may go up and fall at Ramoth Gilead?' One said one thing, and another said another. 
-A spirit came out and stood before God, and said, 'I will entice him.' 
-God said to him, 'How?' He said, 'I will go out and will be a lying spirit in the mouth of all his spokesmen.' He said, 'You will entice him, and will also prevail. Go out and do so.' 
+A spirit came out and stood before God, and said, 'I'll entice him.' 
+God said to him, 'How?' He said, 'I'll go out and will be a lying spirit in the mouth of all his spokesmen.' He said, 'You'll entice him, and will also prevail. Go out and do so.' 
 Now, look, God has put a lying spirit in the mouth of all these your spokesmen; and God has spoken bad concerning you." 
 Then Zedekiah the son of Chenaanah came near and struck Micaiah on the cheek, and said, "Which way did God's Spirit go from me to speak to you?" 
-Micaiah said, "Look, you will see on that day when you go into an inner room to hide yourself." 
+Micaiah said, "Look, you'll see on that day when you go into an inner room to hide yourself." 
 The king of Israel said, "Take Micaiah, and carry him back to Amon the governor of the city and to Joash the king's son. 
 Say, 'The king says, "Put this fellow in the prison, and feed him with bread of affliction and with water of affliction, until I come in peace."'" 
 Micaiah said, "If you return at all in peace, God hasn't spoken by me." He said, "Listen, all you people!" 
 So the king of Israel and Jehoshaphat the king of Judah went up to Ramoth Gilead. 
-The king of Israel said to Jehoshaphat, "I will disguise myself and go into the battle, but you put on your robes." The king of Israel disguised himself and went into the battle. 
+The king of Israel said to Jehoshaphat, "I'll disguise myself and go into the battle, but you put on your robes." The king of Israel disguised himself and went into the battle. 
 Now the king of Syria had commanded the thirty-two captains of his chariots, saying, "Don't fight with small nor great, except only with the king of Israel." 
-When the captains of the chariots saw Jehoshaphat, they said, "Surely that is the king of Israel!" and they came over to fight against him. Jehoshaphat cried out. 
+When the captains of the chariots saw Jehoshaphat, they said, "Surely that's the king of Israel!" and they came over to fight against him. Jehoshaphat cried out. 
 When the captains of the chariots saw that it wasn't the king of Israel, they turned back from pursuing him. 
-A certain man drew his bow at random, and struck the king of Israel between the joints of the armor. So he said to the driver of his chariot, "Turn around, and carry me out of the battle, for I am severely wounded." 
+A certain man drew his bow at random, and struck the king of Israel between the joints of the armor. So he said to the driver of his chariot, "Turn around, and carry me out of the battle, for I'm severely wounded." 
 The battle increased that day. The king was propped up in his chariot facing the Syrians, and died at evening. The blood ran out of the wound into the bottom of the chariot. 
 A cry went throughout the army about the going down of the sun, saying, "Every man to his city, and every man to his country!" 
 So the king died, and was brought to Samaria; and they buried the king in Samaria. 

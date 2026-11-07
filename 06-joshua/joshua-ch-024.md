@@ -12,16 +12,16 @@ but I wouldn't listen to Balaam; he blessed you still. So I delivered you out of
 I sent the hornet before you, which drove them out from before you, even the two kings of the Amorites; not with your sword, nor with your bow. 
 I gave you a land on which you hadn't labored, and cities which you didn't build, and you live in them. You eat of vineyards and olive groves which you didn't plant.' 
 "Now fear God, and serve him in sincerity and in truth. Put away the gods which your fathers served beyond the River, in Egypt; and serve God. 
-If it seems bad to you to serve God, choose today whom you will serve; whether the gods which your fathers served that were beyond the River, or the gods of the Amorites, in whose land you dwell; but as for me and my house, we will serve God." 
+If it seems bad to you to serve God, choose today whom you'll serve; whether the gods which your fathers served that were beyond the River, or the gods of the Amorites, in whose land you dwell; but as for me and my house, we'll serve God." 
 The people answered, "Far be it from us that we should forsake God, to serve other gods; 
-for it is our God who brought us and our fathers up out of the land of Egypt, from the house of bondage, and who did those great signs in our sight, and preserved us in all the way in which we went, and among everyones through the middle of whom we passed. 
-God drove out from before us everyones, even the Amorites who lived in the land. So we also will serve God; for he is our God." 
-Joshua said to the people, "You can't serve God, for he is a holy God. He is a jealous God. He won't forgive your disobedience nor your mistakes. 
-If you forsake God, and serve foreign gods, then he will turn and do you bad, and consume you, after he has done you good." 
-The people said to Joshua, "No, but we will serve God." 
-Joshua said to the people, "You are witnesses against yourselves that you have chosen God yourselves, to serve him." They said, "We are witnesses." 
+for it's our God who brought us and our fathers up out of the land of Egypt, from the house of bondage, and who did those great signs in our sight, and preserved us in all the way in which we went, and among everyones through the middle of whom we passed. 
+God drove out from before us everyones, even the Amorites who lived in the land. So we also will serve God; for he's our God." 
+Joshua said to the people, "You can't serve God, for he's a holy God. He's a jealous God. He won't forgive your disobedience nor your mistakes. 
+If you forsake God, and serve foreign gods, then he'll turn and do you bad, and consume you, after he has done you good." 
+The people said to Joshua, "No, but we'll serve God." 
+Joshua said to the people, "You're witnesses against yourselves that you have chosen God yourselves, to serve him." They said, "We're witnesses." 
 "Now put away the foreign gods which are among you, and incline your heart to the God of Israel." 
-The people said to Joshua, "We will serve our God, and we will listen to his voice." 
+The people said to Joshua, "We'll serve our God, and we'll listen to his voice." 
 So Joshua made a covenant with the people that day, and made for them a statute and an ordinance in Shechem. 
 Joshua wrote these words in the book of the law of God; and he took a great stone, and set it up there under the oak that was by the sanctuary of God. 
 Joshua said to everyone, "Look, this stone shall be a witness against us, for it has heard all God's words which he spoke to us. It shall be a witness against you, lest you deny your God." 

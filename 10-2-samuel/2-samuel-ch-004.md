@@ -3,7 +3,7 @@ Saul's son had two men who were captains of raiding bands. The name of one was B
 and the Beerothites fled to Gittaim, and have lived as foreigners there until today). 
 Now Jonathan, Saul's son, had a son who was lame in his feet. He was five years old when the news came about Saul and Jonathan out of Jezreel; and his nurse picked him up and fled. As she hurried to flee, he fell and became lame. His name was Mephibosheth. 
 The sons of Rimmon the Beerothite, Rechab and Baanah, went out and came at about the heat of the day to the house of Ishbosheth as he took his rest at noon. 
-They came there into the middle of the house as though they would have fetched wheat, and they struck him in the body; and Rechab and Baanah his brother escaped. 
+They came there into the middle of the house as though they'd have fetched wheat, and they struck him in the body; and Rechab and Baanah his brother escaped. 
 Now when they came into the house as he lay on his bed in his bedroom, they struck him, killed him, beheaded him, and took his head, and went by the way of the Arabah all night. 
 They brought the head of Ishbosheth to David to Hebron, and said to the king, "Look, the head of Ishbosheth, the son of Saul, your enemy, who sought your life! God has avenged my lord the king today of Saul and of his offspring." 
 David answered Rechab and Baanah his brother, the sons of Rimmon the Beerothite, and said to them, "As God lives, who has bought back my soul out of all adversity, 

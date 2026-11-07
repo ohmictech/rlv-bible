@@ -13,12 +13,12 @@ The cities shall be for your refuge from the avenger, that the man slayer not di
 The cities which you shall give shall be for you six cities of refuge. 
 You shall give three cities beyond the Jordan, and you shall give three cities in the land of Canaan. They shall be cities of refuge. 
 These six cities shall be refuge for the children of Israel, for the stranger, and for the foreigner living among them, that everyone who kills any person unwittingly may flee there. 
-"'But if he struck him with an instrument of iron, so that he died, he is a murderer. The murderer shall surely be put to death. 
-If he struck him with a stone in the hand, by which a man may die, and he died, he is a murderer. The murderer shall surely be put to death. 
-Or if he struck him with a weapon of wood in the hand, by which a man may die, and he died, he is a murderer. The murderer shall surely be put to death. 
+"'But if he struck him with an instrument of iron, so that he died, he's a murderer. The murderer shall surely be put to death. 
+If he struck him with a stone in the hand, by which a man may die, and he died, he's a murderer. The murderer shall surely be put to death. 
+Or if he struck him with a weapon of wood in the hand, by which a man may die, and he died, he's a murderer. The murderer shall surely be put to death. 
 The avenger of blood shall himself put the murderer to death. When he meets him, he shall put him to death. 
 If he shoved him out of hatred, or hurled something at him while lying in wait, so that he died, 
-or in hostility struck him with his hand, so that he died, he who struck him shall surely be put to death. He is a murderer. The avenger of blood shall put the murderer to death when he meets him. 
+or in hostility struck him with his hand, so that he died, he who struck him shall surely be put to death. He's a murderer. The avenger of blood shall put the murderer to death when he meets him. 
 "'But if he shoved him suddenly without hostility, or hurled on him anything without lying in wait, 
 or with any stone, by which a man may die, not seeing him, and cast it on him so that he died, and he wasn't his enemy and not seeking his harm, 
 then the congregation shall judge between the striker and the avenger of blood according to these ordinances. 
@@ -28,7 +28,7 @@ and the avenger of blood finds him outside of the border of his city of refuge, 
 because he should have remained in his city of refuge until the death of the high priest. But after the death of the high priest, the man slayer shall return into the land of his possession. 
 "'These things shall be for a statute and ordinance to you throughout your generations in all your dwellings. 
 "'Whoever kills any person, the murderer shall be slain based on the testimony of witnesses; but one witness shall not testify alone against any person so that he dies. 
-"'Moreover you shall take no ransom for the life of a murderer who is guilty of death. He shall surely be put to death. 
+"'Moreover you shall take no ransom for the life of a murderer who's guilty of death. He shall surely be put to death. 
 "'You shall take no ransom for him who has fled to his city of refuge, that he may come again to dwell in the land before the death of the priest. 
-"'So you shall not pollute the land where you live; for blood pollutes the land. Nothing can make things right for the land for the blood that is shed in it, but by the blood of him who shed it. 
+"'So you shall not pollute the land where you live; for blood pollutes the land. Nothing can make things right for the land for the blood that's shed in it, but by the blood of him who shed it. 
 You shall not defile the land which you inhabit, where I dwell; for I, God, dwell among the children of Israel.'" 

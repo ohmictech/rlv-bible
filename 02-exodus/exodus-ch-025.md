@@ -18,8 +18,8 @@ You shall make a mercy seat of pure gold. Two and a half cubits shall be its len
 You shall make two cherubim of hammered gold. You shall make them at the two ends of the mercy seat. 
 Make one cherub at the one end, and one cherub at the other end. You shall make the cherubim on its two ends of one piece with the mercy seat. 
 The cherubim shall spread out their wings upward, covering the mercy seat with their wings, with their faces toward one another. The faces of the cherubim shall be toward the mercy seat. 
-You shall put the mercy seat on top of the ark, and in the ark you shall put the covenant that I will give you. 
-There I will meet with you, and I will tell you from above the mercy seat, from between the two cherubim which are on the ark of the covenant, all that I command you for the children of Israel. 
+You shall put the mercy seat on top of the ark, and in the ark you shall put the covenant that I'll give you. 
+There I'll meet with you, and I'll tell you from above the mercy seat, from between the two cherubim which are on the ark of the covenant, all that I command you for the children of Israel. 
 "You shall make a table of acacia wood. Its length shall be two cubits, and its width a cubit, and its height one and a half cubits. 
 You shall overlay it with pure gold, and make a gold molding around it. 
 You shall make a rim of a hand width around it. You shall make a golden molding on its rim around it. 

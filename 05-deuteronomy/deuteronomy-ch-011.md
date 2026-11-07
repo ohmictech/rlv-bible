@@ -11,10 +11,10 @@ The land, where you go in to possess isn't like the land of Egypt that you came 
 but the land that you go over to possess is a land of hills and valleys which drinks water from the rain of the sky, 
 a land which your God cares for. Your God's eyes are always on it, from the beginning of the year even to the end of the year. 
 It shall happen, if you shall listen diligently to my commandments which I command you today, to love your God, and to serve him with all your heart and with all your soul, 
-that I will give the rain for your land in its season, the early rain and the latter rain, that you may gather in your grain, your new wine, and your oil. 
-I will give grass in your fields for your livestock, and you shall eat and be full. 
+that I'll give the rain for your land in its season, the early rain and the latter rain, that you may gather in your grain, your new wine, and your oil. 
+I'll give grass in your fields for your livestock, and you shall eat and be full. 
 Be careful, lest your heart be deceived, and you turn away to serve other gods and worship them; 
-and God's anger be kindled against you, and he shut up the sky so that there is no rain, and the land doesn't yield its fruit; and you perish quickly from off the good land which God gives you. 
+and God's anger be kindled against you, and he shut up the sky so that there's no rain, and the land doesn't yield its fruit; and you perish quickly from off the good land which God gives you. 
 So you shall lay up these words of mine in your heart and in your soul. You shall bind them for a sign on your hand, and they shall be for frontlets between your eyes. 
 You shall teach them to your children, talking of them when you sit in your house, when you walk by the way, when you lie down, and when you rise up. 
 You shall write them on the door posts of your house and on your gates; 
@@ -28,5 +28,5 @@ the blessing, if you listen to the commandments of your God, which I command you
 and the curse, if you don't listen to the commandments of your God, but turn away out of the way which I command you today, to go after other gods which you haven't known. 
 It shall happen, when your God brings you into the land that you go to possess, that you shall set the blessing on Mount Gerizim, and the curse on Mount Ebal. 
 Aren't they beyond the Jordan, behind the way of the going down of the sun, in the land of the Canaanites who dwell in the Arabah near Gilgal, beside the oaks of Moreh? 
-You are to pass over the Jordan to go in to possess the land which your God gives you, and you shall possess it and dwell in it. 
+You're to pass over the Jordan to go in to possess the land which your God gives you, and you shall possess it and dwell in it. 
 You shall observe to do all the statutes and the ordinances which I set before you today. 

@@ -5,18 +5,18 @@ David heard in the wilderness that Nabal was shearing his sheep.
 David sent ten young men; and David said to the young men, "Go up to Carmel, and go to Nabal, and greet him in my name. 
 Tell him, 'Long life to you! Peace be to you! Peace be to your house! Peace be to all that you have! 
 Now I have heard that you have shearers. Your shepherds have now been with us, and we didn't harm them. Nothing was missing from them all the time they were in Carmel. 
-Ask your young men, and they will tell you. So let the young men find favor in your eyes, for we come on a good day. Please give whatever comes to your hand to your servants and to your son David.'" 
+Ask your young men, and they'll tell you. So let the young men find favor in your eyes, for we come on a good day. Please give whatever comes to your hand to your servants and to your son David.'" 
 When David's young men came, they spoke to Nabal all those words in the name of David, and waited. 
-Nabal answered David's servants and said, "Who is David? Who is the son of Jesse? There are many servants who break away from their masters these days. 
+Nabal answered David's servants and said, "Who's David? Who's the son of Jesse? There are many servants who break away from their masters these days. 
 Shall I then take my bread, my water, and my meat that I have killed for my shearers, and give it to men who I don't know where they come from?" 
 So David's young men turned on their way and went back, and came and told him all these words. 
 David said to his men, "Every man put on his sword!" Every man put on his sword. David also put on his sword. About four hundred men followed David, and two hundred stayed by the baggage. 
 But one of the young men told Abigail, Nabal's wife, saying, "Look, David sent messengers out of the wilderness to greet our master; and he insulted them. 
 But the men were very good to us, and we weren't harmed, and we didn't miss anything as long as we went with them, when we were in the fields. 
 They were a wall to us both by night and by day, all the while we were with them keeping the sheep. 
-Now know and consider what you will do; for bad is determined against our master and against all his house, for he is such a worthless fellow that one can't speak to him." 
+Now know and consider what you'll do; for bad is determined against our master and against all his house, for he's such a worthless fellow that one can't speak to him." 
 Then Abigail hurried and took two hundred loaves of bread, two containers of wine, five sheep ready dressed, five seahs of parched grain, one hundred clusters of raisins, and two hundred cakes of figs, and laid them on donkeys. 
-She said to her young men, "Go on before me. Look, I am coming after you." But she didn't tell her husband, Nabal. 
+She said to her young men, "Go on before me. Look, I'm coming after you." But she didn't tell her husband, Nabal. 
 As she rode on her donkey, and came down hidden by the mountain, look, David and his men came down toward her, and she met them. 
 Now David had said, "Surely in vain I have kept all that this fellow has in the wilderness, so that nothing was missed of all that pertained to him. He has returned me bad for good. 
 God do so to the enemies of David, and more also, if I leave of all that belongs to him by the morning light so much as one who urinates on a wall." 
@@ -26,8 +26,8 @@ Please don't let my lord pay attention to this worthless fellow, Nabal, for as h
 Now, my lord, as God lives and as your soul lives, since God has withheld you from blood guiltiness and from avenging yourself with your own hand, now let your enemies and those who seek bad to my lord be as Nabal. 
 Now this present which your servant has brought to my lord, let it be given to the young men who follow my lord. 
 Please forgive the trespass of your servant. God will certainly make my lord a sure house, because my lord fights God's battles. Bad won't be found in you all your days. 
-Though men may rise up to pursue you and to seek your soul, yet the soul of my lord will be bound in the bundle of life with your God. He will sling out the souls of your enemies as from a sling's pocket. 
-It will come to pass, when God has done to my lord according to all the good that he has spoken concerning you, and has appointed you prince over Israel, 
+Though men may rise up to pursue you and to seek your soul, yet the soul of my lord will be bound in the bundle of life with your God. He'll sling out the souls of your enemies as from a sling's pocket. 
+It'll come to pass, when God has done to my lord according to all the good that he has spoken concerning you, and has appointed you prince over Israel, 
 that this shall be no grief to you, nor offense of heart to my lord, either that you have shed blood without cause, or that my lord has avenged himself. When God has dealt well with my lord, then remember your servant." 
 David said to Abigail, "Blessed is the God of Israel, who sent you today to meet me! 
 Blessed is your discretion, and blessed are you, who have kept me today from blood guiltiness, and from avenging myself with my own hand. 
@@ -36,7 +36,7 @@ So David received from her hand that which she had brought him. Then he said to 
 Abigail came to Nabal; and look, he held a feast in his house like the feast of a king. Nabal's heart was merry within him, for he was very drunk. So she told him nothing until the morning light. 
 In the morning, when the wine had gone out of Nabal, his wife told him these things; and his heart died within him, and he became as a stone. 
 About ten days later, God struck Nabal, so that he died. 
-When David heard that Nabal was dead, he said, "Blessed is God, who has pleaded the cause of my reproach from the hand of Nabal, and has kept back his servant from what is bad. God has returned the bad Nabal did on his own head." David sent and spoke concerning Abigail, to take her to himself as wife. 
+When David heard that Nabal was dead, he said, "Blessed is God, who has pleaded the cause of my reproach from the hand of Nabal, and has kept back his servant from what's bad. God has returned the bad Nabal did on his own head." David sent and spoke concerning Abigail, to take her to himself as wife. 
 When David's servants had come to Abigail to Carmel, they spoke to her, saying, "David has sent us to you, to take you to him as wife." 
 She arose and bowed herself with her face to the earth, and said, "Look, your servant is a servant to wash the feet of the servants of my lord." 
 Abigail hurriedly arose and rode on a donkey with her five maids who followed her; and she went after the messengers of David, and became his wife. 

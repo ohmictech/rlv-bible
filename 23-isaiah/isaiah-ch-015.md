@@ -3,7 +3,7 @@ They have gone up to Bayith, and to Dibon, to the high places, to weep. Moab wai
 In their streets, they clothe themselves in sackcloth. In their streets and on their housetops, everyone wails, weeping abundantly. 
 Heshbon cries out with Elealeh. Their voice is heard even to Jahaz. So the armed men of Moab cry aloud. Their souls tremble within them. 
 My heart cries out for Moab! Her nobles flee to Zoar, to Eglath Shelishiyah; for they go up by the ascent of Luhith with weeping; for on the way to Horonaim, they raise up a cry of destruction. 
-The waters of Nimrim will be desolate; for the grass has withered away, the tender grass fails, there is no green thing. 
-So they will carry away the abundance they have gotten, and that which they have stored up, over the brook of the willows. 
+The waters of Nimrim will be desolate; for the grass has withered away, the tender grass fails, there's no green thing. 
+So they'll carry away the abundance they have gotten, and that which they have stored up, over the brook of the willows. 
 The cry has gone around the borders of Moab, its wailing to Eglaim, and its wailing to Beer Elim. 
-The waters of Dimon are full of blood; for I will bring yet more on Dimon, a lion on those of Moab who escape, and on the remnant of the land. 
+The waters of Dimon are full of blood; for I'll bring yet more on Dimon, a lion on those of Moab who escape, and on the remnant of the land. 

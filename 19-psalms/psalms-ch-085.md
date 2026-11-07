@@ -5,7 +5,7 @@ Turn us, God of our salvation, and cause your indignation toward us to cease.
 Will you be angry with us for the eras? Will you draw out your anger to all generations? 
 Won't you revive us again, that your people may rejoice in you? 
 Show us your loving kindness, God. Grant us your salvation. 
-I will hear what God, God, will speak, for he will speak peace to his people, his saints; but let them not turn again to folly. 
+I'll hear what God, God, will speak, for he'll speak peace to his people, his saints; but let them not turn again to folly. 
 Surely his salvation is near those who fear him, that glory may dwell in our land. 
 Mercy and truth meet together. Righteousness and peace have kissed each other. 
 Truth springs out of the earth. Righteousness has looked down from the sky. 

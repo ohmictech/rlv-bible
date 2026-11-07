@@ -10,10 +10,10 @@ She said to her husband, "See now, I perceive that this is a holy man of God who
 Please, let's make a little room on the roof. Let's set a bed, a table, a chair, and a lamp stand for him there. When he comes to us, he can stay there." 
 One day he came there, and he went to the room and lay there. 
 He said to Gehazi his servant, "Call this Shunammite." When he had called her, she stood before him. 
-He said to him, "Say now to her, 'Look, you have cared for us with all this care. What is to be done for you? Would you like to be spoken for to the king, or to the captain of the army?'" She answered, "I dwell among my own people." 
+He said to him, "Say now to her, 'Look, you have cared for us with all this care. What's to be done for you? Would you like to be spoken for to the king, or to the captain of the army?'" She answered, "I dwell among my own people." 
 He said, "What then is to be done for her?" Gehazi answered, "Most certainly she has no son, and her husband is old." 
 He said, "Call her." When he had called her, she stood in the door. 
-He said, "At this season next year, you will embrace a son." She said, "No, my lord, you man of God, don't lie to your servant." 
+He said, "At this season next year, you'll embrace a son." She said, "No, my lord, you man of God, don't lie to your servant." 
 The woman conceived, and bore a son at that season when the time came around, as Elisha had said to her. 
 When the child was grown, one day he went out to his father to the reapers. 
 He said to his father, "My head! My head!" He said to his servant, "Carry him to his mother." 
@@ -22,8 +22,8 @@ She went up and laid him on the man of God's bed, and shut the door on him, and 
 She called to her husband and said, "Please send me one of the servants, and one of the donkeys, that I may run to the man of God and come again." 
 He said, "Why would you want to go to him today? It isn't a new moon or a Sabbath." She said, "It's all right." 
 Then she saddled a donkey, and said to her servant, "Drive, and go forward! Don't slow down for me, unless I ask you to." 
-So she went, and came to the man of God to Mount Carmel. When the man of God saw her afar off, he said to Gehazi his servant, "Look, there is the Shunammite. 
-Please run now to meet her, and ask her, 'Is it well with you? Is it well with your husband? Is it well with your child?'" She answered, "It is well." 
+So she went, and came to the man of God to Mount Carmel. When the man of God saw her afar off, he said to Gehazi his servant, "Look, there's the Shunammite. 
+Please run now to meet her, and ask her, 'Is it well with you? Is it well with your husband? Is it well with your child?'" She answered, "It's well." 
 When she came to the man of God to the hill, she caught hold of his feet. Gehazi came near to thrust her away; but the man of God said, "Leave her alone, for her soul is troubled within her; and God has hidden it from me, and hasn't told me." 
 Then she said, "Did I ask you for a son, my lord? Didn't I say, 'Don't deceive me'?" 
 Then he said to Gehazi, "Tuck your cloak into your belt, take my staff in your hand, and go your way. If you meet any man, don't greet him; and if anyone greets you, don't answer him again. Then lay my staff on the child's face." 
@@ -37,8 +37,8 @@ He called Gehazi, and said, "Call this Shunammite!" So he called her. When she h
 Then she went in, fell at his feet, and bowed herself to the ground; then she picked up her son, and went out. 
 Elisha came again to Gilgal. There was a famine in the land; and the sons of the spokesmen were sitting before him; and he said to his servant, "Get the large pot, and boil stew for the sons of the spokesmen." 
 One went out into the field to gather herbs, and found a wild vine, and gathered a lap full of wild gourds from it, and came and cut them up into the pot of stew; for they didn't recognize them. 
-So they poured out for the men to eat. As they were eating some of the stew, they cried out and said, "Man of God, there is death in the pot!" And they couldn't eat it. 
+So they poured out for the men to eat. As they were eating some of the stew, they cried out and said, "Man of God, there's death in the pot!" And they couldn't eat it. 
 But he said, "Then bring meal." He threw it into the pot; and he said, "Serve it to the people, that they may eat." And there was nothing harmful in the pot. 
 A man from Baal Shalishah came, and brought the man of God some bread of the first fruits: twenty loaves of barley and fresh ears of grain in his sack. Elisha said, "Give to the people, that they may eat." 
-His servant said, "What, should I set this before a hundred men?" But he said, "Give it to the people, that they may eat; for God says, 'They will eat, and will have some left over.'" 
+His servant said, "What, should I set this before a hundred men?" But he said, "Give it to the people, that they may eat; for God says, 'They'll eat, and will have some left over.'" 
 So he set it before them and they ate and had some left over, according to God's word. 

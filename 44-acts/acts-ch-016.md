@@ -25,10 +25,10 @@ Having received such a command, he threw them into the inner prison and secured 
 But about midnight Paul and Silas were praying and singing hymns to God, and the prisoners were listening to them. 
 Suddenly there was a great earthquake, so that the foundations of the prison were shaken; and immediately all the doors were opened, and everyone's bonds were loosened. 
 The jailer, being roused out of sleep and seeing the prison doors open, drew his sword and was about to kill himself, supposing that the prisoners had escaped. 
-But Paul cried with a loud voice, saying, "Don't harm yourself, for we are all here!" 
+But Paul cried with a loud voice, saying, "Don't harm yourself, for we're all here!" 
 He called for lights, sprang in, fell down trembling before Paul and Silas, 
 brought them out, and said, "Sirs, what must I do to be made whole?" 
-They said, "Trust in the Lord Jesus Christ, and you will be made whole, you and your household." 
+They said, "Trust in the Lord Jesus Christ, and you'll be made whole, you and your household." 
 They spoke the word of the Lord to him, and to everyone who was in his house. 
 He took them the same hour of the night and washed their stripes, and was immediately immersed, he and all his household. 
 He brought them up into his house and set food before them, and celebrated greatly with all his household, having trusted in God. 

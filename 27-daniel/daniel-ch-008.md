@@ -16,12 +16,12 @@ When I, even I Daniel, had seen the vision, I sought to understand it. Then look
 I heard a man's voice between the banks of the Ulai, which called and said, "Gabriel, make this man understand the vision." 
 So he came near where I stood; and when he came, I was frightened, and fell on my face; but he said to me, "Understand, son of man, for the vision belongs to the time of the end." 
 Now as he was speaking with me, I fell into a deep sleep with my face toward the ground; but he touched me and set me upright. 
-He said, "Look, I will make you know what will be in the latter time of the indignation, for it belongs to the appointed time of the end. 
-The ram which you saw, that had the two horns, they are the kings of Media and Persia. 
-The rough male goat is the king of Greece. The great horn that is between his eyes is the first king. 
+He said, "Look, I'll make you know what will be in the latter time of the indignation, for it belongs to the appointed time of the end. 
+The ram which you saw, that had the two horns, they're the kings of Media and Persia. 
+The rough male goat is the king of Greece. The great horn that's between his eyes is the first king. 
 As for that which was broken, in the place where four stood up, four kingdoms will stand up out of the nation, but not with his power. 
 "In the latter time of their kingdom, when the transgressors have come to the full, a king of fierce face, and understanding riddles, will stand up. 
-His power will be mighty, but not by his own power. He will destroy awesomely, and will prosper in what he does. He will destroy the mighty ones and the holy people. 
-Through his policy he will cause deceit to prosper in his hand. He will magnify himself in his heart, and he will destroy many in their security. He will also stand up against the prince of princes, but he will be broken without human hands. 
+His power will be mighty, but not by his own power. He'll destroy awesomely, and will prosper in what he does. He'll destroy the mighty ones and the holy people. 
+Through his policy he'll cause deceit to prosper in his hand. He'll magnify himself in his heart, and he'll destroy many in their security. He'll also stand up against the prince of princes, but he'll be broken without human hands. 
 "The vision of the evenings and mornings which has been told is true; but seal up the vision, for it belongs to many days to come." 
 I, Daniel, fainted, and was sick for some days. Then I rose up and did the king's business. I wondered at the vision, but no one understood it. 

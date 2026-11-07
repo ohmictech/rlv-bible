@@ -14,9 +14,9 @@ In the six hundred first year, in the first month, the first day of the month, t
 In the second month, on the twenty-seventh day of the month, the earth was dry. 
 God spoke to Noah, saying, 
 "Go out of the ship, you, your wife, your sons, and your sons' wives with you. 
-Bring out with you every living thing that is with you of all flesh, including birds, livestock, and every small crawling thing that crawls on the earth, so they can swarm on the earth, be fruitful, and increase on the earth." 
+Bring out with you every living thing that's with you of all flesh, including birds, livestock, and every small crawling thing that crawls on the earth, so they can swarm on the earth, be fruitful, and increase on the earth." 
 Noah went out, with his sons, his wife, and his sons' wives with him. 
 Every animal, every small crawling thing, and every bird, whatever moves on the earth, went out of the ship by their families. 
 Noah built an altar to God, and took of every clean animal, and of every clean bird, and offered burnt offerings on the altar. 
-God smelled the pleasant smell. God said to himself, "I will never again curse the ground because of human beings, because the thoughts of the human heart are bad from youth. And I will never again strike down every living thing, as I have done. 
+God smelled the pleasant smell. God said to himself, "I'll never again curse the ground because of human beings, because the thoughts of the human heart are bad from youth. And I'll never again strike down every living thing, as I have done. 
 As long as the earth lasts, planting time and harvest, cold and heat, summer and winter, day and night will never stop." 

@@ -9,16 +9,16 @@ Then the animals take cover, and remain in their dens.
 Out of its room comes the storm, and cold out of the north. 
 By the breath of God, ice is given, and the width of the waters is frozen. 
 Yes, he loads the thick cloud with moisture. He spreads abroad the cloud of his lightning. 
-It is turned around by his guidance, that they may do whatever he commands them on the surface of the habitable world, 
-whether it is for correction, or for his land, or for loving kindness, that he causes it to come. 
+It's turned around by his guidance, that they may do whatever he commands them on the surface of the habitable world, 
+whether it's for correction, or for his land, or for loving kindness, that he causes it to come. 
 "Listen to this, Job. Stand still, and consider the wondrous works of God. 
 Do you know how God controls them, and causes the lightning of his cloud to shine? 
-Do you know the workings of the clouds, the wondrous works of him who is perfect in knowledge? 
+Do you know the workings of the clouds, the wondrous works of him who's perfect in knowledge? 
 You whose clothing is warm when the earth is still by reason of the south wind? 
 Can you, with him, spread out the sky, which is strong as a cast metal mirror? 
-Teach us what we will tell him, for we can't make our case by reason of darkness. 
-Will it be told him that I would speak? Or should a man wish that he were swallowed up? 
+Teach us what we'll tell him, for we can't make our case by reason of darkness. 
+Will it be told him that I'd speak? Or should a man wish that he were swallowed up? 
 Now men don't see the light which is bright in the skies, but the wind passes, and clears them. 
 Out of the north comes golden splendor. With God is awesome majesty. 
-We can't reach the Almighty. He is exalted in power. In justice and great righteousness, he won't oppress. 
+We can't reach the Almighty. He's exalted in power. In justice and great righteousness, he won't oppress. 
 So men revere him. He doesn't regard any who are wise of heart." 

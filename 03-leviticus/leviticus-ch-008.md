@@ -28,9 +28,9 @@ He put all these in Aaron's hands and in his sons' hands, and waved them for a w
 Moses took them from their hands, and burned them on the altar on the burnt offering. They were a consecration offering for a pleasant aroma. It was an offering made by fire to God. 
 Moses took the breast, and waved it for a wave offering before God. It was Moses' portion of the ram of consecration, as God commanded Moses. 
 Moses took some of the anointing oil, and some of the blood which was on the altar, and sprinkled it on Aaron, on his garments, and on his sons, and on his sons' garments with him, and sanctified Aaron, his garments, and his sons, and his sons' garments with him. 
-Moses said to Aaron and to his sons, "Boil the meat at the door of the Tent of Meeting, and there eat it and the bread that is in the basket of consecration, as I commanded, saying, 'Aaron and his sons shall eat it.' 
+Moses said to Aaron and to his sons, "Boil the meat at the door of the Tent of Meeting, and there eat it and the bread that's in the basket of consecration, as I commanded, saying, 'Aaron and his sons shall eat it.' 
 What remains of the meat and of the bread you shall burn with fire. 
 You shall not go out from the door of the Tent of Meeting for seven days, until the days of your consecration are fulfilled: for he shall consecrate you seven days. 
 What has been done today, so God has commanded to do, to make things right for you. 
-You shall stay at the door of the Tent of Meeting day and night seven days, and keep God's command, that you don't die: for so I am commanded." 
+You shall stay at the door of the Tent of Meeting day and night seven days, and keep God's command, that you don't die: for so I'm commanded." 
 Aaron and his sons did all the things which God commanded by Moses. 

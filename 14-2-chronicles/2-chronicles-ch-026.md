@@ -20,4 +20,4 @@ Then Uzziah was angry. He had a censer in his hand to burn incense, and while he
 Azariah the chief priest and all the priests looked at him, and look, he was leprous in his forehead; and they thrust him out quickly from there. Indeed, he himself also hurried to go out, because God had struck him. 
 Uzziah the king was a leper to the day of his death, and lived in a separate house, being a leper; for he was cut off from God's house. Jotham his son was over the king's house, judging the people of the land. 
 Now the rest of the acts of Uzziah, first and last, Isaiah the spokesman, the son of Amoz, wrote. 
-So Uzziah slept with his fathers; and they buried him with his fathers in the field of burial which belonged to the kings, for they said, "He is a leper." Jotham his son reigned in his place. 
+So Uzziah slept with his fathers; and they buried him with his fathers in the field of burial which belonged to the kings, for they said, "He's a leper." Jotham his son reigned in his place. 

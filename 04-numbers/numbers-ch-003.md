@@ -6,11 +6,11 @@ God spoke to Moses, saying,
 "Bring the tribe of Levi near, and set them before Aaron the priest, that they may minister to him. 
 They shall keep his requirements, and the requirements of the whole congregation before the Tent of Meeting, to do the service of the tabernacle. 
 They shall keep all the furnishings of the Tent of Meeting, and the obligations of the children of Israel, to do the service of the tabernacle. 
-You shall give the Levites to Aaron and to his sons. They are wholly given to him on the behalf of the children of Israel. 
+You shall give the Levites to Aaron and to his sons. They're wholly given to him on the behalf of the children of Israel. 
 You shall appoint Aaron and his sons, and they shall keep their priesthood, but the stranger who comes near shall be put to death." 
 God spoke to Moses, saying, 
 "Look, I have taken the Levites from among the children of Israel instead of all the firstborn who open the womb among the children of Israel; and the Levites shall be mine, 
-for all the firstborn are mine. On the day that I struck down all the firstborn in the land of Egypt I made holy to me all the firstborn in Israel, both man and animal. They shall be mine. I am God." 
+for all the firstborn are mine. On the day that I struck down all the firstborn in the land of Egypt I made holy to me all the firstborn in Israel, both man and animal. They shall be mine. I'm God." 
 God spoke to Moses in the wilderness of Sinai, saying, 
 "Count the children of Levi by their fathers' houses, by their families. You shall count every male from a month old and upward." 
 Moses counted them according to God's word, as he was commanded. 
@@ -38,11 +38,11 @@ the pillars of the court around it, their sockets, their pins, and their cords.
 Those who encamp before the tabernacle eastward, in front of the Tent of Meeting toward the sunrise, shall be Moses, with Aaron and his sons, keeping the requirements of the sanctuary for the duty of the children of Israel. The outsider who comes near shall be put to death. 
 Everyone who was counted of the Levites, whom Moses and Aaron counted at the commandment of God, by their families, all the males from a month old and upward, were twenty-two thousand. 
 God said to Moses, "Count all the firstborn males of the children of Israel from a month old and upward, and take the number of their names. 
-You shall take the Levites for me, I am God, instead of all the firstborn among the children of Israel; and the livestock of the Levites instead of all the firstborn among the livestock of the children of Israel." 
+You shall take the Levites for me, I'm God, instead of all the firstborn among the children of Israel; and the livestock of the Levites instead of all the firstborn among the livestock of the children of Israel." 
 Moses counted, as God commanded him, all the firstborn among the children of Israel. 
 All the firstborn males according to the number of names from a month old and upward, of those who were counted of them, were twenty-two thousand two hundred seventy-three. 
 God spoke to Moses, saying, 
-"Take the Levites instead of all the firstborn among the children of Israel, and the livestock of the Levites instead of their livestock; and the Levites shall be mine. I am God. 
+"Take the Levites instead of all the firstborn among the children of Israel, and the livestock of the Levites instead of their livestock; and the Levites shall be mine. I'm God. 
 The buying back of the two hundred seventy-three of the firstborn of the children of Israel who exceed the number of the Levites, 
 you shall take five shekels apiece for each one; according to the shekel of the sanctuary you shall take them (the shekel is twenty gerahs); 
 and you shall give the money, with which their remainder is bought back, to Aaron and to his sons." 

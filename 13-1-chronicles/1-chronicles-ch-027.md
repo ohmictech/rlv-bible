@@ -20,7 +20,7 @@ of Zebulun, Ishmaiah the son of Obadiah; of Naphtali, Jeremoth the son of Azriel
 of the children of Ephraim, Hoshea the son of Azaziah; of the half-tribe of Manasseh, Joel the son of Pedaiah; 
 of the half-tribe of Manasseh in Gilead, Iddo the son of Zechariah; of Benjamin, Jaasiel the son of Abner; 
 of Dan, Azarel the son of Jeroham. These were the captains of the tribes of Israel. 
-But David didn't take the number of them from twenty years old and under, because God had said he would increase Israel like the stars of the sky. 
+But David didn't take the number of them from twenty years old and under, because God had said he'd increase Israel like the stars of the sky. 
 Joab the son of Zeruiah began to take a census, but didn't finish; and wrath came on Israel for this. The number wasn't put into the account in the chronicles of King David. 
 Over the king's treasures was Azmaveth the son of Adiel. Over the treasures in the fields, in the cities, in the villages, and in the towers was Jonathan the son of Uzziah; 
 Over those who did the work of the field for tillage of the ground was Ezri the son of Chelub. 

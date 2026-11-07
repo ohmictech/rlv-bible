@@ -1,6 +1,6 @@
 ﻿God's word came again to me, saying, 
 "You, son of man, take up a lamentation over Tyre; 
-and tell Tyre, 'You who dwell at the entry of the sea, who are the merchant of the peoples to many islands, God says: "You, Tyre, have said, 'I am perfect in beauty.' 
+and tell Tyre, 'You who dwell at the entry of the sea, who are the merchant of the peoples to many islands, God says: "You, Tyre, have said, 'I'm perfect in beauty.' 
 Your borders are in the heart of the seas. Your builders have perfected your beauty. 
 They have made all your planks of cypress trees from Senir. They have taken a cedar from Lebanon to make a mast for you. 
 They have made your oars of the oaks of Bashan. They have made your benches of ivory inlaid in cypress wood from the islands of Kittim. 
@@ -26,11 +26,11 @@ These were your traders in choice wares, in wrappings of blue and embroidered wo
 Your rowers have brought you into great waters. The east wind has broken you in the heart of the seas. 
 Your riches, your wares, your merchandise, your mariners, your pilots, your repairers of ship seams, the dealers in your merchandise, and all your men of war who are in you, with all your company which is among you, will fall into the heart of the seas in the day of your ruin. 
 At the sound of the cry of your pilots, the pasture lands will shake. 
-Everyone who handles the oars, the mariners and all the pilots of the sea, will come down from their ships. They will stand on the land, 
-and will cause their voice to be heard over you, and will cry bitterly. They will cast up dust on their heads. They will wallow in the ashes. 
-They will make themselves bald for you, and clothe themselves with sackcloth. They will weep for you in bitterness of soul, with bitter mourning. 
-In their wailing they will take up a lamentation for you, and lament over you, saying, 'Who is there like Tyre, like her who is brought to silence in the middle of the sea?' 
+Everyone who handles the oars, the mariners and all the pilots of the sea, will come down from their ships. They'll stand on the land, 
+and will cause their voice to be heard over you, and will cry bitterly. They'll cast up dust on their heads. They'll wallow in the ashes. 
+They'll make themselves bald for you, and clothe themselves with sackcloth. They'll weep for you in bitterness of soul, with bitter mourning. 
+In their wailing they'll take up a lamentation for you, and lament over you, saying, 'Who's there like Tyre, like her who's brought to silence in the middle of the sea?' 
 When your wares came from the seas, you filled many peoples. You enriched the kings of the earth with the multitude of your riches and of your merchandise. 
 In the time that you were broken by the seas, in the depths of the waters, your merchandise and all your company fell within you. 
-All the inhabitants of the islands are astonished at you, and their kings are horribly afraid. They are troubled in their face. 
-The merchants among the peoples hiss at you. You have come to a terrible end, and you will be no more."'" 
+All the inhabitants of the islands are astonished at you, and their kings are horribly afraid. They're troubled in their face. 
+The merchants among the peoples hiss at you. You have come to a terrible end, and you'll be no more."'" 

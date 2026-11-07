@@ -1,18 +1,18 @@
-﻿After many days, God's word came to Elijah, in the third year, saying, "Go, show yourself to Ahab; and I will send rain on the earth." 
+﻿After many days, God's word came to Elijah, in the third year, saying, "Go, show yourself to Ahab; and I'll send rain on the earth." 
 Elijah went to show himself to Ahab. The famine was severe in Samaria. 
 Ahab called Obadiah, who was over the household. (Now Obadiah feared God greatly; 
 for when Jezebel cut off God's spokesmen, Obadiah took one hundred spokesmen, and hid them fifty to a cave, and fed them with bread and water.) 
 Ahab said to Obadiah, "Go through the land, to all the springs of water, and to all the brooks. Perhaps we may find grass and save the horses and mules alive, that we not lose all the animals." 
 So they divided the land between them to pass throughout it. Ahab went one way by himself, and Obadiah went another way by himself. 
 As Obadiah was on the way, look, Elijah met him. He recognized him, and fell on his face, and said, "Is it you, my lord Elijah?" 
-He answered him, "It is I. Go, tell your lord, 'Look, Elijah is here!'" 
-He said, "How have I drifted, that you would deliver your servant into the hand of Ahab, to kill me? 
-As your God lives, there is no nation or kingdom where my lord hasn't sent to seek you. When they said, 'He isn't here,' he took an oath of the kingdom and nation that they didn't find you. 
+He answered him, "It's I. Go, tell your lord, 'Look, Elijah is here!'" 
+He said, "How have I drifted, that you'd deliver your servant into the hand of Ahab, to kill me? 
+As your God lives, there's no nation or kingdom where my lord hasn't sent to seek you. When they said, 'He isn't here,' he took an oath of the kingdom and nation that they didn't find you. 
 Now you say, 'Go, tell your lord, "Look, Elijah is here."' 
-It will happen, as soon as I leave you, that God's Spirit will carry you I don't know where; and so when I come and tell Ahab, and he can't find you, he will kill me. But I, your servant, have feared God from my youth. 
+It'll happen, as soon as I leave you, that God's Spirit will carry you I don't know where; and so when I come and tell Ahab, and he can't find you, he'll kill me. But I, your servant, have feared God from my youth. 
 Wasn't it told my lord what I did when Jezebel killed God's spokesmen, how I hid one hundred men of God's spokesmen with fifty to a cave, and fed them with bread and water? 
-Now you say, 'Go, tell your lord, "Look, Elijah is here".' He will kill me." 
-Elijah said, "As the God of Armies lives, before whom I stand, I will surely show myself to him today." 
+Now you say, 'Go, tell your lord, "Look, Elijah is here".' He'll kill me." 
+Elijah said, "As the God of Armies lives, before whom I stand, I'll surely show myself to him today." 
 So Obadiah went to meet Ahab, and told him; and Ahab went to meet Elijah. 
 When Ahab saw Elijah, Ahab said to him, "Is that you, you troubler of Israel?" 
 He answered, "I haven't troubled Israel, but you and your father's house, in that you have forsaken God's commandments and you have followed the Baals. 
@@ -20,11 +20,11 @@ Now send, and gather to me all Israel to Mount Carmel, and four hundred fifty of
 So Ahab sent to all the children of Israel, and gathered the spokesmen together to Mount Carmel. 
 Elijah came near to everyone, and said, "How long will you waver between the two sides? If God is the true God, follow him; but if Baal, then follow him." The people didn't say a word. 
 Then Elijah said to the people, "I, even I only, am left as a spokesman of God; but Baal's spokesmen are four hundred fifty men. 
-Let them give us two bulls; and let them choose one bull for themselves, and cut it in pieces, and lay it on the wood, and put no fire under; and I will dress the other bull, and lay it on the wood, and put no fire under it. 
-You call on the name of your god, and I will call on God's name. The God who answers by fire, let him be God." Everyone answered, "What you say is good." 
-Elijah said to the spokesmen of Baal, "Choose one bull for yourselves, and dress it first, for you are many; and call on the name of your god, but put no fire under it." 
+Let them give us two bulls; and let them choose one bull for themselves, and cut it in pieces, and lay it on the wood, and put no fire under; and I'll dress the other bull, and lay it on the wood, and put no fire under it. 
+You call on the name of your god, and I'll call on God's name. The God who answers by fire, let him be God." Everyone answered, "What you say is good." 
+Elijah said to the spokesmen of Baal, "Choose one bull for yourselves, and dress it first, for you're many; and call on the name of your god, but put no fire under it." 
 They took the bull which was given them, and they dressed it, and called on the name of Baal from morning even until noon, saying, "Baal, hear us!" But there was no voice, and nobody answered. They leaped about the altar which was made. 
-At noon, Elijah mocked them, and said, "Cry aloud, for he is a god. Either he is deep in thought, or he has gone somewhere, or he is on a journey, or perhaps he sleeps and must be awakened." 
+At noon, Elijah mocked them, and said, "Cry aloud, for he's a god. Either he's deep in thought, or he has gone somewhere, or he's on a journey, or perhaps he sleeps and must be awakened." 
 They cried aloud, and cut themselves in their way with knives and lances until the blood gushed out on them. 
 When midday was past, they prophesied until the time of the evening offering; but there was no voice, no answer, and nobody paid attention. 
 Elijah said to everyone, "Come near to me!"; and everyone came near to him. He repaired God's altar that had been thrown down. 
@@ -33,14 +33,14 @@ With the stones he built an altar in God's name. He made a trench around the alt
 He put the wood in order, and cut the bull in pieces and laid it on the wood. He said, "Fill four jars with water, and pour it on the burnt offering and on the wood." 
 He said, "Do it a second time;" and they did it the second time. He said, "Do it a third time;" and they did it the third time. 
 The water ran around the altar; and he also filled the trench with water. 
-At the time of the evening offering, Elijah the spokesman came near and said, "the God of Abraham, of Isaac, and of Israel, let it be known today that you are God in Israel and that I am your servant, and that I have done all these things at your word. 
+At the time of the evening offering, Elijah the spokesman came near and said, "the God of Abraham, of Isaac, and of Israel, let it be known today that you're God in Israel and that I'm your servant, and that I have done all these things at your word. 
 Hear me, God, hear me, that this people may know that you, God, are God, and that you have turned their heart back again." 
 Then God's fire fell and consumed the burnt offering, the wood, the stones, and the dust; and it licked up the water that was in the trench. 
-When everyone saw it, they fell on their faces. They said, "He is the true God! He is the true God!" 
+When everyone saw it, they fell on their faces. They said, "He's the true God! He's the true God!" 
 Elijah said to them, "Seize the spokesmen of Baal! Don't let one of them escape!" They seized them; and Elijah brought them down to the brook Kishon, and killed them there. 
-Elijah said to Ahab, "Get up, eat and drink; for there is the sound of abundance of rain." 
+Elijah said to Ahab, "Get up, eat and drink; for there's the sound of abundance of rain." 
 So Ahab went up to eat and to drink. Elijah went up to the top of Carmel; and he bowed himself down on the earth, and put his face between his knees. 
-He said to his servant, "Go up now and look toward the sea." He went up and looked, then said, "There is nothing." He said, "Go again" seven times. 
+He said to his servant, "Go up now and look toward the sea." He went up and looked, then said, "There's nothing." He said, "Go again" seven times. 
 On the seventh time, he said, "Look, a small cloud, like a man's hand, is rising out of the sea." He said, "Go up, tell Ahab, 'Get ready and go down, so that the rain doesn't stop you.'" 
 In a little while, the sky grew black with clouds and wind, and there was a great rain. Ahab rode, and went to Jezreel. 
 God's hand was on Elijah; and he tucked his cloak into his belt and ran before Ahab to the entrance of Jezreel. 

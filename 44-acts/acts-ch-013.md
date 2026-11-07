@@ -6,9 +6,9 @@ When they were at Salamis, they proclaimed God's word in the Jewish gathering pl
 When they had gone through the island to Paphos, they found a certain sorcerer, a false spokesman, a Jewish man whose name was Bar Jesus, 
 who was with the proconsul, Sergius Paulus, a man of understanding. This man summoned Barnabas and Saul, and sought to hear the word of God. 
 But Elymas the sorcerer (for so is his name by interpretation) withstood them, seeking to turn the proconsul away from the trust. 
-But Saul, who is also called Paul, filled with the Holy Spirit, fastened his eyes on him 
+But Saul, who's also called Paul, filled with the Holy Spirit, fastened his eyes on him 
 and said, "You son of the Slanderer, full of all deceit and all cunning, you enemy of all rightness, will you not cease to pervert the right ways of the Lord? 
-Now, look, the hand of the Lord is on you, and you will be blind, not seeing the sun for a season!" Immediately a mist and darkness fell on him. He went around seeking someone to lead him by the hand. 
+Now, look, the hand of the Lord is on you, and you'll be blind, not seeing the sun for a season!" Immediately a mist and darkness fell on him. He went around seeking someone to lead him by the hand. 
 Then the proconsul, when he saw what was done, trusted, being astonished at the teaching of the Lord. 
 Now Paul and his company set sail from Paphos and came to Perga in Pamphylia. John departed from them and returned to Jerusalem. 
 But they, passing on from Perga, came to Antioch of Pisidia. They went into the gathering place on the Sabbath day and sat down. 
@@ -22,7 +22,7 @@ Afterward they asked for a king, and God gave to them Saul the son of Kish, a ma
 When he had removed him, he raised up David to be their king, to whom he also testified, 'I have found David the son of Jesse, a man after my heart, who will do all my will.' 
 From this man's offspring, God has brought rescue to Israel according to his promise, 
 before his coming, when John had first announced the immersion of a change of heart to Israel. 
-As John was fulfilling his course, he said, 'What do you suppose that I am? I'm not he. But look, one comes after me, the sandals of whose feet I'm not worthy to untie.' 
+As John was fulfilling his course, he said, 'What do you suppose that I'm? I'm not he. But look, one comes after me, the sandals of whose feet I'm not worthy to untie.' 
 "Brothers, children of the stock of Abraham, and those among you who are in awe of God, the word of this rescue is sent out to you. 
 Those who dwell in Jerusalem, and their rulers, because they didn't know him, nor the voices of the spokesmen which are read every Sabbath, fulfilled them by condemning him. 
 Though they found no cause for death, they still asked Pilate to have him killed. 
@@ -30,15 +30,15 @@ When they had fulfilled all things that were written about him, they took him do
 But God raised him from the dead, 
 and he was seen for many days by those who came up with him from Galilee to Jerusalem, who are his witnesses to the people. 
 We bring you good news of the promise made to the fathers, 
-that God has fulfilled this to us, their children, in that he raised up Jesus. As it is also written in the second psalm, 'You are my Son. Today I have become your father.' 
-"Concerning that he raised him up from the dead, now no more to return to corruption, he has spoken thus: 'I will give you the set-apart and sure blessings of David.' 
+that God has fulfilled this to us, their children, in that he raised up Jesus. As it's also written in the second psalm, 'You're my Son. Today I have become your father.' 
+"Concerning that he raised him up from the dead, now no more to return to corruption, he has spoken thus: 'I'll give you the set-apart and sure blessings of David.' 
 So he says also in another psalm, 'You won't allow your set-apart One to see decay.' 
 David, after he had in his own generation served the counsel of God, fell asleep, was laid with his fathers, and saw decay. 
 But he whom God raised up saw no decay. 
 Be it known to you, brothers, that through this man is proclaimed to you release of mistakes; 
 and by him everyone who trusts is made right from all things, from which you couldn't be made right by the law of Moses. 
-Beware, that what is spoken in the spokesmen doesn't come on you: 
-'Look, you scoffers! Wonder and be destroyed, for I work a work in your days, a work which you will in no way trust, even if one declares it to you.'" 
+Beware, that what's spoken in the spokesmen doesn't come on you: 
+'Look, you scoffers! Wonder and be destroyed, for I work a work in your days, a work which you'll in no way trust, even if one declares it to you.'" 
 So when the Jewish people went out of the gathering place, the nations begged that these words would be told to them the next Sabbath. 
 Now when the gathering place broke up, many of the Jewish people and of the devout converts followed Paul and Barnabas; who, speaking to them, urged them to continue in the favor of God. 
 The next Sabbath, almost the whole city was gathered together to hear the word of God. 

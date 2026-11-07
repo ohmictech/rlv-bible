@@ -1,6 +1,6 @@
 ﻿God spoke to Moses in the wilderness of Sinai, in the Tent of Meeting, on the first day of the second month, in the second year after they had come out of the land of Egypt, saying, 
 "Take a census of all the congregation of the children of Israel, by their families, by their fathers' houses, according to the number of the names, every male, one by one, 
-from twenty years old and upward, everyone who is able to go out to war in Israel. You and Aaron shall count them by their divisions. 
+from twenty years old and upward, everyone who's able to go out to war in Israel. You and Aaron shall count them by their divisions. 
 With you there shall be a man of every tribe, each one head of his fathers' house. 
 These are the names of the men who shall stand with you: Of Reuben: Elizur the son of Shedeur. 
 Of Simeon: Shelumiel the son of Zurishaddai. 

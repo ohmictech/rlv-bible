@@ -1,7 +1,7 @@
 ﻿Ahab told Jezebel all that Elijah had done, and how he had killed all the spokesmen with the sword. 
 Then Jezebel sent a messenger to Elijah, saying, "So let the gods do to me, and more also, if I don't make your life as the life of one of them by tomorrow about this time!" 
 When he saw that, he arose and ran for his life, and came to Beersheba, which belongs to Judah, and left his servant there. 
-But he himself went a day's journey into the wilderness, and came and sat down under a juniper tree. Then he requested for himself that he might die, and said, "It is enough. Now, O God, take away my life; for I'm not better than my fathers." 
+But he himself went a day's journey into the wilderness, and came and sat down under a juniper tree. Then he requested for himself that he might die, and said, "It's enough. Now, O God, take away my life; for I'm not better than my fathers." 
 He lay down and slept under a juniper tree; and look, an messenger touched him, and said to him, "Arise and eat!" 
 He looked, and look, there was at his head a cake baked on the coals, and a jar of water. He ate and drank, and lay down again. 
 God's messenger came again the second time, and touched him, and said, "Arise and eat, because the journey is too great for you." 
@@ -17,5 +17,5 @@ Anoint Jehu the son of Nimshi to be king over Israel; and anoint Elisha the son 
 He who escapes from the sword of Hazael, Jehu will kill; and he who escapes from the sword of Jehu, Elisha will kill. 
 Yet I reserved seven thousand in Israel, all the knees of which haven't bowed to Baal, and every mouth that hasn't kissed him." 
 So he departed from there and found Elisha the son of Shaphat, who was plowing with twelve yoke of oxen before him, and he with the twelfth. Elijah went over to him and put his mantle on him. 
-Elisha left the oxen and ran after Elijah, and said, "Let me please kiss my father and my mother, and then I will follow you." He said to him, "Go back again; for what have I done to you?" 
+Elisha left the oxen and ran after Elijah, and said, "Let me please kiss my father and my mother, and then I'll follow you." He said to him, "Go back again; for what have I done to you?" 
 He returned from following him, and took the yoke of oxen, killed them, and boiled their meat with the oxen's equipment, and gave to the people; and they ate. Then he arose, and went after Elijah, and served him. 

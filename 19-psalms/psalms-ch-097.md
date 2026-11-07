@@ -6,7 +6,7 @@ The mountains melt like wax at the presence of God, at the presence of the Lord 
 The sky declare his righteousness. Everyones have seen his glory. 
 Let all them be shamed who serve engraved images, who boast in their idols. Worship him, all you gods! 
 Zion heard and was glad. The daughters of Judah rejoiced because of your judgments, God. 
-You, God, are most high above all the earth. You are exalted far above all gods. 
+You, God, are most high above all the earth. You're exalted far above all gods. 
 You who love God, hate bad! He preserves the souls of his saints. He delivers them out of the hand of the guilty. 
 Light is sown for the righteous, and gladness for the upright in heart. 
 Be glad in God, you righteous people! Give thanks to his holy Name. 

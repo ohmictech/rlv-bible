@@ -6,22 +6,22 @@ In the morning, their rulers, elders, and Bible teachers were gathered together 
 Annas the high priest was there, with Caiaphas, John, Alexander, and as many as were relatives of the high priest. 
 When they had stood Peter and John in the middle of them, they inquired, "By what power, or in what name, have you done this?" 
 Then Peter, filled with the Holy Spirit, said to them, "You rulers of the people and elders of Israel, 
-if we are examined today concerning a good deed done to a crippled man, by what means this man has been healed, 
+if we're examined today concerning a good deed done to a crippled man, by what means this man has been healed, 
 may it be known to you all, and to everyone in Israel, that in the name of Jesus Christ of Nazareth, whom you crucified, whom God raised from the dead, this man stands here before you whole in him. 
-He is 'the stone which was regarded as worthless by you, the builders, which has become the head of the corner.' 
-There is rescue in no one else, for there is no other name under the sky that is given among people, by which we must be rescued!" 
+He's 'the stone which was regarded as worthless by you, the builders, which has become the head of the corner.' 
+There's rescue in no one else, for there's no other name under the sky that's given among people, by which we must be rescued!" 
 Now when they saw the boldness of Peter and John, and had perceived that they were unlearned and ordinary men, they were amazed. They recognized that they had been with Jesus. 
 Seeing the man who was healed standing with them, they could say nothing against it. 
 But when they had commanded them to go aside out of the council, they conferred among themselves, 
 saying, "What should we do to these men? Because indeed a notable sign has been done through them, as can be plainly seen by everyone who dwells in Jerusalem, and we can't deny it. 
 But so that this spreads no further among the people, let's threaten them, that from now on they don't speak to anyone in this name." 
 They called them, and commanded them not to speak at all nor teach in the name of Jesus. 
-But Peter and John answered them, "Whether it is right in the sight of God to listen to you rather than to God, judge for yourselves, 
+But Peter and John answered them, "Whether it's right in the sight of God to listen to you rather than to God, judge for yourselves, 
 for we can't help telling the things which we saw and heard." 
 When they had further threatened them, they let them go, finding no way to correct them, because of the people; for everyone gave honor to God for that which was done. 
 The man on whom this sign of healing was performed was more than forty years old. 
 Being let go, they came to their own company and reported all that the chief priests and the elders had said to them. 
-When they heard it, they lifted up their voice to God with one accord and said, "Master, you are God, who made the sky, the land, the sea, and all that is in them; 
+When they heard it, they lifted up their voice to God with one accord and said, "Master, you're God, who made the sky, the land, the sea, and all that's in them; 
 who by the mouth of your servant David said, 'Why do the nations rage, and the peoples plot an empty thing? 
 The kings of the land take a stand, and the rulers plot together, against the Lord, and against his Christ.' 
 "For truly, both Herod and Pontius Pilate, with the nations and the people of Israel, were gathered together against your set-apart servant Jesus, whom you anointed, 

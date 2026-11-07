@@ -3,10 +3,10 @@ On the top of high places by the way, where the paths meet, she stands.
 Beside the gates, at the entry of the city, at the entry doors, she cries aloud: 
 "I call to you men! I send my voice to the sons of mankind. 
 You simple, understand prudence! You fools, be of an understanding heart! 
-Hear, for I will speak excellent things. The opening of my lips is for right things. 
+Hear, for I'll speak excellent things. The opening of my lips is for right things. 
 My mouth speaks truth. Wickedness is an abomination to my lips. 
-All the words of my mouth are in righteousness. There is nothing crooked or perverse in them. 
-They are all plain to him who understands, right to those who find knowledge. 
+All the words of my mouth are in righteousness. There's nothing crooked or perverse in them. 
+They're all plain to him who understands, right to those who find knowledge. 
 Receive my instruction rather than silver, knowledge rather than choice gold. 
 Wisdom is better than rubies. All the things that may be desired can't be compared to it. 
 "I, wisdom, have made prudence my dwelling. Find out knowledge and discretion. 

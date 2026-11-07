@@ -1,5 +1,5 @@
 ﻿You shall observe to do all the commandments which I command you today, that you may live, and multiply, and go in and possess the land which God swore to your fathers. 
-You shall remember all the way which your God has led you these forty years in the wilderness, that he might humble you, to test you, to know what was in your heart, whether you would keep his commandments or not. 
+You shall remember all the way which your God has led you these forty years in the wilderness, that he might humble you, to test you, to know what was in your heart, whether you'd keep his commandments or not. 
 He humbled you, allowed you to be hungry, and fed you with manna, which you didn't know, neither did your fathers know, that he might teach you that man doesn't live by bread only, but man lives by every word that proceeds out of God's mouth. 
 Your clothing didn't grow old on you, neither did your foot swell, these forty years. 
 You shall consider in your heart that as a man disciplines his son, so your God disciplines you. 
@@ -15,6 +15,6 @@ then your heart might be lifted up, and you forget your God, who brought you out
 who led you through the great and terrible wilderness, with venomous snakes and scorpions, and thirsty ground where there was no water; who poured water for you out of the rock of flint; 
 who fed you in the wilderness with manna, which your fathers didn't know, that he might humble you, and that he might prove you, to do you good at your latter end; 
 and lest you say in your heart, "My power and the might of my hand has gotten me this wealth." 
-But you shall remember your God, for it is he who gives you power to get wealth, that he may establish his covenant which he swore to your fathers, as it is today. 
+But you shall remember your God, for it's he who gives you power to get wealth, that he may establish his covenant which he swore to your fathers, as it's today. 
 It shall be, if you shall forget your God, and walk after other gods, and serve them and worship them, I testify against you today that you shall surely perish. 
 As the nations that God makes to perish before you, so you shall perish, because you wouldn't listen to your God's voice. 

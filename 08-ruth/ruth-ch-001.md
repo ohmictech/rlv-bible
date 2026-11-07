@@ -7,14 +7,14 @@ Then she arose with her daughters-in-law, that she might return from the country
 She went out of the place where she was, and her two daughters-in-law with her. They went on the way to return to the land of Judah. 
 Naomi said to her two daughters-in-law, "Go, return each of you to her mother's house. May God deal kindly with you, as you have dealt with the dead and with me. 
 May God grant you that you may find rest, each of you in the house of her husband." Then she kissed them, and they lifted up their voices, and wept. 
-They said to her, "No, but we will return with you to your people." 
+They said to her, "No, but we'll return with you to your people." 
 Naomi said, "Go back, my daughters. Why do you want to go with me? Do I still have sons in my womb, that they may be your husbands? 
-Go back, my daughters, go your way; for I am too old to have a husband. If I should say, 'I have hope,' if I should even have a husband tonight, and should also bear sons, 
+Go back, my daughters, go your way; for I'm too old to have a husband. If I should say, 'I have hope,' if I should even have a husband tonight, and should also bear sons, 
 would you then wait until they were grown? Would you then refrain from having husbands? No, my daughters, for it grieves me seriously for your sakes, for God's hand has gone out against me." 
 They lifted up their voices and wept again; then Orpah kissed her mother-in-law, but Ruth stayed with her. 
 She said, "Look, your sister-in-law has gone back to her people and to her god. Follow your sister-in-law." 
-Ruth said, "Don't urge me to leave you, and to return from following you, for where you go, I will go; and where you stay, I will stay. Your people will be my people, and your God my God. 
-Where you die, I will die, and there I will be buried. May God do so to me, and more also, if anything but death parts you and me." 
+Ruth said, "Don't urge me to leave you, and to return from following you, for where you go, I'll go; and where you stay, I'll stay. Your people will be my people, and your God my God. 
+Where you die, I'll die, and there I'll be buried. May God do so to me, and more also, if anything but death parts you and me." 
 When Naomi saw that she was determined to go with her, she stopped urging her. 
 So they both went until they came to Bethlehem. When they had come to Bethlehem, all the city was excited about them, and they asked, "Is this Naomi?" 
 She said to them, "Don't call me Naomi. Call me Mara, for the Almighty has dealt very bitterly with me. 

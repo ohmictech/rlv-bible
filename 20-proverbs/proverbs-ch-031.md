@@ -2,17 +2,17 @@
 "Oh, my son! Oh, son of my womb! Oh, son of my vows! 
 Don't give your strength to women, nor your ways to that which destroys kings. 
 It isn't for kings, Lemuel, it isn't for kings to drink wine, nor for princes to say, 'Where is strong drink?' 
-lest they drink, and forget the law, and pervert the justice due to anyone who is afflicted. 
-Give strong drink to him who is ready to perish, and wine to the bitter in soul. 
+lest they drink, and forget the law, and pervert the justice due to anyone who's afflicted. 
+Give strong drink to him who's ready to perish, and wine to the bitter in soul. 
 Let him drink, and forget his poverty, and remember his misery no more. 
-Open your mouth for the mute, in the cause of everyone who is left desolate. 
+Open your mouth for the mute, in the cause of everyone who's left desolate. 
 Open your mouth, judge righteously, and serve justice to the poor and needy." 
 Who can find a worthy woman? Her value is far above rubies. 
 The heart of her husband trusts in her. He shall have no lack of gain. 
 She does him good, and not harm, all the days of her life. 
 She seeks wool and flax, and works eagerly with her hands. 
-She is like the merchant ships. She brings her bread from afar. 
-She rises also while it is yet night, gives food to her household, and portions for her servant girls. 
+She's like the merchant ships. She brings her bread from afar. 
+She rises also while it's yet night, gives food to her household, and portions for her servant girls. 
 She considers a field, and buys it. With the fruit of her hands, she plants a vineyard. 
 She arms her waist with strength, and makes her arms strong. 
 She perceives that her merchandise is profitable. Her lamp doesn't go out by night. 

@@ -12,15 +12,15 @@ But Mary was standing outside at the tomb weeping. So as she wept, she stooped a
 and she saw two messengers in white sitting, one at the head and one at the feet, where the body of Jesus had lain. 
 They asked her, "Woman, why are you weeping?" She said to them, "Because they have taken away my Lord, and I don't know where they have laid him." 
 When she had said this, she turned around and saw Jesus standing, and didn't know that it was Jesus. 
-Jesus said to her, "Woman, why are you weeping? Who are you looking for?" She, supposing him to be the gardener, said to him, "Sir, if you have carried him away, tell me where you have laid him, and I will take him away." 
+Jesus said to her, "Woman, why are you weeping? Who are you looking for?" She, supposing him to be the gardener, said to him, "Sir, if you have carried him away, tell me where you have laid him, and I'll take him away." 
 Jesus said to her, "Mary." She turned and said to him, "Rabboni!" which is to say, "Teacher!" 
-Jesus said to her, "Don't hold on to me, for I haven't yet ascended to my Father; but go to my brothers and tell them, 'I am ascending to my Father and your Father, to my God and your God.'" 
+Jesus said to her, "Don't hold on to me, for I haven't yet ascended to my Father; but go to my brothers and tell them, 'I'm ascending to my Father and your Father, to my God and your God.'" 
 Mary Magdalene came and told the students that she had seen the Lord, and that he had said these things to her. 
 When it was evening on that day, the first day of the week, and when the doors were locked where the students were assembled, for fear of the Jewish leaders, Jesus came and stood in the middle and said to them, "Wholeness be to you." 
 When he had said this, he showed them his hands and his side. The students were glad when they saw the Lord. 
 Jesus said to them again, "Wholeness be to you. As the Father has sent me, even so I send you." 
 When he had said this, he breathed on them, and said to them, "Receive the Holy Spirit! 
-If you release anyone's mistakes, they are released. If you hold on to anyone's mistakes, they are held." 
+If you release anyone's mistakes, they're released. If you hold on to anyone's mistakes, they're held." 
 But Thomas, one of the twelve, called Didymus, wasn't with them when Jesus came. 
 The other students said to him, "We have seen the Lord!" But he said to them, "Unless I see in his hands the print of the nails, put my finger into the print of the nails, and put my hand into his side, I won't trust." 
 After eight days, again his students were inside and Thomas was with them. Jesus came, the doors being locked, and stood in the middle, and said, "Wholeness be to you." 

@@ -14,20 +14,20 @@ When the south wind blew softly, supposing that they had obtained their purpose,
 But before long, a stormy wind beat down from shore, which is called Euroclydon. 
 When the ship was caught and couldn't face the wind, we gave way to it and were driven along. 
 Running under the lee of a small island called Clauda, we were able, with difficulty, to secure the boat. 
-After they had hoisted it up, they used cables to help reinforce the ship. Fearing that they would run aground on the Syrtis sand bars, they lowered the sea anchor, and so were driven along. 
+After they had hoisted it up, they used cables to help reinforce the ship. Fearing that they'd run aground on the Syrtis sand bars, they lowered the sea anchor, and so were driven along. 
 As we labored exceedingly with the storm, the next day they began to throw things overboard. 
 On the third day, they threw out the ship's tackle with their own hands. 
-When neither sun nor stars shone on us for many days, and no small storm pressed on us, all hope that we would be made whole was now taken away. 
+When neither sun nor stars shone on us for many days, and no small storm pressed on us, all hope that we'd be made whole was now taken away. 
 When they had been long without food, Paul stood up in the middle of them and said, "Sirs, you should have listened to me, and not have set sail from Crete and have gotten this injury and loss. 
 Now I urge you to cheer up, for there will be no loss of life among you, but only of the ship. 
-There stood by me this night a messenger, belonging to the God whose I am and whom I serve, 
+There stood by me this night a messenger, belonging to the God whose I'm and whom I serve, 
 saying, 'Don't be afraid, Paul. You must stand before Caesar. Look, God has granted you everyone who sails with you.' 
-So, sirs, cheer up! I trust God, that it will be just as it has been spoken to me. 
+So, sirs, cheer up! I trust God, that it'll be just as it has been spoken to me. 
 But we must run aground on a certain island." 
 But when the fourteenth night had come, as we were driven back and forth in the Adriatic Sea, about midnight the sailors surmised that they were drawing near to some land. 
 They took soundings and found twenty fathoms. After a little while, they took soundings again, and found fifteen fathoms. 
-Fearing that we would run aground on rocky ground, they let go four anchors from the stern, and wished for daylight. 
-As the sailors were trying to flee out of the ship and had lowered the boat into the sea, pretending that they would lay out anchors from the bow, 
+Fearing that we'd run aground on rocky ground, they let go four anchors from the stern, and wished for daylight. 
+As the sailors were trying to flee out of the ship and had lowered the boat into the sea, pretending that they'd lay out anchors from the bow, 
 Paul said to the centurion and to the soldiers, "Unless these stay in the ship, you can't be made whole." 
 Then the soldiers cut away the ropes of the boat and let it fall off. 
 While the day was coming on, Paul begged them all to take some food, saying, "Today is the fourteenth day that you wait and continue fasting, having taken nothing. 

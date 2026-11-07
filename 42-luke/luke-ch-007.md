@@ -4,7 +4,7 @@ When he heard about Jesus, he sent to him elders of the Jews, asking him to come
 When they came to Jesus, they begged him earnestly, saying, "He deserves to have you do this for him, 
 for he loves our nation, and he built our gathering place for us." 
 Jesus went with them. When he was now not far from the house, the centurion sent friends to him, saying to him, "Lord, don't trouble yourself, for I don't deserve to have you come under my roof. 
-That is why I didn't even consider myself worthy to come to you; but say the word, and my slave will be healed. 
+That's why I didn't even consider myself worthy to come to you; but say the word, and my slave will be healed. 
 I also am a man placed under authority, having under myself soldiers. I tell this one, 'Go!' and he goes; and to another, 'Come!' and he comes; and to my slave, 'Do this,' and he does it." 
 When Jesus heard these things, he was amazed at him, and turned and said to the crowd who followed him, "I tell you, I haven't found such great trust, no, not in Israel." 
 Those who were sent, returning to the house, found that the slave who had been sick was well. 
@@ -16,7 +16,7 @@ He who was dead sat up and began to speak. Then he gave him to his mother.
 Fear took hold of all, and they gave honor to God, saying, "A great spokesman has arisen among us!" and, "God has come to his people!" 
 This news about him went out in the whole of Judea and in all the surrounding region. 
 The students of John told him about all these things. 
-John, calling to himself two of his students, sent them to Jesus, asking, "Are you the one who is coming, or should we look for another?" 
+John, calling to himself two of his students, sent them to Jesus, asking, "Are you the one who's coming, or should we look for another?" 
 When the men had come to him, they said, "John the Baptist has sent us to you, asking, 'Are you he who comes, or should we look for another?'" 
 At that time he cured many of diseases and plagues and malicious spirits; and to many who were blind he gave sight. 
 Jesus answered them, "Go and tell John the things which you have seen and heard: that the blind receive their sight, the lame walk, the men with leprosy are made clean, the deaf hear, the dead are raised up, and the poor have good news preached to them. 
@@ -24,12 +24,12 @@ Flourishing is the one who isn't trapped by me."
 When John's messengers had departed, he began to tell the crowds about John, "What did you go out into the wilderness to see? A reed shaken by the wind? 
 But what did you go out to see? A man clothed in soft clothing? Look, those who are gorgeously dressed and live delicately are in kings' courts. 
 But what did you go out to see? A spokesman? Yes, I tell you, and much more than a spokesman. 
-This is he of whom it is written, 'Look, I send my messenger before your face, who will prepare your way before you.' 
-"For I tell you, among those who are born of women there isn't a greater spokesman than John the Baptist; yet he who is least in God's reign is greater than he." 
+This is he of whom it's written, 'Look, I send my messenger before your face, who will prepare your way before you.' 
+"For I tell you, among those who are born of women there isn't a greater spokesman than John the Baptist; yet he who's least in God's reign is greater than he." 
 When everyone and the tax collectors heard this, they acknowledged that God was right, having been immersed with John's immersion. 
 But the strict religious ones and the experts in the law rejected God's purpose for them, not having been immersed by him. 
 "To what then should I compare the people of this generation? What are they like? 
-They are like children who sit in the marketplace and call to one another, saying, 'We piped to you, and you didn't dance. We mourned, and you didn't weep.' 
+They're like children who sit in the marketplace and call to one another, saying, 'We piped to you, and you didn't dance. We mourned, and you didn't weep.' 
 John the Baptist came neither eating bread nor drinking wine, and you say, 'He has an unclean spirit.' 
 The Human One has come eating and drinking, and you say, 'Look, a glutton and a drunkard, a friend of tax collectors and those who have drifted!' 
 Wisdom is made right by all her children." 
@@ -46,5 +46,5 @@ You gave me no kiss, but she, since the time I came in, hasn't ceased to kiss my
 You didn't anoint my head with oil, but she has anointed my feet with perfume. 
 So I tell you, her mistakes, which are many, are released, for she loved much. But the one to whom little is released loves little." 
 He said to her, "Your mistakes are released." 
-Those who sat at the table with him began to say to themselves, "Who is this who even releases mistakes?" 
+Those who sat at the table with him began to say to themselves, "Who's this who even releases mistakes?" 
 He said to the woman, "Your trust has healed you and made you whole. Go in wholeness." 

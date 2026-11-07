@@ -1,11 +1,11 @@
-﻿God said to Moses, "Now you shall see what I will do to Pharaoh, for by a strong hand he shall let them go, and by a strong hand he shall drive them out of his land." 
-God spoke to Moses, and said to him, "I am God. 
+﻿God said to Moses, "Now you shall see what I'll do to Pharaoh, for by a strong hand he shall let them go, and by a strong hand he shall drive them out of his land." 
+God spoke to Moses, and said to him, "I'm God. 
 I appeared to Abraham, to Isaac, and to Jacob, as God Almighty; but by my name God I wasn't known to them. 
 I have also established my covenant with them, to give them the land of Canaan, the land of their travels, in which they lived as aliens. 
 Moreover I have heard the groaning of the children of Israel, whom the Egyptians keep in bondage, and I have remembered my covenant. 
-So tell the children of Israel, 'I am God, and I will bring you out from under the burdens of the Egyptians, and I will rid you out of their bondage, and I will buy you back with an outstretched arm, and with great judgments. 
-I will take you to myself for a people. I will be your God; and you shall know that I am your God, who brings you out from under the burdens of the Egyptians. 
-I will bring you into the land which I swore to give to Abraham, to Isaac, and to Jacob; and I will give it to you for a heritage: I am God.'" 
+So tell the children of Israel, 'I'm God, and I'll bring you out from under the burdens of the Egyptians, and I'll rid you out of their bondage, and I'll buy you back with an outstretched arm, and with great judgments. 
+I'll take you to myself for a people. I'll be your God; and you shall know that I'm your God, who brings you out from under the burdens of the Egyptians. 
+I'll bring you into the land which I swore to give to Abraham, to Isaac, and to Jacob; and I'll give it to you for a heritage: I'm God.'" 
 Moses spoke so to the children of Israel, but they didn't listen to Moses for anguish of spirit, and for cruel bondage. 
 God spoke to Moses, saying, 
 "Go in, speak to Pharaoh king of Egypt, that he let the children of Israel go out of his land." 
@@ -26,5 +26,5 @@ Eleazar Aaron's son took one of the daughters of Putiel as his wife; and she bor
 These are that Aaron and Moses to whom God said, "Bring out the children of Israel from the land of Egypt according to their armies." 
 These are those who spoke to Pharaoh king of Egypt, to bring out the children of Israel from Egypt. These are that Moses and Aaron. 
 On the day when God spoke to Moses in the land of Egypt, 
-God said to Moses, "I am God. Tell Pharaoh king of Egypt all that I tell you." 
-Moses said before God, "Look, I am of uncircumcised lips, and how shall Pharaoh listen to me?" 
+God said to Moses, "I'm God. Tell Pharaoh king of Egypt all that I tell you." 
+Moses said before God, "Look, I'm of uncircumcised lips, and how shall Pharaoh listen to me?" 

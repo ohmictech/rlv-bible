@@ -1,4 +1,4 @@
-﻿So all Israel were listed by genealogies; and look, they are written in the book of the kings of Israel. Judah was carried away captive to Babylon for their disobedience. 
+﻿So all Israel were listed by genealogies; and look, they're written in the book of the kings of Israel. Judah was carried away captive to Babylon for their disobedience. 
 Now the first inhabitants who lived in their possessions in their cities were Israel, the priests, the Levites, and the temple servants. 
 In Jerusalem, there lived of the children of Judah, of the children of Benjamin, and of the children of Ephraim and Manasseh: 
 Uthai the son of Ammihud, the son of Omri, the son of Imri, the son of Bani, of the children of Perez the son of Judah. 

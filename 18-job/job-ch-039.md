@@ -9,11 +9,11 @@ The range of the mountains is his pasture. He searches after every green thing.
 "Will the wild ox be content to serve you? Or will he stay by your feeding trough? 
 Can you hold the wild ox in the furrow with his harness? Or will he till the valleys after you? 
 Will you trust him, because his strength is great? Or will you leave to him your labor? 
-Will you confide in him, that he will bring home your seed, and gather the grain of your threshing floor? 
+Will you confide in him, that he'll bring home your seed, and gather the grain of your threshing floor? 
 "The wings of the ostrich wave proudly, but are they the feathers and plumage of love? 
 She leaves her eggs on the earth, warms them in the dust, 
 and forgets that the foot may crush them, or that the wild animal may trample them. 
-She deals harshly with her young ones, as if they weren't hers. Though her labor is in vain, she is without fear, 
+She deals harshly with her young ones, as if they weren't hers. Though her labor is in vain, she's without fear, 
 because God has deprived her of wisdom, neither has he imparted to her understanding. 
 When she lifts up herself on high, she scorns the horse and his rider. 
 "Have you given the horse might? Have you clothed his neck with a quivering mane? 
@@ -27,4 +27,4 @@ As often as the trumpet sounds he snorts, 'Aha!' He smells the battle afar off, 
 Is it at your command that the eagle mounts up, and makes his nest on high? 
 On the cliff he dwells and makes his home, on the point of the cliff and the stronghold. 
 From there he spies out the prey. His eyes see it afar off. 
-His young ones also suck up blood. Where the slain are, there he is." 
+His young ones also suck up blood. Where the slain are, there he's." 

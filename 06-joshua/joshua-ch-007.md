@@ -10,15 +10,15 @@ The Canaanites and all the inhabitants of the land will hear of it, and will sur
 God said to Joshua, "Get up! Why have you fallen on your face like that? 
 Israel has drifted. Yes, they have even transgressed my covenant which I commanded them. Yes, they have even taken some of the devoted things, and have also stolen, and also deceived. They have even put it among their own stuff. 
 So the children of Israel can't stand before their enemies. They turn their backs before their enemies, because they have become devoted for destruction. I won't be with you any more, unless you destroy the devoted things from among you. 
-Get up! Sanctify the people, and say, 'Sanctify yourselves for tomorrow, for the God of Israel says, "There is a devoted thing among you, Israel. You can't stand before your enemies until you take away the devoted thing from among you." 
+Get up! Sanctify the people, and say, 'Sanctify yourselves for tomorrow, for the God of Israel says, "There's a devoted thing among you, Israel. You can't stand before your enemies until you take away the devoted thing from among you." 
 In the morning you shall be brought near by your tribes. It shall be that the tribe which God selects shall come near by families. The family which God selects shall come near by households. The household which God selects shall come near man by man. 
-It shall be, that he who is taken with the devoted thing shall be burned with fire, he and all that he has, because he has transgressed God's covenant, and because he has done a disgraceful thing in Israel.'" 
+It shall be, that he who's taken with the devoted thing shall be burned with fire, he and all that he has, because he has transgressed God's covenant, and because he has done a disgraceful thing in Israel.'" 
 So Joshua rose up early in the morning and brought Israel near by their tribes. The tribe of Judah was selected. 
 He brought near the family of Judah, and he selected the family of the Zerahites. He brought near the family of the Zerahites man by man, and Zabdi was selected. 
 He brought near his household man by man, and Achan, the son of Carmi, the son of Zabdi, the son of Zerah, of the tribe of Judah, was selected. 
 Joshua said to Achan, "My son, please give glory to the God of Israel, and make confession to him. Tell me now what you have done! Don't hide it from me!" 
 Achan answered Joshua, and said, "I have truly wronged the God of Israel, and this is what I have done. 
-When I saw among the plunder a beautiful Babylonian robe, two hundred shekels of silver, and a wedge of gold weighing fifty shekels, then I coveted them and took them. Look, they are hidden in the ground in the middle of my tent, with the silver under it." 
+When I saw among the plunder a beautiful Babylonian robe, two hundred shekels of silver, and a wedge of gold weighing fifty shekels, then I coveted them and took them. Look, they're hidden in the ground in the middle of my tent, with the silver under it." 
 So Joshua sent messengers, and they ran to the tent. Look, it was hidden in his tent, with the silver under it. 
 They took them from the middle of the tent, and brought them to Joshua and to all the children of Israel. They laid them down before God. 
 Joshua, and all Israel with him, took Achan the son of Zerah, the silver, the robe, the wedge of gold, his sons, his daughters, his cattle, his donkeys, his sheep, his tent, and all that he had; and they brought them up to the valley of Achor. 

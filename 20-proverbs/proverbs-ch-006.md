@@ -1,5 +1,5 @@
 ﻿My son, if you have become collateral for your neighbor, if you have struck your hands in pledge for a stranger, 
-you are trapped by the words of your mouth; you are ensnared with the words of your mouth. 
+you're trapped by the words of your mouth; you're ensnared with the words of your mouth. 
 Do this now, my son, and deliver yourself, since you have come into the hand of your neighbor. Go, humble yourself. Press your plea with your neighbor. 
 Give no sleep to your eyes, nor slumber to your eyelids. 
 Free yourself, like a gazelle from the hand of the hunter, like a bird from the snare of the fowler. 
@@ -12,14 +12,14 @@ so your poverty will come as a robber, and your scarcity as an armed man.
 A worthless person, a man of guilt, is he who walks with a perverse mouth, 
 who winks with his eyes, who signals with his feet, who motions with his fingers, 
 in whose heart is perverseness, who devises bad continually, who always sows discord. 
-So his calamity will come suddenly. He will be broken suddenly, and that without remedy. 
+So his calamity will come suddenly. He'll be broken suddenly, and that without remedy. 
 There are six things which God hates; yes, seven which are an abomination to him: 
 arrogant eyes, a lying tongue, hands that shed innocent blood, 
 a heart that devises guilty schemes, feet that are swift in running to mischief, 
 a false witness who utters lies, and he who sows discord among brothers. 
 My son, keep your father's commandment, and don't forsake your mother's teaching. 
 Bind them continually on your heart. Tie them around your neck. 
-When you walk, it will lead you. When you sleep, it will watch over you. When you awake, it will talk with you. 
+When you walk, it'll lead you. When you sleep, it'll watch over you. When you awake, it'll talk with you. 
 The commandment is a lamp, and the law is light. Reproofs of instruction are the way of life, 
 to keep you from the immoral woman, from the flattery of the wayward wife's tongue. 
 Don't lust after her beauty in your heart, neither let her captivate you with her eyelids. 
@@ -27,9 +27,9 @@ A prostitute reduces you to a piece of bread. The adulteress hunts for your prec
 Can a man scoop fire into his lap, and his clothes not be burned? 
 Or can one walk on hot coals, and his feet not be scorched? 
 So is he who goes in to his neighbor's wife. Whoever touches her won't be unpunished. 
-Men don't despise a thief if he steals to satisfy himself when he is hungry, 
-but if he is found, he shall restore seven times. He shall give all the wealth of his house. 
+Men don't despise a thief if he steals to satisfy himself when he's hungry, 
+but if he's found, he shall restore seven times. He shall give all the wealth of his house. 
 He who commits adultery with a woman is void of understanding. He who does it destroys his own soul. 
-He will get wounds and dishonor. His reproach won't be wiped away. 
+He'll get wounds and dishonor. His reproach won't be wiped away. 
 Jealousy arouses the fury of the husband. He won't spare in the day of vengeance. 
 He won't regard any ransom, neither will he rest content, though you give many gifts. 

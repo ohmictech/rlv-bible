@@ -1,6 +1,6 @@
 ﻿"Now these are the ordinances which you shall set before them: 
 "If you buy a Hebrew servant, he shall serve six years, and in the seventh he shall go out free without paying anything. 
-If he comes in by himself, he shall go out by himself. If he is married, then his wife shall go out with him. 
+If he comes in by himself, he shall go out by himself. If he's married, then his wife shall go out with him. 
 If his master gives him a wife and she bears him sons or daughters, the wife and her children shall be her master's, and he shall go out by himself. 
 But if the servant shall plainly say, 'I love my master, my wife, and my children. I won't go out free;' 
 then his master shall bring him to God, and shall bring him to the door or to the doorpost, and his master shall bore his ear through with an awl, and he shall serve him for the eras. 
@@ -10,13 +10,13 @@ If he marries her to his son, he shall deal with her as a daughter.
 If he takes another wife to himself, he shall not diminish her food, her clothing, and her marital rights. 
 If he doesn't do these three things for her, she may go free without paying any money. 
 "One who strikes a man so that he dies shall surely be put to death, 
-but not if it is unintentional, but God allows it to happen; then I will appoint you a place where he shall flee. 
+but not if it's unintentional, but God allows it to happen; then I'll appoint you a place where he shall flee. 
 If a man schemes and comes presumptuously on his neighbor to kill him, you shall take him from my altar, that he may die. 
 "Anyone who attacks his father or his mother shall be surely put to death. 
-"Anyone who kidnaps someone and sells him, or if he is found in his hand, he shall surely be put to death. 
+"Anyone who kidnaps someone and sells him, or if he's found in his hand, he shall surely be put to death. 
 "Anyone who curses his father or his mother shall surely be put to death. 
 "If men quarrel and one strikes the other with a stone, or with his fist, and he doesn't die, but is confined to bed; 
-if he rises again and walks around with his staff, then he who struck him shall be cleared; only he shall pay for the loss of his time, and shall provide for his healing until he is thoroughly healed. 
+if he rises again and walks around with his staff, then he who struck him shall be cleared; only he shall pay for the loss of his time, and shall provide for his healing until he's thoroughly healed. 
 "If a man strikes his servant or his maid with a rod, and he dies under his hand, the man shall surely be punished. 
 Notwithstanding, if his servant gets up after a day or two, he shall not be punished, for the servant is his property. 
 "If men fight and hurt a pregnant woman so that she gives birth prematurely, and yet no harm follows, he shall be surely fined as much as the woman's husband demands and the judges allow. 
@@ -33,4 +33,4 @@ If the bull gores a male servant or a female servant, thirty shekels of silver s
 "If a man opens a pit, or if a man digs a pit and doesn't cover it, and a bull or a donkey falls into it, 
 the owner of the pit shall make it good. He shall give money to its owner, and the dead animal shall be his. 
 "If one man's bull injures another's, so that it dies, then they shall sell the live bull, and divide its price; and they shall also divide the dead animal. 
-Or if it is known that the bull was in the habit of goring in the past, and its owner hasn't kept it in, he shall surely pay bull for bull, and the dead animal shall be his own. 
+Or if it's known that the bull was in the habit of goring in the past, and its owner hasn't kept it in, he shall surely pay bull for bull, and the dead animal shall be his own. 

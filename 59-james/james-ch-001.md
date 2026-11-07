@@ -2,26 +2,26 @@
 Consider it pure joy, my brothers and sisters, when you go through all kinds of tests, 
 because you know that the testing of your trust produces staying power. 
 Let staying power do its full work, so that you may be complete and whole, lacking nothing. 
-If any of you lacks wisdom, ask God, who gives generously to everyone and never finds fault, and it will be given to you. 
+If any of you lacks wisdom, ask God, who gives generously to everyone and never finds fault, and it'll be given to you. 
 But ask in trust, without doubting, because anyone who doubts is like a wave on the sea, blown and tossed by the wind. 
 That person shouldn't expect to receive anything from the Lord. 
-They are of two minds, unsteady in everything they do. 
-A brother or sister who is poor should take pride in being lifted up, 
-and the rich should take pride in being brought low, because they will pass away like a wildflower. 
+They're of two minds, unsteady in everything they do. 
+A brother or sister who's poor should take pride in being lifted up, 
+and the rich should take pride in being brought low, because they'll pass away like a wildflower. 
 The sun rises with scorching heat and dries up the grass; the flower falls off and its beauty is gone. In the same way the rich will fade away even while they go about their business. 
-Flourishing is the one who holds up under testing, because when they have passed the test they will receive the wreath of real life that the Lord promised to those who love him. 
-Nobody who is being tempted should say, "God is tempting me," because God can't be tempted by evil, and he tempts no one. 
+Flourishing is the one who holds up under testing, because when they have passed the test they'll receive the wreath of real life that the Lord promised to those who love him. 
+Nobody who's being tempted should say, "God is tempting me," because God can't be tempted by evil, and he tempts no one. 
 Each person is tempted when their own craving drags them away and lures them. 
-Then the craving conceives and gives birth to the drift, and the drift, once it is full grown, gives birth to death. 
+Then the craving conceives and gives birth to the drift, and the drift, once it's full grown, gives birth to death. 
 Don't be fooled, my truly loved brothers and sisters. 
 Every good gift and every complete gift comes from above, coming down from the Father of lights, who never changes and never shifts like a shadow. 
-He chose to give us birth through the message of truth, so that we would be a kind of firstfruits of everything he made. 
+He chose to give us birth through the message of truth, so that we'd be a kind of firstfruits of everything he made. 
 My truly loved brothers and sisters, know this: everyone should be quick to listen, slow to speak, and slow to get angry, 
 because a person's temper doesn't produce the rightness God wants. 
 So put away everything filthy and every last trace of malice, and humbly accept the message planted in you, which is able to rescue your life. 
-Don't just listen to the message; do what it says, or you are fooling yourselves. 
-Anyone who hears the message but doesn't do it is like someone who looks at their own face in a mirror, 
+Don't just listen to the message; do what it says, or you're fooling yourselves. 
+Anyone who hears the message but doesn't do it's like someone who looks at their own face in a mirror, 
 who sees themselves, walks away, and immediately forgets what they look like. 
 But the one who looks closely into the complete law of freedom and keeps at it, not forgetting what they heard, but doing it, that person will be flourishing in what they do. 
-If anyone thinks they are religious but doesn't keep a tight rein on their tongue, they are fooling themselves, and their religion is worthless. 
-Religion that is pure and without fault in the sight of our God and Father is this: to care for orphans and widows in their trouble, and to keep yourself clean from the world. 
+If anyone thinks they're religious but doesn't keep a tight rein on their tongue, they're fooling themselves, and their religion is worthless. 
+Religion that's pure and without fault in the sight of our God and Father is this: to care for orphans and widows in their trouble, and to keep yourself clean from the world. 

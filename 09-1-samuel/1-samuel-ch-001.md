@@ -8,21 +8,21 @@ So year by year, when she went up to God's house, her rival provoked her. So she
 Elkanah her husband said to her, "Hannah, why do you weep? Why don't you eat? Why is your heart grieved? Am I not better to you than ten sons?" 
 So Hannah rose up after they had finished eating and drinking in Shiloh. Now Eli the priest was sitting on his seat by the doorpost of God's temple. 
 She was in bitterness of soul, and prayed to God, weeping bitterly. 
-She vowed a vow, and said, "God of Armies, if you will indeed look at the affliction of your servant and remember me, and not forget your servant, but will give to your servant a boy, then I will give him to God all the days of his life, and no razor shall come on his head." 
+She vowed a vow, and said, "God of Armies, if you'll indeed look at the affliction of your servant and remember me, and not forget your servant, but will give to your servant a boy, then I'll give him to God all the days of his life, and no razor shall come on his head." 
 As she continued praying before God, Eli saw her mouth. 
 Now Hannah spoke in her heart. Only her lips moved, but her voice wasn't heard. So Eli thought she was drunk. 
 Eli said to her, "How long will you be drunk? Get rid of your wine!" 
-Hannah answered, "No, my lord, I am a woman of a sorrowful spirit. I haven't been drinking wine or strong drink, but I poured out my soul before God. 
+Hannah answered, "No, my lord, I'm a woman of a sorrowful spirit. I haven't been drinking wine or strong drink, but I poured out my soul before God. 
 Don't consider your servant a guilty woman; for I have been speaking out of the abundance of my complaint and my provocation." 
 Then Eli answered, "Go in peace; and may the God of Israel grant your petition that you have asked of him." 
 She said, "Let your servant find favor in your sight." So the woman went her way and ate; and her facial expression wasn't sad any more. 
 They rose up in the morning early and worshiped God, then returned and came to their house to Ramah. Then Elkanah knew Hannah his wife; and God remembered her. 
 When the time had come, Hannah conceived, and bore a son; and she named him Samuel, saying, "Because I have asked him of God." 
 The man Elkanah, and all his house, went up to offer to God the yearly sacrifice and his vow. 
-But Hannah didn't go up, for she said to her husband, "Not until the child is weaned; then I will bring him, that he may appear before God, and stay there for the eras." 
+But Hannah didn't go up, for she said to her husband, "Not until the child is weaned; then I'll bring him, that he may appear before God, and stay there for the eras." 
 Elkanah her husband said to her, "Do what seems good to you. Wait until you have weaned him; only may God establish his word." So the woman waited and nursed her son until she weaned him. 
 When she had weaned him, she took him up with her, with three bulls, and one ephah of meal, and a container of wine, and brought him to God's house in Shiloh. The child was young. 
 They killed the bull, and brought the child to Eli. 
-She said, "Oh, my lord, as your soul lives, my lord, I am the woman who stood by you here, praying to God. 
+She said, "Oh, my lord, as your soul lives, my lord, I'm the woman who stood by you here, praying to God. 
 I prayed for this child, and God has given me my petition which I asked of him. 
-So I have also given him to God. As long as he lives he is given to God." He worshiped God there. 
+So I have also given him to God. As long as he lives he's given to God." He worshiped God there. 

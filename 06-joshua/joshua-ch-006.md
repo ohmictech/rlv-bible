@@ -14,8 +14,8 @@ The seven priests bearing the seven trumpets of rams' horns in front of God's ar
 The second day they marched around the city once, and returned into the camp. They did this six days. 
 On the seventh day, they rose early at the dawning of the day, and marched around the city in the same way seven times. On this day only they marched around the city seven times. 
 At the seventh time, when the priests blew the trumpets, Joshua said to the people, "Shout, for God has given you the city! 
-The city shall be devoted, even it and all that is in it, to God. Only Rahab the prostitute shall live, she and everyone who is with her in the house, because she hid the messengers that we sent. 
-But as for you, only keep yourselves from what is devoted to destruction, lest when you have devoted it, you take of the devoted thing; so you would make the camp of Israel accursed and trouble it. 
+The city shall be devoted, even it and all that's in it, to God. Only Rahab the prostitute shall live, she and everyone who's with her in the house, because she hid the messengers that we sent. 
+But as for you, only keep yourselves from what's devoted to destruction, lest when you have devoted it, you take of the devoted thing; so you'd make the camp of Israel accursed and trouble it. 
 But all the silver, gold, and vessels of bronze and iron are holy to God. They shall come into God's treasury." 
 So the people shouted and the priests blew the trumpets. When the people heard the sound of the trumpet, the people shouted with a great shout, and the wall fell down flat, so that the people went up into the city, every man straight in front of him, and they took the city. 
 They utterly destroyed all that was in the city, both man and woman, both young and old, and ox, sheep, and donkey, with the edge of the sword. 
@@ -23,5 +23,5 @@ Joshua said to the two men who had spied out the land, "Go into the prostitute's
 The young men who were spies went in, and brought out Rahab with her father, her mother, her brothers, and all that she had. They also brought out all of her relatives, and they set them outside of the camp of Israel. 
 They burned the city with fire, and all that was in it. Only they put the silver, the gold, and the vessels of bronze and of iron into the treasury of God's house. 
 But Rahab the prostitute, her father's household, and all that she had, Joshua saved alive. She lives in the middle of Israel to this day, because she hid the messengers whom Joshua sent to spy out Jericho. 
-Joshua commanded them with an oath at that time, saying, "Cursed is the man before God who rises up and builds this city Jericho. With the loss of his firstborn he will lay its foundation, and with the loss of his youngest son he will set up its gates." 
+Joshua commanded them with an oath at that time, saying, "Cursed is the man before God who rises up and builds this city Jericho. With the loss of his firstborn he'll lay its foundation, and with the loss of his youngest son he'll set up its gates." 
 So God was with Joshua; and his fame was in all the land. 

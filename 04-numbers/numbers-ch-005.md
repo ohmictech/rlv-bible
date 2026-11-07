@@ -10,22 +10,22 @@ Every heave offering of all the holy things of the children of Israel, which the
 Every man's holy things shall be his; whatever any man gives the priest, it shall be his.'" 
 God spoke to Moses, saying, 
 "Speak to the children of Israel, and tell them: 'If any man's wife goes astray and is unfaithful to him, 
-and a man lies with her carnally, and it is hidden from the eyes of her husband and this is kept concealed, and she is defiled, there is no witness against her, and she isn't taken in the act; 
-and the spirit of jealousy comes on him, and he is jealous of his wife and she is defiled; or if the spirit of jealousy comes on him, and he is jealous of his wife and she isn't defiled; 
-then the man shall bring his wife to the priest, and shall bring her offering for her: one tenth of an ephah of barley meal. He shall pour no oil on it, nor put frankincense on it, for it is a meal offering of jealousy, a meal offering of memorial, bringing guilt to memory. 
+and a man lies with her carnally, and it's hidden from the eyes of her husband and this is kept concealed, and she's defiled, there's no witness against her, and she isn't taken in the act; 
+and the spirit of jealousy comes on him, and he's jealous of his wife and she's defiled; or if the spirit of jealousy comes on him, and he's jealous of his wife and she isn't defiled; 
+then the man shall bring his wife to the priest, and shall bring her offering for her: one tenth of an ephah of barley meal. He shall pour no oil on it, nor put frankincense on it, for it's a meal offering of jealousy, a meal offering of memorial, bringing guilt to memory. 
 The priest shall bring her near, and set her before God. 
-The priest shall take holy water in an earthen vessel; and the priest shall take some of the dust that is on the floor of the tabernacle and put it into the water. 
+The priest shall take holy water in an earthen vessel; and the priest shall take some of the dust that's on the floor of the tabernacle and put it into the water. 
 The priest shall set the woman before God, and let the hair of the woman's head go loose, and put the meal offering of memorial in her hands, which is the meal offering of jealousy. The priest shall have in his hand the water of bitterness that brings a curse. 
 The priest shall cause her to take an oath and shall tell the woman, "If no man has lain with you, and if you haven't gone aside to uncleanness, being under your husband's authority, be free from this water of bitterness that brings a curse. 
-But if you have gone astray, being under your husband's authority, and if you are defiled, and some man has lain with you besides your husband, " 
+But if you have gone astray, being under your husband's authority, and if you're defiled, and some man has lain with you besides your husband, " 
 then the priest shall cause the woman to swear with the oath of cursing, and the priest shall tell the woman, "May God make you a curse and an oath among your people, when God allows your thigh to fall away, and your body to swell; 
 and this water that brings a curse will go into your bowels, and make your body swell, and your thigh fall away." The woman shall say, "Amen, Amen." 
 "'The priest shall write these curses in a book, and he shall wipe them into the water of bitterness. 
 He shall make the woman drink the water of bitterness that causes the curse; and the water that causes the curse shall enter into her and become bitter. 
 The priest shall take the meal offering of jealousy out of the woman's hand, and shall wave the meal offering before God, and bring it to the altar. 
 The priest shall take a handful of the meal offering, as its memorial portion, and burn it on the altar, and afterward shall make the woman drink the water. 
-When he has made her drink the water, then it shall happen, if she is defiled and has committed a trespass against her husband, that the water that causes the curse will enter into her and become bitter, and her body will swell, and her thigh will fall away; and the woman will be a curse among her people. 
+When he has made her drink the water, then it shall happen, if she's defiled and has committed a trespass against her husband, that the water that causes the curse will enter into her and become bitter, and her body will swell, and her thigh will fall away; and the woman will be a curse among her people. 
 If the woman isn't defiled, but is clean; then she shall be free, and shall conceive offspring. 
 "'This is the law of jealousy, when a wife, being under her husband, goes astray, and is defiled, 
-or when the spirit of jealousy comes on a man, and he is jealous of his wife; then he shall set the woman before God, and the priest shall execute on her all this law. 
+or when the spirit of jealousy comes on a man, and he's jealous of his wife; then he shall set the woman before God, and the priest shall execute on her all this law. 
 The man shall be free from guilt, and that woman shall bear her guilt.'" 

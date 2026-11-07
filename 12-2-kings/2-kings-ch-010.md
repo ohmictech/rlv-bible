@@ -2,17 +2,17 @@
 "Now as soon as this letter comes to you, since your master's sons are with you, and you have chariots and horses, a fortified city also, and armor, 
 select the best and fittest of your master's sons, set him on his father's throne, and fight for your master's house." 
 But they were exceedingly afraid, and said, "Look, the two kings didn't stand before him! How then shall we stand?" 
-He who was over the household, and he who was over the city, the elders also, and those who raised the children, sent to Jehu, saying, "We are your servants, and will do all that you ask us. We won't make any man king. You do that which is good in your eyes." 
-Then he wrote a letter the second time to them, saying, "If you are on my side, and if you will listen to my voice, take the heads of the men who are your master's sons, and come to me to Jezreel by tomorrow this time." Now the king's sons, being seventy persons, were with the great men of the city, who brought them up. 
+He who was over the household, and he who was over the city, the elders also, and those who raised the children, sent to Jehu, saying, "We're your servants, and will do all that you ask us. We won't make any man king. You do that which is good in your eyes." 
+Then he wrote a letter the second time to them, saying, "If you're on my side, and if you'll listen to my voice, take the heads of the men who are your master's sons, and come to me to Jezreel by tomorrow this time." Now the king's sons, being seventy persons, were with the great men of the city, who brought them up. 
 When the letter came to them, they took the king's sons and killed them, even seventy people, and put their heads in baskets, and sent them to him to Jezreel. 
 A messenger came and told him, "They have brought the heads of the king's sons." He said, "Lay them in two heaps at the entrance of the gate until the morning." 
-In the morning, he went out and stood, and said to everyone, "You are righteous. Look, I conspired against my master and killed him, but who killed all these? 
+In the morning, he went out and stood, and said to everyone, "You're righteous. Look, I conspired against my master and killed him, but who killed all these? 
 Know now that nothing will fall to the earth of God's word, which God spoke concerning Ahab's house. God has done that which he spoke by his servant Elijah." 
 So Jehu struck all that remained of Ahab's house in Jezreel, with all his great men, his familiar friends, and his priests, until he left him no one remaining. 
 He arose and departed, and went to Samaria. As he was at the shearing house of the shepherds on the way, 
-Jehu met with the brothers of Ahaziah king of Judah, and said, "Who are you?" They answered, "We are the brothers of Ahaziah. We are going down to greet the children of the king and the children of the queen." 
+Jehu met with the brothers of Ahaziah king of Judah, and said, "Who are you?" They answered, "We're the brothers of Ahaziah. We're going down to greet the children of the king and the children of the queen." 
 He said, "Take them alive!" They took them alive, and killed them at the pit of the shearing house, even forty-two men. He didn't leave any of them. 
-When he had departed from there, he met Jehonadab the son of Rechab coming to meet him. He greeted him, and said to him, "Is your heart right, as my heart is with your heart?" Jehonadab answered, "It is." "If it is, give me your hand." He gave him his hand; and he took him up to him into the chariot. 
+When he had departed from there, he met Jehonadab the son of Rechab coming to meet him. He greeted him, and said to him, "Is your heart right, as my heart is with your heart?" Jehonadab answered, "It's." "If it's, give me your hand." He gave him his hand; and he took him up to him into the chariot. 
 He said, "Come with me, and see my passion for God." So they made him ride in his chariot. 
 When he came to Samaria, he struck everyone who remained to Ahab in Samaria, until he had destroyed them, according to God's word which he spoke to Elijah. 
 Jehu gathered everyone together, and said to them, "Ahab served Baal a little, but Jehu will serve him much. 

@@ -1,9 +1,9 @@
 ﻿Now trust is being sure of what we hope for, and being convinced of what we can't see. 
-That is how the people of old were approved. 
+That's how the people of old were approved. 
 By trust we understand that the universe was formed by God's word, so that what we see wasn't made out of things that can be seen. 
-By trust Abel offered God a better sacrifice than Cain did. Because of that, he was given witness that he was right, when God spoke well of his gifts; and through that trust, though he is dead, he still speaks. 
+By trust Abel offered God a better sacrifice than Cain did. Because of that, he was given witness that he was right, when God spoke well of his gifts; and through that trust, though he's dead, he still speaks. 
 By trust Enoch was taken up, so that he wouldn't see death, and he couldn't be found, because God had taken him. Before he was taken, he was given witness that he had pleased God. 
-And without trust it is impossible to please God, because anyone who comes to him must trust that he exists and that he rewards those who look for him. 
+And without trust it's impossible to please God, because anyone who comes to him must trust that he exists and that he rewards those who look for him. 
 By trust Noah, when he was warned about things he couldn't yet see, was moved by devotion to God and built a boat to rescue his household. By that trust he passed sentence on the world and became an heir of the rightness that comes from trust. 
 By trust Abraham, when he was called, obeyed and went out to a place he was going to receive as a charge handed down. He went out without knowing where he was going. 
 By trust he lived as a foreigner in the land of promise, as in a land that wasn't his own, living in tents with Isaac and Jacob, who were heirs with him of the same promise. 
@@ -11,8 +11,8 @@ He was looking for the city that has foundations, whose builder and maker is God
 By trust even Sarah herself was given the power to have a child, and she gave birth even though she was past the age, because she counted the one who promised trustworthy. 
 And so from one man, and him as good as dead, came descendants as many as the stars in the sky and as countless as the sand on the seashore. 
 All these died in trust. They didn't receive what was promised, but they saw it from far off and welcomed it, and they admitted that they were strangers and travelers on the earth. 
-People who talk like that make it clear that they are looking for a homeland. 
-If they had been thinking about the country they left, they would have had time to go back. 
+People who talk like that make it clear that they're looking for a homeland. 
+If they had been thinking about the country they left, they'd have had time to go back. 
 But they were looking for a better country, a country in the sky. So God isn't ashamed to be called their God, because he has prepared a city for them. 
 By trust Abraham, when he was tested, offered up Isaac. He who had received the promises was offering up his only son, 
 the one about whom it was said, "Your offspring will be counted through Isaac," 

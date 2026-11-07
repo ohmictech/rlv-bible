@@ -1,7 +1,7 @@
 ﻿Israel traveled with all that he had, and came to Beersheba, and offered sacrifices to the God of his father, Isaac. 
-God spoke to Israel in the visions of the night, and said, "Jacob, Jacob!" He said, "Here I am." 
-He said, "I am the God of your father. Don't be afraid to go down into Egypt, for there I will make of you a great nation. 
-I will go down with you into Egypt. I will also surely bring you up again. Joseph's hand will close your eyes." 
+God spoke to Israel in the visions of the night, and said, "Jacob, Jacob!" He said, "Here I'm." 
+He said, "I'm the God of your father. Don't be afraid to go down into Egypt, for there I'll make of you a great nation. 
+I'll go down with you into Egypt. I'll also surely bring you up again. Joseph's hand will close your eyes." 
 Jacob rose up from Beersheba, and the sons of Israel carried Jacob, their father, their little ones, and their wives, in the wagons which Pharaoh had sent to carry him. 
 They took their livestock, and their goods, which they had gotten in the land of Canaan, and came into Egypt, Jacob, and all his offspring with him, 
 his sons, and his sons' sons with him, his daughters, and his sons' daughters, and he brought all his offspring with him into Egypt. 
@@ -27,8 +27,8 @@ All the souls who came with Jacob into Egypt, who were his direct offspring, in 
 The sons of Joseph, who were born to him in Egypt, were two souls. All the souls of the house of Jacob, who came into Egypt, were seventy. 
 Jacob sent Judah before him to Joseph, to show the way before him to Goshen, and they came into the land of Goshen. 
 Joseph prepared his chariot, and went up to meet Israel, his father, in Goshen. He presented himself to him, and fell on his neck, and wept on his neck a good while. 
-Israel said to Joseph, "Now let me die, since I have seen your face, that you are still alive." 
-Joseph said to his brothers, and to his father's house, "I will go up, and speak with Pharaoh, and will tell him, 'My brothers, and my father's house, who were in the land of Canaan, have come to me. 
+Israel said to Joseph, "Now let me die, since I have seen your face, that you're still alive." 
+Joseph said to his brothers, and to his father's house, "I'll go up, and speak with Pharaoh, and will tell him, 'My brothers, and my father's house, who were in the land of Canaan, have come to me. 
 These men are shepherds, for they have been keepers of livestock, and they have brought their flocks, and their herds, and all that they have.' 
-It will happen, when Pharaoh summons you, and will say, 'What is your occupation?' 
+It'll happen, when Pharaoh summons you, and will say, 'What's your occupation?' 
 that you shall say, 'Your servants have been keepers of livestock from our youth even until now, both we, and our fathers:' that you may dwell in the land of Goshen; for every shepherd is an abomination to the Egyptians." 

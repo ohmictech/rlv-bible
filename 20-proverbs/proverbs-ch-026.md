@@ -9,10 +9,10 @@ As one who binds a stone in a sling, so is he who gives honor to a fool.
 Like a thorn bush that goes into the hand of a drunkard, so is a parable in the mouth of fools. 
 As an archer who wounds all, so is he who hires a fool or he who hires those who pass by. 
 As a dog that returns to his vomit, so is a fool who repeats his folly. 
-Do you see a man wise in his own eyes? There is more hope for a fool than for him. 
-The sluggard says, "There is a lion in the road! A fierce lion roams the streets!" 
+Do you see a man wise in his own eyes? There's more hope for a fool than for him. 
+The sluggard says, "There's a lion in the road! A fierce lion roams the streets!" 
 As the door turns on its hinges, so does the sluggard on his bed. 
-The sluggard buries his hand in the dish. He is too lazy to bring it back to his mouth. 
+The sluggard buries his hand in the dish. He's too lazy to bring it back to his mouth. 
 The sluggard is wiser in his own eyes than seven men who answer with discretion. 
 Like one who grabs a dog's ears is one who passes by and meddles in a quarrel not his own. 
 Like a madman who shoots torches, arrows, and death, 
@@ -24,5 +24,5 @@ Like silver dross on an earthen vessel are the lips of a fervent one with an bad
 A malicious man disguises himself with his lips, but he harbors bad in his heart. 
 When his speech is charming, don't believe him, for there are seven abominations in his heart. 
 His malice may be concealed by deception, but his guilt will be exposed in the assembly. 
-Whoever digs a pit shall fall into it. Whoever rolls a stone, it will come back on him. 
+Whoever digs a pit shall fall into it. Whoever rolls a stone, it'll come back on him. 
 A lying tongue hates those it hurts; and a flattering mouth works ruin. 

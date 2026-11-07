@@ -21,8 +21,8 @@ and concerning the ten horns that were on its head and the other horn which came
 I saw, and the same horn made war with the saints, and prevailed against them, 
 until the Ancient of Days came, and judgment was given to the saints of the Most High, and the time came that the saints possessed the kingdom. 
 "So he said, 'The fourth animal will be a fourth kingdom on earth, which will be different from all the kingdoms, and will devour the whole earth, and will tread it down and break it in pieces. 
-As for the ten horns, ten kings will arise out of this kingdom. Another will arise after them; and he will be different from the former, and he will put down three kings. 
-He will speak words against the Most High, and will wear out the saints of the Most High. He will plan to change the times and the law; and they will be given into his hand until a time and times and half a time. 
-"'But the judgment will be set, and they will take away his dominion, to consume and to destroy it to the end. 
+As for the ten horns, ten kings will arise out of this kingdom. Another will arise after them; and he'll be different from the former, and he'll put down three kings. 
+He'll speak words against the Most High, and will wear out the saints of the Most High. He'll plan to change the times and the law; and they'll be given into his hand until a time and times and half a time. 
+"'But the judgment will be set, and they'll take away his dominion, to consume and to destroy it to the end. 
 The kingdom and the dominion, and the greatness of the kingdoms under the whole sky, will be given to the people of the saints of the Most High. His kingdom is an perpetual kingdom, and all dominions will serve and obey him.' 
-"Here is the end of the matter. As for me, Daniel, my thoughts troubled me greatly, and my face was changed in me; but I kept the matter in my heart." 
+"Here's the end of the matter. As for me, Daniel, my thoughts troubled me greatly, and my face was changed in me; but I kept the matter in my heart." 

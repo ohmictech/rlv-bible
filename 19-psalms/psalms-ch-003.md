@@ -1,5 +1,5 @@
 ﻿A Psalm by David, when he fled from Absalom his son. God, how my adversaries have increased! Many are those who rise up against me. 
-Many there are who say of my soul, "There is no help for him in God." Selah. 
+Many there are who say of my soul, "There's no help for him in God." Selah. 
 But you, God, are a shield around me, my glory, and the one who lifts up my head. 
 I cry to God with my voice, and he answers me out of his holy hill. Selah. 
 I laid myself down and slept. I awakened, for God sustains me. 

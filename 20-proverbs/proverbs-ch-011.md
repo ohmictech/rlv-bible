@@ -7,25 +7,25 @@ The righteousness of the upright shall deliver them, but the unfaithful will be 
 When a guilty man dies, hope perishes, and expectation of power comes to nothing. 
 A righteous person is delivered out of trouble, and the guilty takes his place. 
 With his mouth the godless man destroys his neighbor, but the righteous will be delivered through knowledge. 
-When it goes well with the righteous, the city rejoices. When the guilty perish, there is shouting. 
-By the blessing of the upright, the city is exalted, but it is overthrown by the mouth of the guilty. 
+When it goes well with the righteous, the city rejoices. When the guilty perish, there's shouting. 
+By the blessing of the upright, the city is exalted, but it's overthrown by the mouth of the guilty. 
 One who despises his neighbor is void of wisdom, but a man of understanding holds his peace. 
-One who brings gossip betrays a confidence, but one who is of a trustworthy spirit is one who keeps a secret. 
-Where there is no wise guidance, the nation falls, but in the multitude of counselors there is victory. 
-He who is collateral for a stranger will suffer for it, but he who refuses pledges of collateral is secure. 
+One who brings gossip betrays a confidence, but one who's of a trustworthy spirit is one who keeps a secret. 
+Where there's no wise guidance, the nation falls, but in the multitude of counselors there's victory. 
+He who's collateral for a stranger will suffer for it, but he who refuses pledges of collateral is secure. 
 A gracious woman obtains honor, but violent men obtain riches. 
-The merciful man does good to his own soul, but he who is cruel troubles his own flesh. 
+The merciful man does good to his own soul, but he who's cruel troubles his own flesh. 
 Wicked people earn deceitful wages, but one who sows righteousness reaps a sure reward. 
-He who is truly righteous gets life. He who pursues bad gets death. 
+He who's truly righteous gets life. He who pursues bad gets death. 
 Those who are perverse in heart are an abomination to God, but those whose ways are blameless are his delight. 
 Most certainly, the bad man won't be unpunished, but the offspring of the righteous will be delivered. 
 Like a gold ring in a pig's snout, is a beautiful woman who lacks discretion. 
 The desire of the righteous is only good. The expectation of the guilty is wrath. 
-There is one who scatters, and increases yet more. There is one who withholds more than is appropriate, but gains poverty. 
+There's one who scatters, and increases yet more. There's one who withholds more than is appropriate, but gains poverty. 
 The liberal soul shall be made fat. He who waters shall be watered also himself. 
 People curse someone who withholds grain, but blessing will be on the head of him who sells it. 
 He who diligently seeks good seeks favor, but he who searches after bad, it shall come to him. 
 He who trusts in his riches will fall, but the righteous shall flourish as the green leaf. 
 He who troubles his own house shall inherit the wind. The foolish shall be servant to the wise of heart. 
-The fruit of the righteous is a tree of life. He who is wise wins souls. 
+The fruit of the righteous is a tree of life. He who's wise wins souls. 
 Look, the righteous shall be repaid on the earth, how much more the guilty and the one who drifts! 

@@ -15,11 +15,11 @@ Mishma, Dumah, Massa,
 Hadad, Tema, Jetur, Naphish, and Kedemah. 
 These are the sons of Ishmael, and these are their names, by their villages, and by their encampments: twelve princes, according to their nations. 
 These are the years of the life of Ishmael: one hundred thirty-seven years. He gave up his spirit and died, and was gathered to his people. 
-They lived from Havilah to Shur that is before Egypt, as you go toward Assyria. He lived opposite all his relatives. 
+They lived from Havilah to Shur that's before Egypt, as you go toward Assyria. He lived opposite all his relatives. 
 This is the history of the generations of Isaac, Abraham's son. Abraham became the father of Isaac. 
 Isaac was forty years old when he took Rebekah, the daughter of Bethuel the Syrian of Paddan Aram, the sister of Laban the Syrian, to be his wife. 
 Isaac entreated God for his wife, because she was barren. God was entreated by him, and Rebekah his wife conceived. 
-The children struggled together within her. She said, "If it is like this, why do I live?" She went to inquire of God. 
+The children struggled together within her. She said, "If it's like this, why do I live?" She went to inquire of God. 
 God said to her, "Two nations are in your womb. Two peoples will be separated from your body. The one people will be stronger than the other people. The elder will serve the younger." 
 When her days to be delivered were fulfilled, look, there were twins in her womb. 
 The first came out red all over, like a hairy garment. They named him Esau. 
@@ -27,8 +27,8 @@ After that, his brother came out, and his hand had hold on Esau's heel. He was n
 The boys grew. Esau was a skillful hunter, a man of the field. Jacob was a quiet man, living in tents. 
 Now Isaac loved Esau, because he ate his venison. Rebekah loved Jacob. 
 Jacob boiled stew. Esau came in from the field, and he was famished. 
-Esau said to Jacob, "Please feed me with some of that red stew, for I am famished." Therefore his name was called Edom. 
+Esau said to Jacob, "Please feed me with some of that red stew, for I'm famished." Therefore his name was called Edom. 
 Jacob said, "First, sell me your birthright." 
-Esau said, "Look, I am about to die. What good is the birthright to me?" 
+Esau said, "Look, I'm about to die. What good is the birthright to me?" 
 Jacob said, "Swear to me first." He swore to him. He sold his birthright to Jacob. 
 Jacob gave Esau bread and lentil stew. He ate and drank, rose up, and went his way. So Esau despised his birthright. 

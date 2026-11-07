@@ -8,7 +8,7 @@ He said to Judah, "Let's build these cities and make walls around them, with tow
 Asa had an army of three hundred thousand out of Judah who bore bucklers and spears, and two hundred eighty thousand out of Benjamin who bore shields and drew bows. All these were mighty men of valor. 
 Zerah the Ethiopian came out against them with an army of a million troops and three hundred chariots, and he came to Mareshah. 
 Then Asa went out to meet him, and they set the battle in array in the valley of Zephathah at Mareshah. 
-Asa cried to his God, and said, "God, there is no one besides you to help, between the mighty and him who has no strength. Help us, God our God; for we rely on you, and in your name we have come against this multitude. God, you are our God. Don't let man prevail against you." 
+Asa cried to his God, and said, "God, there's no one besides you to help, between the mighty and him who has no strength. Help us, God our God; for we rely on you, and in your name we have come against this multitude. God, you're our God. Don't let man prevail against you." 
 So God struck the Ethiopians before Asa and before Judah; and the Ethiopians fled. 
 Asa and the people who were with him pursued them to Gerar. So many of the Ethiopians fell that they couldn't recover themselves, for they were destroyed before God and before his army. Judah's army carried away very much booty. 
 They struck all the cities around Gerar, for the fear of God came on them. They plundered all the cities, for there was much plunder in them. 

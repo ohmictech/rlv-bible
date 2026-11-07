@@ -10,9 +10,9 @@ then he shall offer with the bull a meal offering of three tenths of an ephah of
 and you shall offer for the drink offering half a hin of wine, for an offering made by fire, of a pleasant aroma to God. 
 Thus it shall be done for each bull, for each ram, for each of the male lambs, or of the young goats. 
 According to the number that you shall prepare, so you shall do to everyone according to their number. 
-"'Everyone who is native-born shall do these things in this way, in offering an offering made by fire, of a pleasant aroma to God. 
+"'Everyone who's native-born shall do these things in this way, in offering an offering made by fire, of a pleasant aroma to God. 
 If a stranger lives as a foreigner with you, or whoever may be among you throughout your generations, and will offer an offering made by fire, of a pleasant aroma to God, as you do, so he shall do. 
-The assembly, there shall be one statute for you and for the stranger who lives as a foreigner, a statute for the eras throughout your generations. As you are, so the foreigner shall be before God. 
+The assembly, there shall be one statute for you and for the stranger who lives as a foreigner, a statute for the eras throughout your generations. As you're, so the foreigner shall be before God. 
 One law and one ordinance shall be for you and for the stranger who lives as a foreigner with you.'" 
 God spoke to Moses, saying, 
 "Speak to the children of Israel, and tell them, 'When you come into the land where I bring you, 
@@ -26,8 +26,8 @@ The priest shall make things right for all the congregation of the children of I
 All the congregation of the children of Israel shall be forgiven, as well as the stranger who lives as a foreigner among them; for with regard to everyone, it was done unwittingly. 
 "'If a a person drifts unwittingly, then he shall offer a female goat a year old for an offering for wrongdoing. 
 The priest shall make things right for the soul who errs when he drifts unwittingly before God. He shall make things right for him; and he shall be forgiven. 
-You shall have one law for him who does anything unwittingly, for him who is native-born among the children of Israel, and for the stranger who lives as a foreigner among them. 
-"'But the soul who does anything defiantly, whether he is native-born or a foreigner, blasphemes God. That soul shall be cut off from among his people. 
+You shall have one law for him who does anything unwittingly, for him who's native-born among the children of Israel, and for the stranger who lives as a foreigner among them. 
+"'But the soul who does anything defiantly, whether he's native-born or a foreigner, blasphemes God. That soul shall be cut off from among his people. 
 Because he has despised God's word, and has broken his commandment, that soul shall be utterly cut off. His guilt shall be on him.'" 
 While the children of Israel were in the wilderness, they found a man gathering sticks on the Sabbath day. 
 Those who found him gathering sticks brought him to Moses and Aaron, and to all the congregation. 
@@ -38,4 +38,4 @@ God spoke to Moses, saying,
 "Speak to the children of Israel, and tell them that they should make themselves fringes on the borders of their garments throughout their generations, and that they put on the fringe of each border a cord of blue. 
 It shall be to you for a fringe, that you may see it, and remember all God's commandments, and do them; and that you don't follow your own heart and your own eyes, after which you used to play the prostitute; 
 so that you may remember and do all my commandments, and be holy to your God. 
-I am your God, who brought you out of the land of Egypt, to be your God: I am your God." 
+I'm your God, who brought you out of the land of Egypt, to be your God: I'm your God." 

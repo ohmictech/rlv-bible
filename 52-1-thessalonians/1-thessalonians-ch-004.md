@@ -14,5 +14,5 @@ Brothers and sisters, we don't want you to be uninformed about those who have fa
 Since we trust that Jesus died and rose again, we also trust that God will bring with him those who have fallen asleep in Jesus. 
 What we tell you now is the Lord's own word: we who are alive, who are left until the Lord's arrival, will certainly not go ahead of those who have fallen asleep. 
 The Lord himself will come down from the sky with a command shouted out, with the voice of the chief messenger and with God's trumpet, and the dead in Christ will be raised first, 
-then we who are alive, who are left, will be caught up together with them in the clouds to meet the Lord in the air. And so we will be with the Lord for the eras. 
+then we who are alive, who are left, will be caught up together with them in the clouds to meet the Lord in the air. And so we'll be with the Lord for the eras. 
 So encourage one another with these words. 

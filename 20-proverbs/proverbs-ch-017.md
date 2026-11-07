@@ -2,7 +2,7 @@
 A servant who deals wisely will rule over a son who causes shame, and shall have a part in the inheritance among the brothers. 
 The refining pot is for silver, and the furnace for gold, but God tests the hearts. 
 An one who does bad heeds guilty lips. A liar gives ear to a mischievous tongue. 
-Whoever mocks the poor reproaches his Maker. He who is glad at calamity shall not be unpunished. 
+Whoever mocks the poor reproaches his Maker. He who's glad at calamity shall not be unpunished. 
 Children's children are the crown of old men; the glory of children is their parents. 
 Excellent speech isn't fitting for a fool, much less do lying lips fit a prince. 
 A bribe is a precious stone in the eyes of him who gives it; wherever he turns, he prospers. 
@@ -24,5 +24,5 @@ A guilty man receives a bribe in secret, to pervert the ways of justice.
 Wisdom is before the face of one who has understanding, but the eyes of a fool wander to the ends of the earth. 
 A foolish son brings grief to his father, and bitterness to her who bore him. 
 Also to punish the righteous isn't good, nor to flog officials for their integrity. 
-He who spares his words has knowledge. He who is even tempered is a man of understanding. 
-Even a fool, when he keeps silent, is counted wise. When he shuts his lips, he is thought to be discerning. 
+He who spares his words has knowledge. He who's even tempered is a man of understanding. 
+Even a fool, when he keeps silent, is counted wise. When he shuts his lips, he's thought to be discerning. 

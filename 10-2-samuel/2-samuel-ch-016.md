@@ -1,11 +1,11 @@
 ﻿When David was a little past the top, look, Ziba the servant of Mephibosheth met him with a couple of donkeys saddled, and on them two hundred loaves of bread, and one hundred clusters of raisins, and one hundred summer fruits, and a container of wine. 
 The king said to Ziba, "What do you mean by these?" Ziba said, "The donkeys are for the king's household to ride on; and the bread and summer fruit for the young men to eat; and the wine, that those who are faint in the wilderness may drink." 
-The king said, "Where is your master's son?" Ziba said to the king, "Look, he is staying in Jerusalem; for he said, 'Today the house of Israel will restore me the kingdom of my father.'" 
+The king said, "Where is your master's son?" Ziba said to the king, "Look, he's staying in Jerusalem; for he said, 'Today the house of Israel will restore me the kingdom of my father.'" 
 Then the king said to Ziba, "Look, all that belongs to Mephibosheth is yours." Ziba said, "I bow down. Let me find favor in your sight, my lord, O king." 
 When King David came to Bahurim, look, a man of the family of Saul's house came out, whose name was Shimei, the son of Gera. He came out and cursed as he came. 
 He cast stones at David and at all the servants of King David, and everyone and all the mighty men were on his right hand and on his left. 
 Shimei said when he cursed, "Be gone, be gone, you man of blood, and guilty fellow! 
-God has returned on you all the blood of Saul's house, in whose place you have reigned! God has delivered the kingdom into the hand of Absalom your son! Look, you are caught by your own mischief, because you are a man of blood!" 
+God has returned on you all the blood of Saul's house, in whose place you have reigned! God has delivered the kingdom into the hand of Absalom your son! Look, you're caught by your own mischief, because you're a man of blood!" 
 Then Abishai the son of Zeruiah said to the king, "Why should this dead dog curse my lord the king? Please let me go over and take off his head." 
 The king said, "What have I to do with you, you sons of Zeruiah? Because he curses, and because God has said to him, 'Curse David,' who then shall say, 'Why have you done so?'" 
 David said to Abishai and to all his servants, "Look, my son, who came out of my bowels, seeks my life. How much more this Benjamite, now? Leave him alone, and let him curse; for God has invited him. 
@@ -15,9 +15,9 @@ The king and everyone who was with him arrived weary; and he refreshed himself t
 Absalom and everyone, the men of Israel, came to Jerusalem, and Ahithophel with him. 
 When Hushai the Archite, David's friend, had come to Absalom, Hushai said to Absalom, "Long live the king! Long live the king!" 
 Absalom said to Hushai, "Is this your kindness to your friend? Why didn't you go with your friend?" 
-Hushai said to Absalom, "No; but whomever God and this people and all the men of Israel have chosen, I will be his, and I will stay with him. 
-Again, whom should I serve? Shouldn't I serve in the presence of his son? As I have served in your father's presence, so I will be in your presence." 
+Hushai said to Absalom, "No; but whomever God and this people and all the men of Israel have chosen, I'll be his, and I'll stay with him. 
+Again, whom should I serve? Shouldn't I serve in the presence of his son? As I have served in your father's presence, so I'll be in your presence." 
 Then Absalom said to Ahithophel, "Give your counsel what we shall do." 
-Ahithophel said to Absalom, "Go in to your father's concubines that he has left to keep the house. Then all Israel will hear that you are abhorred by your father. Then the hands of everyone who is with you will be strong." 
+Ahithophel said to Absalom, "Go in to your father's concubines that he has left to keep the house. Then all Israel will hear that you're abhorred by your father. Then the hands of everyone who's with you'll be strong." 
 So they spread a tent for Absalom on the top of the house, and Absalom went in to his father's concubines in the sight of all Israel. 
 The counsel of Ahithophel, which he gave in those days, was as if a man inquired at the inner sanctuary of God. All the counsel of Ahithophel was like this both with David and with Absalom. 

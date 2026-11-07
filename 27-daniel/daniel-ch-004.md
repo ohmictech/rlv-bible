@@ -14,24 +14,24 @@ Its leaves were beautiful, and it had much fruit, and in it was food for all. Th
 He cried aloud and said this: 'Cut down the tree, and cut off its branches! Shake off its leaves and scatter its fruit! Let the animals get away from under it and the birds from its branches. 
 Nevertheless leave the stump of its roots in the earth, even with a band of iron and bronze, in the tender grass of the field; and let it be wet with the dew of the sky. Let his portion be with the animals in the grass of the earth. 
 Let his heart be changed from man's, and let an animal's heart be given to him. Then let seven times pass over him. 
-"'The sentence is by the decree of the watchers and the demand by the word of the holy ones, to the intent that the living may know that the Most High rules in the kingdom of men, and gives it to whomever he will, and sets up over it the lowest of men.' 
-"This dream I, King Nebuchadnezzar, have seen; and you, Belteshazzar, declare the interpretation, because all the wise men of my kingdom aren't able to make known to me the interpretation; but you are able, for the spirit of the holy gods is in you." 
+"'The sentence is by the decree of the watchers and the demand by the word of the holy ones, to the intent that the living may know that the Most High rules in the kingdom of men, and gives it to whomever he'll, and sets up over it the lowest of men.' 
+"This dream I, King Nebuchadnezzar, have seen; and you, Belteshazzar, declare the interpretation, because all the wise men of my kingdom aren't able to make known to me the interpretation; but you're able, for the spirit of the holy gods is in you." 
 Then Daniel, whose name was Belteshazzar, was stricken mute for a while, and his thoughts troubled him. The king answered, "Belteshazzar, don't let the dream or the interpretation trouble you." Belteshazzar answered, "My lord, may the dream be for those who hate you, and its interpretation to your adversaries. 
 The tree that you saw, which grew and was strong, whose height reached to the sky and its sight to all the earth; 
 whose leaves were beautiful and its fruit plentiful, and in it was food for all; under which the animals of the field lived, and on whose branches the birds of the sky had their habitation 
-it is you, O king, that have grown and become strong; for your greatness has grown, and reaches to the sky, and your dominion to the end of the earth. 
+it's you, O king, that have grown and become strong; for your greatness has grown, and reaches to the sky, and your dominion to the end of the earth. 
 "Whereas the king saw a holy watcher coming down from the sky and saying, 'Cut down the tree, and destroy it; nevertheless leave the stump of its roots in the earth, even with a band of iron and bronze, in the tender grass of the field, and let it be wet with the dew of the sky. Let his portion be with the animals of the field, until seven times pass over him.' 
-"This is the interpretation, O king, and it is the decree of the Most High, which has come on my lord the king: 
-You will be driven from men and your dwelling shall be with the animals of the field. You will be made to eat grass as oxen, and will be wet with the dew of the sky, and seven times shall pass over you, until you know that the Most High rules in the kingdom of men, and gives it to whomever he will. 
+"This is the interpretation, O king, and it's the decree of the Most High, which has come on my lord the king: 
+You'll be driven from men and your dwelling shall be with the animals of the field. You'll be made to eat grass as oxen, and will be wet with the dew of the sky, and seven times shall pass over you, until you know that the Most High rules in the kingdom of men, and gives it to whomever he'll. 
 Whereas it was commanded to leave the stump of the roots of the tree, your kingdom will be restored to you after you learn that Sky rules. 
 So, O king, let my counsel be acceptable to you, and break off your mistakes by righteousness, and your guilt by showing mercy to the poor. Perhaps there may be a lengthening of your tranquility." 
 All this came on the King Nebuchadnezzar. 
 At the end of twelve months he was walking in the royal palace of Babylon. 
 The king spoke and said, "Isn't this great Babylon, which I have built for the royal dwelling place by the might of my power and for the glory of my majesty?" 
-While the word was in the king's mouth, a voice came from the sky, saying, "O King Nebuchadnezzar, to you it is spoken: 'The kingdom has departed from you. 
-You shall be driven from men, and your dwelling shall be with the animals of the field. You shall be made to eat grass like oxen. Seven times shall pass over you, until you know that the Most High rules in the kingdom of men, and gives it to whomever he will.'" 
+While the word was in the king's mouth, a voice came from the sky, saying, "O King Nebuchadnezzar, to you it's spoken: 'The kingdom has departed from you. 
+You shall be driven from men, and your dwelling shall be with the animals of the field. You shall be made to eat grass like oxen. Seven times shall pass over you, until you know that the Most High rules in the kingdom of men, and gives it to whomever he'll.'" 
 This was fulfilled the same hour on Nebuchadnezzar. He was driven from men and ate grass like oxen; and his body was wet with the dew of the sky until his hair had grown like eagles' feathers, and his nails like birds' claws. 
 At the end of the days I, Nebuchadnezzar, lifted up my eyes to the sky, and my understanding returned to me; and I blessed the Most High, and I praised and honored him who lives for the eras, for his dominion is an perpetual dominion, and his kingdom from generation to generation. 
 All the inhabitants of the earth are reputed as nothing; and he does according to his will in the army of the sky, and among the inhabitants of the earth; and no one can stop his hand, or ask him, "What are you doing?" 
 At the same time my understanding returned to me; and for the glory of my kingdom, my majesty and brightness returned to me. My counselors and my lords sought me; and I was established in my kingdom, and excellent greatness was added to me. 
-Now I, Nebuchadnezzar, praise and extol and honor the King of the sky; for all his works are truth, and his ways justice; and those who walk in pride he is able to abase. 
+Now I, Nebuchadnezzar, praise and extol and honor the King of the sky; for all his works are truth, and his ways justice; and those who walk in pride he's able to abase. 

@@ -14,9 +14,9 @@ Joash slept with his fathers; and Jeroboam sat on his throne. Joash was buried i
 Now Elisha became sick with the illness of which he died; and Joash the king of Israel came down to him, and wept over him, and said, "My father, my father, the chariots of Israel and its horsemen!" 
 Elisha said to him, "Take bow and arrows;" and he took bow and arrows for himself. 
 He said to the king of Israel, "Put your hand on the bow;" and he put his hand on it. Elisha laid his hands on the king's hands. 
-He said, "Open the window eastward;" and he opened it. Then Elisha said, "Shoot!" and he shot. He said, "God's arrow of victory, even the arrow of victory over Syria; for you will strike the Syrians in Aphek until you have consumed them." 
+He said, "Open the window eastward;" and he opened it. Then Elisha said, "Shoot!" and he shot. He said, "God's arrow of victory, even the arrow of victory over Syria; for you'll strike the Syrians in Aphek until you have consumed them." 
 He said, "Take the arrows;" and he took them. He said to the king of Israel, "Strike the ground;" and he struck three times, and stopped. 
-The man of God was angry with him, and said, "You should have struck five or six times. Then you would have struck Syria until you had consumed it, but now you will strike Syria just three times." 
+The man of God was angry with him, and said, "You should have struck five or six times. Then you'd have struck Syria until you had consumed it, but now you'll strike Syria just three times." 
 Elisha died, and they buried him. Now the bands of the Moabites invaded the land at the coming in of the year. 
 As they were burying a man, look, they saw a band of raiders; and they threw the man into Elisha's tomb. As soon as the man touched Elisha's bones, he revived, and stood up on his feet. 
 Hazael king of Syria oppressed Israel all the days of Jehoahaz. 

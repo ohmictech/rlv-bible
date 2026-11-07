@@ -1,4 +1,4 @@
-﻿Now Elisha had spoken to the woman whose son he had restored to life, saying, "Arise, and go, you and your household, and stay for a while wherever you can; for God has called for a famine. It will also come on the land for seven years." 
+﻿Now Elisha had spoken to the woman whose son he had restored to life, saying, "Arise, and go, you and your household, and stay for a while wherever you can; for God has called for a famine. It'll also come on the land for seven years." 
 The woman arose, and did according to the man of God's word. She went with her household, and lived in the land of the Philistines for seven years. 
 At the end of seven years, the woman returned from the land of the Philistines. Then she went out to beg the king for her house and for her land. 
 Now the king was talking with Gehazi the servant of the man of God, saying, "Please tell me all the great things that Elisha has done." 
@@ -7,11 +7,11 @@ When the king asked the woman, she told him. So the king appointed to her a cert
 Elisha came to Damascus; and Benhadad the king of Syria was sick. He was told, "The man of God has come here." 
 The king said to Hazael, "Take a present in your hand, and go meet the man of God, and inquire of God by him, saying, 'Will I recover from this sickness?'" 
 So Hazael went to meet him and took a present with him, even of every good thing of Damascus, forty camels' burden, and came and stood before him and said, "Your son Benhadad king of Syria has sent me to you, saying, 'Will I recover from this sickness?'" 
-Elisha said to him, "Go, tell him, 'You will surely recover;' however God has shown me that he will surely die." 
+Elisha said to him, "Go, tell him, 'You'll surely recover;' however God has shown me that he'll surely die." 
 He settled his gaze steadfastly on him, until he was ashamed. Then the man of God wept. 
-Hazael said, "Why do you weep, my lord?" He answered, "Because I know the bad that you will do to the children of Israel. You will set their strongholds on fire, and you will kill their young men with the sword, and will dash their little ones in pieces, and rip up their pregnant women." 
-Hazael said, "But what is your servant, who is but a dog, that he could do this great thing?" Elisha answered, "God has shown me that you will be king over Syria." 
-Then he departed from Elisha, and came to his master, who said to him, "What did Elisha say to you?" He answered, "He told me that you would surely recover." 
+Hazael said, "Why do you weep, my lord?" He answered, "Because I know the bad that you'll do to the children of Israel. You'll set their strongholds on fire, and you'll kill their young men with the sword, and will dash their little ones in pieces, and rip up their pregnant women." 
+Hazael said, "But what's your servant, who's but a dog, that he could do this great thing?" Elisha answered, "God has shown me that you'll be king over Syria." 
+Then he departed from Elisha, and came to his master, who said to him, "What did Elisha say to you?" He answered, "He told me that you'd surely recover." 
 On the next day, he took a thick cloth, dipped it in water, and spread it on the king's face, so that he died. Then Hazael reigned in his place. 
 In the fifth year of Joram the son of Ahab king of Israel, Jehoshaphat being king of Judah then, Jehoram the son of Jehoshaphat king of Judah began to reign. 
 He was thirty-two years old when he began to reign. He reigned eight years in Jerusalem. 

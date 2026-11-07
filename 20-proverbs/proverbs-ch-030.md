@@ -1,17 +1,17 @@
 ﻿The words of Agur the son of Jakeh, the revelation: the man says to Ithiel, to Ithiel and Ucal: 
-"Surely I am the most ignorant man, and don't have a man's understanding. 
+"Surely I'm the most ignorant man, and don't have a man's understanding. 
 I haven't learned wisdom, neither do I have the knowledge of the Holy One. 
-Who has ascended up into the sky, and descended? Who has gathered the wind in his fists? Who has bound the waters in his garment? Who has established all the ends of the earth? What is his name, and what is his son's name, if you know? 
-"Every word of God is flawless. He is a shield to those who take refuge in him. 
+Who has ascended up into the sky, and descended? Who has gathered the wind in his fists? Who has bound the waters in his garment? Who has established all the ends of the earth? What's his name, and what's his son's name, if you know? 
+"Every word of God is flawless. He's a shield to those who take refuge in him. 
 Don't you add to his words, lest he reprove you, and you be found a liar. 
 "Two things I have asked of you. Don't deny me before I die. 
-Remove far from me falsehood and lies. Give me neither poverty nor riches. Feed me with the food that is needful for me, 
-lest I be full, deny you, and say, 'Who is God?' or lest I be poor, and steal, and so dishonor the name of my God. 
+Remove far from me falsehood and lies. Give me neither poverty nor riches. Feed me with the food that's needful for me, 
+lest I be full, deny you, and say, 'Who's God?' or lest I be poor, and steal, and so dishonor the name of my God. 
 "Don't slander a servant to his master, lest he curse you, and you be held guilty. 
-There is a generation that curses their father, and doesn't bless their mother. 
-There is a generation that is pure in their own eyes, yet aren't washed from their filthiness. 
-There is a generation, oh how lofty are their eyes! Their eyelids are lifted up. 
-There is a generation whose teeth are like swords, and their jaws like knives, to devour the poor from the earth, and the needy from among men. 
+There's a generation that curses their father, and doesn't bless their mother. 
+There's a generation that's pure in their own eyes, yet aren't washed from their filthiness. 
+There's a generation, oh how lofty are their eyes! Their eyelids are lifted up. 
+There's a generation whose teeth are like swords, and their jaws like knives, to devour the poor from the earth, and the needy from among men. 
 "The leech has two daughters: 'Give, give.' "There are three things that are never satisfied; four that don't say, 'Enough!': 
 Hades, the barren womb, the earth that isn't satisfied with water, and the fire that doesn't say, 'Enough!' 
 "The eye that mocks at his father, and scorns obedience to his mother, the ravens of the valley shall pick it out, the young eagles shall eat it. 
@@ -19,15 +19,15 @@ Hades, the barren womb, the earth that isn't satisfied with water, and the fire 
 The way of an eagle in the air, the way of a serpent on a rock, the way of a ship in the middle of the sea, and the way of a man with a maiden. 
 "So is the way of an adulterous woman: She eats and wipes her mouth, and says, 'I have done nothing wrong.' 
 "For three things the earth trembles, and under four, it can't bear up: 
-For a servant when he is king, a fool when he is filled with food, 
-for an unloved woman when she is married, and a servant who is heir to her mistress. 
-"There are four things which are little on the earth, but they are exceedingly wise: 
+For a servant when he's king, a fool when he's filled with food, 
+for an unloved woman when she's married, and a servant who's heir to her mistress. 
+"There are four things which are little on the earth, but they're exceedingly wise: 
 The ants aren't a strong people, yet they provide their food in the summer. 
 The hyraxes are but a feeble folk, yet make they their houses in the rocks. 
 The locusts have no king, yet they advance in ranks. 
-You can catch a lizard with your hands, yet it is in kings' palaces. 
+You can catch a lizard with your hands, yet it's in kings' palaces. 
 "There are three things which are stately in their march, four which are stately in going: 
 The lion, which is mightiest among animals, and doesn't turn away for any; 
-the greyhound; the male goat; and the king against whom there is no rising up. 
+the greyhound; the male goat; and the king against whom there's no rising up. 
 "If you have done foolishly in lifting up yourself, or if you have thought bad, put your hand over your mouth. 
 As the churning of milk produces butter, and the wringing of the nose produces blood, so the forcing of wrath produces strife." 

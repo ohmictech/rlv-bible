@@ -18,6 +18,6 @@ They brought in God's ark, and set it in its place in the middle of the tent tha
 When David had finished offering the burnt offering and the offerings for wholeness, he blessed the people in the name of the God of Armies. 
 He gave to everyone, even among the whole multitude of Israel, both to men and women, to everyone a portion of bread, dates, and raisins. So everyone departed, each to his own house. 
 Then David returned to bless his household. Michal the daughter of Saul came out to meet David, and said, "How glorious the king of Israel was today, who uncovered himself today in the eyes of his servants' maids, as one of the vain fellows shamelessly uncovers himself!" 
-David said to Michal, "It was before God, who chose me above your father, and above all his house, to appoint me prince over the people of God, over Israel. So I will celebrate before God. 
-I will be yet more undignified than this, and will be worthless in my own sight. But the maids of whom you have spoken will honor me." 
+David said to Michal, "It was before God, who chose me above your father, and above all his house, to appoint me prince over the people of God, over Israel. So I'll celebrate before God. 
+I'll be yet more undignified than this, and will be worthless in my own sight. But the maids of whom you have spoken will honor me." 
 Michal the daughter of Saul had no child to the day of her death. 

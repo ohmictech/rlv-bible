@@ -1,9 +1,9 @@
 ﻿God reigns! Let the peoples tremble. He sits enthroned among the cherubim. Let the earth be moved. 
-God is great in Zion. He is high above everyones. 
-Let them praise your great and awesome name. He is Holy! 
+God is great in Zion. He's high above everyones. 
+Let them praise your great and awesome name. He's Holy! 
 The King's strength also loves justice. You establish equity. You execute justice and righteousness in Jacob. 
-Exalt our God. Worship at his footstool. He is Holy! 
+Exalt our God. Worship at his footstool. He's Holy! 
 Moses and Aaron were among his priests, Samuel was among those who call on his name. They called on God, and he answered them. 
 He spoke to them in the pillar of cloud. They kept his testimonies, the statute that he gave them. 
-You answered them, God our God. You are a God who forgave them, although you took vengeance for their doings. 
+You answered them, God our God. You're a God who forgave them, although you took vengeance for their doings. 
 Exalt God, our God. Worship at his holy hill, for God, our God, is holy! 

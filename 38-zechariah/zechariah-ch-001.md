@@ -1,18 +1,18 @@
 ﻿In the eighth month, in the second year of Darius, God's word came to the spokesman Zechariah the son of Berechiah, the son of Iddo, saying, 
 "God was very displeased with your fathers. 
-So tell them, the God of Armies says: 'Return to me,' says the God of Armies, 'and I will return to you,' says the God of Armies. 
+So tell them, the God of Armies says: 'Return to me,' says the God of Armies, 'and I'll return to you,' says the God of Armies. 
 Don't you be like your fathers, to whom the former spokesmen proclaimed, saying: The God of Armies says, 'Return now from your bad ways and from your bad doings;' but they didn't hear nor listen to me, says God. 
 Your fathers, where are they? And the spokesmen, do they live for the eras? 
 But my words and my decrees, which I commanded my servants the spokesmen, didn't they overtake your fathers? "Then they repented and said, 'Just as the God of Armies determined to do to us, according to our ways and according to our practices, so he has dealt with us.'" 
 On the twenty-fourth day of the eleventh month, which is the month Shebat, in the second year of Darius, God's word came to the spokesman Zechariah the son of Berechiah, the son of Iddo, saying, 
 "I had a vision in the night, and look, a man riding on a red horse, and he stood among the myrtle trees that were in a ravine; and behind him there were red, brown, and white horses. 
-Then I asked, 'My lord, what are these?'" The messenger who talked with me said to me, "I will show you what these are." 
-The man who stood among the myrtle trees answered, "They are the ones God has sent to go back and forth through the earth." 
+Then I asked, 'My lord, what are these?'" The messenger who talked with me said to me, "I'll show you what these are." 
+The man who stood among the myrtle trees answered, "They're the ones God has sent to go back and forth through the earth." 
 They reported to God's messenger who stood among the myrtle trees, and said, "We have walked back and forth through the earth, and look, all the earth is at rest and in peace." 
 Then God's messenger replied, "O God of Armies, how long will you not have mercy on Jerusalem and on the cities of Judah, against which you have had indignation these seventy years?" 
 God answered the messenger who talked with me with kind and comforting words. 
-So the messenger who talked with me said to me, "Proclaim, saying, 'The God of Armies says: "I am jealous for Jerusalem and for Zion with a great jealousy. 
-I am very angry with the nations that are at ease; for I was but a little displeased, but they added to the calamity." 
+So the messenger who talked with me said to me, "Proclaim, saying, 'The God of Armies says: "I'm jealous for Jerusalem and for Zion with a great jealousy. 
+I'm very angry with the nations that are at ease; for I was but a little displeased, but they added to the calamity." 
 So God says: "I have returned to Jerusalem with mercy. My house shall be built in it," says the God of Armies, "and a line shall be stretched out over Jerusalem."' 
 "Proclaim further, saying, 'The God of Armies says: "My cities will again overflow with prosperity, and God will again comfort Zion, and will again choose Jerusalem."'" 
 I lifted up my eyes and saw, and look, four horns. 

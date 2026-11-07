@@ -2,7 +2,7 @@
 "If someone ventures to talk with you, will you be grieved? But who can withhold himself from speaking? 
 Look, you have instructed many, you have strengthened the weak hands. 
 Your words have supported him who was falling, you have made the feeble knees firm. 
-But now it has come to you, and you faint. It touches you, and you are troubled. 
+But now it has come to you, and you faint. It touches you, and you're troubled. 
 Isn't your piety your confidence? Isn't the integrity of your ways your hope? 
 "Remember, now, who ever perished, being innocent? Or where were the upright cut off? 
 According to what I have seen, those who plow guilt and sow trouble, reap the same. 
@@ -17,5 +17,5 @@ It stood still, but I couldn't discern its appearance. A form was before my eyes
 'Shall mortal man be more just than God? Shall a man be more pure than his Maker? 
 Look, he puts no trust in his servants. He charges his messengers with error. 
 How much more those who dwell in houses of clay, whose foundation is in the dust, who are crushed before the moth! 
-Between morning and evening they are destroyed. They perish for the eras without any regarding it. 
+Between morning and evening they're destroyed. They perish for the eras without any regarding it. 
 Isn't their tent cord plucked up within them? They die, and that without wisdom.' 

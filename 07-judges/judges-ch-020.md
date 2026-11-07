@@ -2,12 +2,12 @@
 The chiefs of everyone, even of all the tribes of Israel, presented themselves in the assembly of the people of God, four hundred thousand footmen who drew sword. 
 (Now the children of Benjamin heard that the children of Israel had gone up to Mizpah.) The children of Israel said, "Tell us, how did this guilt happen?" 
 The Levite, the husband of the woman who was murdered, answered, "I came into Gibeah that belongs to Benjamin, I and my concubine, to spend the night. 
-The men of Gibeah rose against me, and surrounded the house by night. They intended to kill me and they raped my concubine, and she is dead. 
+The men of Gibeah rose against me, and surrounded the house by night. They intended to kill me and they raped my concubine, and she's dead. 
 I took my concubine and cut her in pieces, and sent her throughout all the country of the inheritance of Israel; for they have committed lewdness and folly in Israel. 
 Look, you children of Israel, all of you, give here your advice and counsel." 
 Everyone arose as one man, saying, "None of us will go to his tent, neither will any of us turn to his house. 
-But now this is the thing which we will do to Gibeah: we will go up against it by lot; 
-and we will take ten men of one hundred throughout all the tribes of Israel, and one hundred of one thousand, and a thousand out of ten thousand to get food for the people, that they may do, when they come to Gibeah of Benjamin, according to all the folly that the men of Gibeah have done in Israel." 
+But now this is the thing which we'll do to Gibeah: we'll go up against it by lot; 
+and we'll take ten men of one hundred throughout all the tribes of Israel, and one hundred of one thousand, and a thousand out of ten thousand to get food for the people, that they may do, when they come to Gibeah of Benjamin, according to all the folly that the men of Gibeah have done in Israel." 
 So all the men of Israel were gathered against the city, knit together as one man. 
 The tribes of Israel sent men through all the tribe of Benjamin, saying, "What guilt is this that has happened among you? 
 Now deliver up the men, the guilty fellows who are in Gibeah, that we may put them to death and put away bad from Israel." But Benjamin wouldn't listen to the voice of their brothers, the children of Israel. 
@@ -25,18 +25,18 @@ The children of Israel came near against the children of Benjamin the second day
 Benjamin went out against them out of Gibeah the second day, and destroyed down to the ground of the children of Israel again eighteen thousand men. All these drew the sword. 
 Then all the children of Israel and everyone went up, and came to Bethel, and wept, and sat there before God, and fasted that day until evening; then they offered burnt offerings and offerings for wholeness before God. 
 The children of Israel asked God (for the ark of the covenant of God was there in those days, 
-and Phinehas, the son of Eleazar, the son of Aaron, stood before it in those days), saying, "Shall I yet again go out to battle against the children of Benjamin my brother, or shall I cease?" God said, "Go up; for tomorrow I will deliver him into your hand." 
+and Phinehas, the son of Eleazar, the son of Aaron, stood before it in those days), saying, "Shall I yet again go out to battle against the children of Benjamin my brother, or shall I cease?" God said, "Go up; for tomorrow I'll deliver him into your hand." 
 Israel set ambushes all around Gibeah. 
 The children of Israel went up against the children of Benjamin on the third day, and set themselves in array against Gibeah, as at other times. 
 The children of Benjamin went out against the people, and were drawn away from the city; and they began to strike and kill of the people as at other times, in the highways, of which one goes up to Bethel and the other to Gibeah, in the field, about thirty men of Israel. 
-The children of Benjamin said, "They are struck down before us, as at the first." But the children of Israel said, "Let's flee, and draw them away from the city to the highways." 
+The children of Benjamin said, "They're struck down before us, as at the first." But the children of Israel said, "Let's flee, and draw them away from the city to the highways." 
 All the men of Israel rose up out of their place and set themselves in array at Baal Tamar. Then the ambushers of Israel broke out of their place, even out of Maareh Geba. 
 Ten thousand chosen men out of all Israel came over against Gibeah, and the battle was severe; but they didn't know that disaster was close to them. 
 God struck Benjamin before Israel; and the children of Israel destroyed of Benjamin that day twenty-five thousand one hundred men. All these drew the sword. 
 So the children of Benjamin saw that they were struck, for the men of Israel yielded to Benjamin because they trusted the ambushers whom they had set against Gibeah. 
 The ambushers hurried, and rushed on Gibeah; then the ambushers spread out, and struck all the city with the edge of the sword. 
 Now the appointed sign between the men of Israel and the ambushers was that they should make a great cloud of smoke rise up out of the city. 
-The men of Israel turned in the battle, and Benjamin began to strike and kill of the men of Israel about thirty persons; for they said, "Surely they are struck down before us, as in the first battle." 
+The men of Israel turned in the battle, and Benjamin began to strike and kill of the men of Israel about thirty persons; for they said, "Surely they're struck down before us, as in the first battle." 
 But when the cloud began to arise up out of the city in a pillar of smoke, the Benjamites looked behind them; and look, the whole city went up in smoke to the sky. 
 The men of Israel turned, and the men of Benjamin were dismayed; for they saw that disaster had come on them. 
 So they turned their backs before the men of Israel to the way of the wilderness, but the battle followed hard after them; and those who came out of the cities destroyed them in the middle of it. 

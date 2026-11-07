@@ -1,6 +1,6 @@
 ﻿In those days, when there was a very great crowd and they had nothing to eat, Jesus called his students to himself and said to them, 
 "I have deep compassion on the crowd, because they have been with me now three days and have nothing to eat. 
-If I send them home without food, they will faint on the way, for some of them have come a long way." 
+If I send them home without food, they'll faint on the way, for some of them have come a long way." 
 His students answered him, "Where could anyone find enough bread to satisfy these people out here in an empty place?" 
 He asked them, "How many loaves do you have?" They said, "Seven." 
 He commanded the crowd to sit down on the ground, and he took the seven loaves. Having given thanks, he broke them and gave them to his students to hand out, and they handed them out to the crowd. 
@@ -24,9 +24,9 @@ He took the blind man by the hand and led him out of the village. When he had sp
 He looked up and said, "I see people, but they look like walking trees." 
 Then he laid his hands on his eyes again. He looked intently, and was restored, and saw everything clearly. 
 He sent him home, saying, "Don't go into the village, and don't tell anyone there." 
-Jesus went out with his students into the villages of Caesarea Philippi. On the way he asked his students, "Who do people say that I am?" 
+Jesus went out with his students into the villages of Caesarea Philippi. On the way he asked his students, "Who do people say that I'm?" 
 They told him, "John the Baptist, and others say Elijah, and others say one of the spokesmen." 
-He said to them, "But who do you say that I am?" Peter answered, "You are the Christ." 
+He said to them, "But who do you say that I'm?" Peter answered, "You're the Christ." 
 He commanded them to tell no one about him. 
 He began to teach them that the Human One must suffer many things, and be rejected by the elders, the chief priests, and the Bible teachers, and be killed, and rise again after three days. 
 He spoke about this openly. Peter took him aside and began to rebuke him. 

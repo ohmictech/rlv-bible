@@ -1,7 +1,7 @@
-﻿Moses went up from the plains of Moab to Mount Nebo, to the top of Pisgah, that is opposite Jericho. God showed him all the land of Gilead to Dan, 
+﻿Moses went up from the plains of Moab to Mount Nebo, to the top of Pisgah, that's opposite Jericho. God showed him all the land of Gilead to Dan, 
 and all Naphtali, and the land of Ephraim and Manasseh, and all the land of Judah, to the Western Sea, 
 and the south, and the Plain of the valley of Jericho the city of palm trees, to Zoar. 
-God said to him, "This is the land which I swore to Abraham, to Isaac, and to Jacob, saying, 'I will give it to your offspring.' I have caused you to see it with your eyes, but you shall not go over there." 
+God said to him, "This is the land which I swore to Abraham, to Isaac, and to Jacob, saying, 'I'll give it to your offspring.' I have caused you to see it with your eyes, but you shall not go over there." 
 So Moses the servant of God died there in the land of Moab, according to God's word. 
 He buried him in the valley in the land of Moab opposite Beth Peor, but no man knows where his tomb is to this day. 
 Moses was one hundred twenty years old when he died. His eye wasn't dim, nor his strength gone. 

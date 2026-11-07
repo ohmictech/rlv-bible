@@ -10,5 +10,5 @@ They put him in a cage with hooks, and brought him to the king of Babylon. They 
 "'Your mother was like a vine in your blood, planted by the waters. It was fruitful and full of branches by reason of many waters. 
 It had strong branches for the scepters of those who ruled. Their stature was exalted among the thick boughs. They were seen in their height with the multitude of their branches. 
 But it was plucked up in fury. It was cast down to the ground, and the east wind dried up its fruit. Its strong branches were broken off and withered. The fire consumed them. 
-Now it is planted in the wilderness, in a dry and thirsty land. 
-Fire has gone out of its branches. It has devoured its fruit, so that there is in it no strong branch to be a scepter to rule.' This is a lamentation, and shall be for a lamentation." 
+Now it's planted in the wilderness, in a dry and thirsty land. 
+Fire has gone out of its branches. It has devoured its fruit, so that there's in it no strong branch to be a scepter to rule.' This is a lamentation, and shall be for a lamentation." 

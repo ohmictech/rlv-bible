@@ -7,7 +7,7 @@ In the house of the righteous is much treasure, but the income of the guilty bri
 The lips of the wise spread knowledge; not so with the heart of fools. 
 The sacrifice made by the guilty is an abomination to God, but the prayer of the upright is his delight. 
 The way of the guilty is an abomination to God, but he loves him who follows after righteousness. 
-There is stern discipline for one who forsakes the way. Whoever hates reproof shall die. 
+There's stern discipline for one who forsakes the way. Whoever hates reproof shall die. 
 Hades and Abaddon are before God, how much more then the hearts of the children of men! 
 A scoffer doesn't love to be reproved; he won't go to the wise. 
 A glad heart makes a cheerful face, but an aching heart breaks the spirit. 
@@ -15,16 +15,16 @@ The heart of one who has understanding seeks knowledge, but the mouths of fools 
 All the days of the afflicted are wretched, but one who has a cheerful heart enjoys a continual feast. 
 Better is little, with the fear of God, than great treasure with trouble. 
 Better is a dinner of herbs, where love is, than a fattened calf with hatred. 
-A wrathful man stirs up contention, but one who is slow to anger appeases strife. 
+A wrathful man stirs up contention, but one who's slow to anger appeases strife. 
 The way of the sluggard is like a thorn patch, but the path of the upright is a highway. 
 A wise son makes a father glad, but a foolish man despises his mother. 
-Folly is joy to one who is void of wisdom, but a man of understanding keeps his way straight. 
-Where there is no counsel, plans fail; but in a multitude of counselors they are established. 
+Folly is joy to one who's void of wisdom, but a man of understanding keeps his way straight. 
+Where there's no counsel, plans fail; but in a multitude of counselors they're established. 
 Joy comes to a man with the reply of his mouth. How good is a word at the right time! 
 The path of life leads upward for the wise, to keep him from going downward to Hades. 
-God will uproot the house of the proud, but he will keep the widow's borders intact. 
+God will uproot the house of the proud, but he'll keep the widow's borders intact. 
 God detests the thoughts of the guilty, but the thoughts of the pure are pleasing. 
-He who is greedy for gain troubles his own house, but he who hates bribes will live. 
+He who's greedy for gain troubles his own house, but he who hates bribes will live. 
 The heart of the righteous weighs answers, but the mouth of the guilty gushes out bad. 
 God is far from the guilty, but he hears the prayer of the righteous. 
 The light of the eyes rejoices the heart. Good news gives health to the bones. 

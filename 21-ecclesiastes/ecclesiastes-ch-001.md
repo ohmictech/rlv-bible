@@ -6,11 +6,11 @@ The sun also rises, and the sun goes down, and hurries to its place where it ris
 The wind goes toward the south, and turns around to the north. It turns around continually as it goes, and the wind returns again to its courses. 
 All the rivers run into the sea, yet the sea isn't full. To the place where the rivers flow, there they flow again. 
 All things are full of weariness beyond uttering. The eye isn't satisfied with seeing, nor the ear filled with hearing. 
-That which has been is that which shall be, and that which has been done is that which shall be done; and there is no new thing under the sun. 
+That which has been is that which shall be, and that which has been done is that which shall be done; and there's no new thing under the sun. 
 Is there a thing of which it may be said, "Look, this is new"? It has been long ago, in the ages which were before us. 
-There is no memory of the former; neither shall there be any memory of the latter that are to come, among those that shall come after. 
+There's no memory of the former; neither shall there be any memory of the latter that are to come, among those that shall come after. 
 I, the Preacher, was king over Israel in Jerusalem. 
-I applied my heart to seek and to search out by wisdom concerning all that is done under the sky. It is a heavy burden that God has given to the sons of men to be afflicted with. 
+I applied my heart to seek and to search out by wisdom concerning all that's done under the sky. It's a heavy burden that God has given to the sons of men to be afflicted with. 
 I have seen all the works that are done under the sun; and look, all is vanity and a chasing after wind. 
 That which is crooked can't be made straight; and that which is lacking can't be counted. 
 I said to myself, "Look, I have obtained for myself great wisdom above everyone who was before me in Jerusalem. Yes, my heart has had great experience of wisdom and knowledge." 

@@ -13,7 +13,7 @@ The west border was to the shore of the great sea. This is the border of the chi
 He gave to Caleb the son of Jephunneh a portion among the children of Judah, according to the commandment of God to Joshua, even Kiriath Arba, named after the father of Anak (also called Hebron). 
 Caleb drove out the three sons of Anak: Sheshai, and Ahiman, and Talmai, the children of Anak. 
 He went up against the inhabitants of Debir: now the name of Debir before was Kiriath Sepher. 
-Caleb said, "He who strikes Kiriath Sepher, and takes it, to him I will give Achsah my daughter as wife." 
+Caleb said, "He who strikes Kiriath Sepher, and takes it, to him I'll give Achsah my daughter as wife." 
 Othniel the son of Kenaz, the brother of Caleb, took it: and he gave him Achsah his daughter as wife. 
 When she came, she had him ask her father for a field. She got off her donkey, and Caleb said, "What do you want?" 
 She said, "Give me a blessing. Because you have set me in the land of the South, give me also springs of water." So he gave her the upper springs and the lower springs. 

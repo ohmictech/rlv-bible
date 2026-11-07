@@ -1,9 +1,9 @@
-﻿If there is a controversy between men, and they come to judgment and the judges judge them, then they shall justify the righteous and condemn the guilty. 
+﻿If there's a controversy between men, and they come to judgment and the judges judge them, then they shall justify the righteous and condemn the guilty. 
 It shall be, if the guilty man is worthy to be beaten, that the judge shall cause him to lie down and to be beaten before his face, according to his guilt, by number. 
 He may sentence him to no more than forty stripes. He shall not give more, lest if he should give more and beat him more than that many stripes, then your brother will be degraded in your sight. 
 You shall not muzzle the ox when he treads out the grain. 
 If brothers dwell together, and one of them dies and has no son, the wife of the dead shall not be married outside to a stranger. Her husband's brother shall go in to her, and take her as his wife, and perform the duty of a husband's brother to her. 
-It shall be that the firstborn whom she bears shall succeed in the name of his brother who is dead, that his name not be blotted out of Israel. 
+It shall be that the firstborn whom she bears shall succeed in the name of his brother who's dead, that his name not be blotted out of Israel. 
 If the man doesn't want to take his brother's wife, then his brother's wife shall go up to the gate to the elders, and say, "My husband's brother refuses to raise up to his brother a name in Israel. He won't perform the duty of a husband's brother to me." 
 Then the elders of his city shall call him, and speak to him. If he stands and says, "I don't want to take her," 
 then his brother's wife shall come to him in the presence of the elders, and loose his sandal from off his foot, and spit in his face. She shall answer and say, "So shall it be done to the man who doesn't build up his brother's house." 

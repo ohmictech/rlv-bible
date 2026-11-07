@@ -1,5 +1,5 @@
 ﻿"I made a covenant with my eyes; how then should I look lustfully at a young woman? 
-What is the portion from God above, and the heritage from the Almighty on high? 
+What's the portion from God above, and the heritage from the Almighty on high? 
 Is it not calamity to the unrighteous, and disaster to the workers of guilt? 
 Doesn't he see my ways, and count all my steps? 
 "If I have walked with falsehood, and my foot has hurried to deceit 
@@ -9,7 +9,7 @@ then let me sow, and let another eat. Yes, let the produce of my field be rooted
 "If my heart has been enticed to a woman, and I have laid wait at my neighbor's door, 
 then let my wife grind for another, and let others sleep with her. 
 That would be a heinous crime. Yes, it would be an guilt to be punished by the judges, 
-for it is a fire that consumes to destruction, and would root out all my increase. 
+for it's a fire that consumes to destruction, and would root out all my increase. 
 "If I have despised the cause of my male servant or of my female servant, when they contended with me, 
 what then will I do when God rises up? When he visits, what will I answer him? 
 Didn't he who made me in the womb make him? Didn't one fashion us in the womb? 
@@ -21,20 +21,20 @@ if his heart hasn't blessed me, if he hasn't been warmed with my sheep's fleece;
 if I have lifted up my hand against the fatherless, because I saw my help in the gate; 
 then let my shoulder fall from the shoulder blade, and my arm be broken from the bone. 
 Calamity from God is a terror to me. Because of his majesty, I can do nothing. 
-"If I have made gold my hope, and have said to the fine gold, 'You are my confidence;' 
+"If I have made gold my hope, and have said to the fine gold, 'You're my confidence;' 
 If I have rejoiced because my wealth was great, and because my hand had gotten much; 
 if I have seen the sun when it shined, or the moon moving in splendor, 
 and my heart has been secretly enticed, and my hand threw a kiss from my mouth; 
-this also would be an guilt to be punished by the judges, for I would have denied the God who is above. 
+this also would be an guilt to be punished by the judges, for I'd have denied the God who's above. 
 "If I have rejoiced at the destruction of him who hated me, or lifted up myself when bad found him 
 (I have certainly not allowed my mouth to drift by asking his life with a curse); 
 if the men of my tent haven't said, 'Who can find one who hasn't been filled with his meat?' 
 (the foreigner hasn't camped in the street, but I have opened my doors to the traveler); 
 if like Adam I have covered my rebellion, by hiding my guilt in my heart, 
 because I feared the great multitude, and the contempt of families terrified me, so that I kept silence, and didn't go out of the door 
-oh that I had one to hear me! Look, here is my signature! Let the Almighty answer me! Let the accuser write my indictment! 
-Surely I would carry it on my shoulder, and I would bind it to me as a crown. 
-I would declare to him the number of my steps. I would go near to him like a prince. 
+oh that I had one to hear me! Look, here's my signature! Let the Almighty answer me! Let the accuser write my indictment! 
+Surely I'd carry it on my shoulder, and I'd bind it to me as a crown. 
+I'd declare to him the number of my steps. I'd go near to him like a prince. 
 If my land cries out against me, and its furrows weep together; 
 if I have eaten its fruits without money, or have caused its owners to lose their life, 
 let briers grow instead of wheat, and stinkweed instead of barley." The words of Job are ended. 

@@ -1,11 +1,11 @@
 ﻿Then Job answered, 
-"No doubt, but you are the people, and wisdom will die with you. 
+"No doubt, but you're the people, and wisdom will die with you. 
 But I have understanding as well as you; I'm not inferior to you. Yes, who doesn't know such things as these? 
-I am like one who is a joke to his neighbor, I, who called on God, and he answered. The just, the blameless man is a joke. 
-In the thought of him who is at ease there is contempt for misfortune. It is ready for them whose foot slips. 
+I'm like one who's a joke to his neighbor, I, who called on God, and he answered. The just, the blameless man is a joke. 
+In the thought of him who's at ease there's contempt for misfortune. It's ready for them whose foot slips. 
 The tents of robbers prosper. Those who provoke God are secure, who carry their god in their hands. 
-"But ask the animals now, and they will teach you; the birds of the sky, and they will tell you. 
-Or speak to the earth, and it will teach you. The fish of the sea will declare to you. 
+"But ask the animals now, and they'll teach you; the birds of the sky, and they'll tell you. 
+Or speak to the earth, and it'll teach you. The fish of the sea will declare to you. 
 Who doesn't know that in all these, God's hand has done this, 
 in whose hand is the life of every living thing, and the breath of all mankind? 
 Doesn't the ear try words, even as the palate tastes its food? 
@@ -21,5 +21,5 @@ He removes the speech of those who are trusted, and takes away the understanding
 He pours contempt on princes, and loosens the belt of the strong. 
 He uncovers deep things out of darkness, and brings out to light the shadow of death. 
 He increases the nations, and he destroys them. He enlarges the nations, and he leads them captive. 
-He takes away understanding from the chiefs of the people of the earth, and causes them to wander in a wilderness where there is no way. 
+He takes away understanding from the chiefs of the people of the earth, and causes them to wander in a wilderness where there's no way. 
 They grope in the dark without light. He makes them stagger like a drunken man. 

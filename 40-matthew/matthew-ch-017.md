@@ -1,8 +1,8 @@
 ﻿After six days, Jesus took with him Peter, James, and John his brother, and brought them up into a high mountain by themselves. 
 He was transformed before them. His face shone like the sun, and his garments became as white as the light. 
 Suddenly, Moses and Elijah appeared to them, talking with him. 
-Peter answered and said to Jesus, "Lord, it is good for us to be here. If you want, let's make three tents here: one for you, one for Moses, and one for Elijah." 
-While he was still speaking, a bright cloud overshadowed them, and suddenly a voice came out of the cloud, saying, "This is my Son, whom I truly love, and I am delighted with him. Listen to him." 
+Peter answered and said to Jesus, "Lord, it's good for us to be here. If you want, let's make three tents here: one for you, one for Moses, and one for Elijah." 
+While he was still speaking, a bright cloud overshadowed them, and suddenly a voice came out of the cloud, saying, "This is my Son, whom I truly love, and I'm delighted with him. Listen to him." 
 When the students heard it, they fell on their faces, and were very afraid. 
 Jesus came and touched them and said, "Get up, and don't be afraid." 
 When they looked up, they saw no one except Jesus. 
@@ -17,11 +17,11 @@ So I brought him to your students, and they couldn't heal him."
 Jesus answered, "You who don't trust! You twisted generation! How long will I be with you? How long will I put up with you? Bring him here to me." 
 Jesus rebuked the unclean spirit, and it went out of him, and the boy was healed from that hour. 
 Then the students came to Jesus privately, and said, "Why weren't we able to drive it out?" 
-He said to them, "Because of your lack of trust. Truly I tell you, if you have trust like a grain of mustard seed, you will tell this mountain, 'Move from here to there,' and it will move, and nothing will be impossible for you. 
+He said to them, "Because of your lack of trust. Truly I tell you, if you have trust like a grain of mustard seed, you'll tell this mountain, 'Move from here to there,' and it'll move, and nothing will be impossible for you. 
 But this kind doesn't go out except by prayer and going without food." 
 While they were staying in Galilee, Jesus said to them, "The Human One is about to be handed over into the hands of people, 
-and they will kill him, and the third day he will be raised up." They were very sorry. 
+and they'll kill him, and the third day he'll be raised up." They were very sorry. 
 When they had come to Capernaum, those who collected the temple tax came to Peter, and said, "Doesn't your teacher pay the temple tax?" 
 He said, "Yes." When he came into the house, Jesus spoke first, saying, "What do you think, Simon? From whom do the kings of the earth collect duties or taxes? From their children, or from others?" 
 Peter said to him, "From others." Jesus said to him, "So the children are exempt. 
-But so we don't trip them up, go to the sea, throw in a hook, and take the first fish that comes up. When you have opened its mouth, you will find a coin. Take that, and give it to them for me and you." 
+But so we don't trip them up, go to the sea, throw in a hook, and take the first fish that comes up. When you have opened its mouth, you'll find a coin. Take that, and give it to them for me and you." 

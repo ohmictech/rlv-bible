@@ -6,7 +6,7 @@ Pharaoh's daughter came down to bathe at the river. Her maidens walked along by 
 She opened it, and saw the child, and look, the baby cried. She had compassion on him, and said, "This is one of the Hebrews' children." 
 Then his sister said to Pharaoh's daughter, "Should I go and call a nurse for you from the Hebrew women, that she may nurse the child for you?" 
 Pharaoh's daughter said to her, "Go." The young woman went and called the child's mother. 
-Pharaoh's daughter said to her, "Take this child away, and nurse him for me, and I will give you your wages." The woman took the child, and nursed him. 
+Pharaoh's daughter said to her, "Take this child away, and nurse him for me, and I'll give you your wages." The woman took the child, and nursed him. 
 The child grew, and she brought him to Pharaoh's daughter, and he became her son. She named him Moses, and said, "Because I drew him out of the water." 
 In those days, when Moses had grown up, he went out to his brothers and saw their burdens. He saw an Egyptian striking a Hebrew, one of his brothers. 
 He looked this way and that way, and when he saw that there was no one, he killed the Egyptian, and hid him in the sand. 

@@ -3,15 +3,15 @@ Balaam lifted up his eyes, and he saw Israel dwelling according to their tribes;
 He took up his parable, and said, "Balaam the son of Beor says, the man whose eyes are open says; 
 he says, who hears the words of God, who sees the vision of the Almighty, falling down, and having his eyes open: 
 How goodly are your tents, Jacob, and your dwellings, Israel! 
-As valleys they are spread out, as gardens by the riverside, as aloes which God has planted, as cedar trees beside the waters. 
+As valleys they're spread out, as gardens by the riverside, as aloes which God has planted, as cedar trees beside the waters. 
 Water shall flow from his buckets. His seed shall be in many waters. His king shall be higher than Agag. His kingdom shall be exalted. 
 God brings him out of Egypt. He has as it were the strength of the wild ox. He shall consume the nations his adversaries, shall break their bones in pieces, and pierce them with his arrows. 
 He couched, he lay down as a lion, as a lioness; who shall rouse him up? Everyone who blesses you is blessed. Everyone who curses you is cursed." 
 Balak's anger burned against Balaam, and he struck his hands together. Balak said to Balaam, "I called you to curse my enemies, and, look, you have altogether blessed them these three times. 
 So, flee to your place, now! I thought to promote you to great honor; but, look, God has kept you back from honor." 
 Balaam said to Balak, "Didn't I also tell your messengers whom you sent to me, saying, 
-'If Balak would give me his house full of silver and gold, I can't go beyond God's word, to do either good or bad from my own mind. I will say what God says'? 
-Now, look, I go to my people. Come, I will inform you what this people shall do to your people in the latter days." 
+'If Balak would give me his house full of silver and gold, I can't go beyond God's word, to do either good or bad from my own mind. I'll say what God says'? 
+Now, look, I go to my people. Come, I'll inform you what this people shall do to your people in the latter days." 
 He took up his parable, and said, "Balaam the son of Beor says, the man whose eyes are open says; 
 he says, who hears the words of God, knows the knowledge of the Most High, and who sees the vision of the Almighty, falling down, and having his eyes open: 
 I see him, but not now. I see him, but not near. A star will come out of Jacob. A scepter will rise out of Israel, and shall strike through the corners of Moab, and crush all the sons of Sheth. 

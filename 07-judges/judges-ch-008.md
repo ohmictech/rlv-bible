@@ -2,11 +2,11 @@
 He said to them, "What have I now done in comparison with you? Isn't the gleaning of the grapes of Ephraim better than the vintage of Abiezer? 
 God has delivered into your hand the princes of Midian, Oreb and Zeeb! What was I able to do in comparison with you?" Then their anger was abated toward him when he had said that. 
 Gideon came to the Jordan and passed over, he and the three hundred men who were with him, faint, yet pursuing. 
-He said to the men of Succoth, "Please give loaves of bread to the people who follow me; for they are faint, and I am pursuing after Zebah and Zalmunna, the kings of Midian." 
+He said to the men of Succoth, "Please give loaves of bread to the people who follow me; for they're faint, and I'm pursuing after Zebah and Zalmunna, the kings of Midian." 
 The princes of Succoth said, "Are the hands of Zebah and Zalmunna now in your hand, that we should give bread to your army?" 
-Gideon said, "Therefore when God has delivered Zebah and Zalmunna into my hand, then I will tear your flesh with the thorns of the wilderness and with briers." 
+Gideon said, "Therefore when God has delivered Zebah and Zalmunna into my hand, then I'll tear your flesh with the thorns of the wilderness and with briers." 
 He went up there to Penuel, and spoke to them in the same way; and the men of Penuel answered him as the men of Succoth had answered. 
-He spoke also to the men of Penuel, saying, "When I come again in peace, I will break down this tower." 
+He spoke also to the men of Penuel, saying, "When I come again in peace, I'll break down this tower." 
 Now Zebah and Zalmunna were in Karkor, and their armies with them, about fifteen thousand men, everyone who was left of all the army of the children of the east; for there fell one hundred twenty thousand men who drew sword. 
 Gideon went up by the way of those who lived in tents on the east of Nobah and Jogbehah, and struck the army; for the army felt secure. 
 Zebah and Zalmunna fled and he pursued them. He took the two kings of Midian, Zebah and Zalmunna, and confused all the army. 
@@ -21,8 +21,8 @@ He said to Jether his firstborn, "Get up and kill them!" But the youth didn't dr
 Then Zebah and Zalmunna said, "You rise and fall on us; for as the man is, so is his strength." Gideon arose, and killed Zebah and Zalmunna, and took the crescents that were on their camels' necks. 
 Then the men of Israel said to Gideon, "Rule over us, both you, your son, and your son's son also; for you have saved us out of the hand of Midian." 
 Gideon said to them, "I won't rule over you, neither shall my son rule over you. God shall rule over you." 
-Gideon said to them, "I do have a request: that you would each give me the earrings of his plunder." (For they had golden earrings, because they were Ishmaelites.) 
-They answered, "We will willingly give them." They spread a garment, and every man threw the earrings of his plunder into it. 
+Gideon said to them, "I do have a request: that you'd each give me the earrings of his plunder." (For they had golden earrings, because they were Ishmaelites.) 
+They answered, "We'll willingly give them." They spread a garment, and every man threw the earrings of his plunder into it. 
 The weight of the golden earrings that he requested was one thousand and seven hundred shekels of gold, in addition to the crescents, and the pendants, and the purple clothing that was on the kings of Midian, and in addition to the chains that were about their camels' necks. 
 Gideon made an ephod out of it, and put it in Ophrah, his city. Then all Israel played the prostitute with it there; and it became a snare to Gideon and to his house. 
 So Midian was subdued before the children of Israel, and they lifted up their heads no more. The land had rest forty years in the days of Gideon. 
@@ -32,4 +32,4 @@ His concubine who was in Shechem also bore him a son, and he named him Abimelech
 Gideon the son of Joash died in a good old age, and was buried in the tomb of Joash his father, in Ophrah of the Abiezrites. 
 As soon as Gideon was dead, the children of Israel turned again and played the prostitute following the Baals, and made Baal Berith their god. 
 The children of Israel didn't remember their God, who had delivered them out of the hand of all their enemies on every side; 
-neither did they show kindness to the house of Jerubbaal, that is, Gideon, according to all the goodness which he had shown to Israel. 
+neither did they show kindness to the house of Jerubbaal, that's, Gideon, according to all the goodness which he had shown to Israel. 

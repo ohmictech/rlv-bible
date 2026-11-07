@@ -5,16 +5,16 @@ Now Jeremiah came in and went out among the people, for they hadn't put him into
 Pharaoh's army had come out of Egypt; and when the Chaldeans who were besieging Jerusalem heard news of them, they withdrew from Jerusalem. 
 Then God's word came to the spokesman Jeremiah, saying, 
 "The God of Israel says, 'You shall tell the king of Judah, who sent you to me to inquire of me: "Look, Pharaoh's army, which has come out to help you, will return to Egypt into their own land. 
-The Chaldeans will come again, and fight against this city. They will take it and burn it with fire."' 
+The Chaldeans will come again, and fight against this city. They'll take it and burn it with fire."' 
 "God says, 'Don't deceive yourselves, saying, "The Chaldeans will surely depart from us;" for they won't depart. 
-Though you had struck the whole army of the Chaldeans who fight against you, and only wounded men remained among them, they would each rise up in his tent and burn this city with fire.'" 
+Though you had struck the whole army of the Chaldeans who fight against you, and only wounded men remained among them, they'd each rise up in his tent and burn this city with fire.'" 
 When the army of the Chaldeans had withdrawn from Jerusalem for fear of Pharaoh's army, 
 then Jeremiah went out of Jerusalem to go into the land of Benjamin, to receive his portion there, in the middle of the people. 
-When he was in Benjamin's gate, a captain of the guard was there, whose name was Irijah, the son of Shelemiah, the son of Hananiah; and he seized Jeremiah the spokesman, saying, "You are defecting to the Chaldeans!" 
-Then Jeremiah said, "That is false! I'm not defecting to the Chaldeans." But he didn't listen to him; so Irijah seized Jeremiah, and brought him to the princes. 
+When he was in Benjamin's gate, a captain of the guard was there, whose name was Irijah, the son of Shelemiah, the son of Hananiah; and he seized Jeremiah the spokesman, saying, "You're defecting to the Chaldeans!" 
+Then Jeremiah said, "That's false! I'm not defecting to the Chaldeans." But he didn't listen to him; so Irijah seized Jeremiah, and brought him to the princes. 
 The princes were angry with Jeremiah, and struck him, and put him in prison in the house of Jonathan the secretary; for they had made that the prison. 
 When Jeremiah had come into the dungeon house and into the cells, and Jeremiah had remained there many days, 
-then Zedekiah the king sent and had him brought out. The king asked him secretly in his house, "Is there any word from God?" Jeremiah said, "There is." He also said, "You will be delivered into the hand of the king of Babylon." 
+then Zedekiah the king sent and had him brought out. The king asked him secretly in his house, "Is there any word from God?" Jeremiah said, "There's." He also said, "You'll be delivered into the hand of the king of Babylon." 
 Moreover Jeremiah said to King Zedekiah, "How have I wronged you, against your servants, or against this people, that you have put me in prison? 
 Now where are your spokesmen who prophesied to you, saying, 'The king of Babylon won't come against you, nor against this land'? 
 Now please hear, my lord the king: please let my supplication be presented before you, that you not cause me to return to the house of Jonathan the secretary, lest I die there." 

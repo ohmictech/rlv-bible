@@ -1,7 +1,7 @@
 ﻿Jehoash began to reign in the seventh year of Jehu, and he reigned forty years in Jerusalem. His mother's name was Zibiah of Beersheba. 
 Jehoash did that which was right in God's eyes all his days in which Jehoiada the priest instructed him. 
 However, the high places weren't taken away. The people still sacrificed and burned incense in the high places. 
-Jehoash said to the priests, "All the money of the holy things that is brought into God's house, in current money, the money of the people for whom each man is evaluated, and all the money that it comes into any man's heart to bring into God's house, 
+Jehoash said to the priests, "All the money of the holy things that's brought into God's house, in current money, the money of the people for whom each man is evaluated, and all the money that it comes into any man's heart to bring into God's house, 
 let the priests take it to them, each man from his donor; and they shall repair the damage to the house, wherever any damage is found." 
 But it was so, that in the twenty-third year of King Jehoash the priests hadn't repaired the damage to the house. 
 Then King Jehoash called for Jehoiada the priest, and for the other priests, and said to them, "Why aren't you repairing the damage to the house? Now take no more money from your treasurers, but deliver it for repair of the damage to the house." 

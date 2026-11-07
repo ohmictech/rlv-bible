@@ -1,5 +1,5 @@
 ﻿A Song of Ascents. Blessed is everyone who fears God, who walks in his ways. 
-You will eat the labor of your hands. You will be happy, and it will be well with you. 
+You'll eat the labor of your hands. You'll be happy, and it'll be well with you. 
 Your wife will be as a fruitful vine in the innermost parts of your house, your children like olive shoots around your table. 
 Look, this is how the man who fears God is blessed. 
 May God bless you out of Zion, and may you see the good of Jerusalem all the days of your life. 

@@ -8,10 +8,10 @@ Mordecai told him of all that had happened to him, and the exact sum of the mone
 He also gave him the copy of the writing of the decree that was given out in Susa to destroy them, to show it to Esther, and to declare it to her, and to urge her to go in to the king to make supplication to him, and to make request before him for her people. 
 Hathach came and told Esther the words of Mordecai. 
 Then Esther spoke to Hathach, and gave him a message to Mordecai: 
-"All the king's servants and the people of the king's provinces know that whoever, whether man or woman, comes to the king into the inner court without being called, there is one law for him, that he be put to death, except those to whom the king might hold out the golden scepter, that he may live. I haven't been called to come in to the king these thirty days." 
+"All the king's servants and the people of the king's provinces know that whoever, whether man or woman, comes to the king into the inner court without being called, there's one law for him, that he be put to death, except those to whom the king might hold out the golden scepter, that he may live. I haven't been called to come in to the king these thirty days." 
 They told Esther's words to Mordecai. 
-Then Mordecai asked them to return this answer to Esther: "Don't think to yourself that you will escape in the king's house any more than all the Jews. 
+Then Mordecai asked them to return this answer to Esther: "Don't think to yourself that you'll escape in the king's house any more than all the Jews. 
 If you remain silent now, then relief and deliverance will come to the Jews from another place, but you and your father's house will perish. Who knows if you haven't come to the kingdom for such a time as this?" 
 Then Esther asked them to answer Mordecai, 
-"Go, gather together all the Jews who are present in Susa, and fast for me, and neither eat nor drink three days, night or day. I and my maidens will also fast the same way. Then I will go in to the king, which is against the law; and if I perish, I perish." 
+"Go, gather together all the Jews who are present in Susa, and fast for me, and neither eat nor drink three days, night or day. I and my maidens will also fast the same way. Then I'll go in to the king, which is against the law; and if I perish, I perish." 
 So Mordecai went his way, and did according to all that Esther had commanded him. 

@@ -1,6 +1,6 @@
 ﻿"My spirit is consumed. My days are extinct and the grave is ready for me. 
 Surely there are mockers with me. My eye dwells on their provocation. 
-"Now give a pledge. Be collateral for me with yourself. Who is there who will strike hands with me? 
+"Now give a pledge. Be collateral for me with yourself. Who's there who will strike hands with me? 
 You have hidden their heart from understanding, you won't exalt them. 
 He who denounces his friends for plunder, even the eyes of his children will fail. 
 "But he has made me a byword of the people. They spit in my face. 
@@ -11,6 +11,6 @@ But as for you all, come back. I won't find a wise man among you.
 My days are past. My plans are broken off, as are the thoughts of my heart. 
 They change the night into day, saying 'The light is near' in the presence of darkness. 
 If I look for Hades as my house, if I have spread my couch in the darkness, 
-if I have said to corruption, 'You are my father,' and to the worm, 'My mother,' and 'My sister,' 
+if I have said to corruption, 'You're my father,' and to the worm, 'My mother,' and 'My sister,' 
 where then is my hope? As for my hope, who will see it? 
 Shall it go down with me to the gates of Hades, or descend together into the dust?" 

@@ -1,5 +1,5 @@
-﻿Then all the tribes of Israel came to David at Hebron and spoke, saying, "Look, we are your bone and your flesh. 
-In times past, when Saul was king over us, it was you who led Israel out and in. God said to you, 'You will be shepherd of my people Israel, and you will be prince over Israel.'" 
+﻿Then all the tribes of Israel came to David at Hebron and spoke, saying, "Look, we're your bone and your flesh. 
+In times past, when Saul was king over us, it was you who led Israel out and in. God said to you, 'You'll be shepherd of my people Israel, and you'll be prince over Israel.'" 
 So all the elders of Israel came to the king to Hebron, and King David made a covenant with them in Hebron before God; and they anointed David king over Israel. 
 David was thirty years old when he began to reign, and he reigned forty years. 
 In Hebron he reigned over Judah seven years and six months, and in Jerusalem he reigned thirty-three years over all Israel and Judah. 
@@ -16,7 +16,7 @@ Ibhar, Elishua, Nepheg, Japhia,
 Elishama, Eliada, and Eliphelet. 
 When the Philistines heard that they had anointed David king over Israel, all the Philistines went up to seek David, but David heard about it and went down to the stronghold. 
 Now the Philistines had come and spread themselves in the valley of Rephaim. 
-David inquired of God, saying, "Shall I go up against the Philistines? Will you deliver them into my hand?" God said to David, "Go up; for I will certainly deliver the Philistines into your hand." 
+David inquired of God, saying, "Shall I go up against the Philistines? Will you deliver them into my hand?" God said to David, "Go up; for I'll certainly deliver the Philistines into your hand." 
 David came to Baal Perazim, and David struck them there. Then he said, "God has broken my enemies before me, like the breach of waters." Therefore he called the name of that place Baal Perazim. 
 They left their images there, and David and his men took them away. 
 The Philistines came up yet again and spread themselves in the valley of Rephaim. 

@@ -11,33 +11,33 @@ But the chief priests conspired to put Lazarus to death also,
 because on account of him many of the Jewish people went away and trusted in Jesus. 
 On the next day a great crowd had come to the feast. When they heard that Jesus was coming to Jerusalem, 
 they took the branches of the palm trees and went out to meet him, and cried out, "Hosanna! Flourishing is he who comes in the name of the Lord, the King of Israel!" 
-Jesus, having found a young donkey, sat on it. As it is written, 
+Jesus, having found a young donkey, sat on it. As it's written, 
 "Don't be afraid, daughter of Zion. Look, your King comes, sitting on a donkey's colt." 
 His students didn't understand these things at first, but when Jesus was honored, then they remembered that these things were written about him, and that they had done these things to him. 
 The crowd that was with him when he called Lazarus out of the tomb and raised him from the dead was testifying about it. 
-That is why also the crowd went and met him, because they heard that he had done this sign. 
-The strict religious ones said among themselves, "You can see you are getting nowhere. Look, the world has gone after him." 
+That's why also the crowd went and met him, because they heard that he had done this sign. 
+The strict religious ones said among themselves, "You can see you're getting nowhere. Look, the world has gone after him." 
 Now there were certain Greeks among those who went up to worship at the feast. 
 So, these came to Philip, who was from Bethsaida of Galilee, and asked him, saying, "Sir, we want to see Jesus." 
 Philip came and told Andrew, and in turn, Andrew came with Philip, and they told Jesus. 
 Jesus answered them, "The time has come for the Human One to be honored. 
 Truly I tell you, unless a grain of wheat falls into the earth and dies, it remains by itself alone. But if it dies, it bears much fruit. 
 Whoever loves their life will lose it. Whoever hates their life in this world will keep it to the real life of the era. 
-If anyone serves me, let them follow me. Where I am, there my servant will also be. If anyone serves me, the Father will honor them. 
+If anyone serves me, let them follow me. Where I'm, there my servant will also be. If anyone serves me, the Father will honor them. 
 "Now my life is troubled. What can I say? 'Father, rescue me from this time'? But this is why I came to this hour. 
 Father, give honor to your name!" Then a voice came out of the sky, saying, "I have both given it honor and will give it honor again." 
 So the crowd who stood by and heard it said that it had thundered. Others said, "A messenger has spoken to him." 
 Jesus answered, "This voice hasn't come for my sake, but for your sakes. 
 Now is the verdict on this world. Now the ruler of this world will be cast out. 
-And I, if I am lifted up from the earth, will draw everyone to myself." 
+And I, if I'm lifted up from the earth, will draw everyone to myself." 
 But he said this, signifying by what kind of death he should die. 
-The crowd answered him, "We have heard out of the law that the Christ remains forever. How do you say, 'The Human One must be lifted up'? Who is this Human One?" 
-Jesus said to them, "Yet a little while the light is with you. Walk while you have the light, so that darkness doesn't overtake you. Whoever walks in the darkness doesn't know where they are going. 
+The crowd answered him, "We have heard out of the law that the Christ remains forever. How do you say, 'The Human One must be lifted up'? Who's this Human One?" 
+Jesus said to them, "Yet a little while the light is with you. Walk while you have the light, so that darkness doesn't overtake you. Whoever walks in the darkness doesn't know where they're going. 
 While you have the light, trust in the light, that you may become children of light." Jesus said these things, and he departed and hid himself from them. 
 But though he had done so many signs before them, yet they didn't trust in him, 
 so that the word of Isaiah the spokesman would be fulfilled, which he spoke: "Lord, who has trusted our report? To whom has the arm of the Lord been revealed?" 
-That is why they couldn't trust, for Isaiah said again: 
-"He has blinded their eyes and he hardened their heart, so that they can't see with their eyes, or perceive with their heart, and turn, and I would heal them." 
+That's why they couldn't trust, for Isaiah said again: 
+"He has blinded their eyes and he hardened their heart, so that they can't see with their eyes, or perceive with their heart, and turn, and I'd heal them." 
 Isaiah said these things when he saw his weight, and spoke of him. 
 Nevertheless, even many of the leaders trusted in him, but because of the strict religious ones they didn't confess it, so that they wouldn't be put out of the gathering place, 
 for they loved men's praise more than God's praise. 

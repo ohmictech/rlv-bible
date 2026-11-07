@@ -1,5 +1,5 @@
 ﻿Then Job answered, 
-"How have you helped him who is without power! How have you saved the arm that has no strength! 
+"How have you helped him who's without power! How have you saved the arm that has no strength! 
 How have you counseled him who has no wisdom, and plentifully declared sound knowledge! 
 To whom have you uttered words? Whose spirit came out of you? 
 "The departed spirits tremble, those beneath the waters and all that live in them. 

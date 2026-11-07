@@ -1,22 +1,22 @@
 ﻿By David. To you, God, I lift up my soul. 
 My God, I have trusted in you. Don't let me be shamed. Don't let my enemies triumph over me. 
-Yes, no one who waits for you will be shamed. They will be shamed who deal treacherously without cause. 
+Yes, no one who waits for you'll be shamed. They'll be shamed who deal treacherously without cause. 
 Show me your ways, God. Teach me your paths. 
-Guide me in your truth, and teach me, for you are the God of my salvation. I wait for you all day long. 
-God, remember your tender mercies and your loving kindness, for they are from old times. 
+Guide me in your truth, and teach me, for you're the God of my salvation. I wait for you all day long. 
+God, remember your tender mercies and your loving kindness, for they're from old times. 
 Don't remember the drifts of my youth, nor my rebellion. Remember me according to your loving kindness, for your goodness' sake, God. 
-Good and upright is God, he will instruct those who have drifted in the way. 
-He will guide the humble in justice. He will teach the humble his way. 
+Good and upright is God, he'll instruct those who have drifted in the way. 
+He'll guide the humble in justice. He'll teach the humble his way. 
 All the paths of God are loving kindness and truth to such as keep his covenant and his testimonies. 
-Your name's sake, God, pardon my guilt, for it is great. 
+Your name's sake, God, pardon my guilt, for it's great. 
 What man is he who fears God? He shall instruct him in the way that he shall choose. 
 His soul will dwell at ease. His offspring will inherit the land. 
-The friendship of God is with those who fear him. He will show them his covenant. 
-My eyes are ever on God, for he will pluck my feet out of the net. 
-Turn to me, and have mercy on me, for I am desolate and afflicted. 
+The friendship of God is with those who fear him. He'll show them his covenant. 
+My eyes are ever on God, for he'll pluck my feet out of the net. 
+Turn to me, and have mercy on me, for I'm desolate and afflicted. 
 The troubles of my heart are enlarged. Oh bring me out of my distresses. 
 Consider my affliction and my travail. Forgive all my mistakes. 
-Consider my enemies, for they are many. They hate me with cruel hatred. 
+Consider my enemies, for they're many. They hate me with cruel hatred. 
 Oh keep my soul, and deliver me. Let me not be disappointed, for I take refuge in you. 
 Let integrity and uprightness preserve me, for I wait for you. 
 God, buy back Israel out of all his troubles. 

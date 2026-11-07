@@ -2,22 +2,22 @@
 God says, "Don't learn the way of the nations, and don't be dismayed at the signs of the sky; for the nations are dismayed at them. 
 The customs of the peoples are vanity; for one cuts a tree out of the forest, the work of the hands of the workman with the ax. 
 They deck it with silver and with gold. They fasten it with nails and with hammers, so that it can't move. 
-They are like a palm tree, of turned work, and don't speak. They must be carried, because they can't move. Don't be afraid of them; for they can't do bad things, neither is it in them to do good." 
-There is no one like you, God. You are great, and your name is great in might. 
-Who shouldn't fear you, King of the nations? It belongs to you. Because among all the wise men of the nations, and in all their royal estate, there is no one like you. 
-But they are together brutish and foolish, instructed by idols! It is just wood. 
-There is silver beaten into plates, which is brought from Tarshish, and gold from Uphaz, the work of the engraver and of the hands of the goldsmith. Their clothing is blue and purple. They are all the work of skillful men. 
-But God is the true God. He is the living God, and an perpetual King. At his wrath, the earth trembles. The nations aren't able to withstand his indignation. 
+They're like a palm tree, of turned work, and don't speak. They must be carried, because they can't move. Don't be afraid of them; for they can't do bad things, neither is it in them to do good." 
+There's no one like you, God. You're great, and your name is great in might. 
+Who shouldn't fear you, King of the nations? It belongs to you. Because among all the wise men of the nations, and in all their royal estate, there's no one like you. 
+But they're together brutish and foolish, instructed by idols! It's just wood. 
+There's silver beaten into plates, which is brought from Tarshish, and gold from Uphaz, the work of the engraver and of the hands of the goldsmith. Their clothing is blue and purple. They're all the work of skillful men. 
+But God is the true God. He's the living God, and an perpetual King. At his wrath, the earth trembles. The nations aren't able to withstand his indignation. 
 "You shall say this to them: 'The gods that haven't made the sky and the earth will perish from the earth, and from under the sky.'" 
 God has made the earth by his power. He has established the world by his wisdom, and by his understanding has he stretched out the sky. 
 When he utters his voice, the waters in the sky roar, and he causes the vapors to ascend from the ends of the earth. He makes lightnings for the rain, and brings the wind out of his treasuries. 
-Every man has become brutish and without knowledge. Every goldsmith is disappointed by his engraved image; for his molten image is falsehood, and there is no breath in them. 
-They are vanity, a work of delusion. In the time of their visitation they will perish. 
-The portion of Jacob isn't like these; for he is the maker of all things; and Israel is the tribe of his inheritance. The God of Armies is his name. 
+Every man has become brutish and without knowledge. Every goldsmith is disappointed by his engraved image; for his molten image is falsehood, and there's no breath in them. 
+They're vanity, a work of delusion. In the time of their visitation they'll perish. 
+The portion of Jacob isn't like these; for he's the maker of all things; and Israel is the tribe of his inheritance. The God of Armies is his name. 
 Gather up your wares out of the land, you who live under siege. 
-God says, "Look, I will sling out the inhabitants of the land at this time, and will distress them, that they may feel it." 
+God says, "Look, I'll sling out the inhabitants of the land at this time, and will distress them, that they may feel it." 
 Woe is me because of my injury! My wound is serious; but I said, "Truly this is my grief, and I must bear it." 
-My tent has been destroyed, and all my cords are broken. My children have gone away from me, and they are no more. There is no one to spread my tent any more, to set up my curtains. 
+My tent has been destroyed, and all my cords are broken. My children have gone away from me, and they're no more. There's no one to spread my tent any more, to set up my curtains. 
 The shepherds have become brutish, and haven't inquired of God. So they haven't prospered, and all their flocks have scattered. 
 The voice of news, look, it comes, and a great commotion out of the north country, to make the cities of Judah a desolation, a dwelling place of jackals. 
 God, I know that the way of man isn't in himself. It isn't in man who walks to direct his steps. 

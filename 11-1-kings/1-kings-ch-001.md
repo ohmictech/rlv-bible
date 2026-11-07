@@ -2,7 +2,7 @@
 So his servants said to him, "Let a young virgin be sought for my lord the king. Let her stand before the king, and cherish him; and let her lie in your bosom, that my lord the king may keep warm." 
 So they sought for a beautiful young lady throughout all the borders of Israel, and found Abishag the Shunammite, and brought her to the king. 
 The young lady was very beautiful; and she cherished the king, and served him; but the king didn't know her intimately. 
-Then Adonijah the son of Haggith exalted himself, saying, "I will be king." Then he prepared him chariots and horsemen, and fifty men to run before him. 
+Then Adonijah the son of Haggith exalted himself, saying, "I'll be king." Then he prepared him chariots and horsemen, and fifty men to run before him. 
 His father hadn't displeased him at any time in saying, "Why have you done so?" and he was also a very handsome man; and he was born after Absalom. 
 He conferred with Joab the son of Zeruiah and with Abiathar the priest; and they followed Adonijah and helped him. 
 But Zadok the priest, Benaiah the son of Jehoiada, Nathan the spokesman, Shimei, Rei, and the mighty men who belonged to David, weren't with Adonijah. 
@@ -11,23 +11,23 @@ but he didn't call Nathan the spokesman, and Benaiah, and the mighty men, and So
 Then Nathan spoke to Bathsheba the mother of Solomon, saying, "Haven't you heard that Adonijah the son of Haggith reigns, and David our lord doesn't know it? 
 Now come, please let me give you counsel, that you may save your own life and your son Solomon's life. 
 Go in to King David, and tell him, 'Didn't you, my lord the king, swear to your servant, saying, "Assuredly Solomon your son shall reign after me, and he shall sit on my throne"? Why then does Adonijah reign?' 
-Look, while you are still talking there with the king, I will also come in after you and confirm your words." 
+Look, while you're still talking there with the king, I'll also come in after you and confirm your words." 
 Bathsheba went in to the king in his room. The king was very old; and Abishag the Shunammite was serving the king. 
 Bathsheba bowed and showed respect to the king. The king said, "What would you like?" 
 She said to him, "My lord, you swore by your God to your servant, 'Assuredly Solomon your son shall reign after me, and he shall sit on my throne.' 
 Now, look, Adonijah reigns; and you, my lord the king, don't know it. 
 He has slain cattle and fatlings and sheep in abundance, and has called all the sons of the king, Abiathar the priest, and Joab the captain of the army; but he hasn't called Solomon your servant. 
 You, my lord the king, the eyes of all Israel are on you, that you should tell them who will sit on the throne of my lord the king after him. 
-Otherwise it will happen, when my lord the king sleeps with his fathers, that I and my son Solomon will be considered criminals." 
+Otherwise it'll happen, when my lord the king sleeps with his fathers, that I and my son Solomon will be considered criminals." 
 Look, while she was still talking with the king, Nathan the spokesman came in. 
 They told the king, saying, "Look, Nathan the spokesman!" When he had come in before the king, he bowed himself before the king with his face to the ground. 
 Nathan said, "My lord, King, have you said, 'Adonijah shall reign after me, and he shall sit on my throne'? 
-He has gone down today, and has slain cattle, fatlings, and sheep in abundance, and has called all the king's sons, the captains of the army, and Abiathar the priest. Look, they are eating and drinking before him, and saying, 'Long live King Adonijah!' 
+He has gone down today, and has slain cattle, fatlings, and sheep in abundance, and has called all the king's sons, the captains of the army, and Abiathar the priest. Look, they're eating and drinking before him, and saying, 'Long live King Adonijah!' 
 But he hasn't called me, even me your servant, Zadok the priest, Benaiah the son of Jehoiada, and your servant Solomon. 
 Was this thing done by my lord the king, and you haven't shown to your servants who should sit on the throne of my lord the king after him?" 
 Then King David answered, "Call Bathsheba in to me." She came into the king's presence and stood before the king. 
 The king vowed and said, "As God lives, who has bought back my soul out of all adversity, 
-most certainly as I swore to you by the God of Israel, saying, 'Assuredly Solomon your son shall reign after me, and he shall sit on my throne in my place;' I will most certainly do this today." 
+most certainly as I swore to you by the God of Israel, saying, 'Assuredly Solomon your son shall reign after me, and he shall sit on my throne in my place;' I'll most certainly do this today." 
 Then Bathsheba bowed with her face to the earth and showed respect to the king, and said, "Let my lord King David live for the eras!" 
 King David said, "Call to me Zadok the priest, Nathan the spokesman, and Benaiah the son of Jehoiada." They came before the king. 
 The king said to them, "Take with you the servants of your lord, and cause Solomon my son to ride on my own mule, and bring him down to Gihon. 
@@ -39,7 +39,7 @@ So Zadok the priest, Nathan the spokesman, Benaiah the son of Jehoiada, and the 
 Zadok the priest took the horn of oil from the Tent, and anointed Solomon. They blew the trumpet; and everyone said, "Long live King Solomon!" 
 Everyone came up after him, and the people piped with pipes, and rejoiced with great joy, so that the earth shook with their sound. 
 Adonijah and all the guests who were with him heard it as they had finished eating. When Joab heard the sound of the trumpet, he said, "Why is this noise of the city being in an uproar?" 
-While he yet spoke, look, Jonathan the son of Abiathar the priest came; and Adonijah said, "Come in; for you are a worthy man, and bring good news." 
+While he yet spoke, look, Jonathan the son of Abiathar the priest came; and Adonijah said, "Come in; for you're a worthy man, and bring good news." 
 Jonathan answered Adonijah, "Most certainly our lord King David has made Solomon king. 
 The king has sent with him Zadok the priest, Nathan the spokesman, Benaiah the son of Jehoiada, and the Cherethites and the Pelethites; and they have caused him to ride on the king's mule. 
 Zadok the priest and Nathan the spokesman have anointed him king in Gihon. They have come up from there rejoicing, so that the city rang again. This is the noise that you have heard. 
@@ -48,6 +48,6 @@ Moreover the king's servants came to bless our lord King David, saying, 'May you
 Also thus said the king, 'Blessed be the God of Israel, who has given one to sit on my throne today, my eyes even seeing it.'" 
 All the guests of Adonijah were afraid, and rose up, and each man went his way. 
 Adonijah was afraid because of Solomon; and he arose, and went, and hung onto the horns of the altar. 
-Solomon was told, "Look, Adonijah fears King Solomon; for, look, he is hanging onto the horns of the altar, saying, 'Let King Solomon swear to me first that he won't kill his servant with the sword.'" 
+Solomon was told, "Look, Adonijah fears King Solomon; for, look, he's hanging onto the horns of the altar, saying, 'Let King Solomon swear to me first that he won't kill his servant with the sword.'" 
 Solomon said, "If he shows himself a worthy man, not a hair of his shall fall to the earth; but if guilt is found in him, he shall die." 
 So King Solomon sent, and they brought him down from the altar. He came and bowed down to King Solomon; and Solomon said to him, "Go to your house." 

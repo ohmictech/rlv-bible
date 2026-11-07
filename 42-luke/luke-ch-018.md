@@ -2,10 +2,10 @@
 saying, "There was a judge in a certain city who didn't fear God and didn't respect man. 
 A widow was in that city, and she often came to him, saying, 'Give me justice against my opponent!' 
 He wouldn't for a while; but afterward he said to himself, 'Though I neither fear God nor respect man, 
-yet because this widow bothers me, I will defend her, or else she will wear me out by her continual coming.'" 
+yet because this widow bothers me, I'll defend her, or else she'll wear me out by her continual coming.'" 
 The Lord said, "Listen to what the unjust judge says. 
 Won't God give his chosen ones justice, who cry out to him day and night, and yet he exercises patience with them? 
-I tell you that he will give them justice quickly. Nevertheless, when the Human One comes, will he find trust on the land?" 
+I tell you that he'll give them justice quickly. Nevertheless, when the Human One comes, will he find trust on the land?" 
 He also spoke this story to certain people who were convinced of their own rightness, and who despised all others: 
 "Two men went up into the temple to pray; one was a strict religious man, and the other was a tax collector. 
 The strict religious man stood and prayed by himself like this: 'God, I thank you that I'm not like the rest of people: robbers, wrongdoers, adulterers, or even like this tax collector. 
@@ -19,18 +19,18 @@ A certain ruler asked him, saying, "Good Teacher, what must I do to be given cha
 Jesus asked him, "Why do you call me good? No one is good, except one: God. 
 You know the commandments: 'Don't cheat on your spouse,' 'Don't murder,' 'Don't steal,' 'Don't give false witness,' 'Honor your father and your mother.'" 
 He said, "I have kept all these things since my youth." 
-When Jesus heard these things, he said to him, "You still lack one thing. Sell all that you have and distribute it to the poor. Then you will have treasure in the sky; then come, follow me." 
+When Jesus heard these things, he said to him, "You still lack one thing. Sell all that you have and distribute it to the poor. Then you'll have treasure in the sky; then come, follow me." 
 But when he heard these things, he became very sad, for he was very rich. 
-Jesus, seeing that he became very sad, said, "How hard it is for those who have riches to enter God's reign! 
-It is easier for a camel to enter in through the eye of a sewing needle than for a rich man to enter God's reign." 
+Jesus, seeing that he became very sad, said, "How hard it's for those who have riches to enter God's reign! 
+It's easier for a camel to enter in through the eye of a sewing needle than for a rich man to enter God's reign." 
 Those who heard it said, "Then who can be rescued?" 
 But he said, "The things which are impossible with people are possible with God." 
 Peter said, "Look, we have left everything and followed you." 
-He said to them, "Truly I tell you, there is no one who has left house, or wife, or brothers, or parents, or children, for the sake of God's reign, 
+He said to them, "Truly I tell you, there's no one who has left house, or wife, or brothers, or parents, or children, for the sake of God's reign, 
 who won't receive many times more in this time, and in the era to come, the real life of the era." 
-He took the twelve aside and said to them, "Look, we are going up to Jerusalem, and all the things that are written through the spokesmen concerning the Human One will be completed. 
-He will be handed over to the nations, will be mocked, treated shamefully, and spit on. 
-They will whip and kill him. On the third day, he will rise again." 
+He took the twelve aside and said to them, "Look, we're going up to Jerusalem, and all the things that are written through the spokesmen concerning the Human One will be completed. 
+He'll be handed over to the nations, will be mocked, treated shamefully, and spit on. 
+They'll whip and kill him. On the third day, he'll rise again." 
 They understood none of these things. This saying was hidden from them, and they didn't understand the things that were said. 
 As he came near Jericho, a certain blind man sat by the road, begging. 
 Hearing a crowd going by, he asked what this meant. 

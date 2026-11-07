@@ -1,20 +1,20 @@
 ﻿God said to Jacob, "Arise, go up to Bethel, and live there. Make there an altar to God, who appeared to you when you fled from the face of Esau your brother." 
 Then Jacob said to his household, and to everyone who was with him, "Put away the foreign gods that are among you, purify yourselves, and change your garments. 
-Let's arise, and go up to Bethel. I will make there an altar to God, who answered me in the day of my distress, and was with me on the way which I went." 
+Let's arise, and go up to Bethel. I'll make there an altar to God, who answered me in the day of my distress, and was with me on the way which I went." 
 They gave to Jacob all the foreign gods which were in their hands, and the rings which were in their ears; and Jacob hid them under the oak which was by Shechem. 
 They traveled, and a terror of God was on the cities that were around them, and they didn't pursue the sons of Jacob. 
-So Jacob came to Luz (that is, Bethel), which is in the land of Canaan, he and everyone who was with him. 
+So Jacob came to Luz (that's, Bethel), which is in the land of Canaan, he and everyone who was with him. 
 He built an altar there, and called the place El Beth El; because there God was revealed to him, when he fled from the face of his brother. 
 Deborah, Rebekah's nurse, died, and she was buried below Bethel under the oak; and its name was called Allon Bacuth. 
 God appeared to Jacob again, when he came from Paddan Aram, and blessed him. 
 God said to him, "Your name is Jacob. Your name shall not be Jacob any more, but your name will be Israel." He named him Israel. 
-God said to him, "I am God Almighty. Be fruitful and multiply. A nation and a company of nations will be from you, and kings will come out of your body. 
-The land which I gave to Abraham and Isaac, I will give it to you, and to your offspring after you I will give the land." 
+God said to him, "I'm God Almighty. Be fruitful and multiply. A nation and a company of nations will be from you, and kings will come out of your body. 
+The land which I gave to Abraham and Isaac, I'll give it to you, and to your offspring after you I'll give the land." 
 God went up from him in the place where he spoke with him. 
 Jacob set up a pillar in the place where he spoke with him, a pillar of stone. He poured out a drink offering on it, and poured oil on it. 
 Jacob called the name of the place where God spoke with him "Bethel". 
 They traveled from Bethel. There was still some distance to come to Ephrath, and Rachel travailed. She had hard labor. 
-When she was in hard labor, the midwife said to her, "Don't be afraid, for now you will have another son." 
+When she was in hard labor, the midwife said to her, "Don't be afraid, for now you'll have another son." 
 As her soul was departing (for she died), she named him Benoni, but his father named him Benjamin. 
 Rachel died, and was buried on the way to Ephrath (also called Bethlehem). 
 Jacob set up a pillar on her grave. The same is the Pillar of Rachel's grave to this day. 

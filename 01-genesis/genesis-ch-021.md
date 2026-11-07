@@ -10,18 +10,18 @@ Sarah saw the son of Hagar the Egyptian, whom she had borne to Abraham, mocking.
 So she said to Abraham, "Cast out this servant and her son! The son of this servant won't be heir with my son, Isaac." 
 The thing was very grievous in Abraham's sight on account of his son. 
 God said to Abraham, "Don't let it be grievous in your sight because of the boy, and because of your servant. In all that Sarah says to you, listen to her voice. Your offspring will be named through Isaac. 
-I will also make a nation of the son of the servant, because he is your child." 
+I'll also make a nation of the son of the servant, because he's your child." 
 Abraham rose up early in the morning, and took bread and a container of water, and gave it to Hagar, putting it on her shoulder; and gave her the child, and sent her away. She departed, and wandered in the wilderness of Beersheba. 
 The water in the container was spent, and she put the child under one of the shrubs. 
 She went and sat down opposite him, a good way off, about a bow shot away. She said, "Don't let me see the death of the child." She sat opposite him, and lifted up her voice, and wept. 
-God heard the voice of the boy. The messenger of God called to Hagar out of the sky, and said to her, "What troubles you, Hagar? Don't be afraid. God has heard the voice of the boy where he is. 
-Get up, lift up the boy, and hold him with your hand. I will make him a great nation." 
+God heard the voice of the boy. The messenger of God called to Hagar out of the sky, and said to her, "What troubles you, Hagar? Don't be afraid. God has heard the voice of the boy where he's. 
+Get up, lift up the boy, and hold him with your hand. I'll make him a great nation." 
 God opened her eyes, and she saw a well of water. She went, filled the container with water, and gave the boy a drink. 
 God was with the boy, and he grew. He lived in the wilderness, and as he grew up, he became an archer. 
 He lived in the wilderness of Paran. His mother got a wife for him out of the land of Egypt. 
 At that time, Abimelech and Phicol the captain of his army spoke to Abraham, saying, "God is with you in all that you do. 
 Now, swear to me here by God that you won't deal falsely with me, nor with my son, nor with my son's son. But according to the kindness that I have done to you, you shall do to me, and to the land in which you have lived as a foreigner." 
-Abraham said, "I will swear." 
+Abraham said, "I'll swear." 
 Abraham complained to Abimelech because of a water well, which Abimelech's servants had violently taken away. 
 Abimelech said, "I don't know who has done this thing. You didn't tell me, and I didn't hear of it until today." 
 Abraham took sheep and cattle, and gave them to Abimelech. Those two made a covenant. 

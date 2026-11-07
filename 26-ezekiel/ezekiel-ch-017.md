@@ -7,18 +7,18 @@ It grew and became a spreading vine of low stature, whose branches turned toward
 "'"There was also another great eagle with great wings and many feathers. Look, this vine bent its roots toward him, and shot out its branches toward him, from the ground where it was planted, that he might water it. 
 It was planted in a good soil by many waters, that it might produce branches and that it might bear fruit, that it might be a good vine."' 
 "Say, 'The God says: "Will it prosper? Won't he pull up its roots and cut off its fruit, that it may wither, that all its fresh springing leaves may wither? It can't be raised from its roots by a strong arm or many people. 
-Yes, look, being planted, will it prosper? Won't it utterly wither when the east wind touches it? It will wither in the ground where it grew."'" 
+Yes, look, being planted, will it prosper? Won't it utterly wither when the east wind touches it? It'll wither in the ground where it grew."'" 
 Moreover God's word came to me, saying, 
 "Say now to the rebellious house, 'Don't you know what these things mean?' Tell them, 'Look, the king of Babylon came to Jerusalem, and took its king, and its princes, and brought them to him to Babylon. 
 He took one of the royal offspring, and made a covenant with him. He also brought him under an oath, and took away the mighty of the land, 
 that the kingdom might be brought low, that it might not lift itself up, but that by keeping his covenant it might stand. 
 But he rebelled against him in sending his ambassadors into Egypt, that they might give him horses and many people. Will he prosper? Will he who does such things escape? Will he break the covenant, and still escape? 
-"'As I live,' says God, 'surely in the place where the king dwells who made him king, whose oath he despised, and whose covenant he broke, even with him in the middle of Babylon he will die. 
+"'As I live,' says God, 'surely in the place where the king dwells who made him king, whose oath he despised, and whose covenant he broke, even with him in the middle of Babylon he'll die. 
 Pharaoh with his mighty army and great company won't help him in the war, when they cast up mounds and build forts to cut off many persons. 
 He has despised the oath by breaking the covenant; and look, he had given his hand, and yet has done all these things. He won't escape. 
-"So God says: 'As I live, I will surely bring on his own head my oath that he has despised and my covenant that he has broken. 
-I will spread my net on him, and he will be taken in my snare. I will bring him to Babylon, and will enter into judgment with him there for his trespass that he has trespassed against me. 
-All his fugitives in all his bands will fall by the sword, and those who remain will be scattered toward every wind. Then you will know that I, God, have spoken it.' 
-"The God says: 'I will also take some of the lofty top of the cedar, and will plant it. I will crop off from the topmost of its young twigs a tender one, and I will plant it on a high and lofty mountain. 
-I will plant it in the mountain of the height of Israel; and it will produce boughs, and bear fruit, and be a good cedar. Birds of every kind will dwell in the shade of its branches. 
+"So God says: 'As I live, I'll surely bring on his own head my oath that he has despised and my covenant that he has broken. 
+I'll spread my net on him, and he'll be taken in my snare. I'll bring him to Babylon, and will enter into judgment with him there for his trespass that he has trespassed against me. 
+All his fugitives in all his bands will fall by the sword, and those who remain will be scattered toward every wind. Then you'll know that I, God, have spoken it.' 
+"The God says: 'I'll also take some of the lofty top of the cedar, and will plant it. I'll crop off from the topmost of its young twigs a tender one, and I'll plant it on a high and lofty mountain. 
+I'll plant it in the mountain of the height of Israel; and it'll produce boughs, and bear fruit, and be a good cedar. Birds of every kind will dwell in the shade of its branches. 
 All the trees of the field will know that I, God, have brought down the high tree, have exalted the low tree, have dried up the green tree, and have made the dry tree flourish. "'I, God, have spoken and have done it.'" 

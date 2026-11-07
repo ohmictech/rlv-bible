@@ -13,6 +13,6 @@ Now Nebuchadnezzar king of Babylon commanded Nebuzaradan the captain of the guar
 So Nebuzaradan the captain of the guard, Nebushazban, Rabsaris, and Nergal Sharezer, Rabmag, and all the chief officers of the king of Babylon 
 sent and took Jeremiah out of the court of the guard, and committed him to Gedaliah the son of Ahikam, the son of Shaphan, that he should bring him home. So he lived among the people. 
 Now God's word came to Jeremiah while he was shut up in the court of the guard, saying, 
-"Go, and speak to Ebedmelech the Ethiopian, saying, 'The God of Armies, the God of Israel says: "Look, I will bring my words on this city for bad, and not for good; and they will be accomplished before you in that day. 
-But I will deliver you in that day," says God; "and you won't be given into the hand of the men of whom you are afraid. 
-I will surely save you. You won't fall by the sword, but you will escape with your life, because you have put your trust in me," says God.'" 
+"Go, and speak to Ebedmelech the Ethiopian, saying, 'The God of Armies, the God of Israel says: "Look, I'll bring my words on this city for bad, and not for good; and they'll be accomplished before you in that day. 
+But I'll deliver you in that day," says God; "and you won't be given into the hand of the men of whom you're afraid. 
+I'll surely save you. You won't fall by the sword, but you'll escape with your life, because you have put your trust in me," says God.'" 

@@ -1,13 +1,13 @@
 ﻿By David. Contend, God, with those who contend with me. Fight against those who fight against me. 
 Take hold of shield and buckler, and stand up for my help. 
-Brandish the spear and block those who pursue me. Tell my soul, "I am your salvation." 
+Brandish the spear and block those who pursue me. Tell my soul, "I'm your salvation." 
 Let those who seek after my soul be disappointed and brought to dishonor. Let those who plot my ruin be turned back and confounded. 
 Let them be as chaff before the wind, God's messenger driving them on. 
 Let their way be dark and slippery, God's messenger pursuing them. 
 Without cause they have hidden their net in a pit for me. Without cause they have dug a pit for my soul. 
 Let destruction come on him unawares. Let his net that he has hidden catch himself. Let him fall into that destruction. 
 My soul shall be joyful in God. It shall rejoice in his salvation. 
-All my bones shall say, "God, who is like you, who delivers the poor from him who is too strong for him; yes, the poor and the needy from him who robs him?" 
+All my bones shall say, "God, who's like you, who delivers the poor from him who's too strong for him; yes, the poor and the needy from him who robs him?" 
 Unrighteous witnesses rise up. They ask me about things that I don't know about. 
 They reward me bad for good, to the bereaving of my soul. 
 But as for me, when they were sick, my clothing was sackcloth. I afflicted my soul with fasting. My prayer returned into my own bosom. 
@@ -15,7 +15,7 @@ I behaved myself as though it had been my friend or my brother. I bowed down mou
 But in my adversity, they rejoiced, and gathered themselves together. The attackers gathered themselves together against me, and I didn't know it. They tore at me, and didn't cease. 
 Like the profane mockers in feasts, they gnashed their teeth at me. 
 Lord, how long will you look on? Rescue my soul from their destruction, my precious life from the lions. 
-I will give you thanks in the great assembly. I will praise you among many people. 
+I'll give you thanks in the great assembly. I'll praise you among many people. 
 Don't let those who are my enemies wrongfully rejoice over me; neither let those who hate me without a cause wink their eyes. 
 They don't speak peace, but they devise deceitful words against those who are quiet in the land. 
 Yes, they opened their mouth wide against me. They said, "Aha! Aha! Our eye has seen it!" 

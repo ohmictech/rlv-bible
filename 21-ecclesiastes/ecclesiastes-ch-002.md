@@ -1,5 +1,5 @@
-﻿I said in my heart, "Come now, I will test you with mirth; enjoy pleasure;" and look, this also was vanity. 
-I said of laughter, "It is foolishness;" and of mirth, "What does it accomplish?" 
+﻿I said in my heart, "Come now, I'll test you with mirth; enjoy pleasure;" and look, this also was vanity. 
+I said of laughter, "It's foolishness;" and of mirth, "What does it accomplish?" 
 I searched in my heart how to cheer my flesh with wine, my heart yet guiding me with wisdom, and how to lay hold of folly, until I might see what it was good for the sons of men that they should do under the sky all the days of their lives. 
 I made myself great works. I built myself houses. I planted myself vineyards. 
 I made myself gardens and parks, and I planted trees in them of all kinds of fruit. 
@@ -13,14 +13,14 @@ I turned myself to consider wisdom, madness, and folly; for what can the king's 
 Then I saw that wisdom excels folly, as far as light excels darkness. 
 The wise man's eyes are in his head, and the fool walks in darkness, and yet I perceived that one event happens to them all. 
 Then I said in my heart, "As it happens to the fool, so will it happen even to me; and why was I then more wise?" Then I said in my heart that this also is vanity. 
-Of the wise man, even as of the fool, there is no memory for the eras, since in the days to come all will have been long forgotten. Indeed, the wise man must die just like the fool! 
-So I hated life, because the work that is worked under the sun was grievous to me; for all is vanity and a chasing after wind. 
+Of the wise man, even as of the fool, there's no memory for the eras, since in the days to come all will have been long forgotten. Indeed, the wise man must die just like the fool! 
+So I hated life, because the work that's worked under the sun was grievous to me; for all is vanity and a chasing after wind. 
 I hated all my labor in which I labored under the sun, because I must leave it to the man who comes after me. 
-Who knows whether he will be a wise man or a fool? Yet he will have rule over all of my labor in which I have labored, and in which I have shown myself wise under the sun. This also is vanity. 
+Who knows whether he'll be a wise man or a fool? Yet he'll have rule over all of my labor in which I have labored, and in which I have shown myself wise under the sun. This also is vanity. 
 So I began to cause my heart to despair concerning all the labor in which I had labored under the sun. 
-There is a man whose labor is with wisdom, with knowledge, and with skillfulness; yet he shall leave it for his portion to a man who hasn't labored for it. This also is vanity and a great bad. 
+There's a man whose labor is with wisdom, with knowledge, and with skillfulness; yet he shall leave it for his portion to a man who hasn't labored for it. This also is vanity and a great bad. 
 What does a man have of all his labor and of the striving of his heart, in which he labors under the sun? 
 All his days are sorrows, and his travail is grief; yes, even in the night his heart takes no rest. This also is vanity. 
-There is nothing better for a man than that he should eat and drink, and make his soul enjoy good in his labor. This also I saw, that it is from the hand of God. 
+There's nothing better for a man than that he should eat and drink, and make his soul enjoy good in his labor. This also I saw, that it's from the hand of God. 
 Who can eat, or who can have enjoyment, more than I? 
 To the man who pleases him, God gives wisdom, knowledge, and joy; but to the one who drifts he gives travail, to gather and to heap up, that he may give to him who pleases God. This also is vanity and a chasing after wind. 

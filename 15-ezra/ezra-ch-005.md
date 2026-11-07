@@ -8,10 +8,10 @@ They sent a letter to him, in which was written: To Darius the king, all peace.
 Be it known to the king that we went into the province of Judah, to the house of the great God, which is being built with great stones and timber is laid in the walls. This work goes on with diligence and prospers in their hands. 
 Then we asked those elders, and said to them thus, "Who gave you a decree to build this house, and to finish this wall?" 
 We asked them their names also, to inform you that we might write the names of the men who were at their head. 
-Thus they returned us answer, saying, "We are the servants of the God of the sky and earth and are building the house that was built these many years ago, which a great king of Israel built and finished. 
+Thus they returned us answer, saying, "We're the servants of the God of the sky and earth and are building the house that was built these many years ago, which a great king of Israel built and finished. 
 But after our fathers had provoked the God of the sky to wrath, he gave them into the hand of Nebuchadnezzar king of Babylon, the Chaldean, who destroyed this house and carried the people away into Babylon. 
 But in the first year of Cyrus king of Babylon, Cyrus the king made a decree to build this house of God. 
 The gold and silver vessels of God's house, which Nebuchadnezzar took out of the temple that was in Jerusalem and brought into the temple of Babylon, those Cyrus the king also took out of the temple of Babylon, and they were delivered to one whose name was Sheshbazzar, whom he had made governor. 
-He said to him, 'Take these vessels, go, put them in the temple that is in Jerusalem, and let God's house be built in its place.' 
+He said to him, 'Take these vessels, go, put them in the temple that's in Jerusalem, and let God's house be built in its place.' 
 Then the same Sheshbazzar came and laid the foundations of God's house which is in Jerusalem. Since that time even until now it has been being built, and yet it isn't completed. 
-Now, if it seems good to the king, let a search be made in the king's treasure house, which is there at Babylon, whether it is so that a decree was made by Cyrus the king to build this house of God at Jerusalem; and let the king send his pleasure to us concerning this matter." 
+Now, if it seems good to the king, let a search be made in the king's treasure house, which is there at Babylon, whether it's so that a decree was made by Cyrus the king to build this house of God at Jerusalem; and let the king send his pleasure to us concerning this matter." 

@@ -10,23 +10,23 @@ He who walks blamelessly walks surely, but he who perverts his ways will be foun
 One who winks with the eye causes sorrow, but a chattering fool will fall. 
 The mouth of the righteous is a spring of life, but violence covers the mouth of the guilty. 
 Hatred stirs up strife, but love covers all wrongs. 
-Wisdom is found on the lips of him who has discernment, but a rod is for the back of him who is void of understanding. 
+Wisdom is found on the lips of him who has discernment, but a rod is for the back of him who's void of understanding. 
 Wise men lay up knowledge, but the mouth of the foolish is near ruin. 
 The rich man's wealth is his strong city. The destruction of the poor is their poverty. 
 The labor of the righteous leads to life. The increase of the guilty leads to drift. 
-He is in the way of life who heeds correction, but he who forsakes reproof leads others astray. 
+He's in the way of life who heeds correction, but he who forsakes reproof leads others astray. 
 He who hides hatred has lying lips. He who utters a slander is a fool. 
-In the multitude of words there is no lack of disobedience, but he who restrains his lips does wisely. 
+In the multitude of words there's no lack of disobedience, but he who restrains his lips does wisely. 
 The tongue of the righteous is like choice silver. The heart of the guilty is of little worth. 
 The lips of the righteous feed many, but the foolish die for lack of understanding. 
 God's blessing brings wealth, and he adds no trouble to it. 
-It is a fool's pleasure to do guilt, but wisdom is a man of understanding's pleasure. 
+It's a fool's pleasure to do guilt, but wisdom is a man of understanding's pleasure. 
 What the guilty fear will overtake them, but the desire of the righteous will be granted. 
 When the whirlwind passes, the guilty is no more; but the righteous stand firm for the eras. 
 As vinegar to the teeth, and as smoke to the eyes, so is the sluggard to those who send him. 
 The fear of God prolongs days, but the years of the guilty shall be shortened. 
 The prospect of the righteous is joy, but the hope of the guilty will perish. 
-The way of God is a stronghold to the upright, but it is a destruction to the workers of guilt. 
+The way of God is a stronghold to the upright, but it's a destruction to the workers of guilt. 
 The righteous will never be removed, but the guilty won't dwell in the land. 
 The mouth of the righteous produces wisdom, but the perverse tongue will be cut off. 
-The lips of the righteous know what is acceptable, but the mouth of the guilty is perverse. 
+The lips of the righteous know what's acceptable, but the mouth of the guilty is perverse. 

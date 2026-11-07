@@ -6,7 +6,7 @@ Ananias, hearing these words, fell down and died. Great fear came on everyone wh
 The young men arose and wrapped him up, and they carried him out and buried him. 
 About three hours later, his wife, not knowing what had happened, came in. 
 Peter answered her, "Tell me whether you sold the land for so much." She said, "Yes, for so much." 
-But Peter asked her, "How is it that you have agreed together to test the Spirit of the Lord? Look, the feet of those who have buried your husband are at the door, and they will carry you out." 
+But Peter asked her, "How is it that you have agreed together to test the Spirit of the Lord? Look, the feet of those who have buried your husband are at the door, and they'll carry you out." 
 She fell down immediately at his feet and died. The young men came in and found her dead, and they carried her out and buried her by her husband. 
 Great awe came on the whole gathering, and on everyone who heard these things. 
 By the hands of the sent ones many signs and wonders were done among the people. They were all with one accord in Solomon's covered walkway. 
@@ -29,14 +29,14 @@ saying, "Didn't we strictly command you not to teach in this name? Look, you hav
 But Peter and the sent ones answered, "We must obey God rather than people. 
 The God of our fathers raised up Jesus, whom you killed, hanging him on a tree. 
 God exalted him with his right hand to be a Leader and a Restorer, to give a change of heart to Israel, and the release of mistakes. 
-We are his witnesses of these things; and so also is the Holy Spirit, whom God has given to those who obey him." 
+We're his witnesses of these things; and so also is the Holy Spirit, whom God has given to those who obey him." 
 But they, when they heard this, were cut to the heart, and were determined to kill them. 
 But one stood up in the council, a strict religious man named Gamaliel, a teacher of the law, honored by everyone, and commanded to put the sent ones out for a little while. 
-He said to them, "Men of Israel, be careful concerning these men, what you are about to do. 
+He said to them, "Men of Israel, be careful concerning these men, what you're about to do. 
 Before these days Theudas rose up, making himself out to be somebody, and about four hundred men joined him. He was slain; and all, as many as obeyed him, were dispersed and came to nothing. 
 After this man, Judas of Galilee rose up in the days of the enrollment, and drew away some people after him. He also died, and all, as many as obeyed him, were scattered abroad. 
-Now I tell you, withdraw from these men and leave them alone. If this counsel or this work is of people, it will be overthrown. 
-But if it is of God, you won't be able to overthrow it, and you would be found even to be fighting against God!" 
+Now I tell you, withdraw from these men and leave them alone. If this counsel or this work is of people, it'll be overthrown. 
+But if it's of God, you won't be able to overthrow it, and you'd be found even to be fighting against God!" 
 They agreed with him. Summoning the sent ones, they beat them and commanded them not to speak in the name of Jesus, and let them go. 
 They departed from the presence of the council, celebrating that they were counted worthy to suffer dishonor for Jesus' name. 
 Every day, in the temple courts and at home, they never stopped teaching and announcing the good news that Jesus is the Christ. 

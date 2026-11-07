@@ -1,17 +1,17 @@
 ﻿Don't rejoice, Israel, to jubilation like the nations; for you were unfaithful to your God. You love the wages of a prostitute at every grain threshing floor. 
 The threshing floor and the wine press won't feed them, and the new wine will fail her. 
-They won't dwell in God's land; but Ephraim will return to Egypt, and they will eat unclean food in Assyria. 
-They won't pour out wine offerings to God, neither will they be pleasing to him. Their sacrifices will be to them like the bread of mourners; everyone who eats of it will be polluted; for their bread will be for their appetite. It won't come into God's house. 
+They won't dwell in God's land; but Ephraim will return to Egypt, and they'll eat unclean food in Assyria. 
+They won't pour out wine offerings to God, neither will they be pleasing to him. Their sacrifices will be to them like the bread of mourners; everyone who eats of it'll be polluted; for their bread will be for their appetite. It won't come into God's house. 
 What will you do in the day of solemn assembly, and in the day of the feast of God? 
 For, look, when they flee destruction, Egypt will gather them up. Memphis will bury them. Nettles will possess their pleasant things of silver. Thorns will be in their tents. 
-The days of visitation have come. The days of reckoning have come. Israel will consider the spokesman to be a fool, and the man who is inspired to be insane, because of the abundance of your mistakes, and because your hostility is great. 
+The days of visitation have come. The days of reckoning have come. Israel will consider the spokesman to be a fool, and the man who's inspired to be insane, because of the abundance of your mistakes, and because your hostility is great. 
 A spokesman watches over Ephraim with my God. A fowler's snare is on all of his paths, and hostility in the house of his God. 
-They have deeply corrupted themselves, as in the days of Gibeah. He will remember their guilt. He will punish them for their mistakes. 
+They have deeply corrupted themselves, as in the days of Gibeah. He'll remember their guilt. He'll punish them for their mistakes. 
 I found Israel like grapes in the wilderness. I saw your fathers as the first ripe in the fig tree at its first season; but they came to Baal Peor, and consecrated themselves to the shameful thing, and became abominable like that which they loved. 
 As for Ephraim, their glory will fly away like a bird. There will be no birth, no one with child, and no conception. 
-Though they bring up their children, yet I will bereave them, so that not a man shall be left. Indeed, woe also to them when I depart from them! 
+Though they bring up their children, yet I'll bereave them, so that not a man shall be left. Indeed, woe also to them when I depart from them! 
 I have seen Ephraim, like Tyre, planted in a pleasant place; but Ephraim will bring out his children to the murderer. 
 Give them, God what will you give? Give them a miscarrying womb and dry breasts. 
-"All their guilt is in Gilgal; for there I hated them. Because of the guilt of their deeds, I will drive them out of my house! I will love them no more. All their princes are rebels. 
-Ephraim is struck. Their root has dried up. They will bear no fruit. Even though they give birth, yet I will kill the beloved ones of their womb." 
-My God will cast them away, because they didn't listen to him; and they will be wanderers among the nations. 
+"All their guilt is in Gilgal; for there I hated them. Because of the guilt of their deeds, I'll drive them out of my house! I'll love them no more. All their princes are rebels. 
+Ephraim is struck. Their root has dried up. They'll bear no fruit. Even though they give birth, yet I'll kill the beloved ones of their womb." 
+My God will cast them away, because they didn't listen to him; and they'll be wanderers among the nations. 

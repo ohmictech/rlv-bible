@@ -4,9 +4,9 @@ There he broke the flaming arrows of the bow, the shield, and the sword, and the
 Glorious are you, and excellent, more than mountains of game. 
 Valiant men lie plundered, they have slept their last sleep. None of the men of war can lift their hands. 
 At your rebuke, God of Jacob, both chariot and horse are cast into a dead sleep. 
-You, even you, are to be feared. Who can stand in your sight when you are angry? 
+You, even you, are to be feared. Who can stand in your sight when you're angry? 
 You pronounced judgment from the sky. The earth feared, and was silent, 
 when God arose to judgment, to save all the afflicted ones of the earth. Selah. 
 Surely the wrath of man praises you. The survivors of your wrath are restrained. 
-Make vows to your God, and fulfill them! Let all of his neighbors bring presents to him who is to be feared. 
-He will cut off the spirit of princes. He is feared by the kings of the earth. 
+Make vows to your God, and fulfill them! Let all of his neighbors bring presents to him who's to be feared. 
+He'll cut off the spirit of princes. He's feared by the kings of the earth. 

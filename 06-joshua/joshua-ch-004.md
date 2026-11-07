@@ -6,7 +6,7 @@ Joshua said to them, "Cross before the ark of your God into the middle of the Jo
 that this may be a sign among you, that when your children ask in the future, saying, 'What do you mean by these stones?' 
 then you shall tell them, 'Because the waters of the Jordan were cut off before the ark of God's covenant. When it crossed over the Jordan, the waters of the Jordan were cut off. These stones shall be for a memorial to the children of Israel for the eras.'" 
 The children of Israel did as Joshua commanded, and took up twelve stones out of the middle of the Jordan, as God spoke to Joshua, according to the number of the tribes of the children of Israel. They carried them over with them to the place where they camped, and laid them down there. 
-Joshua set up twelve stones in the middle of the Jordan, in the place where the feet of the priests who bore the ark of the covenant stood; and they are there to this day. 
+Joshua set up twelve stones in the middle of the Jordan, in the place where the feet of the priests who bore the ark of the covenant stood; and they're there to this day. 
 The priests who bore the ark stood in the middle of the Jordan until everything was finished that God commanded Joshua to speak to the people, according to all that Moses commanded Joshua; and the people hurried and passed over. 
 When everyone had completely crossed over, God's ark crossed over with the priests in the presence of the people. 
 The children of Reuben, and the children of Gad, and the half-tribe of Manasseh crossed over armed before the children of Israel, as Moses spoke to them. 

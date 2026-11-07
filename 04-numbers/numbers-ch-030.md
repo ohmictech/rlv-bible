@@ -6,7 +6,7 @@ But if her father forbids her in the day that he hears, none of her vows or of h
 "If she has a husband, while her vows are on her, or the rash utterance of her lips with which she has bound her soul, 
 and her husband hears it, and says nothing to her in the day that he hears it; then her vows shall stand, and her pledges with which she has bound her soul shall stand. 
 But if her husband forbids her in the day that he hears it, then he makes void her vow which is on her and the rash utterance of her lips, with which she has bound her soul. God will forgive her. 
-"But the vow of a widow, or of her who is divorced, everything with which she has bound her soul shall stand against her. 
+"But the vow of a widow, or of her who's divorced, everything with which she has bound her soul shall stand against her. 
 "If she vowed in her husband's house or bound her soul by a bond with an oath, 
 and her husband heard it, and held his peace at her and didn't disallow her, then all her vows shall stand, and every pledge with which she bound her soul shall stand. 
 But if her husband made them null and void in the day that he heard them, then whatever proceeded out of her lips concerning her vows, or concerning the bond of her soul, shall not stand. Her husband has made them void. God will forgive her. 

@@ -1,4 +1,4 @@
-﻿Woe to you who destroy, but you weren't destroyed, and who betray, but nobody betrayed you! When you have finished destroying, you will be destroyed; and when you have finished betrayal, you will be betrayed. 
+﻿Woe to you who destroy, but you weren't destroyed, and who betray, but nobody betrayed you! When you have finished destroying, you'll be destroyed; and when you have finished betrayal, you'll be betrayed. 
 God, be gracious to us. We have waited for you. Be our strength every morning, our salvation also in the time of trouble. 
 At the noise of the thunder, the peoples have fled. When you lift yourself up, the nations are scattered. 
 Your plunder will be gathered as the caterpillar gathers. Men will leap on it as locusts leap. 
@@ -7,18 +7,18 @@ There will be stability in your times, abundance of salvation, wisdom, and knowl
 Look, their valiant ones cry outside; the ambassadors of peace weep bitterly. 
 The highways are desolate. The traveling man ceases. The covenant is broken. He has despised the cities. He doesn't respect man. 
 The land mourns and languishes. Lebanon is confounded and withers away. Sharon is like a desert, and Bashan and Carmel are stripped bare. 
-"Now I will arise," says God. "Now I will lift myself up. Now I will be exalted. 
-You will conceive chaff. You will give birth to stubble. Your breath is a fire that will devour you. 
+"Now I'll arise," says God. "Now I'll lift myself up. Now I'll be exalted. 
+You'll conceive chaff. You'll give birth to stubble. Your breath is a fire that will devour you. 
 The peoples will be like the burning of lime, like thorns that are cut down and burned in the fire. 
 Hear, you who are far off, what I have done; and, you who are near, acknowledge my might." 
 The those who have drifted in Zion are afraid. Trembling has seized the godless ones. Who among us can live with the devouring fire? Who among us can live with perpetual burning? 
 He who walks righteously and speaks blamelessly, he who despises the gain of oppressions, who gestures with his hands, refusing to take a bribe, who stops his ears from hearing of bloodshed, and shuts his eyes from looking at bad 
-he will dwell on high. His place of defense will be the fortress of rocks. His bread will be supplied. His waters will be sure. 
-Your eyes will see the king in his beauty. They will see a distant land. 
+he'll dwell on high. His place of defense will be the fortress of rocks. His bread will be supplied. His waters will be sure. 
+Your eyes will see the king in his beauty. They'll see a distant land. 
 Your heart will meditate on the terror. Where is he who counted? Where is he who weighed? Where is he who counted the towers? 
-You will no longer see the fierce people, a people of a deep speech that you can't comprehend, with a strange language that you can't understand. 
+You'll no longer see the fierce people, a people of a deep speech that you can't comprehend, with a strange language that you can't understand. 
 Look at Zion, the city of our appointed festivals. Your eyes will see Jerusalem, a quiet habitation, a tent that won't be removed. Its stakes will never be plucked up, nor will any of its cords be broken. 
 But there God will be with us in majesty, a place of wide rivers and streams, in which no galley with oars will go, neither will any gallant ship pass by there. 
-God is our judge. God is our lawgiver. God is our king. He will save us. 
+God is our judge. God is our lawgiver. God is our king. He'll save us. 
 Your rigging is untied. They couldn't strengthen the foot of their mast. They couldn't spread the sail. Then the prey of a great plunder was divided. The lame took the prey. 
-The inhabitant won't say, "I am sick." The people who dwell therein will be forgiven their guilt. 
+The inhabitant won't say, "I'm sick." The people who dwell therein will be forgiven their guilt. 

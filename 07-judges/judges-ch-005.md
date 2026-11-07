@@ -1,6 +1,6 @@
 ﻿Then Deborah and Barak the son of Abinoam sang on that day, saying, 
 "Because the leaders took the lead in Israel, because the people offered themselves willingly, be blessed, God! 
-"Hear, you kings! Give ear, you princes! I, even I, will sing to God. I will sing praise to the God of Israel. 
+"Hear, you kings! Give ear, you princes! I, even I, will sing to God. I'll sing praise to the God of Israel. 
 "God, when you went out of Seir, when you marched out of the field of Edom, the earth trembled, the sky also dropped. Yes, the clouds dropped water. 
 The mountains quaked at God's presence, even Sinai at the presence of the God of Israel. 
 "In the days of Shamgar the son of Anath, in the days of Jael, the highways were unoccupied. The travelers walked through byways. 
@@ -8,7 +8,7 @@ The rulers ceased in Israel. They ceased until I, Deborah, arose; Until I arose 
 They chose new gods. Then war was in the gates. Was there a shield or spear seen among forty thousand in Israel? 
 My heart is toward the governors of Israel, who offered themselves willingly among the people. Bless God! 
 "Speak, you who ride on white donkeys, you who sit on rich carpets, and you who walk by the way. 
-Far from the noise of archers, in the places of drawing water, there they will rehearse God's righteous acts, the righteous acts of his rule in Israel. "Then God's people went down to the gates. 
+Far from the noise of archers, in the places of drawing water, there they'll rehearse God's righteous acts, the righteous acts of his rule in Israel. "Then God's people went down to the gates. 
 'Awake, awake, Deborah! Awake, awake, utter a song! Arise, Barak, and lead away your captives, you son of Abinoam.' 
 "Then a remnant of the nobles and the people came down. God came down for me against the mighty. 
 Those whose root is in Amalek came out of Ephraim, after you, Benjamin, among your peoples. Governors come down out of Machir. Those who handle the marshal's staff came out of Zebulun. 

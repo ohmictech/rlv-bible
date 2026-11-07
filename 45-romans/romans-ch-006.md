@@ -14,9 +14,9 @@ Also, don't give your hands and feet to the drift as tools of wrong, but present
 The drift won't dominate you, because you're not under law, but under favor. 
 What then? Should we drift because we're not under law but under favor? Never! 
 Don't you know that when you present yourselves as slaves and obey someone, you are the slaves of whoever you obey, whether of the drift to death, or of obedience to rightness? 
-But thanks be to God that, even though you were slaves of the drift, you became obedient from the heart to that form of teaching you were given to. 
+But thank God that, even though you were slaves of the drift, you became obedient from the heart to that form of teaching you were given to. 
 Being made free from the drift, you became slaves of rightness. 
-I speak in human terms because of the weakness of your flesh. Just as you once handed your bodies over as slaves to what is unclean and to living as if there were no law, which led to more of the same, now hand your bodies over as slaves to rightness, which leads to being set apart. 
+I speak in human terms because of the weakness of your flesh. Just as you once handed your bodies over as slaves to what's unclean and to living as if there were no law, which led to more of the same, now hand your bodies over as slaves to rightness, which leads to being set apart. 
 When you were slaves of the drift, you had no obligation to rightness. 
 What fruit did you have in the things you're ashamed of now? The end of those things is death. 
 But now, being made free from the drift and having become slaves of God, you have your fruit of set-apartness and the result of the real life of the era. 

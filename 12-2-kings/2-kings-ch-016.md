@@ -4,7 +4,7 @@ But he walked in the way of the kings of Israel, and even made his son to pass t
 He sacrificed and burned incense in the high places, on the hills, and under every green tree. 
 Then Rezin king of Syria and Pekah son of Remaliah king of Israel came up to Jerusalem to wage war. They besieged Ahaz, but couldn't overcome him. 
 At that time Rezin king of Syria recovered Elath to Syria, and drove the Jews from Elath; and the Syrians came to Elath, and live there to this day. 
-So Ahaz sent messengers to Tiglath Pileser king of Assyria, saying, "I am your servant and your son. Come up and save me out of the hand of the king of Syria and out of the hand of the king of Israel, who rise up against me." 
+So Ahaz sent messengers to Tiglath Pileser king of Assyria, saying, "I'm your servant and your son. Come up and save me out of the hand of the king of Syria and out of the hand of the king of Israel, who rise up against me." 
 Ahaz took the silver and gold that was found in God's house, and in the treasures of the king's house, and sent it for a present to the king of Assyria. 
 The king of Assyria listened to him; and the king of Assyria went up against Damascus and took it, and carried its people captive to Kir, and killed Rezin. 
 King Ahaz went to Damascus to meet Tiglath Pileser king of Assyria, and saw the altar that was at Damascus; and King Ahaz sent to Urijah the priest a drawing of the altar and plans to build it. 

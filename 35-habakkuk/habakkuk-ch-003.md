@@ -14,6 +14,6 @@ You went out for the salvation of your people, for the salvation of your anointe
 You pierced the heads of his warriors with their own spears. They came as a whirlwind to scatter me, gloating as if to devour the wretched in secret. 
 You trampled the sea with your horses, churning mighty waters. 
 I heard, and my body trembled. My lips quivered at the voice. Rottenness enters into my bones, and I tremble in my place because I must wait quietly for the day of trouble, for the coming up of the people who invade us. 
-Even though the fig tree doesn't flourish, nor fruit be in the vines, the labor of the olive fails, the fields yield no food, the flocks are cut off from the fold, and there is no herd in the stalls, 
-yet I will rejoice in God. I will be joyful in the God of my salvation! 
+Even though the fig tree doesn't flourish, nor fruit be in the vines, the labor of the olive fails, the fields yield no food, the flocks are cut off from the fold, and there's no herd in the stalls, 
+yet I'll rejoice in God. I'll be joyful in the God of my salvation! 
 GOD, the Lord, is my strength. He makes my feet like deer's feet, and enables me to go in high places. The music director, on my stringed instruments. 

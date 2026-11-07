@@ -13,7 +13,7 @@ They shall put it and all its vessels within a covering of sealskin, and shall p
 "They shall take away the ashes from the altar, and spread a purple cloth on it. 
 They shall put on it all its vessels with which they minister about it, the fire pans, the meat hooks, the shovels, and the basins, all the vessels of the altar; and they shall spread on it a covering of sealskin, and put in its poles. 
 "When Aaron and his sons have finished covering the sanctuary and all the furniture of the sanctuary, as the camp moves forward; after that, the sons of Kohath shall come to carry it; but they shall not touch the sanctuary, lest they die. The sons of Kohath shall carry these things belonging to the Tent of Meeting. 
-"The duty of Eleazar the son of Aaron the priest shall be the oil for the light, the sweet incense, the continual meal offering, and the anointing oil, the requirements of all the tabernacle, and of all that is in it, the sanctuary, and its furnishings." 
+"The duty of Eleazar the son of Aaron the priest shall be the oil for the light, the sweet incense, the continual meal offering, and the anointing oil, the requirements of all the tabernacle, and of all that's in it, the sanctuary, and its furnishings." 
 God spoke to Moses and to Aaron, saying, 
 "Don't cut off the tribe of the families of the Kohathites from among the Levites; 
 but do this to them, that they may live, and not die, when they approach the most holy things: Aaron and his sons shall go in and appoint everyone to his service and to his burden; 
@@ -22,7 +22,7 @@ God spoke to Moses, saying,
 "Take a census of the sons of Gershon also, by their fathers' houses, by their families; 
 you shall count them from thirty years old and upward until fifty years old: everyone who enters in to wait on the service, to do the work in the Tent of Meeting. 
 "This is the service of the families of the Gershonites, in serving and in bearing burdens: 
-they shall carry the curtains of the tabernacle and the Tent of Meeting, its covering, the covering of sealskin that is on it, the screen for the door of the Tent of Meeting, 
+they shall carry the curtains of the tabernacle and the Tent of Meeting, its covering, the covering of sealskin that's on it, the screen for the door of the Tent of Meeting, 
 the hangings of the court, the screen for the door of the gate of the court which is by the tabernacle and around the altar, their cords, and all the instruments of their service, and whatever shall be done with them. They shall serve in there. 
 At the commandment of Aaron and his sons shall be all the service of the sons of the Gershonites, in all their burden and in all their service; and you shall appoint their duty to them in all their responsibilities. 
 This is the service of the families of the sons of the Gershonites in the Tent of Meeting. Their duty shall be under the hand of Ithamar the son of Aaron the priest. 

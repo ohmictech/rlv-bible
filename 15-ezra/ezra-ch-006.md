@@ -1,5 +1,5 @@
 ﻿Then Darius the king made a decree, and the house of the archives, where the treasures were laid up in Babylon, was searched. 
-A scroll was found at Achmetha, in the palace that is in the province of Media, and in it this was written for a record: 
+A scroll was found at Achmetha, in the palace that's in the province of Media, and in it this was written for a record: 
 In the first year of Cyrus the king, Cyrus the king made a decree: Concerning God's house at Jerusalem, let the house be built, the place where they offer sacrifices, and let its foundations be strongly laid, with its height sixty cubits and its width sixty cubits; 
 with three courses of great stones and a course of new timber. Let the expenses be given out of the king's house. 
 Also let the gold and silver vessels of God's house, which Nebuchadnezzar took out of the temple which is at Jerusalem and brought to Babylon, be restored and brought again to the temple which is at Jerusalem, everything to its place. You shall put them in God's house. 
@@ -15,7 +15,7 @@ The elders of the Jews built and prospered, through the prophesying of Haggai th
 This house was finished on the third day of the month Adar, which was in the sixth year of the reign of Darius the king. 
 The children of Israel, the priests, the Levites, and the rest of the children of the captivity, kept the dedication of this house of God with joy. 
 They offered at the dedication of this house of God one hundred bulls, two hundred rams, four hundred lambs; and for an offering for wrongdoing for all Israel, twelve male goats, according to the number of the tribes of Israel. 
-They set the priests in their divisions and the Levites in their courses, for the service of God which is at Jerusalem, as it is written in the book of Moses. 
+They set the priests in their divisions and the Levites in their courses, for the service of God which is at Jerusalem, as it's written in the book of Moses. 
 The children of the captivity kept the Passover on the fourteenth day of the first month. 
 Because the priests and the Levites had purified themselves together, everyone was pure. They killed the Passover for all the children of the captivity, for their brothers the priests, and for themselves. 
 The children of Israel who had returned out of the captivity, and everyone who had separated themselves to them from the filthiness of the nations of the land to seek the God of Israel, ate, 

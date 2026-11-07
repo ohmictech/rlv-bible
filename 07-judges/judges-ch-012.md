@@ -1,7 +1,7 @@
-﻿The men of Ephraim were gathered together, and passed northward; and they said to Jephthah, "Why did you pass over to fight against the children of Ammon, and didn't call us to go with you? We will burn your house around you with fire!" 
+﻿The men of Ephraim were gathered together, and passed northward; and they said to Jephthah, "Why did you pass over to fight against the children of Ammon, and didn't call us to go with you? We'll burn your house around you with fire!" 
 Jephthah said to them, "I and my people were at great strife with the children of Ammon; and when I called you, you didn't save me out of their hand. 
 When I saw that you didn't save me, I put my life in my hand, and passed over against the children of Ammon, and God delivered them into my hand. Why then have you come up to me today, to fight against me?" 
-Then Jephthah gathered together all the men of Gilead, and fought with Ephraim. The men of Gilead struck Ephraim, because they said, "You are fugitives of Ephraim, you Gileadites, in the middle of Ephraim, and in the middle of Manasseh." 
+Then Jephthah gathered together all the men of Gilead, and fought with Ephraim. The men of Gilead struck Ephraim, because they said, "You're fugitives of Ephraim, you Gileadites, in the middle of Ephraim, and in the middle of Manasseh." 
 The Gileadites took the fords of the Jordan against the Ephraimites. Whenever a fugitive of Ephraim said, "Let me go over," the men of Gilead said to him, "Are you an Ephraimite?" If he said, "No;" 
 then they said to him, "Now say 'Shibboleth;'" and he said "Sibboleth"; for he couldn't manage to pronounce it correctly, then they seized him and killed him at the fords of the Jordan. At that time, forty-two thousand of Ephraim fell. 
 Jephthah judged Israel six years. Then Jephthah the Gileadite died, and was buried in the cities of Gilead. 

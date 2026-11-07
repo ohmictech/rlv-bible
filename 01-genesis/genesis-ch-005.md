@@ -26,7 +26,7 @@ Methuselah was one hundred eighty-seven years old when he fathered Lamech.
 After he fathered Lamech, Methuselah lived seven hundred eighty-two more years and fathered other sons and daughters. 
 Methuselah lived nine hundred sixty-nine years in all, and then he died. 
 Lamech was one hundred eighty-two years old when he fathered a son. 
-He named him Noah, saying, "He will comfort us in our work and in the hard labor of our hands, because of the ground God has cursed." 
+He named him Noah, saying, "He'll comfort us in our work and in the hard labor of our hands, because of the ground God has cursed." 
 After he fathered Noah, Lamech lived five hundred ninety-five more years and fathered other sons and daughters. 
 Lamech lived seven hundred seventy-seven years in all, and then he died. 
 Noah was five hundred years old when he fathered Shem, Ham, and Japheth. 

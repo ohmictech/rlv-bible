@@ -1,4 +1,4 @@
-﻿Then all Israel gathered themselves to David to Hebron, saying, "Look, we are your bone and your flesh. 
+﻿Then all Israel gathered themselves to David to Hebron, saying, "Look, we're your bone and your flesh. 
 In times past, even when Saul was king, it was you who led out and brought in Israel. Your God said to you, 'You shall be shepherd of my people Israel, and you shall be prince over my people Israel.'" 
 So all the elders of Israel came to the king to Hebron; and David made a covenant with them in Hebron before God. They anointed David king over Israel, according to God's word by Samuel. 
 David and all Israel went to Jerusalem (also called Jebus); and the Jebusites, the inhabitants of the land, were there. 

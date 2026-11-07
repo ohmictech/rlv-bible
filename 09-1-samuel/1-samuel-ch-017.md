@@ -6,7 +6,7 @@ He had a helmet of bronze on his head, and he wore a coat of mail; and the weigh
 He had bronze shin armor on his legs and a bronze javelin between his shoulders. 
 The staff of his spear was like a weaver's beam; and his spear's head weighed six hundred shekels of iron. His shield bearer went before him. 
 He stood and cried to the armies of Israel, and said to them, "Why have you come out to set your battle in array? Am I not a Philistine, and you servants to Saul? Choose a man for yourselves, and let him come down to me. 
-If he is able to fight with me and kill me, then will we be your servants; but if I prevail against him and kill him, then you will be our servants and serve us." 
+If he's able to fight with me and kill me, then will we be your servants; but if I prevail against him and kill him, then you'll be our servants and serve us." 
 The Philistine said, "I defy the armies of Israel today! Give me a man, that we may fight together!" 
 When Saul and all Israel heard those words of the Philistine, they were dismayed and greatly afraid. 
 Now David was the son of that Ephrathite of Bethlehem Judah, whose name was Jesse; and he had eight sons. The man was an elderly old man in the days of Saul. 
@@ -23,14 +23,14 @@ David left his baggage in the hand of the keeper of the baggage and ran to the a
 As he talked with them, look, the champion, the Philistine of Gath, Goliath by name, came up out of the ranks of the Philistines, and said the same words; and David heard them. 
 All the men of Israel, when they saw the man, fled from him and were terrified. 
 The men of Israel said, "Have you seen this man who has come up? He has surely come up to defy Israel. The king will give great riches to the man who kills him, and will give him his daughter, and will make his father's house tax-free in Israel." 
-David spoke to the men who stood by him, saying, "What shall be done to the man who kills this Philistine and takes away the reproach from Israel? Who is this uncircumcised Philistine, that he should defy the armies of the living God?" 
+David spoke to the men who stood by him, saying, "What shall be done to the man who kills this Philistine and takes away the reproach from Israel? Who's this uncircumcised Philistine, that he should defy the armies of the living God?" 
 The people answered him in this way, saying, "So shall it be done to the man who kills him." 
 Eliab his oldest brother heard when he spoke to the men; and Eliab's anger burned against David, and he said, "Why have you come down? With whom have you left those few sheep in the wilderness? I know your pride and the bad of your heart; for you have come down that you might see the battle." 
 David said, "What have I now done? Is there not a cause?" 
 He turned away from him toward another, and spoke like that again; and the people answered him again the same way. 
 When the words were heard which David spoke, they rehearsed them before Saul; and he sent for him. 
 David said to Saul, "Let no man's heart fail because of him. Your servant will go and fight with this Philistine." 
-Saul said to David, "You aren't able to go against this Philistine to fight with him; for you are but a youth, and he a man of war from his youth." 
+Saul said to David, "You aren't able to go against this Philistine to fight with him; for you're but a youth, and he a man of war from his youth." 
 David said to Saul, "Your servant was keeping his father's sheep; and when a lion or a bear came and took a lamb out of the flock, 
 I went out after him, struck him, and rescued it out of his mouth. When he arose against me, I caught him by his beard, struck him, and killed him. 
 Your servant struck both the lion and the bear. This uncircumcised Philistine shall be as one of them, since he has defied the armies of the living God." 
@@ -41,10 +41,10 @@ He took his staff in his hand, and chose for himself five smooth stones out of t
 The Philistine walked and came near to David; and the man who bore the shield went before him. 
 When the Philistine looked around and saw David, he disdained him; for he was but a youth, and ruddy, and had a good looking face. 
 The Philistine said to David, "Am I a dog, that you come to me with sticks?" The Philistine cursed David by his gods. 
-The Philistine said to David, "Come to me, and I will give your flesh to the birds of the sky and to the animals of the field." 
+The Philistine said to David, "Come to me, and I'll give your flesh to the birds of the sky and to the animals of the field." 
 Then David said to the Philistine, "You come to me with a sword, with a spear, and with a javelin; but I come to you in the name of the God of Armies, the God of the armies of Israel, whom you have defied. 
-Today, God will deliver you into my hand. I will strike you and take your head from off you. I will give the dead bodies of the army of the Philistines today to the birds of the sky and to the wild animals of the earth, that all the earth may know that there is a God in Israel, 
-and that all this assembly may know that God doesn't save with sword and spear; for the battle is God's, and he will give you into our hand." 
+Today, God will deliver you into my hand. I'll strike you and take your head from off you. I'll give the dead bodies of the army of the Philistines today to the birds of the sky and to the wild animals of the earth, that all the earth may know that there's a God in Israel, 
+and that all this assembly may know that God doesn't save with sword and spear; for the battle is God's, and he'll give you into our hand." 
 When the Philistine arose, and walked and came near to meet David, David hurried and ran toward the army to meet the Philistine. 
 David put his hand in his bag, took a stone and slung it, and struck the Philistine in his forehead. The stone sank into his forehead, and he fell on his face to the earth. 
 So David prevailed over the Philistine with a sling and with a stone, and struck the Philistine and killed him; but there was no sword in David's hand. 
@@ -55,4 +55,4 @@ David took the head of the Philistine and brought it to Jerusalem, but he put hi
 When Saul saw David go out against the Philistine, he said to Abner, the captain of the army, "Abner, whose son is this youth?" Abner said, "As your soul lives, O king, I can't tell." 
 The king said, "Inquire whose son the young man is!" 
 As David returned from the slaughter of the Philistine, Abner took him and brought him before Saul with the head of the Philistine in his hand. 
-Saul said to him, "Whose son are you, you young man?" David answered, "I am the son of your servant Jesse the Bethlehemite." 
+Saul said to him, "Whose son are you, you young man?" David answered, "I'm the son of your servant Jesse the Bethlehemite." 

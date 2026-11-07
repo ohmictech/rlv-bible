@@ -2,18 +2,18 @@
 David gave orders to gather together the foreigners who were in the land of Israel; and he set masons to cut dressed stones to build God's house. 
 David prepared iron in abundance for the nails for the doors of the gates and for the couplings, and bronze in abundance without weight, 
 and cedar trees without number, for the Sidonians and the people of Tyre brought cedar trees in abundance to David. 
-David said, "Solomon my son is young and tender, and the house that is to be built for God must be exceedingly magnificent, of fame and of glory throughout all countries. I will make preparation for it." So David prepared abundantly before his death. 
+David said, "Solomon my son is young and tender, and the house that's to be built for God must be exceedingly magnificent, of fame and of glory throughout all countries. I'll make preparation for it." So David prepared abundantly before his death. 
 Then he called for Solomon his son, and commanded him to build a house for the God of Israel. 
 David said to Solomon his son, "As for me, it was in my heart to build a house to the name of my God. 
 But God's word came to me, saying, 'You have shed blood abundantly and have made great wars. You shall not build a house to my name, because you have shed much blood on the earth in my sight. 
-Look, a son shall be born to you, who shall be a man of peace. I will give him rest from all his enemies all around; for his name shall be Solomon, and I will give peace and quietness to Israel in his days. 
-He shall build a house for my name; and he will be my son, and I will be his father; and I will establish the throne of his kingdom over Israel for the eras.' 
+Look, a son shall be born to you, who shall be a man of peace. I'll give him rest from all his enemies all around; for his name shall be Solomon, and I'll give peace and quietness to Israel in his days. 
+He shall build a house for my name; and he'll be my son, and I'll be his father; and I'll establish the throne of his kingdom over Israel for the eras.' 
 Now, my son, may God be with you and prosper you, and build the house of your God, as he has spoken concerning you. 
 May God give you discretion and understanding, and put you in charge of Israel, so that you may keep the law of your God. 
-Then you will prosper, if you observe to do the statutes and the ordinances which God gave Moses concerning Israel. Be strong and courageous. Don't be afraid and don't be dismayed. 
-Now, look, in my affliction I have prepared for God's house one hundred thousand talents of gold, one million talents of silver, and bronze and iron without weight; for it is in abundance. I have also prepared timber and stone; and you may add to them. 
+Then you'll prosper, if you observe to do the statutes and the ordinances which God gave Moses concerning Israel. Be strong and courageous. Don't be afraid and don't be dismayed. 
+Now, look, in my affliction I have prepared for God's house one hundred thousand talents of gold, one million talents of silver, and bronze and iron without weight; for it's in abundance. I have also prepared timber and stone; and you may add to them. 
 There are also workmen with you in abundance, cutters and workers of stone and timber, and all kinds of men who are skillful in every kind of work; 
-of the gold, the silver, the bronze, and the iron, there is no number. Arise and be doing, and may God be with you." 
+of the gold, the silver, the bronze, and the iron, there's no number. Arise and be doing, and may God be with you." 
 David also commanded all the princes of Israel to help Solomon his son, saying, 
 "Isn't your God with you? Hasn't he given you rest on every side? He has delivered the inhabitants of the land into my hand; and the land is subdued before God and before his people. 
-Now set your heart and your soul to follow your God. Arise, and build the sanctuary of God, to bring the ark of God's covenant and the holy vessels of God into the house that is to be built for God's name." 
+Now set your heart and your soul to follow your God. Arise, and build the sanctuary of God, to bring the ark of God's covenant and the holy vessels of God into the house that's to be built for God's name." 

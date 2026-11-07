@@ -1,8 +1,8 @@
 ﻿God says: "For three rebellion of Moab, yes, for four, I won't turn away its punishment, because he burned the bones of the king of Edom into lime; 
-but I will send a fire on Moab, and it will devour the palaces of Kerioth; and Moab will die with tumult, with shouting, and with the sound of the trumpet; 
-and I will cut off the judge from among them, and will kill all its princes with him," says God. 
+but I'll send a fire on Moab, and it'll devour the palaces of Kerioth; and Moab will die with tumult, with shouting, and with the sound of the trumpet; 
+and I'll cut off the judge from among them, and will kill all its princes with him," says God. 
 God says: "For three rebellion of Judah, yes, for four, I won't turn away its punishment, because they have rejected God's law, and haven't kept his statutes, and their lies have led them astray, after which their fathers walked; 
-but I will send a fire on Judah, and it will devour the palaces of Jerusalem." 
+but I'll send a fire on Judah, and it'll devour the palaces of Jerusalem." 
 God says: "For three rebellion of Israel, yes, for four, I won't turn away its punishment, because they have sold the righteous for silver, and the needy for a pair of sandals; 
 They trample the heads of the poor into the dust of the earth and deny justice to the oppressed. A man and his father use the same maiden, to profane my holy name. 
 They lay themselves down beside every altar on clothes taken in pledge. In the house of their God they drink the wine of those who have been fined. 
@@ -10,7 +10,7 @@ Yet I destroyed the Amorite before them, whose height was like the height of the
 Also I brought you up out of the land of Egypt and led you forty years in the wilderness, to possess the land of the Amorite. 
 I raised up some of your sons for spokesmen, and some of your young men for Nazirites. Isn't this true, you children of Israel?" says God. 
 "But you gave the Nazirites wine to drink, and commanded the spokesmen, saying, 'Don't prophesy!' 
-Look, I will crush you in your place, as a cart crushes that is full of grain. 
+Look, I'll crush you in your place, as a cart crushes that's full of grain. 
 Flight will perish from the swift. The strong won't strengthen his force. The mighty won't deliver himself. 
-He who handles the bow won't stand. He who is swift of foot won't escape. He who rides the horse won't deliver himself. 
-He who is courageous among the mighty will flee away naked on that day," says God. 
+He who handles the bow won't stand. He who's swift of foot won't escape. He who rides the horse won't deliver himself. 
+He who's courageous among the mighty will flee away naked on that day," says God. 

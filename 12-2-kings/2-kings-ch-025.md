@@ -21,7 +21,7 @@ Nebuzaradan the captain of the guard took them, and brought them to the king of 
 The king of Babylon attacked them and put them to death at Riblah in the land of Hamath. So Judah was carried away captive out of his land. 
 As for the people who were left in the land of Judah whom Nebuchadnezzar king of Babylon had left, even over them he made Gedaliah the son of Ahikam, the son of Shaphan, governor. 
 Now when all the captains of the forces, they and their men, heard that the king of Babylon had made Gedaliah governor, they came to Gedaliah to Mizpah, even Ishmael the son of Nethaniah, Johanan the son of Kareah, Seraiah the son of Tanhumeth the Netophathite, and Jaazaniah the son of the Maacathite, they and their men. 
-Gedaliah swore to them and to their men, and said to them, "Don't be afraid because of the servants of the Chaldeans. Dwell in the land and serve the king of Babylon, and it will be well with you." 
+Gedaliah swore to them and to their men, and said to them, "Don't be afraid because of the servants of the Chaldeans. Dwell in the land and serve the king of Babylon, and it'll be well with you." 
 But in the seventh month, Ishmael the son of Nethaniah, the son of Elishama, of the royal offspring came, and ten men with him, and struck Gedaliah so that he died, with the Jews and the Chaldeans that were with him at Mizpah. 
 Everyone, both small and great, and the captains of the forces arose and came to Egypt; for they were afraid of the Chaldeans. 
 In the thirty-seventh year of the captivity of Jehoiachin king of Judah, in the twelfth month, on the twenty-seventh day of the month, Badmerodach king of Babylon, in the year that he began to reign, released Jehoiachin king of Judah out of prison, 

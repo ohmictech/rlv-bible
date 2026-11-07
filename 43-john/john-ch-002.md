@@ -16,7 +16,7 @@ He made a whip of cords and drove them all out of the temple courts, along with 
 To those who sold the doves, he said, "Take these things out of here! Don't make my Father's house a marketplace!" 
 His students remembered that it was written, "Passion for your house will consume me." 
 The Jewish leaders then answered him, "What sign do you show us, seeing that you do these things?" 
-Jesus answered them, "Tear down this temple, and in three days I will raise it up." 
+Jesus answered them, "Tear down this temple, and in three days I'll raise it up." 
 The Jewish leaders then said, "It took forty-six years to build this temple! Will you raise it up in three days?" 
 But he spoke of the temple of his body. 
 When he was raised from the dead, his students remembered that he had said this, and they trusted the Scripture and the word which Jesus had said. 

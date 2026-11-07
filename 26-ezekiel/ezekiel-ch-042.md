@@ -11,7 +11,7 @@ In the thickness of the wall of the court toward the east, before the separate p
 The way before them was like the appearance of the rooms which were toward the north. Their length and width were the same. All their exits had the same arrangement and doors. 
 Like the doors of the rooms that were toward the south was a door at the head of the way, even the way directly before the wall toward the east, as one enters into them. 
 Then he said to me, "The north rooms and the south rooms, which are opposite the separate place, are the holy rooms, where the priests who are near to God shall eat the most holy things. There they shall lay the most holy things, with the meal offering, the offering for wrongdoing, and the trespass offering; for the place is holy. 
-When the priests enter in, then they shall not go out of the holy place into the outer court until they lay their garments in which they minister there; for they are holy. Then they shall put on other garments, and shall approach that which is for the people." 
+When the priests enter in, then they shall not go out of the holy place into the outer court until they lay their garments in which they minister there; for they're holy. Then they shall put on other garments, and shall approach that which is for the people." 
 Now when he had finished measuring the inner house, he brought me out by the way of the gate which faces toward the east, and measured it all around. 
 He measured on the east side with the measuring reed five hundred reeds, with the measuring reed all around. 
 He measured on the north side five hundred reeds with the measuring reed all around. 

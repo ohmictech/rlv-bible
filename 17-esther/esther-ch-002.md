@@ -4,7 +4,7 @@ Let the king appoint officers in all the provinces of his kingdom, that they may
 and let the maiden who pleases the king be queen instead of Vashti." The thing pleased the king, and he did so. 
 There was a certain Jew in the citadel of Susa whose name was Mordecai, the son of Jair, the son of Shimei, the son of Kish, a Benjamite, 
 who had been carried away from Jerusalem with the captives who had been carried away with Jeconiah king of Judah, whom Nebuchadnezzar the king of Babylon had carried away. 
-He brought up Hadassah, that is, Esther, his uncle's daughter; for she had neither father nor mother. The maiden was fair and beautiful; and when her father and mother were dead, Mordecai took her for his own daughter. 
+He brought up Hadassah, that's, Esther, his uncle's daughter; for she had neither father nor mother. The maiden was fair and beautiful; and when her father and mother were dead, Mordecai took her for his own daughter. 
 So, when the king's commandment and his decree was heard, and when many maidens were gathered together to the citadel of Susa, to the custody of Hegai, Esther was taken into the king's house, to the custody of Hegai, keeper of the women. 
 The maiden pleased him, and she obtained kindness from him. He quickly gave her cosmetics and her portions of food, and the seven choice maidens who were to be given her out of the king's house. He moved her and her maidens to the best place in the women's house. 
 Esther hadn't made known her people nor her relatives, because Mordecai had instructed her that she shouldn't make it known. 

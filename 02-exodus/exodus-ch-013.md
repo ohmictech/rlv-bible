@@ -1,18 +1,18 @@
 ﻿God spoke to Moses, saying, 
-"Sanctify to me all the firstborn, whatever opens the womb among the children of Israel, both of man and of animal. It is mine." 
+"Sanctify to me all the firstborn, whatever opens the womb among the children of Israel, both of man and of animal. It's mine." 
 Moses said to the people, "Remember this day, in which you came out of Egypt, out of the house of bondage; for by strength of hand God brought you out from this place. No leavened bread shall be eaten. 
 Today you go out in the month Abib. 
 It shall be, when God brings you into the land of the Canaanite, and the Hittite, and the Amorite, and the Hivite, and the Jebusite, which he swore to your fathers to give you, a land flowing with milk and honey, that you shall keep this service in this month. 
 Seven days you shall eat unleavened bread, and in the seventh day shall be a feast to God. 
 Unleavened bread shall be eaten throughout the seven days; and no leavened bread shall be seen with you. No yeast shall be seen with you, within all your borders. 
-You shall tell your son in that day, saying, 'It is because of that which God did for me when I came out of Egypt.' 
+You shall tell your son in that day, saying, 'It's because of that which God did for me when I came out of Egypt.' 
 It shall be for a sign to you on your hand, and for a memorial between your eyes, that God's law may be in your mouth; for with a strong hand God has brought you out of Egypt. 
 You shall keep this ordinance in its season from year to year. 
 "It shall be, when God brings you into the land of the Canaanite, as he swore to you and to your fathers, and will give it to you, 
 that you shall set apart to God all that opens the womb, and every firstborn that comes from an animal which you have. The males shall be God's. 
 Every firstborn of a donkey you shall buy back with a lamb; and if you won't buy it back, then you shall break its neck; and you shall buy back all the firstborn of man among your sons. 
-It shall be, when your son asks you in time to come, saying, 'What is this?' that you shall tell him, 'By strength of hand God brought us out from Egypt, from the house of bondage. 
-When Pharaoh stubbornly refused to let us go, God killed all the firstborn in the land of Egypt, both the firstborn of man, and the firstborn of livestock. So I sacrifice to God all that opens the womb, being males; but all the firstborn of my sons I buy back.' 
+It shall be, when your son asks you in time to come, saying, 'What's this?' that you shall tell him, 'By strength of hand God brought us out from Egypt, from the house of bondage. 
+When Pharaoh stubbornly refused to let's go, God killed all the firstborn in the land of Egypt, both the firstborn of man, and the firstborn of livestock. So I sacrifice to God all that opens the womb, being males; but all the firstborn of my sons I buy back.' 
 It shall be for a sign on your hand, and for symbols between your eyes; for by strength of hand God brought us out of Egypt." 
 When Pharaoh had let the people go, God didn't lead them by the way of the land of the Philistines, although that was near; for God said, "Lest perhaps the people change their minds when they see war, and they return to Egypt"; 
 but God led the people around by the way of the wilderness by the Red Sea; and the children of Israel went up armed out of the land of Egypt. 

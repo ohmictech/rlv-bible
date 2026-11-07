@@ -8,13 +8,13 @@ You shall roast and eat it in the place which your God chooses. In the morning y
 Six days you shall eat unleavened bread. On the seventh day shall be a solemn assembly to your God. You shall do no work. 
 You shall count for yourselves seven weeks. From the time you begin to put the sickle to the standing grain you shall begin to count seven weeks. 
 You shall keep the feast of weeks to your God with a tribute of a free will offering of your hand, which you shall give according to how your God blesses you. 
-You shall rejoice before your God: you, your son, your daughter, your male servant, your female servant, the Levite who is within your gates, the foreigner, the fatherless, and the widow who are among you, in the place which your God shall choose to cause his name to dwell there. 
+You shall rejoice before your God: you, your son, your daughter, your male servant, your female servant, the Levite who's within your gates, the foreigner, the fatherless, and the widow who are among you, in the place which your God shall choose to cause his name to dwell there. 
 You shall remember that you were a slave in Egypt. You shall observe and do these statutes. 
 You shall keep the feast of booths seven days, after you have gathered in from your threshing floor and from your wine press. 
 You shall rejoice in your feast, you, your son, your daughter, your male servant, your female servant, the Levite, the foreigner, the fatherless, and the widow who are within your gates. 
 You shall keep a feast to your God seven days in the place which God chooses, because your God will bless you in all your increase and in all the work of your hands, and you shall be altogether joyful. 
 Three times in a year all of your males shall appear before your God in the place which he chooses: in the feast of unleavened bread, in the feast of weeks, and in the feast of booths. They shall not appear before God empty. 
-Every man shall give as he is able, according to your God's blessing which he has given you. 
+Every man shall give as he's able, according to your God's blessing which he has given you. 
 You shall make judges and officers in all your gates, which your God gives you, according to your tribes; and they shall judge the people with righteous judgment. 
 You shall not pervert justice. You shall not show partiality. You shall not take a bribe, for a bribe blinds the eyes of the wise and perverts the words of the righteous. 
 You shall follow that which is altogether just, that you may live and inherit the land which your God gives you. 

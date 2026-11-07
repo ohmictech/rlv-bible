@@ -1,4 +1,4 @@
-﻿God's messenger came up from Gilgal to Bochim. He said, "I brought you out of Egypt, and have brought you to the land which I swore to give your fathers. I said, 'I will never break my covenant with you. 
+﻿God's messenger came up from Gilgal to Bochim. He said, "I brought you out of Egypt, and have brought you to the land which I swore to give your fathers. I said, 'I'll never break my covenant with you. 
 You shall make no covenant with the inhabitants of this land. You shall break down their altars.' But you haven't listened to my voice. Why have you done this? 
 So I also said, 'I won't drive them out from before you; but they shall be in your sides, and their gods will be a snare to you.'" 
 When God's messenger spoke these words to all the children of Israel, the people lifted up their voice and wept. 
@@ -19,5 +19,5 @@ When God raised up judges for them, then God was with the judge, and saved them 
 But when the judge was dead, they turned back, and dealt more corruptly than their fathers in following other gods to serve them and to bow down to them. They didn't cease what they were doing, or give up their stubborn ways. 
 God's anger burned against Israel; and he said, "Because this nation transgressed my covenant which I commanded their fathers, and hasn't listened to my voice, 
 I also will no longer drive out any of the nations that Joshua left when he died from before them; 
-that by them I may test Israel, to see if they will keep God's way to walk therein, as their fathers kept it, or not." 
+that by them I may test Israel, to see if they'll keep God's way to walk therein, as their fathers kept it, or not." 
 So God left those nations, without driving them out hastily. He didn't deliver them into Joshua's hand. 

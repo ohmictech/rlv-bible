@@ -1,8 +1,8 @@
 ﻿The heads of the fathers' households of the family of the children of Gilead, the son of Machir, the son of Manasseh, of the families of the sons of Joseph, came near and spoke before Moses and before the princes, the heads of the fathers' households of the children of Israel. 
 They said, "God commanded my lord to give the land for inheritance by lot to the children of Israel. My lord was commanded by God to give the inheritance of Zelophehad our brother to his daughters. 
-If they are married to any of the sons of the other tribes of the children of Israel, then their inheritance will be taken away from the inheritance of our fathers, and will be added to the inheritance of the tribe to which they shall belong. So it will be taken away from the lot of our inheritance. 
+If they're married to any of the sons of the other tribes of the children of Israel, then their inheritance will be taken away from the inheritance of our fathers, and will be added to the inheritance of the tribe to which they shall belong. So it'll be taken away from the lot of our inheritance. 
 When the jubilee of the children of Israel comes, then their inheritance will be added to the inheritance of the tribe to which they shall belong. So their inheritance will be taken away from the inheritance of the tribe of our fathers." 
-Moses commanded the children of Israel according to God's word, saying, "The tribe of the sons of Joseph speak what is right. 
+Moses commanded the children of Israel according to God's word, saying, "The tribe of the sons of Joseph speak what's right. 
 This is the thing which God commands concerning the daughters of Zelophehad, saying, 'Let them be married to whom they think best, only they shall marry into the family of the tribe of their father. 
 So shall no inheritance of the children of Israel move from tribe to tribe; for the children of Israel shall all keep the inheritance of the tribe of his fathers. 
 Every daughter who possesses an inheritance in any tribe of the children of Israel shall be wife to one of the family of the tribe of her father, that the children of Israel may each possess the inheritance of his fathers. 

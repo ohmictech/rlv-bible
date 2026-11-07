@@ -7,6 +7,6 @@ I spread out my hands to you. My soul thirsts for you, like a parched land. Sela
 Hurry to answer me, God. My spirit fails. Don't hide your face from me, so that I don't become like those who go down into the pit. 
 Cause me to hear your loving kindness in the morning, for I trust in you. Cause me to know the way in which I should walk, for I lift up my soul to you. 
 Deliver me, God, from my enemies. I flee to you to hide me. 
-Teach me to do your will, for you are my God. Your Spirit is good. Lead me in the land of uprightness. 
+Teach me to do your will, for you're my God. Your Spirit is good. Lead me in the land of uprightness. 
 Revive me, God, for your name's sake. In your righteousness, bring my soul out of trouble. 
-In your loving kindness, cut off my enemies, and destroy everyone who afflicts my soul, for I am your servant. 
+In your loving kindness, cut off my enemies, and destroy everyone who afflicts my soul, for I'm your servant. 

@@ -1,9 +1,9 @@
-﻿There was a famine in the days of David for three years, year after year; and David sought the face of God. God said, "It is for Saul, and for his bloody house, because he put the Gibeonites to death." 
+﻿There was a famine in the days of David for three years, year after year; and David sought the face of God. God said, "It's for Saul, and for his bloody house, because he put the Gibeonites to death." 
 The king called the Gibeonites and said to them (now the Gibeonites weren't of the children of Israel, but of the remnant of the Amorites, and the children of Israel had sworn to them; and Saul sought to kill them in his passion for the children of Israel and Judah); 
 and David said to the Gibeonites, "What should I do for you? And with what should I make things right, that you may bless God's inheritance?" 
-The Gibeonites said to him, "It is no matter of silver or gold between us and Saul or his house; neither is it for us to put any man to death in Israel." He said, "I will do for you whatever you say." 
+The Gibeonites said to him, "It's no matter of silver or gold between us and Saul or his house; neither is it for us to put any man to death in Israel." He said, "I'll do for you whatever you say." 
 They said to the king, "The man who consumed us and who plotted against us, that we should be destroyed from remaining in any of the borders of Israel, 
-let seven men of his sons be delivered to us, and we will hang them up to God in Gibeah of Saul, the chosen of God." The king said, "I will give them." 
+let seven men of his sons be delivered to us, and we'll hang them up to God in Gibeah of Saul, the chosen of God." The king said, "I'll give them." 
 But the king spared Mephibosheth the son of Jonathan the son of Saul, because of God's oath that was between them, between David and Jonathan the son of Saul. 
 But the king took the two sons of Rizpah the daughter of Aiah, whom she bore to Saul, Armoni and Mephibosheth; and the five sons of Merab the daughter of Saul, whom she bore to Adriel the son of Barzillai the Meholathite. 
 He delivered them into the hands of the Gibeonites; and they hanged them on the mountain before God, and all seven of them fell together. They were put to death in the days of harvest, in the first days, at the beginning of barley harvest. 
@@ -13,7 +13,7 @@ So David went and took the bones of Saul and the bones of Jonathan his son from 
 and he brought up from there the bones of Saul and the bones of Jonathan his son. They also gathered the bones of those who were hanged. 
 They buried the bones of Saul and Jonathan his son in the country of Benjamin in Zela, in the tomb of Kish his father; and they performed all that the king commanded. After that, God answered prayer for the land. 
 The Philistines had war again with Israel; and David went down, and his servants with him, and fought against the Philistines. David grew faint; 
-and Ishbibenob, who was of the sons of the giant, the weight of whose spear was three hundred shekels of bronze in weight, he being armed with a new sword, thought he would kill David. 
+and Ishbibenob, who was of the sons of the giant, the weight of whose spear was three hundred shekels of bronze in weight, he being armed with a new sword, thought he'd kill David. 
 But Abishai the son of Zeruiah helped him, and struck the Philistine and killed him. Then the men of David swore to him, saying, "Don't go out with us to battle any more, so that you don't quench the lamp of Israel." 
 After this, there was again war with the Philistines at Gob. Then Sibbecai the Hushathite killed Saph, who was of the sons of the giant. 
 There was again war with the Philistines at Gob, and Elhanan the son of Jaare-Oregim the Bethlehemite killed Goliath the Gittite's brother, the staff of whose spear was like a weaver's beam. 

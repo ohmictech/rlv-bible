@@ -11,7 +11,7 @@ He summoned the crowd, and said to them, "Hear, and understand.
 That which enters into the mouth doesn't make a person unclean, but that which comes out of the mouth, this makes a person unclean." 
 Then the students came and said to him, "Do you know that the strict religious ones were trapped when they heard this saying?" 
 But he answered, "Every plant which my Father in the sky didn't plant will be pulled up by the roots. 
-Leave them alone. They are blind guides of the blind. If the blind guide the blind, both will fall into a pit." 
+Leave them alone. They're blind guides of the blind. If the blind guide the blind, both will fall into a pit." 
 Peter answered him, "Explain the story to us." 
 So Jesus said, "Do you also still not understand? 
 Don't you understand that whatever goes into the mouth passes into the belly and then out of the body? 
@@ -29,7 +29,7 @@ Then Jesus answered her, "Woman, your trust is great! Let it be done for you jus
 Jesus departed from there and came near to the sea of Galilee, and he went up on the mountain and sat there. 
 Great crowds came to him, having with them the lame, blind, unable to speak, crippled, and many others, and they put them down at his feet. He healed them, 
 so that the crowd was amazed when they saw those who couldn't speak speaking, the crippled healed, the lame walking, and the blind seeing, and they made much of the God of Israel. 
-Jesus summoned his students and said, "I am moved with deep compassion for the crowd, because they have stayed with me now three days and have nothing to eat. I don't want to send them away hungry, or they might faint on the way." 
+Jesus summoned his students and said, "I'm moved with deep compassion for the crowd, because they have stayed with me now three days and have nothing to eat. I don't want to send them away hungry, or they might faint on the way." 
 The students said to him, "Where could we get so many loaves in an empty place as to satisfy so great a crowd?" 
 Jesus said to them, "How many loaves do you have?" They said, "Seven, and a few small fish." 
 He commanded the crowd to sit down on the ground. 

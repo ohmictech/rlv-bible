@@ -25,7 +25,7 @@ Then I set apart twelve of the chiefs of the priests, even Sherebiah, Hashabiah,
 and weighed to them the silver, the gold, and the vessels, even the offering for the house of our God, which the king, his counselors, his princes, and all Israel there present, had offered. 
 I weighed into their hand six hundred fifty talents of silver, one hundred talents of silver vessels, one hundred talents of gold, 
 twenty bowls of gold weighing one thousand darics, and two vessels of fine bright bronze, precious as gold. 
-I said to them, "You are holy to God, and the vessels are holy. The silver and the gold are a free will offering to the God of your fathers. 
+I said to them, "You're holy to God, and the vessels are holy. The silver and the gold are a free will offering to the God of your fathers. 
 Watch and keep them until you weigh them before the chiefs of the priests, the Levites, and the princes of the fathers' households of Israel at Jerusalem, in the rooms of God's house." 
 So the priests and the Levites received the weight of the silver, the gold, and the vessels, to bring them to Jerusalem to the house of our God. 
 Then we departed from the river Ahava on the twelfth day of the first month, to go to Jerusalem. The hand of our God was on us, and he delivered us from the hand of the enemy and the bandits by the way. 

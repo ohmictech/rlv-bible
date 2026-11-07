@@ -5,11 +5,11 @@ Again he measured one thousand, and caused me to pass through the waters, waters
 Afterward he measured one thousand; and it was a river that I couldn't pass through, for the waters had risen, waters to swim in, a river that couldn't be walked through. 
 He said to me, "Son of man, have you seen this?" Then he brought me and caused me to return to the bank of the river. 
 Now when I had returned, look, on the bank of the river were very many trees on the one side and on the other. 
-Then he said to me, "These waters flow out toward the eastern region and will go down into the Arabah. Then they will go toward the sea and flow into the sea which will be made to flow out; and the waters will be healed. 
-It will happen that every living creature which swarms, in every place where the rivers come, will live. Then there will be a very great multitude of fish; for these waters have come there, and the waters of the sea will be healed, and everything will live wherever the river comes. 
-It will happen that fishermen will stand by it. From En Gedi even to En Eglaim will be a place for the spreading of nets. Their fish will be after their kinds, as the fish of the great sea, exceedingly many. 
-But its swamps and marshes won't be healed. They will be given up to salt. 
-By the river banks, on both sides, will grow every tree for food, whose leaf won't wither, neither will its fruit fail. It will produce new fruit every month, because its waters issue out of the sanctuary. Its fruit will be for food, and its leaf for healing." 
+Then he said to me, "These waters flow out toward the eastern region and will go down into the Arabah. Then they'll go toward the sea and flow into the sea which will be made to flow out; and the waters will be healed. 
+It'll happen that every living creature which swarms, in every place where the rivers come, will live. Then there will be a very great multitude of fish; for these waters have come there, and the waters of the sea will be healed, and everything will live wherever the river comes. 
+It'll happen that fishermen will stand by it. From En Gedi even to En Eglaim will be a place for the spreading of nets. Their fish will be after their kinds, as the fish of the great sea, exceedingly many. 
+But its swamps and marshes won't be healed. They'll be given up to salt. 
+By the river banks, on both sides, will grow every tree for food, whose leaf won't wither, neither will its fruit fail. It'll produce new fruit every month, because its waters issue out of the sanctuary. Its fruit will be for food, and its leaf for healing." 
 The God says: "This shall be the border by which you shall divide the land for inheritance according to the twelve tribes of Israel. Joseph shall have two portions. 
 You shall inherit it, one as well as another; for I swore to give it to your fathers. This land will fall to you for inheritance. 
 "This shall be the border of the land: "On the north side, from the great sea, by the way of Hethlon, to the entrance of Zedad; 

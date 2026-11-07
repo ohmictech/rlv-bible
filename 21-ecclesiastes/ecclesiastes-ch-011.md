@@ -2,9 +2,9 @@
 Give a portion to seven, yes, even to eight; for you don't know what bad will be on the earth. 
 If the clouds are full of rain, they empty themselves on the earth; and if a tree falls toward the south, or toward the north, in the place where the tree falls, there shall it be. 
 He who observes the wind won't sow; and he who regards the clouds won't reap. 
-As you don't know what is the way of the wind, nor how the bones grow in the womb of her who is with child; even so you don't know the work of God who does all. 
+As you don't know what's the way of the wind, nor how the bones grow in the womb of her who's with child; even so you don't know the work of God who does all. 
 In the morning sow your seed, and in the evening don't withhold your hand; for you don't know which will prosper, whether this or that, or whether they both will be equally good. 
-Truly the light is sweet, and it is a pleasant thing for the eyes to see the sun. 
+Truly the light is sweet, and it's a pleasant thing for the eyes to see the sun. 
 Yes, if a man lives many years, let him rejoice in them all; but let him remember the days of darkness, for they shall be many. All that comes is vanity. 
 Rejoice, young man, in your youth, and let your heart cheer you in the days of your youth, and walk in the ways of your heart, and in the sight of your eyes; but know that for all these things God will bring you into judgment. 
 So remove sorrow from your heart, and put away bad from your flesh; for youth and the dawn of life are vanity. 

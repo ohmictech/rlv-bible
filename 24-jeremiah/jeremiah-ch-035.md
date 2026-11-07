@@ -3,17 +3,17 @@
 Then I took Jaazaniah the son of Jeremiah, the son of Habazziniah, with his brothers, all his sons, and the whole house of the Rechabites; 
 and I brought them into God's house, into the room of the sons of Hanan the son of Igdaliah, the man of God, which was by the room of the princes, which was above the room of Maaseiah the son of Shallum, the keeper of the threshold. 
 I set before the sons of the house of the Rechabites bowls full of wine, and cups; and I said to them, "Drink wine!" 
-But they said, "We will drink no wine; for Jonadab the son of Rechab, our father, commanded us, saying, 'You shall drink no wine, neither you nor your children, for the eras. 
+But they said, "We'll drink no wine; for Jonadab the son of Rechab, our father, commanded us, saying, 'You shall drink no wine, neither you nor your children, for the eras. 
 You shall not build a house, sow seed, plant a vineyard, or have any; but all your days you shall dwell in tents, that you may live many days in the land in which you live as nomads.' 
 We have obeyed the voice of Jonadab the son of Rechab, our father, in all that he commanded us, to drink no wine all our days, we, our wives, our sons, or our daughters; 
 and not to build houses for ourselves to dwell in. We have no vineyard, field, or seed; 
 but we have lived in tents, and have obeyed, and done according to all that Jonadab our father commanded us. 
-But when Nebuchadnezzar king of Babylon came up into the land, we said, 'Come! Let's go to Jerusalem for fear of the army of the Chaldeans, and for fear of the army of the Syrians; so we will dwell at Jerusalem.'" 
+But when Nebuchadnezzar king of Babylon came up into the land, we said, 'Come! Let's go to Jerusalem for fear of the army of the Chaldeans, and for fear of the army of the Syrians; so we'll dwell at Jerusalem.'" 
 Then God's word came to Jeremiah, saying, 
 "The God of Armies, the God of Israel says: 'Go and tell the men of Judah and the inhabitants of Jerusalem, "Will you not receive instruction to listen to my words?" says God. 
 "The words of Jonadab the son of Rechab that he commanded his sons, not to drink wine, are performed; and to this day they drink none, for they obey their father's commandment; but I have spoken to you, rising up early and speaking, and you haven't listened to me. 
-I have sent also to you all my servants the spokesmen, rising up early and sending them, saying, 'Every one of you must return now from his bad way, amend your doings, and don't go after other gods to serve them. Then you will dwell in the land which I have given to you and to your fathers;' but you haven't inclined your ear, nor listened to me. 
+I have sent also to you all my servants the spokesmen, rising up early and sending them, saying, 'Every one of you must return now from his bad way, amend your doings, and don't go after other gods to serve them. Then you'll dwell in the land which I have given to you and to your fathers;' but you haven't inclined your ear, nor listened to me. 
 The sons of Jonadab the son of Rechab have performed the commandment of their father which he commanded them, but this people hasn't listened to me."' 
-"Therefore the God of Armies, the God of Israel says: 'Look, I will bring on Judah and on all the inhabitants of Jerusalem all the bad that I have pronounced against them, because I have spoken to them, but they haven't heard; and I have called to them, but they haven't answered.'" 
+"Therefore the God of Armies, the God of Israel says: 'Look, I'll bring on Judah and on all the inhabitants of Jerusalem all the bad that I have pronounced against them, because I have spoken to them, but they haven't heard; and I have called to them, but they haven't answered.'" 
 Jeremiah said to the house of the Rechabites, "The God of Armies, the God of Israel says: 'Because you have obeyed the commandment of Jonadab your father, and kept all his precepts, and done according to all that he commanded you,' 
 So the God of Armies, the God of Israel says: 'Jonadab the son of Rechab won't lack a man to stand before me for the eras.'" 

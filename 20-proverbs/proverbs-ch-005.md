@@ -1,14 +1,14 @@
 ﻿My son, pay attention to my wisdom. Turn your ear to my understanding, 
 that you may maintain discretion, that your lips may preserve knowledge. 
 The lips of an adulteress drip honey. Her mouth is smoother than oil, 
-but in the end she is as bitter as wormwood, and as sharp as a two-edged sword. 
+but in the end she's as bitter as wormwood, and as sharp as a two-edged sword. 
 Her feet go down to death. Her steps lead straight to Hades. 
 She gives no thought to the way of life. Her ways are crooked, and she doesn't know it. 
 Now, my sons, listen to me. Don't depart from the words of my mouth. 
 Remove your way far from her. Don't come near the door of her house, 
 lest you give your honor to others, and your years to the cruel one; 
 lest strangers feast on your wealth, and your labors enrich another man's house. 
-You will groan at your latter end, when your flesh and your body are consumed, 
+You'll groan at your latter end, when your flesh and your body are consumed, 
 and say, "How I have hated instruction, and my heart despised reproof. 
 I haven't obeyed the voice of my teachers, nor turned my ear to those who instructed me! 
 I have come to the brink of utter ruin, among the gathered assembly." 
@@ -20,4 +20,4 @@ A loving doe and a graceful deer, let her breasts satisfy you at all times. Be c
 Why should you, my son, be captivated with an adulteress? Why embrace the bosom of another? 
 The ways of man are before God's eyes. He examines all his paths. 
 The bad deeds of the guilty ensnare him. The cords of his wrongdoing hold him firmly. 
-He will die for lack of instruction. In the greatness of his folly, he will go astray. 
+He'll die for lack of instruction. In the greatness of his folly, he'll go astray. 

@@ -3,7 +3,7 @@ He opened the pit of the deep, and smoke rose out of it like the smoke from a hu
 Then out of the smoke came locusts on the land, and they were given power like the power the scorpions of the land have. 
 They were told not to hurt the grass of the land, nor any green thing, nor any tree, but only those people who don't have God's seal on their foreheads. 
 They were given power, not to kill them, but to put them in anguish for five months. Their anguish was like the anguish of a scorpion sting. 
-In those days people will look for death and won't find it. They will long to die, and death will run away from them. 
+In those days people will look for death and won't find it. They'll long to die, and death will run away from them. 
 The shapes of the locusts were like horses ready for battle. On their heads were something like gold wreaths, and their faces were like human faces. 
 They had hair like women's hair, and their teeth were like lions' teeth. 
 They wore breastplates like breastplates of iron, and the sound of their wings was like the sound of many chariots and horses rushing into battle. 

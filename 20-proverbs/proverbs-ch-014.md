@@ -1,34 +1,34 @@
 ﻿Every wise woman builds her house, but the foolish one tears it down with her own hands. 
-He who walks in his uprightness fears God, but he who is perverse in his ways despises him. 
+He who walks in his uprightness fears God, but he who's perverse in his ways despises him. 
 The fool's talk brings a rod to his back, but the lips of the wise protect them. 
 Where no oxen are, the crib is clean, but much increase is by the strength of the ox. 
 A truthful witness won't lie, but a false witness pours out lies. 
 A scoffer seeks wisdom, and doesn't find it, but knowledge comes easily to a discerning person. 
 Stay away from a foolish man, for you won't find knowledge on his lips. 
 The wisdom of the prudent is to think about his way, but the folly of fools is deceit. 
-Fools mock at making things right for wrongdoing, but among the upright there is good will. 
+Fools mock at making things right for wrongdoing, but among the upright there's good will. 
 The heart knows its own bitterness and joy; he won't share these with a stranger. 
 The house of the guilty will be overthrown, but the tent of the upright will flourish. 
-There is a way which seems right to a man, but in the end it leads to death. 
+There's a way which seems right to a man, but in the end it leads to death. 
 Even in laughter the heart may be sorrowful, and mirth may end in heaviness. 
 The unfaithful will be repaid for his own ways; likewise a good man will be rewarded for his ways. 
 A simple man believes everything, but the prudent man carefully considers his ways. 
 A wise man fears and shuns bad, but the fool is hot headed and reckless. 
-He who is quick to become angry will commit folly, and a crafty man is hated. 
+He who's quick to become angry will commit folly, and a crafty man is hated. 
 The simple inherit folly, but the prudent are crowned with knowledge. 
 The bad bow down before the good, and the guilty at the gates of the righteous. 
 The poor person is shunned even by his own neighbor, but the rich person has many friends. 
 He who despises his a neighbor drifts, but he who has pity on the poor is blessed. 
 Don't they go astray who plot bad? But love and faithfulness belong to those who plan good. 
-In all hard work there is profit, but the talk of the lips leads only to poverty. 
+In all hard work there's profit, but the talk of the lips leads only to poverty. 
 The crown of the wise is their riches, but the folly of fools crowns them with folly. 
 A truthful witness saves souls, but a false witness is deceitful. 
-In the fear of God is a secure fortress, and he will be a refuge for his children. 
+In the fear of God is a secure fortress, and he'll be a refuge for his children. 
 The fear of God is a fountain of life, turning people from the snares of death. 
 In the multitude of people is the king's glory, but in the lack of people is the destruction of the prince. 
-He who is slow to anger has great understanding, but he who has a quick temper displays folly. 
+He who's slow to anger has great understanding, but he who has a quick temper displays folly. 
 The life of the body is a heart at peace, but envy rots the bones. 
-He who oppresses the poor shows contempt for his Maker, but he who is kind to the needy honors him. 
+He who oppresses the poor shows contempt for his Maker, but he who's kind to the needy honors him. 
 The guilty is brought down in his calamity, but in death, the righteous has a refuge. 
 Wisdom rests in the heart of one who has understanding, and is even made known in the inward part of fools. 
 Righteousness exalts a nation, but wrongdoing is a disgrace to any people. 

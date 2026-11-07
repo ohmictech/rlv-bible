@@ -1,6 +1,6 @@
 ﻿Josiah kept a Passover to God in Jerusalem. They killed the Passover on the fourteenth day of the first month. 
 He set the priests in their offices and encouraged them in the service of God's house. 
-He said to the Levites who taught all Israel, who were holy to God, "Put the holy ark in the house which Solomon the son of David king of Israel built. It will no longer be a burden on your shoulders. Now serve your God and his people Israel. 
+He said to the Levites who taught all Israel, who were holy to God, "Put the holy ark in the house which Solomon the son of David king of Israel built. It'll no longer be a burden on your shoulders. Now serve your God and his people Israel. 
 Prepare yourselves after your fathers' houses by your divisions, according to the writing of David king of Israel, and according to the writing of Solomon his son. 
 Stand in the holy place according to the divisions of the fathers' houses of your brothers the children of the people, and let there be for each a portion of a fathers' house of the Levites. 
 Kill the Passover lamb, sanctify yourselves, and prepare for your brothers, to do according to God's word by Moses." 
@@ -9,7 +9,7 @@ His princes gave a free will offering to the people, to the priests, and to the 
 Conaniah also, and Shemaiah and Nethanel, his brothers, and Hashabiah, Jeiel, and Jozabad, the chiefs of the Levites, gave to the Levites for the Passover offerings five thousand small livestock and five hundred head of cattle. 
 So the service was prepared, and the priests stood in their place, and the Levites by their divisions, according to the king's commandment. 
 They killed the Passover lambs, and the priests sprinkled the blood which they received from their hands, and the Levites skinned them. 
-They removed the burnt offerings, that they might give them according to the divisions of the fathers' houses of the children of the people, to offer to God, as it is written in the book of Moses. They did the same with the cattle. 
+They removed the burnt offerings, that they might give them according to the divisions of the fathers' houses of the children of the people, to offer to God, as it's written in the book of Moses. They did the same with the cattle. 
 They roasted the Passover with fire according to the ordinance. They boiled the holy offerings in pots, in cauldrons, and in pans, and carried them quickly to all the children of the people. 
 Afterward they prepared for themselves and for the priests, because the priests the sons of Aaron were busy with offering the burnt offerings and the fat until night. So the Levites prepared for themselves and for the priests the sons of Aaron. 
 The singers, the sons of Asaph, were in their place, according to the commandment of David, Asaph, Heman, and Jeduthun the king's seer; and the gatekeepers were at every gate. They didn't need to depart from their service, because their brothers the Levites prepared for them. 
@@ -18,10 +18,10 @@ The children of Israel who were present kept the Passover at that time, and the 
 There was no Passover like that kept in Israel from the days of Samuel the spokesman, nor did any of the kings of Israel keep such a Passover as Josiah kept, with the priests, the Levites, and all Judah and Israel who were present, and the inhabitants of Jerusalem. 
 This Passover was kept in the eighteenth year of the reign of Josiah. 
 After all this, when Josiah had prepared the temple, Neco king of Egypt went up to fight against Carchemish by the Euphrates, and Josiah went out against him. 
-But he sent ambassadors to him, saying, "What have I to do with you, you king of Judah? I come not against you today, but against the house with which I have war. God has commanded me to make haste. Beware that it is God who is with me, that he not destroy you." 
+But he sent ambassadors to him, saying, "What have I to do with you, you king of Judah? I come not against you today, but against the house with which I have war. God has commanded me to make haste. Beware that it's God who's with me, that he not destroy you." 
 Nevertheless Josiah wouldn't turn his face from him, but disguised himself, that he might fight with him, and didn't listen to the words of Neco from the mouth of God, and came to fight in the valley of Megiddo. 
-The archers shot at King Josiah; and the king said to his servants, "Take me away, because I am seriously wounded!" 
+The archers shot at King Josiah; and the king said to his servants, "Take me away, because I'm seriously wounded!" 
 So his servants took him out of the chariot, and put him in the second chariot that he had, and brought him to Jerusalem; and he died, and was buried in the tombs of his fathers. All Judah and Jerusalem mourned for Josiah. 
-Jeremiah lamented for Josiah, and all the singing men and driftsging women spoke of Josiah in their lamentations to this day; and they made them an ordinance in Israel. Look, they are written in the lamentations. 
+Jeremiah lamented for Josiah, and all the singing men and driftsging women spoke of Josiah in their lamentations to this day; and they made them an ordinance in Israel. Look, they're written in the lamentations. 
 Now the rest of the acts of Josiah and his good deeds, according to that which is written in God's law, 
-and his acts, first and last, look, they are written in the book of the kings of Israel and Judah. 
+and his acts, first and last, look, they're written in the book of the kings of Israel and Judah. 

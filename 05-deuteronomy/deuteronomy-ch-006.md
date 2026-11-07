@@ -21,5 +21,5 @@ When your son asks you in time to come, saying, "What do the testimonies, the st
 then you shall tell your son, "We were Pharaoh's slaves in Egypt. God brought us out of Egypt with a mighty hand; 
 and God showed great and awesome signs and wonders on Egypt, on Pharaoh, and on all his house, before our eyes; 
 and he brought us out from there, that he might bring us in, to give us the land which he swore to our fathers. 
-God commanded us to do all these statutes, to fear our God, for our good always, that he might preserve us alive, as we are today. 
+God commanded us to do all these statutes, to fear our God, for our good always, that he might preserve us alive, as we're today. 
 It shall be righteousness to us, if we observe to do all these commandments before our God, as he has commanded us." 

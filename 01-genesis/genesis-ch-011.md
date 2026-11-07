@@ -1,12 +1,12 @@
 ﻿The whole earth had one language and one way of speaking. 
 As they traveled east, they found a plain in the land of Shinar, and they lived there. 
 They said to one another, "Come, let's make bricks and bake them thoroughly." They used bricks instead of stone, and tar instead of mortar. 
-They said, "Come, let's build ourselves a city, and a tower whose top reaches to the sky, and let's make a name for ourselves, or we will be scattered over the whole earth." 
+They said, "Come, let's build ourselves a city, and a tower whose top reaches to the sky, and let's make a name for ourselves, or we'll be scattered over the whole earth." 
 God came down to see the city and the tower that the human race was building. 
-God said, "Look, they are one people, and they all have one language, and this is only the beginning of what they will do. Nothing they plan will be out of their reach now. 
-Come, let us go down and confuse their language there, so they won't understand each other's speech." 
+God said, "Look, they're one people, and they all have one language, and this is only the beginning of what they'll do. Nothing they plan will be out of their reach now. 
+Come, let's go down and confuse their language there, so they won't understand each other's speech." 
 So God scattered them from there over all the earth, and they stopped building the city. 
-That is why its name was called Babel, because there God confused the language of the whole earth. From there God scattered them over all the earth. 
+That's why its name was called Babel, because there God confused the language of the whole earth. From there God scattered them over all the earth. 
 This is the account of the generations of Shem: Shem was one hundred years old when he fathered Arpachshad, two years after the flood. 
 After he fathered Arpachshad, Shem lived five hundred more years and fathered other sons and daughters. 
 Arpachshad was thirty-five years old when he fathered Shelah. 

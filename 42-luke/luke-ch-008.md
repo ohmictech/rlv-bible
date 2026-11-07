@@ -7,11 +7,11 @@ Some seed fell on the rock, and as soon as it grew, it withered away, because it
 Some fell amid the thorns, and the thorns grew with it and choked it. 
 Some fell into the good ground and grew and produced one hundred times as much fruit." As he said these things, he called out, "Whoever has ears to hear, let him hear!" 
 Then his students asked him, "What does this story mean?" 
-He said, "To you it is given to know the secrets of God's reign, but to the rest it is given in stories, that 'seeing they may not see, and hearing they may not understand.' 
+He said, "To you it's given to know the secrets of God's reign, but to the rest it's given in stories, that 'seeing they may not see, and hearing they may not understand.' 
 "Now the story is this: The seed is the word of God. 
 Those along the road are those who hear; then the Slanderer comes and takes away the word from their heart, that they may not trust and be rescued. 
 Those on the rock are they who, when they hear, receive the word with joy; but these have no root. They trust for a while, then fall away in a time of testing. 
-What fell among the thorns, these are those who have heard, and as they go on their way they are choked with worries, riches, and pleasures of life; and they bring no fruit to maturity. 
+What fell among the thorns, these are those who have heard, and as they go on their way they're choked with worries, riches, and pleasures of life; and they bring no fruit to maturity. 
 Those in the good ground, these are those who with an honest and good heart, having heard the word, hold on to it, and produce fruit with patience. 
 "No one who lights a lamp covers it with a container or puts it under a bed. He puts it on a stand, so that those who come in can see the light. 
 Nothing is hidden that won't be revealed, nor anything secret that won't be known and come to light. 
@@ -21,15 +21,15 @@ Someone told him, "Your mother and your brothers stand outside, wanting to see y
 But he answered them, "My mother and my brothers are those who hear the word of God and do it." 
 Now on one of those days, he entered into a boat, himself and his students, and he said to them, "Let's go over to the other side of the lake." So they launched out. 
 But as they sailed, he fell asleep. A windstorm came down on the lake, and they were taking on water and were in danger. 
-They came to him and awoke him, saying, "Master, Master, we are dying!" He awoke and rebuked the wind and the raging of the water; then they ceased, and it was calm. 
-He said to them, "Where is your trust?" They were afraid and amazed, saying to one another, "Who is this then, that he commands even the winds and the water, and they obey him?" 
+They came to him and awoke him, saying, "Master, Master, we're dying!" He awoke and rebuked the wind and the raging of the water; then they ceased, and it was calm. 
+He said to them, "Where is your trust?" They were afraid and amazed, saying to one another, "Who's this then, that he commands even the winds and the water, and they obey him?" 
 Then they arrived at the region of the Gadarenes, which is opposite Galilee. 
 When Jesus stepped ashore, a certain man out of the city who had unclean spirits for a long time met him. He wore no clothes, and didn't live in a house, but in the tombs. 
 When he saw Jesus, he cried out and fell down before him, and with a loud voice said, "What do I have to do with you, Jesus, you Son of the Most High God? I beg you, don't put me in anguish!" 
 Jesus was commanding the unclean spirit to come out of the man. The unclean spirit had often seized the man. He was kept under guard and bound with chains and shackles. Breaking the shackles apart, he was driven by the unclean spirit into the wilderness. 
-Jesus asked him, "What is your name?" He said, "Legion," for many unclean spirits had entered into him. 
+Jesus asked him, "What's your name?" He said, "Legion," for many unclean spirits had entered into him. 
 They begged him that he wouldn't command them to go into the abyss. 
-Now a large herd of pigs was feeding on the mountain there, and they begged him that he would allow them to enter into those. Then he allowed them. 
+Now a large herd of pigs was feeding on the mountain there, and they begged him that he'd allow them to enter into those. Then he allowed them. 
 The unclean spirits came out of the man and entered the pigs, and the herd rushed down the steep bank into the lake and were drowned. 
 When those who fed them saw what had happened, they fled and told it in the city and in the country. 
 People went out to see what had happened. They came to Jesus and found the man from whom the unclean spirits had gone out, sitting at Jesus' feet, clothed and in his right mind; and they were afraid. 
@@ -47,7 +47,7 @@ But Jesus said, "Someone did touch me, for I perceived that power has gone out o
 When the woman saw that she wasn't hidden, she came trembling; and falling down before him declared to him in the presence of everyone the reason why she had touched him, and how she was healed immediately. 
 He said to her, "Daughter, cheer up. Your trust has healed you and made you whole. Go in wholeness." 
 While he still spoke, one from the gathering place leader's house came, saying to him, "Your daughter is dead. Don't trouble the Teacher." 
-But Jesus hearing it, answered him, "Don't be afraid. Just trust, and she will be healed." 
+But Jesus hearing it, answered him, "Don't be afraid. Just trust, and she'll be healed." 
 When he came to the house, he didn't allow anyone to enter in, except Peter, John, James, the father of the child, and her mother. 
 All were weeping and mourning her, but he said, "Don't weep. She isn't dead, but sleeping." 
 They laughed at him, knowing that she was dead. 

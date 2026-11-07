@@ -10,28 +10,28 @@ You shall clothe them with belts, Aaron and his sons, and bind headbands on them
 "You shall bring the bull before the Tent of Meeting; and Aaron and his sons shall lay their hands on the head of the bull. 
 You shall kill the bull before God at the door of the Tent of Meeting. 
 You shall take of the blood of the bull, and put it on the horns of the altar with your finger; and you shall pour out all the blood at the base of the altar. 
-You shall take all the fat that covers the innards, the cover of the liver, the two kidneys, and the fat that is on them, and burn them on the altar. 
-But the meat of the bull, and its skin, and its dung, you shall burn with fire outside of the camp. It is an offering for wrongdoing. 
+You shall take all the fat that covers the innards, the cover of the liver, the two kidneys, and the fat that's on them, and burn them on the altar. 
+But the meat of the bull, and its skin, and its dung, you shall burn with fire outside of the camp. It's an offering for wrongdoing. 
 "You shall also take the one ram, and Aaron and his sons shall lay their hands on the head of the ram. 
 You shall kill the ram, and you shall take its blood, and sprinkle it around on the altar. 
 You shall cut the ram into its pieces, and wash its innards, and its legs, and put them with its pieces, and with its head. 
-You shall burn the whole ram on the altar: it is a burnt offering to God; it is a pleasant aroma, an offering made by fire to God. 
+You shall burn the whole ram on the altar: it's a burnt offering to God; it's a pleasant aroma, an offering made by fire to God. 
 "You shall take the other ram, and Aaron and his sons shall lay their hands on the head of the ram. 
 Then you shall kill the ram, and take some of its blood, and put it on the tip of the right ear of Aaron, and on the tip of the right ear of his sons, and on the thumb of their right hand, and on the big toe of their right foot; and sprinkle the blood around on the altar. 
-You shall take of the blood that is on the altar, and of the anointing oil, and sprinkle it on Aaron, and on his garments, and on his sons, and on the garments of his sons with him: and he shall be made holy, and his garments, and his sons, and his sons' garments with him. 
-Also you shall take some of the ram's fat, the fat tail, the fat that covers the innards, the cover of the liver, the two kidneys, the fat that is on them, and the right thigh (for it is a ram of consecration), 
-and one loaf of bread, one cake of oiled bread, and one wafer out of the basket of unleavened bread that is before God. 
+You shall take of the blood that's on the altar, and of the anointing oil, and sprinkle it on Aaron, and on his garments, and on his sons, and on the garments of his sons with him: and he shall be made holy, and his garments, and his sons, and his sons' garments with him. 
+Also you shall take some of the ram's fat, the fat tail, the fat that covers the innards, the cover of the liver, the two kidneys, the fat that's on them, and the right thigh (for it's a ram of consecration), 
+and one loaf of bread, one cake of oiled bread, and one wafer out of the basket of unleavened bread that's before God. 
 You shall put all of this in Aaron's hands, and in his sons' hands, and shall wave them for a wave offering before God. 
-You shall take them from their hands, and burn them on the altar on the burnt offering, for a pleasant aroma before God: it is an offering made by fire to God. 
+You shall take them from their hands, and burn them on the altar on the burnt offering, for a pleasant aroma before God: it's an offering made by fire to God. 
 "You shall take the breast of Aaron's ram of consecration, and wave it for a wave offering before God. It shall be your portion. 
 You shall sanctify the breast of the wave offering and the thigh of the wave offering, which is waved, and which is raised up, of the ram of consecration, even of that which is for Aaron, and of that which is for his sons. 
-It shall be for Aaron and his sons as their portion for the eras from the children of Israel; for it is a wave offering. It shall be a wave offering from the children of Israel of the sacrifices of their offerings for wholeness, even their wave offering to God. 
+It shall be for Aaron and his sons as their portion for the eras from the children of Israel; for it's a wave offering. It shall be a wave offering from the children of Israel of the sacrifices of their offerings for wholeness, even their wave offering to God. 
 "The holy garments of Aaron shall be for his sons after him, to be anointed in them, and to be consecrated in them. 
-Seven days shall the son who is priest in his place put them on, when he comes into the Tent of Meeting to minister in the holy place. 
+Seven days shall the son who's priest in his place put them on, when he comes into the Tent of Meeting to minister in the holy place. 
 "You shall take the ram of consecration and boil its meat in a holy place. 
-Aaron and his sons shall eat the meat of the ram, and the bread that is in the basket, at the door of the Tent of Meeting. 
-They shall eat those things with which things were made right, to consecrate and sanctify them; but a stranger shall not eat of it, because they are holy. 
-If anything of the meat of the consecration, or of the bread, remains to the morning, then you shall burn the remainder with fire. It shall not be eaten, because it is holy. 
+Aaron and his sons shall eat the meat of the ram, and the bread that's in the basket, at the door of the Tent of Meeting. 
+They shall eat those things with which things were made right, to consecrate and sanctify them; but a stranger shall not eat of it, because they're holy. 
+If anything of the meat of the consecration, or of the bread, remains to the morning, then you shall burn the remainder with fire. It shall not be eaten, because it's holy. 
 "You shall do so to Aaron and to his sons, according to all that I have commanded you. You shall consecrate them seven days. 
 Every day you shall offer the bull of offering for wrongdoing for making things right. You shall cleanse the altar when you make things right for it. You shall anoint it, to sanctify it. 
 Seven days you shall make things right for the altar, and sanctify it; and the altar shall be most holy. Whatever touches the altar shall be holy. 
@@ -39,8 +39,8 @@ Seven days you shall make things right for the altar, and sanctify it; and the a
 The one lamb you shall offer in the morning; and the other lamb you shall offer at evening; 
 and with the one lamb a tenth part of an ephah of fine flour mixed with the fourth part of a hin of beaten oil, and the fourth part of a hin of wine for a drink offering. 
 The other lamb you shall offer at evening, and shall do to it according to the meal offering of the morning and according to its drink offering, for a pleasant aroma, an offering made by fire to God. 
-It shall be a continual burnt offering throughout your generations at the door of the Tent of Meeting before God, where I will meet with you, to speak there to you. 
-There I will meet with the children of Israel; and the place shall be sanctified by my glory. 
-I will sanctify the Tent of Meeting and the altar. I will also sanctify Aaron and his sons to minister to me in the priest's office. 
-I will dwell among the children of Israel, and will be their God. 
-They shall know that I am their God, who brought them out of the land of Egypt, that I might dwell among them: I am their God. 
+It shall be a continual burnt offering throughout your generations at the door of the Tent of Meeting before God, where I'll meet with you, to speak there to you. 
+There I'll meet with the children of Israel; and the place shall be sanctified by my glory. 
+I'll sanctify the Tent of Meeting and the altar. I'll also sanctify Aaron and his sons to minister to me in the priest's office. 
+I'll dwell among the children of Israel, and will be their God. 
+They shall know that I'm their God, who brought them out of the land of Egypt, that I might dwell among them: I'm their God. 

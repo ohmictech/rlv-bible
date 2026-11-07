@@ -1,11 +1,11 @@
 ﻿This is the word that came to Jeremiah from God in the tenth year of Zedekiah king of Judah, which was the eighteenth year of Nebuchadnezzar. 
 Now at that time the king of Babylon's army was besieging Jerusalem. Jeremiah the spokesman was shut up in the court of the guard, which was in the king of Judah's house. 
-Zedekiah king of Judah had shut him up, saying, "Why do you prophesy, and say, 'God says, "Look, I will give this city into the hand of the king of Babylon, and he will take it; 
+Zedekiah king of Judah had shut him up, saying, "Why do you prophesy, and say, 'God says, "Look, I'll give this city into the hand of the king of Babylon, and he'll take it; 
 and Zedekiah king of Judah won't escape out of the hand of the Chaldeans, but will surely be delivered into the hand of the king of Babylon, and will speak with him mouth to mouth, and his eyes will see his eyes; 
-and he will bring Zedekiah to Babylon, and he will be there until I visit him," says God, "though you fight with the Chaldeans, you won't prosper"'?" 
+and he'll bring Zedekiah to Babylon, and he'll be there until I visit him," says God, "though you fight with the Chaldeans, you won't prosper"'?" 
 Jeremiah said, "God's word came to me, saying, 
-'Look, Hanamel the son of Shallum your uncle will come to you, saying, "Buy my field that is in Anathoth; for the right of buying back is yours to buy it."'" 
-"So Hanamel my uncle's son came to me in the court of the guard according to God's word, and said to me, 'Please buy my field that is in Anathoth, which is in the land of Benjamin; for the right of inheritance is yours, and the buying back is yours. Buy it for yourself.' "Then I knew that this was God's word. 
+'Look, Hanamel the son of Shallum your uncle will come to you, saying, "Buy my field that's in Anathoth; for the right of buying back is yours to buy it."'" 
+"So Hanamel my uncle's son came to me in the court of the guard according to God's word, and said to me, 'Please buy my field that's in Anathoth, which is in the land of Benjamin; for the right of inheritance is yours, and the buying back is yours. Buy it for yourself.' "Then I knew that this was God's word. 
 I bought the field that was in Anathoth of Hanamel my uncle's son, and weighed him the money, even seventeen shekels of silver. 
 I signed the deed, sealed it, called witnesses, and weighed the money in the balances to him. 
 So I took the deed of the purchase, both that which was sealed, containing the terms and conditions, and that which was open; 
@@ -14,18 +14,18 @@ and I delivered the deed of the purchase to Baruch the son of Neriah, the son of
 the God of Armies, the God of Israel says: 'Take these deeds, this deed of the purchase which is sealed, and this deed which is open, and put them in an earthen vessel, that they may last many days.' 
 For the God of Armies, the God of Israel says: 'Houses and fields and vineyards will yet again be bought in this land.' 
 Now after I had delivered the deed of the purchase to Baruch the son of Neriah, I prayed to God, saying, 
-"Ah God! Look, you have made the sky and the earth by your great power and by your outstretched arm. There is nothing too hard for you. 
+"Ah God! Look, you have made the sky and the earth by your great power and by your outstretched arm. There's nothing too hard for you. 
 You show loving kindness to thousands, and repay the guilt of the fathers into the bosom of their children after them. The great, the mighty God of Armies is your name: 
 great in counsel, and mighty in work; whose eyes are open to all the ways of the children of men, to give everyone according to his ways, and according to the fruit of his doings; 
-who performed signs and wonders in the land of Egypt, even to this day, both in Israel and among other men; and made yourself a name, as it is today; 
+who performed signs and wonders in the land of Egypt, even to this day, both in Israel and among other men; and made yourself a name, as it's today; 
 and brought your people Israel out of the land of Egypt with signs, with wonders, with a strong hand, with an outstretched arm, and with great terror; 
 and gave them this land, which you swore to their fathers to give them, a land flowing with milk and honey. 
 They came in and possessed it, but they didn't obey your voice and didn't walk in your law. They have done nothing of all that you commanded them to do. So you have caused all this bad to come upon them. 
 "Look, siege ramps have been built against the city to take it. The city is given into the hand of the Chaldeans who fight against it, because of the sword, of the famine, and of the pestilence. What you have spoken has happened. Look, you see it. 
 You have said to me, God, 'Buy the field for money, and call witnesses;' whereas the city is given into the hand of the Chaldeans." 
 Then God's word came to Jeremiah, saying, 
-"Look, I am the God of all flesh. Is there anything too hard for me? 
-So God says: Look, I will give this city into the hand of the Chaldeans, and into the hand of Nebuchadnezzar king of Babylon, and he will take it. 
+"Look, I'm the God of all flesh. Is there anything too hard for me? 
+So God says: Look, I'll give this city into the hand of the Chaldeans, and into the hand of Nebuchadnezzar king of Babylon, and he'll take it. 
 The Chaldeans, who fight against this city, will come and set this city on fire, and burn it with the houses on whose roofs they have offered incense to Baal, and poured out drink offerings to other gods, to provoke me to anger. 
 "The children of Israel and the children of Judah have done only that which was bad in my sight from their youth; for the children of Israel have only provoked me to anger with the work of their hands, says God. 
 This city has been to me a provocation of my anger and of my wrath from the day that they built it even to this day, so that I should remove it from before my face, 
@@ -33,12 +33,12 @@ because of all the bad of the children of Israel and of the children of Judah, w
 They have turned their backs to me, and not their faces. Although I taught them, rising up early and teaching them, yet they haven't listened to receive instruction. 
 But they set their abominations in the house which is called by my name, to defile it. 
 They built the high places of Baal, which are in the valley of the son of Hinnom, to cause their sons and their daughters to pass through fire to Molech, which I didn't command them. It didn't even come into my mind, that they should do this abomination, to cause Judah to drift." 
-Now the God of Israel says concerning this city, about which you say, "It is given into the hand of the king of Babylon by the sword, by the famine, and by the pestilence:" 
-"Look, I will gather them out of all the countries where I have driven them in my anger, and in my wrath, and in great indignation; and I will bring them again to this place. I will cause them to dwell safely. 
-Then they will be my people, and I will be their God. 
-I will give them one heart and one way, that they may fear me for the eras, for their good and the good of their children after them. 
-I will make an perpetual covenant with them, that I won't turn away from following them, to do them good. I will put my fear in their hearts, that they may not depart from me. 
-Yes, I will rejoice over them to do them good, and I will plant them in this land assuredly with my whole heart and with my whole soul." 
-God says: "Just as I have brought all this great bad on this people, so I will bring on them all the good that I have promised them. 
-Fields will be bought in this land, about which you say, 'It is desolate, without man or animal. It is given into the hand of the Chaldeans.' 
-Men will buy fields for money, sign the deeds, seal them, and call witnesses, in the land of Benjamin, and in the places around Jerusalem, in the cities of Judah, in the cities of the hill country, in the cities of the lowland, and in the cities of the South; for I will cause their captivity to be reversed," says God. 
+Now the God of Israel says concerning this city, about which you say, "It's given into the hand of the king of Babylon by the sword, by the famine, and by the pestilence:" 
+"Look, I'll gather them out of all the countries where I have driven them in my anger, and in my wrath, and in great indignation; and I'll bring them again to this place. I'll cause them to dwell safely. 
+Then they'll be my people, and I'll be their God. 
+I'll give them one heart and one way, that they may fear me for the eras, for their good and the good of their children after them. 
+I'll make an perpetual covenant with them, that I won't turn away from following them, to do them good. I'll put my fear in their hearts, that they may not depart from me. 
+Yes, I'll rejoice over them to do them good, and I'll plant them in this land assuredly with my whole heart and with my whole soul." 
+God says: "Just as I have brought all this great bad on this people, so I'll bring on them all the good that I have promised them. 
+Fields will be bought in this land, about which you say, 'It's desolate, without man or animal. It's given into the hand of the Chaldeans.' 
+Men will buy fields for money, sign the deeds, seal them, and call witnesses, in the land of Benjamin, and in the places around Jerusalem, in the cities of Judah, in the cities of the hill country, in the cities of the lowland, and in the cities of the South; for I'll cause their captivity to be reversed," says God. 

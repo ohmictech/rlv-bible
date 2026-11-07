@@ -2,7 +2,7 @@
 The king had taken counsel with his princes and all the assembly in Jerusalem to keep the Passover in the second month. 
 They couldn't keep it at that time, because the priests hadn't sanctified themselves in sufficient number, and the people hadn't gathered themselves together to Jerusalem. 
 The thing was right in the eyes of the king and of all the assembly. 
-So they established a decree to make proclamation throughout all Israel, from Beersheba even to Dan, that they should come to keep the Passover to the God of Israel, at Jerusalem, for they hadn't kept it in great numbers in the way it is written. 
+So they established a decree to make proclamation throughout all Israel, from Beersheba even to Dan, that they should come to keep the Passover to the God of Israel, at Jerusalem, for they hadn't kept it in great numbers in the way it's written. 
 So the couriers went with the letters from the king and his princes throughout all Israel and Judah, according to the commandment of the king, saying, "You children of Israel, turn again to the God of Abraham, Isaac, and Israel, that he may return to the remnant of you that have escaped out of the hand of the kings of Assyria. 
 Don't be like your fathers and like your brothers, who trespassed against the God of their fathers, so that he gave them up to desolation, as you see. 
 Now don't be stiff-necked, as your fathers were, but yield yourselves to God, and enter into his sanctuary, which he has sanctified for the eras, and serve your God, that his fierce anger may turn away from you. 
@@ -15,7 +15,7 @@ They arose and took away the altars that were in Jerusalem, and they took away a
 Then they killed the Passover on the fourteenth day of the second month. The priests and the Levites were ashamed, and sanctified themselves, and brought burnt offerings into God's house. 
 They stood in their place after their order, according to the law of Moses the man of God. The priests sprinkled the blood which they received of the hand of the Levites. 
 There were many in the assembly who hadn't sanctified themselves; the Levites were in charge of killing the Passovers for everyone who wasn't clean, to sanctify them to God. 
-A multitude of the people, even many of Ephraim, Manasseh, Issachar, and Zebulun, hadn't cleansed themselves, yet they ate the Passover other than the way it is written. Hezekiah had prayed for them, saying, "May the good God pardon everyone 
+A multitude of the people, even many of Ephraim, Manasseh, Issachar, and Zebulun, hadn't cleansed themselves, yet they ate the Passover other than the way it's written. Hezekiah had prayed for them, saying, "May the good God pardon everyone 
 who sets his heart to seek the God of his fathers, even if they aren't clean according to the purification of the sanctuary." 
 God listened to Hezekiah, and healed the people. 
 The children of Israel who were present at Jerusalem kept the feast of unleavened bread seven days with great gladness. The Levites and the priests praised God day by day, singing with loud instruments to God. 

@@ -2,6 +2,6 @@
 Hear my prayer, God. Listen to the words of my mouth. 
 Strangers have risen up against me. Violent men have sought after my soul. They haven't set God before them. Selah. 
 Look, God is my helper. The Lord is the one who sustains my soul. 
-He will repay the bad to my enemies. Destroy them in your truth. 
-With a free will offering, I will sacrifice to you. I will give thanks to your name, God, for it is good. 
+He'll repay the bad to my enemies. Destroy them in your truth. 
+With a free will offering, I'll sacrifice to you. I'll give thanks to your name, God, for it's good. 
 He has delivered me out of all trouble. My eye has seen triumph over my enemies. 

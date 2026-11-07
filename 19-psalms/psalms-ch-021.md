@@ -6,8 +6,8 @@ His glory is great in your salvation. You lay honor and majesty on him.
 You make him most blessed for the eras. You make him glad with joy in your presence. 
 The king trusts in God. Through the loving kindness of the Most High, he shall not be moved. 
 Your hand will find out all of your enemies. Your right hand will find out those who hate you. 
-You will make them as a fiery furnace in the time of your anger. God will swallow them up in his wrath. The fire shall devour them. 
-You will destroy their descendants from the earth, their posterity from among the children of men. 
+You'll make them as a fiery furnace in the time of your anger. God will swallow them up in his wrath. The fire shall devour them. 
+You'll destroy their descendants from the earth, their posterity from among the children of men. 
 They intended bad against you. They plotted bad against you which can't succeed. 
-You will make them turn their back, when you aim drawn bows at their face. 
-Be exalted, God, in your strength, so we will sing and praise your power. 
+You'll make them turn their back, when you aim drawn bows at their face. 
+Be exalted, God, in your strength, so we'll sing and praise your power. 

@@ -1,17 +1,17 @@
 ﻿The Chief Musician. To Jeduthun. A Psalm by Asaph. My cry goes to God! Indeed, I cry to God for help, and for him to listen to me. 
 In the day of my trouble I sought the Lord. My hand was stretched out in the night, and didn't get tired. My soul refused to be comforted. 
 I remember God, and I groan. I complain, and my spirit is overwhelmed. Selah. 
-You hold my eyelids open. I am so troubled that I can't speak. 
+You hold my eyelids open. I'm so troubled that I can't speak. 
 I have considered the days of old, the years of ancient times. 
 I remember my song in the night. I consider in my own heart; my spirit diligently inquires: 
 "Will the Lord reject us for the eras? Will he be favorable no more? 
 Has his loving kindness vanished for the eras? Does his promise fail for generations? 
 Has God forgotten to be gracious? Has he, in anger, withheld his compassion?" Selah. 
-Then I thought, "I will appeal to this: the years of the right hand of the Most High." 
-I will remember God's deeds; for I will remember your wonders of old. 
-I will also meditate on all your work, and consider your doings. 
+Then I thought, "I'll appeal to this: the years of the right hand of the Most High." 
+I'll remember God's deeds; for I'll remember your wonders of old. 
+I'll also meditate on all your work, and consider your doings. 
 Your way, God, is in the sanctuary. What god is great like God? 
-You are the God who does wonders. You have made your strength known among the peoples. 
+You're the God who does wonders. You have made your strength known among the peoples. 
 You have bought back your people with your arm, the sons of Jacob and Joseph. Selah. 
 The waters saw you, God. The waters saw you, and they writhed. The depths also convulsed. 
 The clouds poured out water. The skies resounded with thunder. Your arrows also flashed around. 

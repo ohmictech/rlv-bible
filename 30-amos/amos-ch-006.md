@@ -4,11 +4,11 @@ Alas for you who put far away the bad day, and cause the seat of violence to com
 who lie on beds of ivory, and stretch themselves on their couches, and eat the lambs out of the flock, and the calves out of the middle of the stall, 
 who strum on the strings of a harp, who invent for themselves instruments of music, like David; 
 who drink wine in bowls, and anoint themselves with the best oils, but they aren't grieved for the affliction of Joseph. 
-So they will now go captive with the first who go captive. The feasting and lounging will end. 
-"The God has sworn by himself," says the God of Armies: "I abhor the pride of Jacob, and detest his fortresses. So I will deliver up the city with all that is in it. 
-It will happen that if ten men remain in one house, they will die. 
-"When a man's relative carries him, even he who burns him, to bring bodies out of the house, and asks him who is in the innermost parts of the house, 'Is there yet any with you?' And he says, 'No;' then he will say, 'Hush! Indeed we must not mention God's name.' 
+So they'll now go captive with the first who go captive. The feasting and lounging will end. 
+"The God has sworn by himself," says the God of Armies: "I abhor the pride of Jacob, and detest his fortresses. So I'll deliver up the city with all that's in it. 
+It'll happen that if ten men remain in one house, they'll die. 
+"When a man's relative carries him, even he who burns him, to bring bodies out of the house, and asks him who's in the innermost parts of the house, 'Is there yet any with you?' And he says, 'No;' then he'll say, 'Hush! Indeed we must not mention God's name.' 
 "For, look, God commands, and the great house will be smashed to pieces, and the little house into bits. 
 Do horses run on the rocky crags? Does one plow there with oxen? But you have turned justice into poison, and the fruit of righteousness into bitterness, 
 you who rejoice in a thing of nothing, who say, 'Haven't we taken for ourselves horns by our own strength?' 
-For, look, I will raise up against you a nation, house of Israel," says the God of Armies; "and they will afflict you from the entrance of Hamath to the brook of the Arabah." 
+For, look, I'll raise up against you a nation, house of Israel," says the God of Armies; "and they'll afflict you from the entrance of Hamath to the brook of the Arabah." 

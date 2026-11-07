@@ -1,10 +1,10 @@
 ﻿The Chief Musician. A Psalm by David. God of my praise, don't remain silent, 
 for they have opened the mouth of the guilty and the mouth of deceit against me. They have spoken to me with a lying tongue. 
 They have also surrounded me with words of hatred, and fought against me without a cause. 
-In return for my love, they are my adversaries; but I am in prayer. 
+In return for my love, they're my adversaries; but I'm in prayer. 
 They have rewarded me bad for good, and hatred for my love. 
 Set a guilty man over him. Let an adversary stand at his right hand. 
-When he is judged, let him come out guilty. Let his prayer be turned into drift. 
+When he's judged, let him come out guilty. Let his prayer be turned into drift. 
 Let his days be few. Let another take his office. 
 Let his children be fatherless, and his wife a widow. 
 Let his children be wandering beggars. Let them be sought from their ruins. 
@@ -16,16 +16,16 @@ Let them be before God continually, that he may cut off their memory from the ea
 because he didn't remember to show kindness, but persecuted the poor and needy man, the broken in heart, to kill them. 
 Yes, he loved cursing, and it came to him. He didn't delight in blessing, and it was far from him. 
 He clothed himself also with cursing as with his garment. It came into his inward parts like water, like oil into his bones. 
-Let it be to him as the clothing with which he covers himself, for the belt that is always around him. 
+Let it be to him as the clothing with which he covers himself, for the belt that's always around him. 
 This is the reward of my adversaries from God, of those who speak bad against my soul. 
 But deal with me, GOD the Lord, for your name's sake, because your loving kindness is good, deliver me; 
-for I am poor and needy. My heart is wounded within me. 
-I fade away like an evening shadow. I am shaken off like a locust. 
+for I'm poor and needy. My heart is wounded within me. 
+I fade away like an evening shadow. I'm shaken off like a locust. 
 My knees are weak through fasting. My body is thin and lacks fat. 
 I have also become a reproach to them. When they see me, they shake their head. 
 Help me, God, my God. Save me according to your loving kindness; 
 that they may know that this is your hand; that you, God, have done it. 
-They may curse, but you bless. When they arise, they will be shamed, but your servant shall rejoice. 
+They may curse, but you bless. When they arise, they'll be shamed, but your servant shall rejoice. 
 Let my adversaries be clothed with dishonor. Let them cover themselves with their own shame as with a robe. 
-I will give great thanks to God with my mouth. Yes, I will praise him among the multitude. 
-He will stand at the right hand of the needy, to save him from those who judge his soul. 
+I'll give great thanks to God with my mouth. Yes, I'll praise him among the multitude. 
+He'll stand at the right hand of the needy, to save him from those who judge his soul. 

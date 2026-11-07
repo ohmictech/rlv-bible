@@ -14,16 +14,16 @@ Tamar was told, "Look, your father-in-law is going up to Timnah to shear his she
 She took off the garments of her widowhood, and covered herself with her veil, and wrapped herself, and sat in the gate of Enaim, which is on the way to Timnah; for she saw that Shelah was grown up, and she wasn't given to him as a wife. 
 When Judah saw her, he thought that she was a prostitute, for she had covered her face. 
 He turned to her by the way, and said, "Please come, let me come in to you," for he didn't know that she was his daughter-in-law. She said, "What will you give me, that you may come in to me?" 
-He said, "I will send you a young goat from the flock." She said, "Will you give me a pledge, until you send it?" 
-He said, "What pledge will I give you?" She said, "Your signet and your cord, and your staff that is in your hand." He gave them to her, and came in to her, and she conceived by him. 
+He said, "I'll send you a young goat from the flock." She said, "Will you give me a pledge, until you send it?" 
+He said, "What pledge will I give you?" She said, "Your signet and your cord, and your staff that's in your hand." He gave them to her, and came in to her, and she conceived by him. 
 She arose, and went away, and put off her veil from her, and put on the garments of her widowhood. 
 Judah sent the young goat by the hand of his friend, the Adullamite, to receive the pledge from the woman's hand, but he didn't find her. 
 Then he asked the men of her place, saying, "Where is the prostitute, that was at Enaim by the road?" They said, "There has been no prostitute here." 
 He returned to Judah, and said, "I haven't found her; and also the men of the place said, 'There has been no prostitute here.'" 
 Judah said, "Let her keep it, lest we be shamed. Look, I sent this young goat, and you haven't found her." 
-About three months later, Judah was told, "Tamar, your daughter-in-law, has played the prostitute. Moreover, look, she is with child by prostitution." Judah said, "Bring her out, and let her be burned." 
-When she was brought out, she sent to her father-in-law, saying, "I am with child by the man who owns these." She also said, "Please discern whose these are, the signet, and the cords, and the staff." 
-Judah acknowledged them, and said, "She is more righteous than I, because I didn't give her to Shelah, my son." He knew her again no more. 
+About three months later, Judah was told, "Tamar, your daughter-in-law, has played the prostitute. Moreover, look, she's with child by prostitution." Judah said, "Bring her out, and let her be burned." 
+When she was brought out, she sent to her father-in-law, saying, "I'm with child by the man who owns these." She also said, "Please discern whose these are, the signet, and the cords, and the staff." 
+Judah acknowledged them, and said, "She's more righteous than I, because I didn't give her to Shelah, my son." He knew her again no more. 
 In the time of her travail, look, twins were in her womb. 
 When she travailed, one put out a hand, and the midwife took and tied a scarlet thread on his hand, saying, "This came out first." 
 As he drew back his hand, look, his brother came out, and she said, "Why have you made a breach for yourself?" Therefore his name was called Perez. 

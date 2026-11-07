@@ -9,9 +9,9 @@ Esau said, "What do you mean by all this company which I met?" Jacob said, "To f
 Esau said, "I have enough, my brother; let that which you have be yours." 
 Jacob said, "Please, no, if I have now found favor in your sight, then receive my present at my hand, because I have seen your face, as one sees the face of God, and you were pleased with me. 
 Please take the gift that I brought to you, because God has dealt graciously with me, and because I have enough." He urged him, and he took it. 
-Esau said, "Let's take our journey, and let's go, and I will go before you." 
+Esau said, "Let's take our journey, and let's go, and I'll go before you." 
 Jacob said to him, "My lord knows that the children are tender, and that the flocks and herds with me have their young, and if they overdrive them one day, all the flocks will die. 
-Please let my lord pass over before his servant, and I will lead on gently, according to the pace of the livestock that are before me and according to the pace of the children, until I come to my lord to Seir." 
+Please let my lord pass over before his servant, and I'll lead on gently, according to the pace of the livestock that are before me and according to the pace of the children, until I come to my lord to Seir." 
 Esau said, "Let me now leave with you some of the people who are with me." He said, "Why? Let me find favor in the sight of my lord." 
 So Esau returned that day on his way to Seir. 
 Jacob traveled to Succoth, built himself a house, and made shelters for his livestock. So the name of the place is called Succoth. 

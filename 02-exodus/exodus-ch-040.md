@@ -6,7 +6,7 @@ You shall set the golden altar for incense before the ark of the covenant, and p
 "You shall set the altar of burnt offering before the door of the tabernacle of the Tent of Meeting. 
 You shall set the bamistake between the Tent of Meeting and the altar, and shall put water therein. 
 You shall set up the court around it, and hang up the screen of the gate of the court. 
-"You shall take the anointing oil, and anoint the tabernacle and all that is in it, and shall make it holy, and all its furniture, and it will be holy. 
+"You shall take the anointing oil, and anoint the tabernacle and all that's in it, and shall make it holy, and all its furniture, and it'll be holy. 
 You shall anoint the altar of burnt offering, with all its vessels, and sanctify the altar, and the altar will be most holy. 
 You shall anoint the bamistake and its base, and sanctify it. 
 "You shall bring Aaron and his sons to the door of the Tent of Meeting, and shall wash them with water. 

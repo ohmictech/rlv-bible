@@ -3,6 +3,6 @@
 "Defend the weak, the poor, and the fatherless. Maintain the rights of the poor and oppressed. 
 Rescue the weak and needy. Deliver them out of the hand of the guilty." 
 They don't know, neither do they understand. They walk back and forth in darkness. All the foundations of the earth are shaken. 
-I said, "You are gods, all of you are sons of the Most High. 
+I said, "You're gods, all of you're sons of the Most High. 
 Nevertheless you shall die like men, and fall like one of the rulers." 
 Arise, God, judge the earth, for you inherit all of the nations. 

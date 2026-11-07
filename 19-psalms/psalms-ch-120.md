@@ -4,4 +4,4 @@ What will be given to you, and what will be done more to you, you deceitful tong
 Sharp arrows of the mighty, with coals of juniper. 
 Woe is me, that I live in Meshech, that I dwell among the tents of Kedar! 
 My soul has had her dwelling too long with him who hates peace. 
-I am for peace, but when I speak, they are for war. 
+I'm for peace, but when I speak, they're for war. 

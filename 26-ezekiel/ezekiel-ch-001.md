@@ -25,4 +25,4 @@ When they went, I heard the noise of their wings like the noise of great waters,
 There was a voice above the expanse that was over their heads. When they stood, they let down their wings. 
 Above the expanse that was over their heads was the likeness of a throne, as the appearance of a sapphire stone. On the likeness of the throne was a likeness as the appearance of a man on it above. 
 I saw as it were glowing metal, as the appearance of fire within it all around, from the appearance of his waist and upward; and from the appearance of his waist and downward I saw as it were the appearance of fire, and there was brightness around him. 
-As the appearance of the rainbow that is in the cloud in the day of rain, so was the appearance of the brightness all around. This was the appearance of the likeness of God's glory. When I saw it, I fell on my face, and I heard a voice of one that spoke. 
+As the appearance of the rainbow that's in the cloud in the day of rain, so was the appearance of the brightness all around. This was the appearance of the likeness of God's glory. When I saw it, I fell on my face, and I heard a voice of one that spoke. 

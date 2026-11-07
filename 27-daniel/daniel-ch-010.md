@@ -17,5 +17,5 @@ Look, one in the likeness of the sons of men touched my lips. Then I opened my m
 How can the servant of this my lord talk with this my lord? As for me, immediately there remained no strength in me. There was no breath left in me." 
 Then one like the appearance of a man touched me again, and he strengthened me. 
 He said, "Greatly beloved man, don't be afraid. Peace be to you. Be strong. Yes, be strong." When he spoke to me, I was strengthened, and said, "Let my lord speak, for you have strengthened me." 
-Then he said, "Do you know why I have come to you? Now I will return to fight with the prince of Persia. When I go out, look, the prince of Greece will come. 
-But I will tell you that which is inscribed in the writing of truth. There is no one who holds with me against these but Michael your prince. 
+Then he said, "Do you know why I have come to you? Now I'll return to fight with the prince of Persia. When I go out, look, the prince of Greece will come. 
+But I'll tell you that which is inscribed in the writing of truth. There's no one who holds with me against these but Michael your prince. 

@@ -1,17 +1,17 @@
 ﻿Manasseh was twelve years old when he began to reign, and he reigned fifty-five years in Jerusalem. His mother's name was Hephzibah. 
 He did that which was bad in God's sight, after the abominations of the nations whom God cast out before the children of Israel. 
 He built again the high places which Hezekiah his father had destroyed; and he raised up altars for Baal, and made an Asherah, as Ahab king of Israel did, and worshiped all the army of the sky, and served them. 
-He built altars in God's house, of which God said, "I will put my name in Jerusalem." 
+He built altars in God's house, of which God said, "I'll put my name in Jerusalem." 
 He built altars for all the army of the sky in the two courts of God's house. 
 He made his son to pass through the fire, practiced sorcery, used enchantments, and dealt with those who had familiar spirits and with wizards. He did much bad in God's sight, to provoke him to anger. 
-He set the engraved image of Asherah that he had made in the house of which God said to David and to Solomon his son, "In this house, and in Jerusalem, which I have chosen out of all the tribes of Israel, I will put my name for the eras; 
-I won't cause the feet of Israel to wander any more out of the land which I gave their fathers, if only they will observe to do according to all that I have commanded them, and according to all the law that my servant Moses commanded them." 
+He set the engraved image of Asherah that he had made in the house of which God said to David and to Solomon his son, "In this house, and in Jerusalem, which I have chosen out of all the tribes of Israel, I'll put my name for the eras; 
+I won't cause the feet of Israel to wander any more out of the land which I gave their fathers, if only they'll observe to do according to all that I have commanded them, and according to all the law that my servant Moses commanded them." 
 But they didn't listen, and Manasseh seduced them to do that which is bad more than the nations did whom God destroyed before the children of Israel. 
 God spoke by his servants the spokesmen, saying, 
 "Because Manasseh king of Judah has done these abominations, and has done guiltily above all that the Amorites did, who were before him, and has also made Judah to drift with his idols; 
-So God the God of Israel says, 'Look, I will bring such bad on Jerusalem and Judah that whoever hears of it, both his ears will tingle. 
-I will stretch over Jerusalem the line of Samaria, and the plumb line of Ahab's house; and I will wipe Jerusalem as a man wipes a dish, wiping it and turning it upside down. 
-I will cast off the remnant of my inheritance and deliver them into the hands of their enemies. They will become a prey and a plunder to all their enemies, 
+So God the God of Israel says, 'Look, I'll bring such bad on Jerusalem and Judah that whoever hears of it, both his ears will tingle. 
+I'll stretch over Jerusalem the line of Samaria, and the plumb line of Ahab's house; and I'll wipe Jerusalem as a man wipes a dish, wiping it and turning it upside down. 
+I'll cast off the remnant of my inheritance and deliver them into the hands of their enemies. They'll become a prey and a plunder to all their enemies, 
 because they have done that which is bad in my sight, and have provoked me to anger since the day their fathers came out of Egypt, even to this day.'" 
 Moreover Manasseh shed innocent blood very much, until he had filled Jerusalem from one end to another; in addition to his wrong he did that made Judah drift, in doing that which was bad in God's sight. 
 Now the rest of the acts of Manasseh, and all that he did, and his wrong he did, aren't they written in the book of the chronicles of the kings of Judah? 

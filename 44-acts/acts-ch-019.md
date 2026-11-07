@@ -1,7 +1,7 @@
 ﻿While Apollos was at Corinth, Paul, having passed through the upper country, came to Ephesus and found certain students. 
-He said to them, "Did you receive the Holy Spirit when you trusted?" They said to him, "No, we haven't even heard that there is a Holy Spirit." 
+He said to them, "Did you receive the Holy Spirit when you trusted?" They said to him, "No, we haven't even heard that there's a Holy Spirit." 
 He said, "Into what then were you immersed?" They said, "Into John's immersion." 
-Paul said, "John indeed immersed with the immersion of a change of heart, saying to the people that they should trust in the one who would come after him, that is, in Christ Jesus." 
+Paul said, "John indeed immersed with the immersion of a change of heart, saying to the people that they should trust in the one who would come after him, that's, in Christ Jesus." 
 When they heard this, they were immersed in the name of the Lord Jesus. 
 When Paul had laid his hands on them, the Holy Spirit came on them and they spoke with other languages and spoke for God. 
 They were about twelve men in all. 
@@ -23,7 +23,7 @@ Having sent into Macedonia two of those who served him, Timothy and Erastus, he 
 About that time there arose no small disturbance concerning the Way. 
 A certain man named Demetrius, a silversmith who made silver shrines of Artemis, brought no little business to the craftsmen, 
 whom he gathered together with the workmen of like occupation, and said, "Sirs, you know that by this business we have our wealth. 
-You see and hear that not at Ephesus alone, but almost throughout all Asia, this Paul has persuaded and turned away many people, saying that they are no gods that are made with hands. 
+You see and hear that not at Ephesus alone, but almost throughout all Asia, this Paul has persuaded and turned away many people, saying that they're no gods that are made with hands. 
 Not only is there danger that this our trade come into disrepute, but also that the temple of the great goddess Artemis will be counted as nothing and her majesty brought down, whom all Asia and the world worships." 
 When they heard this they flared up and cried out, saying, "Great is Artemis of the Ephesians!" 
 The whole city was filled with confusion, and they rushed with one accord into the theater, having seized Gaius and Aristarchus, men of Macedonia, Paul's companions in travel. 
@@ -36,6 +36,6 @@ When the town clerk had quieted the crowd, he said, "You men of Ephesus, what ma
 Seeing then that these things can't be denied, you ought to be quiet and to do nothing rash. 
 You have brought these men here, who are neither robbers of temples nor blasphemers of your goddess. 
 If Demetrius and the craftsmen who are with him have a matter against anyone, the courts are open and there are proconsuls. Let them press charges against one another. 
-But if you seek anything about other matters, it will be settled in the regular gathering. 
-Indeed we are in danger of being accused concerning today's riot, there being no cause. Concerning it, we wouldn't be able to give an account of this commotion." 
+But if you seek anything about other matters, it'll be settled in the regular gathering. 
+Indeed we're in danger of being accused concerning today's riot, there being no cause. Concerning it, we wouldn't be able to give an account of this commotion." 
 When he had thus spoken, he dismissed the gathering. 

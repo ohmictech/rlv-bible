@@ -1,17 +1,17 @@
 ﻿The Song of songs, which is Solomon's. 
 Let him kiss me with the kisses of his mouth; for your love is better than wine. 
 Your oils have a pleasing fragrance. Your name is oil poured out, the virgins love you. 
-Take me away with you. Let's hurry. The king has brought me into his rooms. Friends We will be glad and rejoice in you. We will praise your love more than wine! Beloved They are right to love you. 
-I am dark, but lovely, you daughters of Jerusalem, like Kedar's tents, like Solomon's curtains. 
-Don't stare at me because I am dark, because the sun has scorched me. My mother's sons were angry with me. They made me keeper of the vineyards. I haven't kept my own vineyard. 
-Tell me, you whom my soul loves, where you graze your flock, where you rest them at noon; for why should I be as one who is veiled beside the flocks of your companions? 
+Take me away with you. Let's hurry. The king has brought me into his rooms. Friends We'll be glad and rejoice in you. We'll praise your love more than wine! Beloved They're right to love you. 
+I'm dark, but lovely, you daughters of Jerusalem, like Kedar's tents, like Solomon's curtains. 
+Don't stare at me because I'm dark, because the sun has scorched me. My mother's sons were angry with me. They made me keeper of the vineyards. I haven't kept my own vineyard. 
+Tell me, you whom my soul loves, where you graze your flock, where you rest them at noon; for why should I be as one who's veiled beside the flocks of your companions? 
 If you don't know, most beautiful among women, follow the tracks of the sheep. Graze your young goats beside the shepherds' tents. 
 I have compared you, my love, to a steed in Pharaoh's chariots. 
 Your cheeks are beautiful with earrings, your neck with strings of jewels. 
-We will make you earrings of gold, with studs of silver. 
+We'll make you earrings of gold, with studs of silver. 
 While the king sat at his table, my perfume spread its fragrance. 
 My beloved is to me a sachet of myrrh, that lies between my breasts. 
 My beloved is to me a cluster of henna blossoms from the vineyards of En Gedi. 
-Look, you are beautiful, my love. Look, you are beautiful. Your eyes are like doves. 
-Look, you are beautiful, my beloved, yes, pleasant; and our couch is verdant. 
+Look, you're beautiful, my love. Look, you're beautiful. Your eyes are like doves. 
+Look, you're beautiful, my beloved, yes, pleasant; and our couch is verdant. 
 The beams of our house are cedars. Our rafters are firs. 

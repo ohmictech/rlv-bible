@@ -1,7 +1,7 @@
 ﻿God spoke to Moses after the death of the two sons of Aaron, when they came near before God, and died; 
-and God said to Moses, "Tell Aaron your brother not to come at just any time into the Most Holy Place within the veil, before the mercy seat which is on the ark; lest he die; for I will appear in the cloud on the mercy seat. 
+and God said to Moses, "Tell Aaron your brother not to come at just any time into the Most Holy Place within the veil, before the mercy seat which is on the ark; lest he die; for I'll appear in the cloud on the mercy seat. 
 "Aaron shall come into the sanctuary with a young bull for an offering for wrongdoing, and a ram for a burnt offering. 
-He shall put on the holy linen tunic. He shall have the linen trousers on his body, and shall put on the linen sash, and he shall be clothed with the linen turban. They are the holy garments. He shall bathe his body in water, and put them on. 
+He shall put on the holy linen tunic. He shall have the linen trousers on his body, and shall put on the linen sash, and he shall be clothed with the linen turban. They're the holy garments. He shall bathe his body in water, and put them on. 
 He shall take from the congregation of the children of Israel two male goats for an offering for wrongdoing, and one ram for a burnt offering. 
 "Aaron shall offer the bull of the offering for wrongdoing, which is for himself, and make things right for himself and for his house. 
 He shall take the two goats, and set them before God at the door of the Tent of Meeting. 
@@ -10,15 +10,15 @@ Aaron shall present the goat on which the lot fell for God, and offer him for an
 But the goat on which the lot fell for the scapegoat shall be presented alive before God, to make things right for him, to send him away as the scapegoat into the wilderness. 
 "Aaron shall present the bull of the offering for wrongdoing, which is for himself, and shall make things right for himself and for his house, and shall kill the bull of the offering for wrongdoing which is for himself. 
 He shall take a censer full of coals of fire from off the altar before God, and two handfuls of sweet incense beaten small, and bring it within the veil. 
-He shall put the incense on the fire before God, that the cloud of the incense may cover the mercy seat that is on the covenant, so that he won't die. 
+He shall put the incense on the fire before God, that the cloud of the incense may cover the mercy seat that's on the covenant, so that he won't die. 
 He shall take some of the blood of the bull, and sprinkle it with his finger on the mercy seat on the east; and before the mercy seat he shall sprinkle some of the blood with his finger seven times. 
-"Then he shall kill the goat of the offering for wrongdoing that is for the people, and bring his blood within the veil, and do with his blood as he did with the blood of the bull, and sprinkle it on the mercy seat and before the mercy seat. 
+"Then he shall kill the goat of the offering for wrongdoing that's for the people, and bring his blood within the veil, and do with his blood as he did with the blood of the bull, and sprinkle it on the mercy seat and before the mercy seat. 
 He shall make things right for the Holy Place, because of the uncleanness of the children of Israel, and because of their rebellion, even all their mistakes; and so he shall do for the Tent of Meeting that dwells with them in the middle of their uncleanness. 
 No one shall be in the Tent of Meeting when he enters to make things right in the Holy Place, until he comes out, and has made things right for himself and for his household, and for all the assembly of Israel. 
-"He shall go out to the altar that is before God and make things right for it, and shall take some of the bull's blood, and some of the goat's blood, and put it around on the horns of the altar. 
+"He shall go out to the altar that's before God and make things right for it, and shall take some of the bull's blood, and some of the goat's blood, and put it around on the horns of the altar. 
 He shall sprinkle some of the blood on it with his finger seven times, and cleanse it, and make it holy from the uncleanness of the children of Israel. 
 "When he has finished atoning for the Holy Place, the Tent of Meeting, and the altar, he shall present the live goat. 
-Aaron shall lay both his hands on the head of the live goat, and confess over him all the guilt of the children of Israel, and all their rebellion, even all their mistakes; and he shall put them on the head of the goat, and shall send him away into the wilderness by the hand of a man who is ready. 
+Aaron shall lay both his hands on the head of the live goat, and confess over him all the guilt of the children of Israel, and all their rebellion, even all their mistakes; and he shall put them on the head of the goat, and shall send him away into the wilderness by the hand of a man who's ready. 
 The goat shall carry all their guilt on himself to a solitary land, and he shall release the goat in the wilderness. 
 "Aaron shall come into the Tent of Meeting, and shall take off the linen garments which he put on when he went into the Holy Place, and shall leave them there. 
 Then he shall bathe himself in water in a holy place, put on his garments, and come out and offer his burnt offering and the burnt offering of the people, and make things right for himself and for the people. 
@@ -28,7 +28,7 @@ The bull for the offering for wrongdoing, and the goat for the offering for wron
 He who burns them shall wash his clothes, and bathe his flesh in water, and afterward he shall come into the camp. 
 "It shall be a statute to you for the eras: in the seventh month, on the tenth day of the month, you shall afflict your souls, and shall do no kind of work, whether native-born or a stranger who lives as a foreigner among you; 
 for on this day things shall be made right for you, to cleanse you. You shall be clean from all your mistakes before God. 
-It is a Sabbath of solemn rest to you, and you shall afflict your souls. It is a statute for the eras. 
-The priest, who is anointed and who is consecrated to be priest in his father's place, shall make the making right, and shall put on the linen garments, even the holy garments. 
+It's a Sabbath of solemn rest to you, and you shall afflict your souls. It's a statute for the eras. 
+The priest, who's anointed and who's consecrated to be priest in his father's place, shall make the making right, and shall put on the linen garments, even the holy garments. 
 Then he shall make things right for the Holy Sanctuary; and he shall make things right for the Tent of Meeting and for the altar; and he shall make things right for the priests and for everyone in the assembly. 
 "This shall be an perpetual statute for you, to make things right for the children of Israel once in the year because of all their mistakes." It was done as God commanded Moses. 

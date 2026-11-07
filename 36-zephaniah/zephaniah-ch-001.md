@@ -1,18 +1,18 @@
 ﻿God's word which came to Zephaniah, the son of Cushi, the son of Gedaliah, the son of Amariah, the son of Hezekiah, in the days of Josiah, the son of Amon, king of Judah. 
-I will utterly sweep away everything from the surface of the earth, says God. 
-I will sweep away man and animal. I will sweep away the birds of the sky, the fish of the sea, and the heaps of rubble with the guilty. I will cut off man from the surface of the earth, says God. 
-I will stretch out my hand against Judah and against all the inhabitants of Jerusalem. I will cut off the remnant of Baal from this place, the name of the idolatrous and pagan priests, 
+I'll utterly sweep away everything from the surface of the earth, says God. 
+I'll sweep away man and animal. I'll sweep away the birds of the sky, the fish of the sea, and the heaps of rubble with the guilty. I'll cut off man from the surface of the earth, says God. 
+I'll stretch out my hand against Judah and against all the inhabitants of Jerusalem. I'll cut off the remnant of Baal from this place, the name of the idolatrous and pagan priests, 
 those who worship the army of the sky on the housetops, those who worship and swear by God and also swear by Malcam, 
 those who have turned back from following God, and those who haven't sought God nor inquired after him. 
 Be silent at the presence of God, for the day of God is at hand. God has prepared a sacrifice. He has consecrated his guests. 
-It will happen in the day of God's sacrifice that I will punish the princes, the king's sons, and everyone who is clothed with foreign clothing. 
-In that day, I will punish everyone who leaps over the threshold, who fill their master's house with violence and deceit. 
+It'll happen in the day of God's sacrifice that I'll punish the princes, the king's sons, and everyone who's clothed with foreign clothing. 
+In that day, I'll punish everyone who leaps over the threshold, who fill their master's house with violence and deceit. 
 In that day, says God, there will be the noise of a cry from the fish gate, a wailing from the second quarter, and a great crashing from the hills. 
 Wail, you inhabitants of Maktesh, for everyone in Canaan are undone! Everyone who was loaded with silver are cut off. 
-It will happen at that time, that I will search Jerusalem with lamps, and I will punish the men who are settled on their dregs, who say in their heart, "God won't do good, neither will he do bad things." 
-Their wealth will become a plunder, and their houses a desolation. Yes, they will build houses, but won't inhabit them. They will plant vineyards, but won't drink their wine. 
-The great day of God is near. It is near and hurries greatly, the voice of the day of God. The mighty man cries there bitterly. 
+It'll happen at that time, that I'll search Jerusalem with lamps, and I'll punish the men who are settled on their dregs, who say in their heart, "God won't do good, neither will he do bad things." 
+Their wealth will become a plunder, and their houses a desolation. Yes, they'll build houses, but won't inhabit them. They'll plant vineyards, but won't drink their wine. 
+The great day of God is near. It's near and hurries greatly, the voice of the day of God. The mighty man cries there bitterly. 
 That day is a day of wrath, a day of distress and anguish, a day of trouble and ruin, a day of darkness and gloom, a day of clouds and blackness, 
 a day of the trumpet and alarm against the fortified cities and against the high battlements. 
-I will bring such distress on men that they will walk like blind men because they have wronged God. Their blood will be poured out like dust and their flesh like dung. 
-Neither their silver nor their gold will be able to deliver them in the day of God's wrath, but the whole land will be devoured by the fire of his jealousy; for he will make an end, yes, a terrible end, of everyone who dwells in the land. 
+I'll bring such distress on men that they'll walk like blind men because they have wronged God. Their blood will be poured out like dust and their flesh like dung. 
+Neither their silver nor their gold will be able to deliver them in the day of God's wrath, but the whole land will be devoured by the fire of his jealousy; for he'll make an end, yes, a terrible end, of everyone who dwells in the land. 

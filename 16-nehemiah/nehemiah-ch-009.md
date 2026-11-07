@@ -3,18 +3,18 @@ The offspring of Israel separated themselves from all foreigners and stood and c
 They stood up in their place, and read in the book of the law of their God a fourth part of the day; and a fourth part they confessed and worshiped their God. 
 Then Jeshua, Bani, Kadmiel, Shebaniah, Bunni, Sherebiah, Bani, and Chenani of the Levites stood up on the stairs, and cried with a loud voice to their God. 
 Then the Levites, Jeshua, and Kadmiel, Bani, Hashabneiah, Sherebiah, Hodiah, Shebaniah, and Pethahiah, said, "Stand up and bless your God from perpetual to perpetual! Blessed be your glorious name, which is exalted above all blessing and praise! 
-You are God, even you alone. You have made the sky, the sky above the skies, with all their army, the earth and all things that are on it, the seas and all that is in them, and you preserve them all. The army of the sky worships you. 
-You are the God who chose Abram, brought him out of Ur of the Chaldees, gave him the name of Abraham, 
-found his heart faithful before you, and made a covenant with him to give the land of the Canaanite, the Hittite, the Amorite, the Perizzite, the Jebusite, and the Girgashite, to give it to his offspring, and have performed your words, for you are righteous. 
+You're God, even you alone. You have made the sky, the sky above the skies, with all their army, the earth and all things that are on it, the seas and all that's in them, and you preserve them all. The army of the sky worships you. 
+You're the God who chose Abram, brought him out of Ur of the Chaldees, gave him the name of Abraham, 
+found his heart faithful before you, and made a covenant with him to give the land of the Canaanite, the Hittite, the Amorite, the Perizzite, the Jebusite, and the Girgashite, to give it to his offspring, and have performed your words, for you're righteous. 
 "You saw the affliction of our fathers in Egypt, and heard their cry by the Red Sea, 
-and showed signs and wonders against Pharaoh, against all his servants, and against everyone in his land, for you knew that they dealt proudly against them, and made a name for yourself, as it is today. 
+and showed signs and wonders against Pharaoh, against all his servants, and against everyone in his land, for you knew that they dealt proudly against them, and made a name for yourself, as it's today. 
 You divided the sea before them, so that they went through the middle of the sea on the dry land; and you cast their pursuers into the depths, as a stone into the mighty waters. 
 Moreover, in a pillar of cloud you led them by day; and in a pillar of fire by night, to give them light in the way in which they should go. 
 "You also came down on Mount Sinai, and spoke with them from the sky, and gave them right ordinances and true laws, good statutes and commandments, 
 and made known to them your holy Sabbath, and commanded them commandments, statutes, and a law, by Moses your servant, 
 and gave them bread from the sky for their hunger, and brought water out of the rock for them for their thirst, and commanded them that they should go in to possess the land which you had sworn to give them. 
 "But they and our fathers behaved proudly, hardened their neck, didn't listen to your commandments, 
-and refused to obey. They weren't mindful of your wonders that you did among them, but hardened their neck, and in their rebellion appointed a captain to return to their bondage. But you are a God ready to pardon, gracious and merciful, slow to anger, and abundant in loving kindness, and didn't forsake them. 
+and refused to obey. They weren't mindful of your wonders that you did among them, but hardened their neck, and in their rebellion appointed a captain to return to their bondage. But you're a God ready to pardon, gracious and merciful, slow to anger, and abundant in loving kindness, and didn't forsake them. 
 Yes, when they had made themselves a molded calf, and said, 'This is your God who brought you up out of Egypt,' and had committed awful blasphemies, 
 yet you in your manifold mercies didn't forsake them in the wilderness. The pillar of cloud didn't depart from over them by day, to lead them in the way; neither did the pillar of fire by night, to show them light, and the way in which they should go. 
 You gave also your good Spirit to instruct them, and didn't withhold your manna from their mouth, and gave them water for their thirst. 
@@ -28,11 +28,11 @@ So you delivered them into the hand of their adversaries, who distressed them. I
 But after they had rest, they did bad again before you; you left them in the hands of their enemies, so that they had the dominion over them; yet when they returned and cried to you, you heard from the sky; and many times you delivered them according to your mercies, 
 and testified against them, that you might bring them again to your law. Yet they were arrogant, and didn't listen to your commandments, but wronged your ordinances (which if a man does, he shall live in them), turned their backs, stiffened their neck, and wouldn't hear. 
 Yet many years you put up with them, and testified against them by your Spirit through your spokesmen. Yet they wouldn't listen. So you gave them into the hand of the peoples of the lands. 
-"Nevertheless in your manifold mercies you didn't make a full end of them, nor forsake them; for you are a gracious and merciful God. 
+"Nevertheless in your manifold mercies you didn't make a full end of them, nor forsake them; for you're a gracious and merciful God. 
 Now, our God, the great, the mighty, and the awesome God, who keeps covenant and loving kindness, don't let all the travail seem little before you that has come on us, on our kings, on our princes, on our priests, on our spokesmen, on our fathers, and on all your people, since the time of the kings of Assyria to this day. 
-However you are just in all that has come on us; for you have dealt truly, but we have done guiltily. 
+However you're just in all that has come on us; for you have dealt truly, but we have done guiltily. 
 Also our kings, our princes, our priests, and our fathers haven't kept your law, nor listened to your commandments and your testimonies with which you testified against them. 
 They haven't served you in their kingdom, and in your great goodness that you gave them, and in the large and rich land which you gave before them. They didn't turn from their guilty works. 
-"Look, we are servants today, and as for the land that you gave to our fathers to eat its fruit and its good, look, we are servants in it. 
-It yields much increase to the kings whom you have set over us because of our mistakes. Also they have power over our bodies and over our livestock, at their pleasure, and we are in great distress. 
+"Look, we're servants today, and as for the land that you gave to our fathers to eat its fruit and its good, look, we're servants in it. 
+It yields much increase to the kings whom you have set over us because of our mistakes. Also they have power over our bodies and over our livestock, at their pleasure, and we're in great distress. 
 Yet for all this, we make a sure covenant, and write it; and our princes, our Levites, and our priests, seal it." 

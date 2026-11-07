@@ -1,4 +1,4 @@
-﻿By David; when he pretended to be insane before Abimelech, who drove him away, and he departed. I will bless God at all times. His praise will always be in my mouth. 
+﻿By David; when he pretended to be insane before Abimelech, who drove him away, and he departed. I'll bless God at all times. His praise will always be in my mouth. 
 My soul shall boast in God. The humble shall hear of it and be glad. 
 Oh magnify God with me. Let's exalt his name together. 
 I sought God, and he answered me, and delivered me from all my fears. 
@@ -6,12 +6,12 @@ They looked to him, and were radiant. Their faces shall never be covered with sh
 This poor man cried, and God heard him, and saved him out of all his troubles. 
 God's messenger encamps around those who fear him, and delivers them. 
 Oh taste and see that God is good. Blessed is the man who takes refuge in him. 
-Oh fear God, you his saints, for there is no lack with those who fear him. 
+Oh fear God, you his saints, for there's no lack with those who fear him. 
 The young lions do lack, and suffer hunger, but those who seek God shall not lack any good thing. 
-Come, you children, listen to me. I will teach you the fear of God. 
-Who is someone who desires life, and loves many days, that he may see good? 
-Keep your tongue from what is bad, and your lips from speaking lies. 
-Depart from what is bad, and do good. Seek peace, and pursue it. 
+Come, you children, listen to me. I'll teach you the fear of God. 
+Who's someone who desires life, and loves many days, that he may see good? 
+Keep your tongue from what's bad, and your lips from speaking lies. 
+Depart from what's bad, and do good. Seek peace, and pursue it. 
 God's eyes are toward the righteous. His ears listen to their cry. 
 God's face is against those who do bad things, to cut off their memory from the earth. 
 The righteous cry, and God hears, and delivers them out of all their troubles. 

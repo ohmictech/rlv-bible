@@ -8,8 +8,8 @@ She gave birth to her firstborn son. She wrapped him in strips of cloth and laid
 There were shepherds in that region staying out in the fields, keeping watch over their flock by night. 
 Look, a messenger of the Lord stood by them, and the weight of the Lord shone around them, and they were terrified. 
 The messenger said to them, "Don't be afraid, for look, I bring you good news of great joy for everyone. 
-There is born to you today, in David's city, a Restorer, who is Christ the Lord. 
-This is the sign to you: you will find a baby wrapped in strips of cloth, lying in a feeding trough." 
+There's born to you today, in David's city, a Restorer, who's Christ the Lord. 
+This is the sign to you: you'll find a baby wrapped in strips of cloth, lying in a feeding trough." 
 Suddenly there was with the messenger a crowd of the sky's army, praising God and saying, 
 "Honor to God in the highest, and on earth wholeness, good will toward people." 
 When the messengers went away from them into the sky, the shepherds said to one another, "Let's go to Bethlehem, now, and see this thing that has happened, which the Lord has made known to us." 
@@ -20,18 +20,18 @@ But Mary treasured all these sayings, pondering them in her heart.
 The shepherds returned, giving honor to God and praising him for all the things that they had heard and seen, just as it was told them. 
 When eight days had passed for the circumcision of the child, he was named Jesus, the name given by the messenger before he was conceived in the womb. 
 When the days of their purification according to the law of Moses were over, they brought him up to Jerusalem to present him to the Lord 
-(as it is written in the law of the Lord, "Every male who opens the womb will be called set apart to the Lord"), 
-and to offer a sacrifice according to what is said in the law of the Lord, "A pair of turtledoves, or two young pigeons." 
+(as it's written in the law of the Lord, "Every male who opens the womb will be called set apart to the Lord"), 
+and to offer a sacrifice according to what's said in the law of the Lord, "A pair of turtledoves, or two young pigeons." 
 Look, there was a man in Jerusalem named Simeon. This man was upright and devout, looking for the comfort of Israel, and the Holy Spirit was on him. 
 It had been revealed to him by the Holy Spirit that he shouldn't see death before he had seen the Lord's Christ. 
 He came in the Spirit into the temple, and when the parents brought in the child, Jesus, to do for him according to the custom of the law, 
 he took him into his arms and blessed God, and said, 
-"Now you are setting your slave free, Master, according to your word, in wholeness; 
+"Now you're setting your slave free, Master, according to your word, in wholeness; 
 for my eyes have seen your healing and wholeness, 
 which you have prepared in the presence of all peoples, 
 a light to unveil the nations, and the weight of your people Israel." 
 Joseph and his mother were amazed at the things which were spoken concerning him. 
-Simeon blessed them, and said to Mary, his mother, "Look, this child is appointed for the falling and the rising of many in Israel, and as a sign that is spoken against. 
+Simeon blessed them, and said to Mary, his mother, "Look, this child is appointed for the falling and the rising of many in Israel, and as a sign that's spoken against. 
 And a sword will pierce through your own life too, so that the thoughts of many hearts may be revealed." 
 There was also Anna, a spokeswoman, the daughter of Phanuel, of the tribe of Asher (she was very old, having lived with a husband seven years after her marriage, 
 and she had been a widow for about eighty-four years), who never left the temple, worshiping with going without food and prayers night and day. 

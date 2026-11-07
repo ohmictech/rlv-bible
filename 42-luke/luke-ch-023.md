@@ -13,34 +13,34 @@ Herod and Pilate became friends with each other that very day, for before that t
 Pilate called together the chief priests, the rulers, and the people, 
 and said to them, "You brought this man to me as one that perverts the people, and look, having examined him before you, I found no basis for a charge against this man concerning those things of which you accuse him. 
 Neither has Herod, for I sent you to him, and see, nothing worthy of death has been done by him. 
-I will have him whipped and release him." 
+I'll have him whipped and release him." 
 Now he had to release one prisoner to them at the feast. 
 But they all cried out together, saying, "Away with this man! Release to us Barabbas!" 
 one who was thrown into prison for a certain revolt in the city, and for murder. 
 Then Pilate spoke to them again, wanting to release Jesus, 
 but they shouted, saying, "Crucify! Crucify him!" 
-He said to them the third time, "Why? What bad thing has this man done? I have found no capital crime in him. I will have him whipped and release him." 
+He said to them the third time, "Why? What bad thing has this man done? I have found no capital crime in him. I'll have him whipped and release him." 
 But they were urgent with loud voices, demanding that he be crucified. Their voices and the voices of the chief priests prevailed. 
 Pilate decreed that what they asked for should be done. 
 He released him who had been thrown into prison for uprising and murder, for whom they asked, but he delivered Jesus up to their will. 
 When they led him away, they grabbed one Simon of Cyrene, coming from the countryside, and laid the cross on him to carry it after Jesus. 
 A great crowd of the people followed him, including women who also mourned and lamented him. 
 But Jesus, turning to them, said, "Daughters of Jerusalem, don't weep for me, but weep for yourselves and for your children. 
-Look, the days are coming in which they will say, 'Flourishing are the barren, the wombs that never bore, and the breasts that never nursed.' 
-Then they will begin to tell the mountains, 'Fall on us!' and tell the hills, 'Cover us.' 
+Look, the days are coming in which they'll say, 'Flourishing are the barren, the wombs that never bore, and the breasts that never nursed.' 
+Then they'll begin to tell the mountains, 'Fall on us!' and tell the hills, 'Cover us.' 
 If they do these things in the green tree, what will be done in the dry?" 
 There were also others, two criminals, led with him to be put to death. 
-When they came to the place that is called "The Skull", they crucified him there with the criminals, one on the right and the other on the left. 
-Jesus said, "Father, release them, for they don't know what they are doing." Dividing his clothes among them, they cast lots. 
+When they came to the place that's called "The Skull", they crucified him there with the criminals, one on the right and the other on the left. 
+Jesus said, "Father, release them, for they don't know what they're doing." Dividing his clothes among them, they cast lots. 
 The people stood watching. The rulers with them also scoffed at him, saying, "He rescued others. Let him rescue himself, if this is the Christ of God, his chosen one!" 
 The soldiers also mocked him, coming to him and offering him sour wine, 
-and saying, "If you are the King of the Jews, rescue yourself!" 
+and saying, "If you're the King of the Jews, rescue yourself!" 
 An inscription was also written over him in letters of Greek, Latin, and Hebrew: "THIS IS THE KING OF THE JEWS." 
-One of the criminals who was hanging there insulted him, saying, "If you are the Christ, rescue yourself and us!" 
-But the other answered, and rebuking him said, "Don't you even fear God, seeing you are under the same verdict? 
-And we indeed justly, for we are getting what our deeds deserve, but this man has done nothing wrong." 
+One of the criminals who was hanging there insulted him, saying, "If you're the Christ, rescue yourself and us!" 
+But the other answered, and rebuking him said, "Don't you even fear God, seeing you're under the same verdict? 
+And we indeed justly, for we're getting what our deeds deserve, but this man has done nothing wrong." 
 He said to Jesus, "Lord, remember me when you come into your reign." 
-Jesus said to him, "Truly I tell you, today you will be with me in paradise." 
+Jesus said to him, "Truly I tell you, today you'll be with me in paradise." 
 It was now about noon, and darkness came over the whole land until mid-afternoon. 
 The sun was darkened, and the curtain of the temple was torn in two. 
 Jesus, crying with a loud voice, said, "Father, into your hands I commit my spirit!" Having said this, he breathed his last. 

@@ -3,10 +3,10 @@ You have made the land tremble. You have torn it. Mend its fractures, for it qua
 You have shown your people hard things. You have made us drink the wine that makes us stagger. 
 You have given a banner to those who fear you, that it may be displayed because of the truth. Selah. 
 So that your beloved may be delivered, save with your right hand, and answer us. 
-God has spoken from his sanctuary: "I will triumph. I will divide Shechem, and measure out the valley of Succoth. 
+God has spoken from his sanctuary: "I'll triumph. I'll divide Shechem, and measure out the valley of Succoth. 
 Gilead is mine, and Manasseh is mine. Ephraim also is the defense of my head. Judah is my scepter. 
-Moab is my wash bamistake. I will throw my sandal on Edom. I shout in triumph over Philistia." 
+Moab is my wash bamistake. I'll throw my sandal on Edom. I shout in triumph over Philistia." 
 Who will bring me into the strong city? Who has led me to Edom? 
 Haven't you, God, rejected us? You don't go out with our armies, God. 
 Give us help against the adversary, for the help of man is vain. 
-Through God we will do valiantly, for it is he who will tread down our adversaries. 
+Through God we'll do valiantly, for it's he who will tread down our adversaries. 

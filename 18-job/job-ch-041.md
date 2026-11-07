@@ -14,13 +14,13 @@ Who can strip off his outer garment? Who will come within his jaws?
 Who can open the doors of his face? Around his teeth is terror. 
 Strong scales are his pride, shut up together with a close seal. 
 One is so near to another, that no air can come between them. 
-They are joined to one another. They stick together, so that they can't be pulled apart. 
+They're joined to one another. They stick together, so that they can't be pulled apart. 
 His sneezing flashes out light. His eyes are like the eyelids of the morning. 
 Out of his mouth go burning torches. Sparks of fire leap out. 
 Out of his nostrils a smoke goes, as of a boiling pot over a fire of reeds. 
 His breath kindles coals. A flame goes out of his mouth. 
-There is strength in his neck. Terror dances before him. 
-The flakes of his flesh are joined together. They are firm on him. They can't be moved. 
+There's strength in his neck. Terror dances before him. 
+The flakes of his flesh are joined together. They're firm on him. They can't be moved. 
 His heart is as firm as a stone, yes, firm as the lower millstone. 
 When he raises himself up, the mighty are afraid. They retreat before his thrashing. 
 If one attacks him with the sword, it can't prevail; nor the spear, the dart, nor the pointed shaft. 
@@ -30,5 +30,5 @@ Clubs are counted as stubble. He laughs at the rushing of the javelin.
 His undersides are like sharp potsherds, leaving a trail in the mud like a threshing sledge. 
 He makes the deep to boil like a pot. He makes the sea like a pot of ointment. 
 He makes a path shine after him. One would think the deep had white hair. 
-On earth there isn't his equal, that is made without fear. 
-He sees everything that is high. He is king over all the sons of pride." 
+On earth there isn't his equal, that's made without fear. 
+He sees everything that's high. He's king over all the sons of pride." 

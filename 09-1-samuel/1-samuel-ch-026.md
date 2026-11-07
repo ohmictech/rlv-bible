@@ -3,23 +3,23 @@ Then Saul arose and went down to the wilderness of Ziph, having three thousand c
 Saul encamped in the hill of Hachilah, which is before the desert, by the way. But David stayed in the wilderness, and he saw that Saul came after him into the wilderness. 
 David sent out spies, and understood that Saul had certainly come. 
 Then David arose and came to the place where Saul had encamped; and David saw the place where Saul lay, with Abner the son of Ner, the captain of his army. Saul lay within the place of the wagons, and the people were encamped around him. 
-Then David answered and said to Ahimelech the Hittite, and to Abishai the son of Zeruiah, brother of Joab, saying, "Who will go down with me to Saul to the camp?" Abishai said, "I will go down with you." 
+Then David answered and said to Ahimelech the Hittite, and to Abishai the son of Zeruiah, brother of Joab, saying, "Who will go down with me to Saul to the camp?" Abishai said, "I'll go down with you." 
 So David and Abishai came to the people by night; and, look, Saul lay sleeping within the place of the wagons, with his spear stuck in the ground at his head; and Abner and the people lay around him. 
 Then Abishai said to David, "God has delivered up your enemy into your hand today. Now please let me strike him with the spear to the earth at one stroke, and I won't strike him the second time." 
 David said to Abishai, "Don't destroy him, for who can stretch out his hand against God's anointed, and be guiltless?" 
 David said, "As God lives, God will strike him; or his day shall come to die, or he shall go down into battle and perish. 
-God forbid that I should stretch out my hand against God's anointed; but now please take the spear that is at his head and the jar of water, and let's go." 
+God forbid that I should stretch out my hand against God's anointed; but now please take the spear that's at his head and the jar of water, and let's go." 
 So David took the spear and the jar of water from Saul's head, and they went away. No man saw it, or knew it, nor did any awake; for they were all asleep, because a deep sleep from God had fallen on them. 
 Then David went over to the other side, and stood on the top of the mountain far away, a great space being between them; 
 and David cried to the people, and to Abner the son of Ner, saying, "Don't you answer, Abner?" Then Abner answered, "Who are you who calls to the king?" 
-David said to Abner, "Aren't you a man? Who is like you in Israel? Why then have you not kept watch over your lord the king? One of the people came in to destroy your lord the king. 
-This thing isn't good that you have done. As God lives, you are worthy to die, because you haven't kept watch over your lord, God's anointed. Now see where the king's spear is, and the jar of water that was at his head." 
-Saul recognized David's voice, and said, "Is this your voice, my son David?" David said, "It is my voice, my lord, O king." 
+David said to Abner, "Aren't you a man? Who's like you in Israel? Why then have you not kept watch over your lord the king? One of the people came in to destroy your lord the king. 
+This thing isn't good that you have done. As God lives, you're worthy to die, because you haven't kept watch over your lord, God's anointed. Now see where the king's spear is, and the jar of water that was at his head." 
+Saul recognized David's voice, and said, "Is this your voice, my son David?" David said, "It's my voice, my lord, O king." 
 He said, "Why does my lord pursue his servant? What have I done? What bad is in my hand? 
-Now, please let my lord the king hear the words of his servant. If it is so that God has stirred you up against me, let him accept an offering. But if it is the children of men, they are cursed before God; for they have driven me out today that I shouldn't cling to God's inheritance, saying, 'Go, serve other gods!' 
+Now, please let my lord the king hear the words of his servant. If it's so that God has stirred you up against me, let him accept an offering. But if it's the children of men, they're cursed before God; for they have driven me out today that I shouldn't cling to God's inheritance, saying, 'Go, serve other gods!' 
 Now, don't let my blood fall to the earth away from the presence of God; for the king of Israel has come out to seek a flea, as when one hunts a partridge in the mountains." 
-Then Saul said, "I have drifted. Return, my son David; for I will no more do you harm, because my life was precious in your eyes today. Look, I have played the fool, and have erred exceedingly." 
+Then Saul said, "I have drifted. Return, my son David; for I'll no more do you harm, because my life was precious in your eyes today. Look, I have played the fool, and have erred exceedingly." 
 David answered, "Look the spear, O king! Let one of the young men come over and get it. 
 God will give to every man his righteousness and his faithfulness; because God delivered you into my hand today, and I wouldn't stretch out my hand against God's anointed. 
 Look, as your life was respected today in my eyes, so let my life be respected in God's eyes, and let him deliver me out of all oppression." 
-Then Saul said to David, "You are blessed, my son David. You will both do mightily, and will surely prevail." So David went his way, and Saul returned to his place. 
+Then Saul said to David, "You're blessed, my son David. You'll both do mightily, and will surely prevail." So David went his way, and Saul returned to his place. 

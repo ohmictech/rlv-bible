@@ -9,14 +9,14 @@ Jerusalem has grievously drifted. So she has become unclean. Everyone who honore
 Her filthiness was in her skirts. She didn't remember her latter end. So she has come down astoundingly. She has no comforter. "See, God, my affliction; for the enemy has magnified himself." 
 The adversary has spread out his hand on all her pleasant things; for she has seen that the nations have entered into her sanctuary, concerning whom you commanded that they shouldn't enter into your assembly. 
 All her people sigh. They seek bread. They have given their pleasant things for food to refresh their soul. "Look, God, and see, for I have become despised." 
-"Is it nothing to you, all you who pass by? Look, and see if there is any sorrow like my sorrow, which is brought on me, with which God has afflicted me in the day of his fierce anger. 
+"Is it nothing to you, all you who pass by? Look, and see if there's any sorrow like my sorrow, which is brought on me, with which God has afflicted me in the day of his fierce anger. 
 "From on high has he sent fire into my bones, and it prevails against them. He has spread a net for my feet. He has turned me back. He has made me desolate and I faint all day long. 
-"The yoke of my rebellion is bound by his hand. They are knit together. They have come up on my neck. He made my strength fail. The Lord has delivered me into their hands, against whom I'm not able to stand. 
+"The yoke of my rebellion is bound by his hand. They're knit together. They have come up on my neck. He made my strength fail. The Lord has delivered me into their hands, against whom I'm not able to stand. 
 "The Lord has set at nothing all my mighty men within me. He has called a solemn assembly against me to crush my young men. The Lord has trodden the virgin daughter of Judah as in a wine press. 
 "These things I weep. My eye, my eye runs down with water, because the comforter who should refresh my soul is far from me. My children are desolate, because the enemy has prevailed." 
-Zion spreads out her hands. There is no one to comfort her. God has commanded concerning Jacob, that those who are around him should be his adversaries. Jerusalem is among them as an unclean thing. 
+Zion spreads out her hands. There's no one to comfort her. God has commanded concerning Jacob, that those who are around him should be his adversaries. Jerusalem is among them as an unclean thing. 
 "God is righteous, for I have rebelled against his commandment. Please hear all you peoples, and see my sorrow. My virgins and my young men have gone into captivity. 
 "I called for my lovers, but they deceived me. My priests and my elders gave up the spirit in the city, while they sought food for themselves to refresh their souls. 
-"Look, God; for I am in distress. My heart is troubled. My heart turns over within me, for I have grievously rebelled. Abroad, the sword bereaves. At home, it is like death. 
-"They have heard that I sigh. There is no one to comfort me. All my enemies have heard of my trouble. They are glad that you have done it. You will bring the day that you have proclaimed, and they will be like me. 
+"Look, God; for I'm in distress. My heart is troubled. My heart turns over within me, for I have grievously rebelled. Abroad, the sword bereaves. At home, it's like death. 
+"They have heard that I sigh. There's no one to comfort me. All my enemies have heard of my trouble. They're glad that you have done it. You'll bring the day that you have proclaimed, and they'll be like me. 
 "Let all their guilt come before you. Do to them as you have done to me for all my rebellion. My sighs are many, and my heart is faint. 

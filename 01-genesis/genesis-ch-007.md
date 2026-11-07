@@ -1,7 +1,7 @@
-﻿God said to Noah, "Come with all of your household into the ship, for I have seen that you are right before me in this generation. 
+﻿God said to Noah, "Come with all of your household into the ship, for I have seen that you're right before me in this generation. 
 Take seven pairs of every clean animal with you, the male and his female. Of the animals that aren't clean, take two, the male and his female. 
 Also of the birds of the sky, seven and seven, male and female, to keep seed alive on the face of all the earth. 
-In seven days, I will make it rain on the earth for forty days and forty nights. I will wipe out every living thing that I have made from the face of the land." 
+In seven days, I'll make it rain on the earth for forty days and forty nights. I'll wipe out every living thing that I have made from the face of the land." 
 Noah did everything that God commanded him. 
 Noah was six hundred years old when the flood of waters came on the earth. 
 Noah went into the ship with his sons, his wife, and his sons' wives, because of the floodwaters. 

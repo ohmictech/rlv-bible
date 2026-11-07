@@ -1,16 +1,16 @@
 ﻿Now when it was reported to Sanballat, Tobiah, Geshem the Arabian, and to the rest of our enemies that I had built the wall, and that there was no breach left in it (though even to that time I hadn't set up the doors in the gates), 
 Sanballat and Geshem sent to me, saying, "Come! Let's meet together in the villages in the plain of Ono." But they intended to harm me. 
-I sent messengers to them, saying, "I am doing a great work, so that I can't come down. Why should the work cease while I leave it and come down to you?" 
+I sent messengers to them, saying, "I'm doing a great work, so that I can't come down. Why should the work cease while I leave it and come down to you?" 
 They sent to me four times like this; and I answered them the same way. 
 Then Sanballat sent his servant to me the same way the fifth time with an open letter in his hand, 
-in which was written, "It is reported among the nations, and Gashmu says it, that you and the Jews intend to rebel. Because of that, you are building the wall. You would be their king, according to these words. 
-You have also appointed spokesmen to proclaim of you at Jerusalem, saying, 'There is a king in Judah!' Now it will be reported to the king according to these words. Come now, and let's take counsel together." 
+in which was written, "It's reported among the nations, and Gashmu says it, that you and the Jews intend to rebel. Because of that, you're building the wall. You'd be their king, according to these words. 
+You have also appointed spokesmen to proclaim of you at Jerusalem, saying, 'There's a king in Judah!' Now it'll be reported to the king according to these words. Come now, and let's take counsel together." 
 Then I sent to him, saying, "There are no such things done as you say, but you imagine them out of your own heart." 
 They all would have made us afraid, saying, "Their hands will be weakened from the work, that it not be done." But now, strengthen my hands. 
-I went to the house of Shemaiah the son of Delaiah the son of Mehetabel, who was shut in at his home; and he said, "Let us meet together in God's house, within the temple, and let's shut the doors of the temple; for they will come to kill you. Yes, in the night they will come to kill you." 
-I said, "Should a man like me flee? Who is there that, being such as I, would go into the temple to save his life? I won't go in." 
+I went to the house of Shemaiah the son of Delaiah the son of Mehetabel, who was shut in at his home; and he said, "Let's meet together in God's house, within the temple, and let's shut the doors of the temple; for they'll come to kill you. Yes, in the night they'll come to kill you." 
+I said, "Should a man like me flee? Who's there that, being such as I, would go into the temple to save his life? I won't go in." 
 I discerned, and look, God hadn't sent him, but he pronounced this prophecy against me. Tobiah and Sanballat had hired him. 
-He was hired so that I would be afraid, do so, and drifts, and that they might have material for an bad report, that they might reproach me. 
+He was hired so that I'd be afraid, do so, and drifts, and that they might have material for an bad report, that they might reproach me. 
 "Remember, my God, Tobiah and Sanballat according to these their works, and also the prophetess Noadiah and the rest of the spokesmen that would have put me in fear." 
 So the wall was finished in the twenty-fifth day of Elul, in fifty-two days. 
 When all our enemies heard of it, all the nations that were around us were afraid, and they lost their confidence; for they perceived that this work was done by our God. 

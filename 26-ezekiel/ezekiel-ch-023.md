@@ -19,19 +19,19 @@ So she uncovered her prostitution and uncovered her nakedness. Then my soul was 
 Yet she multiplied her prostitution, remembering the days of her youth, in which she had played the prostitute in the land of Egypt. 
 She lusted after their lovers, whose flesh is as the flesh of donkeys, and whose issue is like the issue of horses. 
 Thus you called to memory the lewdness of your youth, in the caressing of your nipples by the Egyptians because of your youthful breasts. 
-"So, Oholibah, God says: 'Look, I will raise up your lovers against you, from whom your soul is alienated, and I will bring them against you on every side: 
+"So, Oholibah, God says: 'Look, I'll raise up your lovers against you, from whom your soul is alienated, and I'll bring them against you on every side: 
 the Babylonians and all the Chaldeans, Pekod, Shoa, Koa, and all the Assyrians with them; everyone desirable young men, governors and rulers, princes and men of renown, everyone riding on horses. 
-They will come against you with weapons, chariots, and wagons, and with a company of peoples. They will set themselves against you with buckler, shield, and helmet all around. I will commit the judgment to them, and they will judge you according to their judgments. 
-I will set my jealousy against you, and they will deal with you in fury. They will take away your nose and your ears. Your remnant will fall by the sword. They will take your sons and your daughters; and the rest of you will be devoured by the fire. 
-They will also strip you of your clothes and take away your beautiful jewels. 
-Thus I will make your lewdness to cease from you, and remove your prostitution from the land of Egypt, so that you won't lift up your eyes to them, nor remember Egypt any more.' 
-"For God says: 'Look, I will deliver you into the hand of them whom you hate, into the hand of them from whom your soul is alienated. 
-They will deal with you in hatred, and will take away all your labor, and will leave you naked and bare. The nakedness of your prostitution will be uncovered, both your lewdness and your prostitution. 
-These things will be done to you because you have played the prostitute after the nations, and because you are polluted with their idols. 
-You have walked in the way of your sister; I will give her cup into your hand.' 
-"The God says: 'You will drink of your sister's cup, which is deep and large. You will be ridiculed and held in derision. It contains much. 
-You will be filled with drunkenness and sorrow, with the cup of astonishment and desolation, with the cup of your sister Samaria. 
-You will even drink it and drain it out. You will gnaw the broken pieces of it, and will tear your breasts; for I have spoken it,' says God. 
+They'll come against you with weapons, chariots, and wagons, and with a company of peoples. They'll set themselves against you with buckler, shield, and helmet all around. I'll commit the judgment to them, and they'll judge you according to their judgments. 
+I'll set my jealousy against you, and they'll deal with you in fury. They'll take away your nose and your ears. Your remnant will fall by the sword. They'll take your sons and your daughters; and the rest of you'll be devoured by the fire. 
+They'll also strip you of your clothes and take away your beautiful jewels. 
+Thus I'll make your lewdness to cease from you, and remove your prostitution from the land of Egypt, so that you won't lift up your eyes to them, nor remember Egypt any more.' 
+"For God says: 'Look, I'll deliver you into the hand of them whom you hate, into the hand of them from whom your soul is alienated. 
+They'll deal with you in hatred, and will take away all your labor, and will leave you naked and bare. The nakedness of your prostitution will be uncovered, both your lewdness and your prostitution. 
+These things will be done to you because you have played the prostitute after the nations, and because you're polluted with their idols. 
+You have walked in the way of your sister; I'll give her cup into your hand.' 
+"The God says: 'You'll drink of your sister's cup, which is deep and large. You'll be ridiculed and held in derision. It contains much. 
+You'll be filled with drunkenness and sorrow, with the cup of astonishment and desolation, with the cup of your sister Samaria. 
+You'll even drink it and drain it out. You'll gnaw the broken pieces of it, and will tear your breasts; for I have spoken it,' says God. 
 "So God says: 'Because you have forgotten me and cast me behind your back, you also bear your lewdness and your prostitution.'" 
 God said moreover to me: "Son of man, will you judge Oholah and Oholibah? Then declare to them their abominations. 
 They have committed adultery, and blood is in their hands. They have committed adultery with their idols. They have also caused their sons, whom they bore to me, to pass through the fire to them to be devoured. 
@@ -40,10 +40,10 @@ When they had slain their children to their idols, then they came the same day i
 "Furthermore you sisters have sent for men who come from far away, to whom a messenger was sent, and look, they came; for whom you washed yourself, painted your eyes, decorated yourself with ornaments, 
 and sat on a stately bed, with a table prepared before it, whereupon you set my incense and my oil. 
 "The voice of a multitude being at ease was with her. With men of the common sort were brought drunkards from the wilderness; and they put bracelets on their hands, and beautiful crowns on their heads. 
-Then I said of her who was old in adulteries, 'Now they will play the prostitute with her, and she with them.' 
+Then I said of her who was old in adulteries, 'Now they'll play the prostitute with her, and she with them.' 
 They went in to her, as they go in to a prostitute. So they went in to Oholah and to Oholibah, the lewd women. 
-Righteous men will judge them with the judgment of adulteresses and with the judgment of women who shed blood, because they are adulteresses, and blood is in their hands. 
-"God says: 'I will bring up a mob against them, and will give them to be tossed back and forth and robbed. 
-The company will stone them with stones and dispatch them with their swords. They will kill their sons and their daughters, and burn up their houses with fire. 
-"'Thus I will cause lewdness to cease out of the land, that all women may be taught not to be lewd like you. 
-They will recompense your lewdness on you, and you will bear the drifts of your idols. Then you will know that I am God.'" 
+Righteous men will judge them with the judgment of adulteresses and with the judgment of women who shed blood, because they're adulteresses, and blood is in their hands. 
+"God says: 'I'll bring up a mob against them, and will give them to be tossed back and forth and robbed. 
+The company will stone them with stones and dispatch them with their swords. They'll kill their sons and their daughters, and burn up their houses with fire. 
+"'Thus I'll cause lewdness to cease out of the land, that all women may be taught not to be lewd like you. 
+They'll recompense your lewdness on you, and you'll bear the drifts of your idols. Then you'll know that I'm God.'" 

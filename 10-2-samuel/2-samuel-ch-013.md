@@ -10,14 +10,14 @@ She took the pan and poured them out before him, but he refused to eat. Amnon sa
 Amnon said to Tamar, "Bring the food into the room, that I may eat from your hand." Tamar took the cakes which she had made, and brought them into the room to Amnon her brother. 
 When she had brought them near to him to eat, he took hold of her and said to her, "Come, lie with me, my sister!" 
 She answered him, "No, my brother, don't force me! No such thing ought to be done in Israel. Don't you do this folly! 
-As for me, where would I carry my shame? And as for you, you will be as one of the fools in Israel. Now, please speak to the king; for he won't withhold me from you." 
+As for me, where would I carry my shame? And as for you, you'll be as one of the fools in Israel. Now, please speak to the king; for he won't withhold me from you." 
 However, he wouldn't listen to her voice; but being stronger than she, he forced her and lay with her. 
 Then Amnon hated her with exceedingly great hatred; for the hatred with which he hated her was greater than the love with which he had loved her. Amnon said to her, "Arise, be gone!" 
 She said to him, "Not so, because this great wrong in sending me away is worse than the other that you did to me!" But he wouldn't listen to her. 
 Then he called his servant who ministered to him, and said, "Now put this woman out from me, and bolt the door after her." 
 She had a garment of various colors on her, for the king's daughters who were virgins dressed in such robes. Then his servant brought her out and bolted the door after her. 
 Tamar put ashes on her head, and tore her garment of various colors that was on her; and she laid her hand on her head and went her way, crying aloud as she went. 
-Absalom her brother said to her, "Has Amnon your brother been with you? But now hold your peace, my sister. He is your brother. Don't take this thing to heart." So Tamar remained desolate in her brother Absalom's house. 
+Absalom her brother said to her, "Has Amnon your brother been with you? But now hold your peace, my sister. He's your brother. Don't take this thing to heart." So Tamar remained desolate in her brother Absalom's house. 
 But when King David heard of all these things, he was very angry. 
 Absalom spoke to Amnon neither good nor bad; for Absalom hated Amnon, because he had forced his sister Tamar. 
 After two full years, Absalom had sheep shearers in Baal Hazor, which is beside Ephraim; and Absalom invited all the king's sons. 
@@ -32,7 +32,7 @@ Then the king arose, and tore his garments, and lay on the earth; and all his se
 Jonadab the son of Shimeah, David's brother, answered, "Don't let my lord suppose that they have killed all the young men, the king's sons, for Amnon only is dead; for by the appointment of Absalom this has been determined from the day that he forced his sister Tamar. 
 Now don't let my lord the king take the thing to his heart, to think that all the king's sons are dead; for only Amnon is dead." 
 But Absalom fled. The young man who kept the watch lifted up his eyes and looked, and look, many people were coming by way of the hillside behind him. 
-Jonadab said to the king, "Look, the king's sons are coming! It is as your servant said." 
+Jonadab said to the king, "Look, the king's sons are coming! It's as your servant said." 
 As soon as he had finished speaking, look, the king's sons came, and lifted up their voices and wept. The king also and all his servants wept bitterly. 
 But Absalom fled and went to Talmai the son of Ammihur, king of Geshur. David mourned for his son every day. 
 So Absalom fled and went to Geshur, and was there three years. 

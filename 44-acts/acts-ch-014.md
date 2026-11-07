@@ -12,7 +12,7 @@ When the crowd saw what Paul had done, they lifted up their voice, saying in the
 They called Barnabas "Jupiter", and Paul "Mercury", because he was the chief speaker. 
 The priest of Jupiter, whose temple was in front of their city, brought oxen and garlands to the gates, and would have made a sacrifice along with the crowd. 
 But when the sent ones, Barnabas and Paul, heard of it, they tore their clothes and sprang into the crowd, crying out, 
-"Men, why are you doing these things? We also are men of the same nature as you, and bring you good news, that you should turn from these empty things to the living God, who made the sky, the land, the sea, and all that is in them; 
+"Men, why are you doing these things? We also are men of the same nature as you, and bring you good news, that you should turn from these empty things to the living God, who made the sky, the land, the sea, and all that's in them; 
 who in the generations gone by allowed all the nations to walk in their own ways. 
 Yet he didn't leave himself without witness, in that he did good and gave you rains from the sky and fruitful seasons, filling our hearts with food and gladness." 
 Even saying these things, they hardly stopped the crowd from making a sacrifice to them. 

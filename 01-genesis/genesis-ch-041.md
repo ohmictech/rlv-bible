@@ -12,7 +12,7 @@ We dreamed a dream in one night, he and I. Each man dreamed according to the int
 There was with us there a young man, a Hebrew, servant to the captain of the guard, and we told him, and he interpreted to us our dreams. He interpreted to each man according to his dream. 
 As he interpreted to us, so it was. He restored me to my office, and he hanged him." 
 Then Pharaoh sent and called Joseph, and they brought him hastily out of the dungeon. He shaved himself, changed his clothing, and came in to Pharaoh. 
-Pharaoh said to Joseph, "I have dreamed a dream, and there is no one who can interpret it. I have heard it said of you, that when you hear a dream you can interpret it." 
+Pharaoh said to Joseph, "I have dreamed a dream, and there's no one who can interpret it. I have heard it said of you, that when you hear a dream you can interpret it." 
 Joseph answered Pharaoh, saying, "It isn't in me. God will give Pharaoh an answer of peace." 
 Pharaoh spoke to Joseph, "In my dream, look, I stood on the brink of the river; 
 and look, seven fat and sleek cattle came up out of the river. They fed in the marsh grass; 
@@ -24,11 +24,11 @@ and look, seven heads of grain, withered, thin, and blasted with the east wind, 
 The thin heads of grain swallowed up the seven good heads of grain. I told it to the magicians, but there was no one who could explain it to me." 
 Joseph said to Pharaoh, "The dream of Pharaoh is one. What God is about to do he has declared to Pharaoh. 
 The seven good cattle are seven years; and the seven good heads of grain are seven years. The dream is one. 
-The seven thin and ugly cattle that came up after them are seven years, and also the seven empty heads of grain blasted with the east wind; they will be seven years of famine. 
-That is the thing which I have spoken to Pharaoh. God has shown Pharaoh what he is about to do. 
+The seven thin and ugly cattle that came up after them are seven years, and also the seven empty heads of grain blasted with the east wind; they'll be seven years of famine. 
+That's the thing which I have spoken to Pharaoh. God has shown Pharaoh what he's about to do. 
 Look, seven years of great plenty throughout all the land of Egypt are coming. 
 Seven years of famine will arise after them, and all the plenty will be forgotten in the land of Egypt. The famine will consume the land, 
-and the plenty won't be known in the land by reason of that famine which follows; for it will be very grievous. 
+and the plenty won't be known in the land by reason of that famine which follows; for it'll be very grievous. 
 The dream was doubled to Pharaoh, because the thing is established by God, and God will shortly bring it to pass. 
 "Now let Pharaoh look for a discreet and wise man, and set him over the land of Egypt. 
 Let Pharaoh do this, and let him appoint overseers over the land, and take up the fifth part of the land of Egypt's produce in the seven plenteous years. 
@@ -36,12 +36,12 @@ Let them gather all the food of these good years that come, and store grain unde
 The food will be to supply the land against the seven years of famine, which will be in the land of Egypt; so that the land won't perish through the famine." 
 The thing was good in the eyes of Pharaoh, and in the eyes of all his servants. 
 Pharaoh said to his servants, "Can we find such a one as this, a man in whom is the Spirit of God?" 
-Pharaoh said to Joseph, "Because God has shown you all of this, there is no one so discreet and wise as you. 
-You shall be over my house. All my people will be ruled according to your word. Only in the throne I will be greater than you." 
+Pharaoh said to Joseph, "Because God has shown you all of this, there's no one so discreet and wise as you. 
+You shall be over my house. All my people will be ruled according to your word. Only in the throne I'll be greater than you." 
 Pharaoh said to Joseph, "Look, I have set you over all the land of Egypt." 
 Pharaoh took off his signet ring from his hand, and put it on Joseph's hand, and arrayed him in robes of fine linen, and put a gold chain about his neck. 
 He made him ride in the second chariot which he had. They cried before him, "Bow the knee!" He set him over all the land of Egypt. 
-Pharaoh said to Joseph, "I am Pharaoh. Without you, no man shall lift up his hand or his foot in all the land of Egypt." 
+Pharaoh said to Joseph, "I'm Pharaoh. Without you, no man shall lift up his hand or his foot in all the land of Egypt." 
 Pharaoh called Joseph's name Zaphenath-Paneah. He gave him Asenath, the daughter of Potiphera priest of On as a wife. Joseph went out over the land of Egypt. 
 Joseph was thirty years old when he stood before Pharaoh king of Egypt. Joseph went out from the presence of Pharaoh, and went throughout all the land of Egypt. 
 In the seven plenteous years the earth produced abundantly. 

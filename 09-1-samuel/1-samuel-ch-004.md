@@ -13,7 +13,7 @@ A man of Benjamin ran out of the army and came to Shiloh the same day, with his 
 When he came, look, Eli was sitting on his seat by the road watching, for his heart trembled for God's ark. When the man came into the city and told about it, all the city cried out. 
 When Eli heard the noise of the crying, he said, "What does the noise of this tumult mean?" The man hurried, and came and told Eli. 
 Now Eli was ninety-eight years old. His eyes were set, so that he couldn't see. 
-The man said to Eli, "I am he who came out of the army, and I fled today out of the army." He said, "How did the matter go, my son?" 
+The man said to Eli, "I'm he who came out of the army, and I fled today out of the army." He said, "How did the matter go, my son?" 
 He who brought the news answered, "Israel has fled before the Philistines, and there has been also a great slaughter among the people. Your two sons also, Hophni and Phinehas, are dead, and God's ark has been captured." 
 When he made mention of God's ark, Eli fell from off his seat backward by the side of the gate; and his neck broke, and he died, for he was an old man and heavy. He had judged Israel forty years. 
 His daughter-in-law, Phinehas' wife, was with child, near to giving birth. When she heard the news that God's ark was taken and that her father-in-law and her husband were dead, she bowed herself and gave birth; for her pains came on her. 

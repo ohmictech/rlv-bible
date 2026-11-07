@@ -9,7 +9,7 @@ The children of Judah fought against Jerusalem, took it, struck it with the edge
 After that, the children of Judah went down to fight against the Canaanites who lived in the hill country, and in the South, and in the lowland. 
 Judah went against the Canaanites who lived in Hebron. (The name of Hebron before that was Kiriath Arba.) They struck Sheshai, Ahiman, and Talmai. 
 From there he went against the inhabitants of Debir. (The name of Debir before that was Kiriath Sepher.) 
-Caleb said, "I will give Achsah my daughter as wife to the man who strikes Kiriath Sepher, and takes it." 
+Caleb said, "I'll give Achsah my daughter as wife to the man who strikes Kiriath Sepher, and takes it." 
 Othniel the son of Kenaz, Caleb's younger brother, took it, so he gave him Achsah his daughter as his wife. 
 When she came, she got him to ask her father for a field. She got off her donkey; and Caleb said to her, "What would you like?" 
 She said to him, "Give me a blessing; because you have set me in the land of the South, give me also springs of water." Then Caleb gave her the upper springs and the lower springs. 
@@ -21,7 +21,7 @@ They gave Hebron to Caleb, as Moses had said, and he drove the three sons of Ana
 The children of Benjamin didn't drive out the Jebusites who inhabited Jerusalem, but the Jebusites dwell with the children of Benjamin in Jerusalem to this day. 
 The house of Joseph also went up against Bethel, and God was with them. 
 The house of Joseph sent to spy out Bethel. (The name of the city before that was Luz.) 
-The watchers saw a man come out of the city, and they said to him, "Please show us the entrance into the city, and we will deal kindly with you." 
+The watchers saw a man come out of the city, and they said to him, "Please show us the entrance into the city, and we'll deal kindly with you." 
 He showed them the entrance into the city, and they struck the city with the edge of the sword; but they let the man and all his family go. 
 The man went into the land of the Hittites, built a city, and called its name Luz, which is its name to this day. 
 Manasseh didn't drive out the inhabitants of Beth Shean and its towns, nor Taanach and its towns, nor the inhabitants of Dor and its towns, nor the inhabitants of Ibleam and its towns, nor the inhabitants of Megiddo and its towns; but the Canaanites would dwell in that land. 

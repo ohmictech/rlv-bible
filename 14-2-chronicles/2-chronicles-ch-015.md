@@ -1,5 +1,5 @@
 ﻿The Spirit of God came on Azariah the son of Oded. 
-He went out to meet Asa, and said to him, "Hear me, Asa, and all Judah and Benjamin! God is with you while you are with him; and if you seek him, he will be found by you; but if you forsake him, he will forsake you. 
+He went out to meet Asa, and said to him, "Hear me, Asa, and all Judah and Benjamin! God is with you while you're with him; and if you seek him, he'll be found by you; but if you forsake him, he'll forsake you. 
 Now for a long time Israel was without the true God, without a teaching priest, and without law. 
 But when in their distress they turned to the God of Israel, and sought him, he was found by them. 
 In those times there was no peace to him who went out, nor to him who came in; but great troubles were on all the inhabitants of the lands. 

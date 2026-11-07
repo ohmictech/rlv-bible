@@ -10,8 +10,8 @@ When he opened the fifth seal, I saw underneath the altar the lives of those who
 They cried out in a loud voice, saying, "How long, Master, you who are set apart and true, until you pass a verdict and bring payback for our blood on those who live on the land?" 
 A long white robe was given to each of them, and they were told to rest a little longer, until the full number was reached of their fellow slaves and their brothers and sisters, who were going to be killed just as they had been. 
 I watched as he opened the sixth seal, and there was a great earthquake. The sun turned black like coarse cloth, and the whole moon became like blood. 
-The stars of the sky fell to the land, like a fig tree dropping its unripe figs when it is shaken by a great wind. 
+The stars of the sky fell to the land, like a fig tree dropping its unripe figs when it's shaken by a great wind. 
 The sky was rolled up like a scroll. Every mountain and island was moved out of its place. 
 The kings of the land, the great ones, the commanding officers, the rich, the strong, and every slave and every free person hid themselves in the caves and among the rocks of the mountains. 
 They said to the mountains and the rocks, "Fall on us and hide us from the face of the one who sits on the throne, and from the heat of the Lamb, 
-because the great day of their heat has come, and who is able to stand?" 
+because the great day of their heat has come, and who's able to stand?" 

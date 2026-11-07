@@ -2,8 +2,8 @@
 The people came to Bethel and sat there until evening before God, and lifted up their voices, and wept severely. 
 They said, "The God of Israel, why has this happened in Israel, that there should be one tribe lacking in Israel today?" 
 On the next day, the people rose early and built an altar there, and offered burnt offerings and offerings for wholeness. 
-The children of Israel said, "Who is there among all the tribes of Israel who didn't come up in the assembly to God?" For they had made a great oath concerning him who didn't come up to God to Mizpah, saying, "He shall surely be put to death." 
-The children of Israel grieved for Benjamin their brother, and said, "There is one tribe cut off from Israel today. 
+The children of Israel said, "Who's there among all the tribes of Israel who didn't come up in the assembly to God?" For they had made a great oath concerning him who didn't come up to God to Mizpah, saying, "He shall surely be put to death." 
+The children of Israel grieved for Benjamin their brother, and said, "There's one tribe cut off from Israel today. 
 How shall we provide wives for those who remain, since we have sworn by God that we won't give them of our daughters to wives?" 
 They said, "What one is there of the tribes of Israel who didn't come up to God to Mizpah?" Look, no one came from Jabesh Gilead to the camp to the assembly. 
 When the people were counted, look, there were none of the inhabitants of Jabesh Gilead there. 
@@ -16,10 +16,10 @@ The people grieved for Benjamin, because God had made a breach in the tribes of 
 Then the elders of the congregation said, "How shall we provide wives for those who remain, since the women are destroyed out of Benjamin?" 
 They said, "There must be an inheritance for those who are escaped of Benjamin, that a tribe not be blotted out from Israel. 
 However, we may not give them wives of our daughters, for the children of Israel had sworn, saying, 'Cursed is he who gives a wife to Benjamin.'" 
-They said, "Look, there is a feast of God from year to year in Shiloh, which is on the north of Bethel, on the east side of the highway that goes up from Bethel to Shechem, and on the south of Lebonah." 
+They said, "Look, there's a feast of God from year to year in Shiloh, which is on the north of Bethel, on the east side of the highway that goes up from Bethel to Shechem, and on the south of Lebonah." 
 They commanded the children of Benjamin, saying, "Go and lie in wait in the vineyards, 
 and see, and look, if the daughters of Shiloh come out to dance in the dances, then come out of the vineyards, and each man catch his wife of the daughters of Shiloh, and go to the land of Benjamin. 
-It shall be, when their fathers or their brothers come to complain to us, that we will say to them, 'Grant them graciously to us, because we didn't take for each man his wife in battle, neither did you give them to them; otherwise you would now be guilty.'" 
+It shall be, when their fathers or their brothers come to complain to us, that we'll say to them, 'Grant them graciously to us, because we didn't take for each man his wife in battle, neither did you give them to them; otherwise you'd now be guilty.'" 
 The children of Benjamin did so, and took wives for themselves according to their number, of those who danced, whom they carried off. They went and returned to their inheritance, built the cities, and lived in them. 
 The children of Israel departed from there at that time, every man to his tribe and to his family, and they each went out from there to his own inheritance. 
 In those days there was no king in Israel. Everyone did that which was right in his own eyes. 

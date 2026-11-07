@@ -6,7 +6,7 @@ They answered him, "Jesus of Nazareth." Jesus said to them, "I am the one." Juda
 When therefore he said to them, "I am the one," they went backward and fell to the ground. 
 Again therefore he asked them, "Who are you looking for?" They said, "Jesus of Nazareth." 
 Jesus answered, "I told you that I am the one. If therefore you seek me, let these go their way," 
-that the word might be fulfilled which he spoke, "Of those whom you have given me, I have lost none." 
+so that the word would be fulfilled which he spoke, "Of those whom you have given me, I have lost none." 
 Simon Peter therefore, having a sword, drew it, struck the high priest's slave, and cut off his right ear. The slave's name was Malchus. 
 Jesus therefore said to Peter, "Put the sword into its sheath. Am I not going to drink the cup which the Father has given me?" 
 So the detachment, the commanding officer, and the temple guards of the Jewish leaders seized Jesus and bound him, 
@@ -25,11 +25,11 @@ Annas sent him bound to Caiaphas, the high priest.
 Now Simon Peter was standing and warming himself. They said therefore to him, "You aren't also one of his students, are you?" He denied it and said, "I am not." 
 One of the slaves of the high priest, being a relative of him whose ear Peter had cut off, said, "Didn't I see you in the garden with him?" 
 Peter therefore denied it again, and immediately the rooster crowed. 
-They led Jesus therefore from Caiaphas into the governor's headquarters. It was early, and they themselves didn't enter into the governor's headquarters, that they might not be made unclean, but might eat the Passover. 
+They led Jesus therefore from Caiaphas into the governor's headquarters. It was early, and they themselves didn't enter into the governor's headquarters, so that they would not be made unclean, but could eat the Passover. 
 Pilate therefore went out to them and said, "What accusation do you bring against this man?" 
 They answered him, "If this man weren't a criminal, we wouldn't have handed him over to you." 
 Pilate therefore said to them, "Take him yourselves, and judge him according to your law." Therefore the Jewish leaders said to him, "It is illegal for us to put anyone to death," 
-that the word of Jesus might be fulfilled, which he spoke, signifying by what kind of death he should die. 
+so that the word of Jesus would be fulfilled, which he spoke, signifying by what kind of death he should die. 
 Pilate therefore entered again into the governor's headquarters, called Jesus, and said to him, "Are you the King of the Jews?" 
 Jesus answered him, "Do you say this by yourself, or did others tell you about me?" 
 Pilate answered, "I'm not a Jewish man, am I? Your own nation and the chief priests handed you over to me. What have you done?" 

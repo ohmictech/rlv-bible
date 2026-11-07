@@ -4,7 +4,7 @@ All things were made through him. Without him, nothing was made that has been ma
 In him was real life, and that life was the light of people. 
 The light shines in the darkness, and the darkness hasn't overcome it. 
 There came a man sent from God, whose name was John. 
-He came as a witness, to testify about the light, so that all might trust through him. 
+He came as a witness, to testify about the light, so that everyone would trust through him. 
 He was not the light, but came to testify about the light. 
 The true light that enlightens everyone was coming into the world. 
 He was in the world, and the world was made through him, and the world didn't recognize him. 

@@ -3,7 +3,7 @@ Now very early in the morning, he came again into the temple courts, and everyon
 The Bible teachers and the strict religious ones brought a woman caught sleeping around. Having set her in the middle, 
 they told him, "Teacher, this woman was caught in the very act of sleeping around. 
 Now in our law, Moses commanded us to stone such women. What then do you say about her?" 
-They said this testing him, that they might have something to accuse him of. But Jesus stooped down and wrote on the ground with his finger. 
+They said this testing him, so that they could have something to accuse him of. But Jesus stooped down and wrote on the ground with his finger. 
 But when they continued asking him, he looked up and said to them, "Whoever among you has never drifted, let them throw the first stone at her." 
 Again he stooped down and wrote on the ground with his finger. 
 When they heard it, they were convicted by their conscience and went out one by one, beginning from the oldest, even to the last. Jesus was left alone with the woman where she was, in the middle. 

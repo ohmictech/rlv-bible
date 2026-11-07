@@ -14,7 +14,7 @@ No one has gone up into the sky except the one who came down out of the sky, the
 As Moses lifted up the serpent in the wilderness, so the Human One must be lifted up in the same way, 
 so that everyone who trusts in him should not be lost, but have the real life of the era. 
 For God loved the world so much that he gave his only Son, the only one of his kind, so that everyone who trusts in him should not be lost, but have the real life of the era. 
-For God didn't send his Son into the world to pass a verdict on the world, but so that the world might be made whole through him. 
+For God didn't send his Son into the world to pass a verdict on the world, but so that the world would be made whole through him. 
 Whoever trusts in him is not judged. Whoever doesn't trust has already been judged, because they have not trusted in the name of God's one and only Son. 
 This is the verdict: the light has come into the world, and people loved the darkness rather than the light, because their deeds were bad. 
 Everyone who does bad things hates the light and doesn't come to the light, so that their deeds won't be exposed. 

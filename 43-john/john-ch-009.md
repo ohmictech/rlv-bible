@@ -1,6 +1,6 @@
 ﻿As he passed by, he saw a man blind from birth. 
 His students asked him, "Rabbi, who drifted, this man or his parents, that he was born blind?" 
-Jesus answered, "Neither this man nor his parents drifted, but this happened so that the deeds of God might be shown in him. 
+Jesus answered, "Neither this man nor his parents drifted, but this happened so that the deeds of God would show in him. 
 I must do the deeds of him who sent me while it is day. The night is coming, when no one can work. 
 While I am in the world, I am the light of the world." 
 When he had said this, he spat on the ground, made mud with the saliva, put the mud on the blind man's eyes, 

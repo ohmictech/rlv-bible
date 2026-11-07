@@ -21,21 +21,21 @@ Therefore many of the Jewish people read this notice, for the place where Jesus 
 The chief priests of the Jewish people therefore said to Pilate, "Don't write, 'The King of the Jews,' but that he said, 'I am King of the Jews.'" 
 Pilate answered, "What I have written, I have written." 
 Then the soldiers, when they had crucified Jesus, took his garments and made four parts, to every soldier a part; and also the tunic. Now the tunic was without seam, woven from the top throughout. 
-Then they said to one another, "Let's not tear it, but cast lots for it to decide whose it will be," that the Scripture might be fulfilled, which says, "They parted my garments among them. They cast lots for my clothing." Therefore the soldiers did these things. 
+Then they said to one another, "Let's not tear it, but cast lots for it to decide whose it will be," so that the Scripture would be fulfilled, which says, "They parted my garments among them. They cast lots for my clothing." Therefore the soldiers did these things. 
 But standing by Jesus' cross were his mother, his mother's sister, Mary the wife of Clopas, and Mary Magdalene. 
 Therefore when Jesus saw his mother, and the student whom he loved standing there, he said to his mother, "Woman, look, your son!" 
 Then he said to the student, "Look, your mother!" From that hour, the student took her to his own home. 
-After this, Jesus, seeing that all things were now finished, that the Scripture might be fulfilled, said, "I am thirsty!" 
+After this, Jesus, seeing that all things were now finished, so that the Scripture would be fulfilled, said, "I am thirsty!" 
 Now a vessel full of sour wine was set there; so they put a sponge full of the sour wine on hyssop, and held it at his mouth. 
 When Jesus therefore had received the sour wine, he said, "It is finished!" Then he bowed his head and gave up his spirit. 
-Therefore the Jewish leaders, because it was the Preparation Day, so that the bodies wouldn't remain on the cross on the Sabbath (for that Sabbath was a special one), asked of Pilate that their legs might be broken and that they might be taken away. 
+Therefore the Jewish leaders, because it was the Preparation Day, so that the bodies wouldn't remain on the cross on the Sabbath (for that Sabbath was a special one), asked Pilate to have their legs broken and the bodies taken away. 
 Therefore the soldiers came and broke the legs of the first and of the other who was crucified with him; 
 but when they came to Jesus and saw that he was already dead, they didn't break his legs. 
 However, one of the soldiers pierced his side with a spear, and immediately blood and water came out. 
 He who has seen has testified, and his witness is true. He knows that he tells the truth, that you may trust. 
-For these things happened that the Scripture might be fulfilled, "A bone of him will not be broken." 
+For these things happened so that the Scripture would be fulfilled, "A bone of him will not be broken." 
 Again another Scripture says, "They will look on him whom they pierced." 
-After these things, Joseph of Arimathaea, being a student of Jesus, but secretly for fear of the Jewish leaders, asked of Pilate that he might take away Jesus' body. Pilate gave him permission. He came therefore and took away his body. 
+After these things, Joseph of Arimathaea, being a student of Jesus, but secretly for fear of the Jewish leaders, asked Pilate if he could take Jesus' body away. Pilate gave him permission. He came therefore and took away his body. 
 Nicodemus, who at first came to Jesus by night, also came bringing a mixture of myrrh and aloes, about a hundred Roman pounds. 
 So they took Jesus' body, and bound it in linen cloths with the spices, as the custom of the Jewish people is to bury. 
 Now in the place where he was crucified there was a garden. In the garden was a new tomb in which no man had ever yet been laid. 

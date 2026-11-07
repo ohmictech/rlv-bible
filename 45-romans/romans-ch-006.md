@@ -1,7 +1,7 @@
 ﻿What should we say then? Should we continue in the drift, so that favor may overflow? 
 Never! We who died to the drift, how could we live in it any longer? 
-Or don't you know that all of us who were immersed into Christ Jesus were immersed into his death? 
-We were buried with him through immersion into death, so that just as Christ was raised from the dead through the weight of the Father, we also would walk in newness of life. 
+Don't you know that all of us who were immersed into Christ Jesus were immersed into his death? 
+We were buried with him through immersion into death, so that just as Christ was raised from the dead through the weight of the Father, we also would walk in new life. 
 For if we have become united with him in the way of his death, we will also be part of his rising; 
 knowing this, that our old man was crucified with him, that the body of the drift might be put out of work, so that we would no longer be slaves to the drift. 
 For he who has died has been freed from the drift. 

@@ -9,7 +9,7 @@ for the words which you have given me I have given to them; and they received th
 I pray for them. I don't pray for the world, but for those whom you have given me, for they are yours. 
 All things that are mine are yours, and yours are mine, and I am honored in them. 
 I am no more in the world, but these are in the world, and I am coming to you. Holy Father, keep them through your name which you have given me, that they may be one, even as we are. 
-While I was with them in the world, I kept them in your name. I have kept those whom you have given me. None of them is lost except the one headed for ruin, that the Scripture might be fulfilled. 
+While I was with them in the world, I kept them in your name. I have kept those whom you have given me. None of them is lost except the one headed for ruin, so that the Scripture would be fulfilled. 
 But now I come to you, and I say these things in the world, that they may have my joy made complete in themselves. 
 I have given them your word. The world hated them because they are not of the world, even as I am not of the world. 
 I pray not that you would take them from the world, but that you would keep them from the Slanderer. 

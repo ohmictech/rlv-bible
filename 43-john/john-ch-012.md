@@ -6,7 +6,7 @@ Then Judas Iscariot, Simon's son, one of his students, who would hand him over, 
 Now he said this, not because he cared for the poor, but because he was a thief, and he used to steal what was put into the money box. 
 But Jesus said, "Leave her alone. She has kept this for the day of my burial. 
 For you always have the poor with you, but you don't always have me." 
-A large crowd therefore of Jewish people learned that he was there; and they came, not for Jesus' sake only, but that they might see Lazarus also, whom he had raised from the dead. 
+A large crowd therefore of Jewish people learned that he was there; and they came, not for Jesus' sake only, but also to see Lazarus, whom he had raised from the dead. 
 But the chief priests conspired to put Lazarus to death also, 
 because on account of him many of the Jewish people went away and trusted in Jesus. 
 On the next day a great crowd had come to the feast. When they heard that Jesus was coming to Jerusalem, 
@@ -35,7 +35,7 @@ The crowd answered him, "We have heard out of the law that the Christ remains fo
 Jesus therefore said to them, "Yet a little while the light is with you. Walk while you have the light, so that darkness doesn't overtake you. Whoever walks in the darkness doesn't know where they are going. 
 While you have the light, trust in the light, that you may become children of light." Jesus said these things, and he departed and hid himself from them. 
 But though he had done so many signs before them, yet they didn't trust in him, 
-that the word of Isaiah the spokesman might be fulfilled, which he spoke: "Lord, who has trusted our report? To whom has the arm of the Lord been revealed?" 
+so that the word of Isaiah the spokesman would be fulfilled, which he spoke: "Lord, who has trusted our report? To whom has the arm of the Lord been revealed?" 
 For this cause they couldn't trust, for Isaiah said again: 
 "He has blinded their eyes and he hardened their heart, so that they can't see with their eyes, or perceive with their heart, and turn, and I would heal them." 
 Isaiah said these things when he saw his weight, and spoke of him. 

@@ -1,9 +1,9 @@
 ﻿Moreover Elihu answered, 
 "Do you think this to be your right, or do you say, 'My righteousness is more than God's,' 
-that you ask, 'What advantage will it be to you? What profit will I have, more than if I had missed the mark?' 
+that you ask, 'What advantage will it be to you? What profit will I have, more than if I had drifted?' 
 I will answer you, and your companions with you. 
 Look to the skies, and see. See the skies, which are higher than you. 
-If you have missed the mark, what effect do you have against him? If your rebellion are multiplied, what do you do to him? 
+If you have drifted, what effect do you have against him? If your rebellion are multiplied, what do you do to him? 
 If you are righteous, what do you give him? Or what does he receive from your hand? 
 Your guilt may hurt a man as you are, and your righteousness may profit a son of man. 
 "By reason of the multitude of oppressions they cry out. They cry for help by reason of the arm of the mighty. 

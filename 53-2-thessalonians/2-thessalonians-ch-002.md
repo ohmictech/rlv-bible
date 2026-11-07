@@ -1,6 +1,6 @@
 ﻿Now, brothers and sisters, about the arrival of our Lord Jesus Christ and our being gathered together to him, we ask you 
 not to be shaken out of your right mind so quickly, or thrown into a panic, whether by some spirit or by a message or by a letter claiming to be from us, saying that the day of Christ has already come. 
-Don't let anyone lead you astray, in any way. That day will not come unless the standing away comes first, and the man of the mistake is unveiled, the son of ruin. 
+Don't let anyone lead you astray, in any way. That day will not come unless the standing away comes first, and the man of wrongdoing is unveiled, the son of ruin. 
 He sets himself against everything called God or worshiped, and lifts himself above it all, so that he takes his seat in God's temple and claims to be God himself. 
 Don't you remember that I told you all this while I was still with you? 
 And you know what is holding him back now, so that he will be unveiled when his own time comes. 

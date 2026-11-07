@@ -4,8 +4,8 @@ Yes, no one who waits for you will be shamed. They will be shamed who deal treac
 Show me your ways, God. Teach me your paths. 
 Guide me in your truth, and teach me, for you are the God of my salvation. I wait for you all day long. 
 God, remember your tender mercies and your loving kindness, for they are from old times. 
-Don't remember the misses the mark of my youth, nor my rebellion. Remember me according to your loving kindness, for your goodness' sake, God. 
-Good and upright is God, therefore he will instruct those who miss the mark in the way. 
+Don't remember the drifts of my youth, nor my rebellion. Remember me according to your loving kindness, for your goodness' sake, God. 
+Good and upright is God, therefore he will instruct those who have drifted in the way. 
 He will guide the humble in justice. He will teach the humble his way. 
 All the paths of God are loving kindness and truth to such as keep his covenant and his testimonies. 
 For your name's sake, God, pardon my guilt, for it is great. 

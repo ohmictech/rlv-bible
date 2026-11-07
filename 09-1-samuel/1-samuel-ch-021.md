@@ -8,7 +8,7 @@ Now a certain man of the servants of Saul was there that day, detained before Go
 David said to Ahimelech, "Isn't there here under your hand spear or sword? For I haven't brought my sword or my weapons with me, because the king's business required haste." 
 The priest said, "Behold, the sword of Goliath the Philistine, whom you killed in the valley of Elah, is here wrapped in a cloth behind the ephod. If you would like to take that, take it, for there is no other except that here." David said, "There is none like that. Give it to me." 
 David arose and fled that day for fear of Saul, and went to Achish the king of Gath. 
-The servants of Achish said to him, "Isn't this David the king of the land? Didn't they miss the markg to one another about him in dances, saying, 'Saul has slain his thousands, and David his ten thousands'?" 
+The servants of Achish said to him, "Isn't this David the king of the land? Didn't they driftg to one another about him in dances, saying, 'Saul has slain his thousands, and David his ten thousands'?" 
 David laid up these words in his heart, and was very afraid of Achish the king of Gath. 
 He changed his behavior before them and pretended to be insane in their hands, and scribbled on the doors of the gate, and let his spittle fall down on his beard. 
 Then Achish said to his servants, "Look, you see the man is insane. Why then have you brought him to me? 

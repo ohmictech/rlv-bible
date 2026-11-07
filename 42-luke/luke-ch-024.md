@@ -4,7 +4,7 @@ They entered in, and didn't find the Lord Jesus' body.
 While they were puzzled about this, look, two men stood by them in dazzling clothing. 
 Becoming terrified, they bowed their faces down to the earth. The men said to them, "Why do you seek the living among the dead? 
 He isn't here, but has been raised. Remember what he told you when he was still in Galilee, 
-saying that the Human One must be delivered up into the hands of people who miss the mark and be crucified, and the third day rise again?" 
+saying that the Human One must be delivered up into the hands of people who drift and be crucified, and the third day rise again?" 
 They remembered his words, 
 returned from the tomb, and told all these things to the eleven and to all the rest. 
 Now they were Mary Magdalene, Joanna, and Mary the mother of James. The other women with them told these things to those he had sent out. 

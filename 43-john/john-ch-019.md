@@ -8,7 +8,7 @@ The Jewish leaders answered him, "We have a law, and by our law he ought to die,
 When therefore Pilate heard this saying, he was more afraid. 
 He entered into the governor's headquarters again, and said to Jesus, "Where are you from?" But Jesus gave him no answer. 
 Pilate therefore said to him, "Aren't you speaking to me? Don't you know that I have power to release you and have power to crucify you?" 
-Jesus answered, "You would have no power at all against me, unless it were given to you from above. Therefore he who handed me over to you has the greater mistake." 
+Jesus answered, "You would have no power at all against me, unless it were given to you from above. Therefore he who handed me over to you has the greater wrongdoing." 
 At this, Pilate was seeking to release him, but the Jewish leaders cried out, saying, "If you release this man, you aren't Caesar's friend! Everyone who makes himself a king speaks against Caesar!" 
 When Pilate therefore heard these words, he brought Jesus out and sat down on the judge's seat at a place called "The Pavement", but in Hebrew, "Gabbatha." 
 Now it was the Preparation Day of the Passover, at about noon. He said to the Jewish leaders, "Look, your King!" 

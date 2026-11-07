@@ -3,7 +3,7 @@ Who can utter the mighty acts of God, or fully declare all his praise?
 Blessed are those who keep justice. Blessed is one who does what is right at all times. 
 Remember me, God, with the favor that you show to your people. Visit me with your salvation, 
 that I may see the prosperity of your chosen, that I may rejoice in the gladness of your nation, that I may glory with your inheritance. 
-We have missed the mark with our fathers. We have committed guilt. We have done guiltily. 
+We have drifted with our fathers. We have committed guilt. We have done guiltily. 
 Our fathers didn't understand your wonders in Egypt. They didn't remember the multitude of your loving kindnesses, but were rebellious at the sea, even at the Red Sea. 
 Nevertheless he saved them for his name's sake, that he might make his mighty power known. 
 He rebuked the Red Sea also, and it was dried up; so he led them through the depths, as through a desert. 

@@ -23,6 +23,6 @@ Because of this, Jesus has become the guarantee of a better binding arrangement.
 There have been many priests, because death kept them from staying in office. 
 But because he remains for the eras, his priesthood never passes to anyone else. 
 That is why he is able to rescue completely those who come to God through him, because he always lives to speak for them. 
-This is the kind of high priest we needed: devoted to God, innocent, clean, kept apart from those who miss the mark, and raised higher than the skies. 
+This is the kind of high priest we needed: devoted to God, innocent, clean, kept apart from those who have drifted, and raised higher than the skies. 
 He does not need to offer sacrifices every day, the way those high priests do, first for his own mistakes and then for the people's. He did this once and for all when he offered himself. 
 For the law appoints high priests who are weak, but the word of the oath, which came after the law, appoints a Son who has been made complete for the eras. 

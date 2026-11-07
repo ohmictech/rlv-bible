@@ -23,7 +23,7 @@ I commanded the Levites that they should purify themselves, and that they should
 In those days I also saw the Jews who had married women of Ashdod, of Ammon, and of Moab; 
 and their children spoke half in the speech of Ashdod, and could not speak in the Jews' language, but according to the language of each people. 
 I contended with them, cursed them, struck certain of them, plucked off their hair, and made them swear by God, "You shall not give your daughters to their sons, nor take their daughters for your sons, or for yourselves. 
-Didn't Solomon king of Israel missed the mark by these things? Yet among many nations there was no king like him, and he was loved by his God, and God made him king over all Israel. Nevertheless foreign women caused even him to miss the mark. 
+Didn't Solomon king of Israel drifted by these things? Yet among many nations there was no king like him, and he was loved by his God, and God made him king over all Israel. Nevertheless foreign women caused even him to drift. 
 Shall we then listen to you to do all this great bad, to trespass against our God in marrying foreign women?" 
 One of the sons of Joiada, the son of Eliashib the high priest, was son-in-law to Sanballat the Horonite; therefore I chased him from me. 
 Remember them, my God, because they have defiled the priesthood and the covenant of the priesthood and of the Levites. 

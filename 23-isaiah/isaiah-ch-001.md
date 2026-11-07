@@ -25,7 +25,7 @@ Therefore the Lord, GOD of Armies, the Mighty One of Israel, says: "Ah, I will g
 I will turn my hand on you, thoroughly purge away your dross, and will take away all your tin. 
 I will restore your judges as at the first, and your counselors as at the beginning. Afterward you shall be called 'The city of righteousness, a faithful town.' 
 Zion shall be bought back with justice, and her converts with righteousness. 
-But the destruction of transgressors and those who miss the mark shall be together, and those who forsake God shall be consumed. 
+But the destruction of transgressors and those who have drifted shall be together, and those who forsake God shall be consumed. 
 For they shall be ashamed of the oaks which you have desired, and you shall be confounded for the gardens that you have chosen. 
 For you shall be as an oak whose leaf fades, and as a garden that has no water. 
 The strong will be like tinder, and his work like a spark. They will both burn together, and no one will quench them." 

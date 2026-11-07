@@ -1,6 +1,6 @@
 ﻿Now Jehoram the son of Ahab began to reign over Israel in Samaria in the eighteenth year of Jehoshaphat king of Judah, and reigned twelve years. 
 He did that which was bad in God's sight, but not like his father and like his mother, for he put away the pillar of Baal that his father had made. 
-Nevertheless he held to the misses the mark of Jeroboam the son of Nebat, with which he made Israel to miss the mark. He didn't depart from them. 
+Nevertheless he held to the drifts of Jeroboam the son of Nebat, with which he made Israel to drift. He didn't depart from them. 
 Now Mesha king of Moab was a sheep breeder; and he supplied the king of Israel with one hundred thousand lambs and the wool of one hundred thousand rams. 
 But when Ahab was dead, the king of Moab rebelled against the king of Israel. 
 King Jehoram went out of Samaria at that time, and mustered all Israel. 

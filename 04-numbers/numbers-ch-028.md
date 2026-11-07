@@ -12,14 +12,14 @@ this is the burnt offering of every Sabbath, in addition to the continual burnt 
 and three tenths of an ephah of fine flour for a meal offering mixed with oil, for each bull; and two tenth parts of fine flour for a meal offering mixed with oil, for the one ram; 
 and one tenth part of fine flour mixed with oil for a meal offering to every lamb, as a burnt offering of a pleasant aroma, an offering made by fire to God. 
 Their drink offerings shall be half a hin of wine for a bull, the third part of a hin for the ram, and the fourth part of a hin for a lamb. This is the burnt offering of every month throughout the months of the year. 
-Also, one male goat for an offering for mistakes to God shall be offered in addition to the continual burnt offering and its drink offering. 
+Also, one male goat for an offering for wrongdoing to God shall be offered in addition to the continual burnt offering and its drink offering. 
 "'In the first month, on the fourteenth day of the month, is God's Passover. 
 On the fifteenth day of this month shall be a feast. Unleavened bread shall be eaten for seven days. 
 In the first day shall be a holy convocation. You shall do no regular work, 
 but you shall offer an offering made by fire, a burnt offering to God: two young bulls, one ram, and seven male lambs a year old. They shall be without defect, 
 with their meal offering, fine flour mixed with oil. You shall offer three tenths for a bull, and two tenths for the ram. 
 You shall offer one tenth for every lamb of the seven lambs; 
-and one male goat for an offering for mistakes, to make things right for you. 
+and one male goat for an offering for wrongdoing, to make things right for you. 
 You shall offer these in addition to the burnt offering of the morning, which is for a continual burnt offering. 
 In this way you shall offer daily, for seven days, the food of the offering made by fire, of a pleasant aroma to God. It shall be offered in addition to the continual burnt offering and its drink offering. 
 On the seventh day you shall have a holy convocation. You shall do no regular work. 

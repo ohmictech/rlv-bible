@@ -12,8 +12,8 @@ He and his people with him, the terrible of the nations, will be brought in to d
 I will make the rivers dry, and will sell the land into the hand of bad men. I will make the land desolate, and all that is therein, by the hand of foreigners. I, God, have spoken it." 
 "'The God says: "I will also destroy the idols, and I will cause the images to cease from Memphis. There will be no more a prince from the land of Egypt. I will put a fear in the land of Egypt. 
 I will make Pathros desolate, and will set a fire in Zoan, and will execute judgments on No. 
-I will pour my wrath on Mistake, the stronghold of Egypt. I will cut off the multitude of No. 
-I will set a fire in Egypt Mistake will be in great anguish. No will be broken up. Memphis will have adversaries in the daytime. 
+I will pour my wrath on Sin, the stronghold of Egypt. I will cut off the multitude of No. 
+I will set a fire in Egypt, Sin will be in great anguish. No will be broken up. Memphis will have adversaries in the daytime. 
 The young men of Aven and of Pibeseth will fall by the sword. They will go into captivity. 
 At Tehaphnehes also the day will withdraw itself, when I break the yokes of Egypt there. The pride of her power will cease in her. As for her, a cloud will cover her, and her daughters will go into captivity. 
 Thus I will execute judgments on Egypt. Then they will know that I am God."'" 

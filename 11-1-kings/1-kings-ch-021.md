@@ -19,7 +19,7 @@ God's word came to Elijah the Tishbite, saying,
 You shall speak to him, saying, 'God says, "Have you killed and also taken possession?"' You shall speak to him, saying, 'God says, "In the place where dogs licked the blood of Naboth, dogs will lick your blood, even yours."'" 
 Ahab said to Elijah, "Have you found me, my enemy?" He answered, "I have found you, because you have sold yourself to do that which is bad in God's sight. 
 Behold, I will bring bad on you, and will utterly sweep you away and will cut off from Ahab everyone who urinates against a wall, and him who is shut up and him who is left at large in Israel. 
-I will make your house like the house of Jeroboam the son of Nebat, and like the house of Baasha the son of Ahijah, for the provocation with which you have provoked me to anger, and have made Israel to miss the mark." 
+I will make your house like the house of Jeroboam the son of Nebat, and like the house of Baasha the son of Ahijah, for the provocation with which you have provoked me to anger, and have made Israel to drift." 
 God also spoke of Jezebel, saying, "The dogs will eat Jezebel by the rampart of Jezreel. 
 The dogs will eat whoever dies of Ahab in the city; and the birds of the sky will eat whoever dies in the field." 
 But there was no one like Ahab, who sold himself to do that which was bad in God's sight, whom Jezebel his wife stirred up. 

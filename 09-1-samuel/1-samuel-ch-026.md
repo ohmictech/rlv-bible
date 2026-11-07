@@ -18,7 +18,7 @@ Saul recognized David's voice, and said, "Is this your voice, my son David?" Dav
 He said, "Why does my lord pursue his servant? For what have I done? What bad is in my hand? 
 Now therefore, please let my lord the king hear the words of his servant. If it is so that God has stirred you up against me, let him accept an offering. But if it is the children of men, they are cursed before God; for they have driven me out today that I shouldn't cling to God's inheritance, saying, 'Go, serve other gods!' 
 Now therefore, don't let my blood fall to the earth away from the presence of God; for the king of Israel has come out to seek a flea, as when one hunts a partridge in the mountains." 
-Then Saul said, "I have missed the mark. Return, my son David; for I will no more do you harm, because my life was precious in your eyes today. Behold, I have played the fool, and have erred exceedingly." 
+Then Saul said, "I have drifted. Return, my son David; for I will no more do you harm, because my life was precious in your eyes today. Behold, I have played the fool, and have erred exceedingly." 
 David answered, "Behold the spear, O king! Let one of the young men come over and get it. 
 God will give to every man his righteousness and his faithfulness; because God delivered you into my hand today, and I wouldn't stretch out my hand against God's anointed. 
 Behold, as your life was respected today in my eyes, so let my life be respected in God's eyes, and let him deliver me out of all oppression." 

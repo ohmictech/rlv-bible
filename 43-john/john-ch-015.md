@@ -19,9 +19,9 @@ If the world hates you, you know that it has hated me before it hated you.
 If you were of the world, the world would love its own. But because you are not of the world, since I chose you out of the world, therefore the world hates you. 
 Remember the word that I said to you: 'A slave is not greater than his lord.' If they hunted me down, they will also hunt you down. If they kept my word, they will also keep yours. 
 But they will do all these things to you for my name's sake, because they don't know him who sent me. 
-If I had not come and spoken to them, they would not have missed the mark; but now they have no excuse for their mistakes. 
+If I had not come and spoken to them, they would not have drifted; but now they have no excuse for their mistakes. 
 He who hates me, hates my Father also. 
-If I hadn't done among them the deeds which no one else did, they wouldn't have missed the mark. But now they have seen and also hated both me and my Father. 
+If I hadn't done among them the deeds which no one else did, they wouldn't have drifted. But now they have seen and also hated both me and my Father. 
 But this happened so that the word written in their law would come true: 'They hated me without a cause.' 
 "When the one who comes alongside has come, whom I will send to you from the Father, the Spirit of truth, who comes out from the Father, he will testify about me. 
 You will also testify, because you have been with me from the beginning. 

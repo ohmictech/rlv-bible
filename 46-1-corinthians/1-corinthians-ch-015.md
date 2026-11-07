@@ -31,7 +31,7 @@ Why do we also stand in jeopardy every hour?
 I affirm, by my pride in you which I have in Christ Jesus our Lord, I die daily. 
 If I fought with animals at Ephesus for human purposes, what does it profit me? If the dead are not raised, then "let's eat and drink, for tomorrow we die." 
 Don't be led astray! "Bad company spoils good habits." 
-Wake up as you should, and don't miss the mark, for some have no knowledge of God. I say this to your shame. 
+Wake up as you should, and don't drift, for some have no knowledge of God. I say this to your shame. 
 But someone will say, "How are the dead raised?" and, "With what kind of body do they come?" 
 You foolish one, that which you yourself sow is not made alive unless it dies. 
 That which you sow, you don't sow the body that will be, but a bare grain, maybe of wheat, or of some other kind. 
@@ -53,6 +53,6 @@ in a moment, in the blink of an eye, at the last trumpet. For the trumpet will s
 For this decaying body must become undecaying, and this dying body must put on undying life. 
 But when this decaying body has become undecaying, and this dying body has put on undying life, then what is written will happen: "Death is swallowed up in victory." 
 "Death, where is your sting? Hades, where is your victory?" 
-The sting of death is the mistake, and the power of the mistake is the law. 
+The sting of death is the drift, and the power of the drift is the law. 
 But thanks be to God, who gives us the victory through our Lord Jesus Christ. 
 Therefore, my truly loved brothers, stand firm, don't be moved, always doing more in the Lord's work, because you know that your toil is not empty in the Lord. 

@@ -1,6 +1,6 @@
 ﻿Now in the eighteenth year of King Jeroboam the son of Nebat, Abijam began to reign over Judah. 
 He reigned three years in Jerusalem. His mother's name was Maacah the daughter of Abishalom. 
-He walked in all the misses the mark of his father, which he had done before him; and his heart was not perfect with his God, as the heart of David his father. 
+He walked in all the drifts of his father, which he had done before him; and his heart was not perfect with his God, as the heart of David his father. 
 Nevertheless for David's sake, his God gave him a lamp in Jerusalem, to set up his son after him and to establish Jerusalem; 
 because David did that which was right in God's eyes, and didn't turn away from anything that he commanded him all the days of his life, except only in the matter of Uriah the Hittite. 
 Now there was war between Rehoboam and Jeroboam all the days of his life. 
@@ -23,12 +23,12 @@ Then King Asa made a proclamation to all Judah. No one was exempted. They carrie
 Now the rest of all the acts of Asa, and all his might, and all that he did, and the cities which he built, aren't they written in the book of the chronicles of the kings of Judah? But in the time of his old age he was diseased in his feet. 
 Asa slept with his fathers, and was buried with his fathers in his father David's city; and Jehoshaphat his son reigned in his place. 
 Nadab the son of Jeroboam began to reign over Israel in the second year of Asa king of Judah; and he reigned over Israel two years. 
-He did that which was bad in God's sight, and walked in the way of his father, and in his mistake with which he made Israel to miss the mark. 
+He did that which was bad in God's sight, and walked in the way of his father, and in his wrong he did that made Israel drift. 
 Baasha the son of Ahijah, of the house of Issachar, conspired against him; and Baasha struck him at Gibbethon, which belonged to the Philistines; for Nadab and all Israel were besieging Gibbethon. 
 Even in the third year of Asa king of Judah, Baasha killed him and reigned in his place. 
 As soon as he was king, he struck all the house of Jeroboam. He didn't leave to Jeroboam any who breathed, until he had destroyed him, according to the saying of God, which he spoke by his servant Ahijah the Shilonite; 
-for the misses the mark of Jeroboam which he missed the mark, and with which he made Israel to miss the mark, because of his provocation with which he provoked the God of Israel, to anger. 
+for the drifts of Jeroboam which he drifted, and with which he made Israel to drift, because of his provocation with which he provoked the God of Israel, to anger. 
 Now the rest of the acts of Nadab, and all that he did, aren't they written in the book of the chronicles of the kings of Israel? 
 There was war between Asa and Baasha king of Israel all their days. 
 In the third year of Asa king of Judah, Baasha the son of Ahijah began to reign over all Israel in Tirzah for twenty-four years. 
-He did that which was bad in God's sight, and walked in the way of Jeroboam, and in his mistake with which he made Israel to miss the mark. 
+He did that which was bad in God's sight, and walked in the way of Jeroboam, and in his wrong he did that made Israel drift. 

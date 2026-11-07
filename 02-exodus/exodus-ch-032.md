@@ -18,7 +18,7 @@ When Joshua heard the noise of the people as they shouted, he said to Moses, "Th
 He said, "It isn't the voice of those who shout for victory. It is not the voice of those who cry for being overcome; but the noise of those who sing that I hear." 
 As soon as he came near to the camp, he saw the calf and the dancing. Then Moses' anger grew hot, and he threw the tablets out of his hands, and broke them beneath the mountain. 
 He took the calf which they had made, and burned it with fire, ground it to powder, and scattered it on the water, and made the children of Israel drink it. 
-Moses said to Aaron, "What did these people do to you, that you have brought a great mistake on them?" 
+Moses said to Aaron, "What did these people do to you, that you have brought a great wrongdoing on them?" 
 Aaron said, "Don't let the anger of my lord grow hot. You know the people, that they are set on bad. 
 For they said to me, 'Make us gods, which shall go before us. As for this Moses, the man who brought us up out of the land of Egypt, we don't know what has become of him.' 
 I said to them, 'Whoever has any gold, let them take it off.' So they gave it to me; and I threw it into the fire, and out came this calf." 
@@ -27,9 +27,9 @@ then Moses stood in the gate of the camp, and said, "Whoever is on God's side, c
 He said to them, "The God of Israel says, 'Every man put his sword on his thigh, and go back and forth from gate to gate throughout the camp, and every man kill his brother, and every man his companion, and every man his neighbor.'" 
 The sons of Levi did according to the word of Moses. About three thousand men fell of the people that day. 
 Moses said, "Consecrate yourselves today to God, for every man was against his son and against his brother, that he may give you a blessing today." 
-On the next day, Moses said to the people, "You have missed the mark a great mistake. Now I will go up to God. Perhaps I shall make things right for your mistake." 
-Moses returned to God, and said, "Oh, this people have missed the mark a great mistake, and have made themselves gods of gold. 
-Yet now, if you will, forgive their mistake, and if not, please blot me out of your book which you have written." 
+On the next day, Moses said to the people, "You have done a great wrong. Now I will go up to God. Perhaps I shall make things right for your wrongdoing." 
+Moses returned to God, and said, "Oh, this people have done a great wrong, and have made themselves gods of gold. 
+Yet now, if you will, forgive their wrongdoing, and if not, please blot me out of your book which you have written." 
 God said to Moses, "Whoever has wronged me, I will blot him out of my book. 
-Now go, lead the people to the place of which I have spoken to you. Behold, my messenger shall go before you. Nevertheless, in the day when I punish, I will punish them for their mistake." 
+Now go, lead the people to the place of which I have spoken to you. Behold, my messenger shall go before you. Nevertheless, in the day when I punish, I will punish them for their wrongdoing." 
 God struck the people, because of what they did with the calf, which Aaron made. 

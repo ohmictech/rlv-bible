@@ -3,7 +3,7 @@ He was twenty-five years old when he began to reign; and he reigned twenty-nine 
 He did that which was right in God's eyes, yet not like David his father. He did according to all that Joash his father had done. 
 However the high places were not taken away. The people still sacrificed and burned incense in the high places. 
 As soon as the kingdom was established in his hand, he killed his servants who had slain the king his father, 
-but the children of the murderers he didn't put to death, according to that which is written in the book of the law of Moses, as God commanded, saying, "The fathers shall not be put to death for the children, nor the children be put to death for the fathers; but every man shall die for his own mistake." 
+but the children of the murderers he didn't put to death, according to that which is written in the book of the law of Moses, as God commanded, saying, "The fathers shall not be put to death for the children, nor the children be put to death for the fathers; but every man shall die for his own wrongdoing." 
 He killed ten thousand Edomites in the Valley of Salt, and took Sela by war, and called its name Joktheel, to this day. 
 Then Amaziah sent messengers to Jehoash, the son of Jehoahaz son of Jehu, king of Israel, saying, "Come, let's look one another in the face." 
 Jehoash the king of Israel sent to Amaziah king of Judah, saying, "The thistle that was in Lebanon sent to the cedar that was in Lebanon, saying, 'Give your daughter to my son as wife.' Then a wild animal that was in Lebanon passed by, and trampled down the thistle. 
@@ -21,7 +21,7 @@ They brought him on horses, and he was buried at Jerusalem with his fathers in D
 Everyone in Judah took Azariah, who was sixteen years old, and made him king in the place of his father Amaziah. 
 He built Elath and restored it to Judah. After that the king slept with his fathers. 
 In the fifteenth year of Amaziah the son of Joash king of Judah, Jeroboam the son of Joash king of Israel began to reign in Samaria for forty-one years. 
-He did that which was bad in God's sight. He didn't depart from all the misses the mark of Jeroboam the son of Nebat, with which he made Israel to miss the mark. 
+He did that which was bad in God's sight. He didn't depart from all the drifts of Jeroboam the son of Nebat, with which he made Israel to drift. 
 He restored the border of Israel from the entrance of Hamath to the sea of the Arabah, according to the God of Israel's word, which he spoke by his servant Jonah the son of Amittai, the spokesman, who was from Gath Hepher. 
 For God saw the affliction of Israel, that it was very bitter for all, slave and free; and there was no helper for Israel. 
 God didn't say that he would blot out the name of Israel from under the sky; but he saved them by the hand of Jeroboam the son of Joash. 

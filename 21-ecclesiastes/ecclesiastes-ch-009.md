@@ -1,5 +1,5 @@
 ﻿For all this I laid to my heart, even to explore all this: that the righteous, and the wise, and their works, are in the hand of God; whether it is love or hatred, man doesn't know it; all is before them. 
-All things come alike to all. There is one event to the righteous and to the guilty; to the good, to the clean, to the unclean, to him who sacrifices, and to him who doesn't sacrifice. As is the good, so is the one who misses the mark; he who takes an oath, as he who fears an oath. 
+All things come alike to all. There is one event to the righteous and to the guilty; to the good, to the clean, to the unclean, to him who sacrifices, and to him who doesn't sacrifice. As is the good, so is the one who drifts; he who takes an oath, as he who fears an oath. 
 This is an bad in all that is done under the sun, that there is one event to all. Yes also, the heart of the sons of men is full of bad, and madness is in their heart while they live, and after that they go to the dead. 
 For to him who is joined with all the living there is hope; for a living dog is better than a dead lion. 
 For the living know that they will die, but the dead don't know anything, neither do they have any more a reward; for their memory is forgotten. 
@@ -15,4 +15,4 @@ There was a little city, and few men within it; and a great king came against it
 Now a poor wise man was found in it, and he by his wisdom delivered the city; yet no man remembered that same poor man. 
 Then I said, "Wisdom is better than strength." Nevertheless the poor man's wisdom is despised, and his words are not heard. 
 The words of the wise heard in quiet are better than the cry of him who rules among fools. 
-Wisdom is better than weapons of war; but one one who misses the mark destroys much good. 
+Wisdom is better than weapons of war; but one one who drifts destroys much good. 

@@ -57,4 +57,4 @@ and said, "Look, I see the sky opened and the Human One standing at the right ha
 But they cried out with a loud voice and stopped their ears, then rushed at him with one accord. 
 They threw him out of the city and stoned him. The witnesses placed their garments at the feet of a young man named Saul. 
 They stoned Stephen as he called out, saying, "Lord Jesus, receive my spirit!" 
-He knelt down and cried with a loud voice, "Lord, don't hold this mistake against them!" When he had said this, he fell asleep. 
+He knelt down and cried with a loud voice, "Lord, don't hold this wrongdoing against them!" When he had said this, he fell asleep. 

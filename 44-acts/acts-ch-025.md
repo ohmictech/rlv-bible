@@ -5,7 +5,7 @@ However Festus answered that Paul should be kept in custody at Caesarea, and tha
 "Let them therefore", he said, "that are in power among you go down with me, and if there is anything wrong in the man, let them accuse him." 
 When he had stayed among them more than ten days, he went down to Caesarea, and on the next day he sat on the judge's seat, and commanded Paul to be brought. 
 When he had come, the Jewish people who had come down from Jerusalem stood around him, bringing against him many and grievous charges which they could not prove, 
-while he said in his defense, "Neither against the law of the Jewish people, nor against the temple courts, nor against Caesar, have I missed the mark at all." 
+while he said in his defense, "Neither against the law of the Jewish people, nor against the temple courts, nor against Caesar, have I drifted at all." 
 But Festus, desiring to gain favor with the Jewish people, answered Paul and said, "Are you willing to go up to Jerusalem and be judged by me there concerning these things?" 
 But Paul said, "I am standing before Caesar's judge's seat, where I ought to be tried. I have done no wrong to the Jewish people, as you also know very well. 
 For if I have done wrong and have committed anything worthy of death, I don't refuse to die; but if none of those things is true that they accuse me of, no one can give me up to them. I appeal to Caesar!" 

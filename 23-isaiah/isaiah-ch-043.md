@@ -24,5 +24,5 @@ You have not brought me any of your sheep for burnt offerings, neither have you 
 You have bought me no sweet cane with money, nor have you filled me with the fat of your sacrifices, but you have burdened me with your mistakes. You have wearied me with your guilt. 
 I, even I, am he who blots out your rebellion for my own sake; and I will not remember your mistakes. 
 Put me in remembrance. Let us plead together. Declare your case, that you may be justified. 
-Your first father missed the mark, and your teachers have transgressed against me. 
+Your first father drifted, and your teachers have transgressed against me. 
 Therefore I will profane the princes of the sanctuary; and I will make Jacob a curse, and Israel an insult." 

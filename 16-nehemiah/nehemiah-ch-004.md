@@ -2,7 +2,7 @@
 He spoke before his brothers and the army of Samaria, and said, "What are these feeble Jews doing? Will they fortify themselves? Will they sacrifice? Will they finish in a day? Will they revive the stones out of the heaps of rubbish, since they are burned?" 
 Now Tobiah the Ammonite was by him, and he said, "What they are building, if a fox climbed up it, he would break down their stone wall." 
 "Hear, our God, for we are despised. Turn back their reproach on their own head. Give them up for a plunder in a land of captivity. 
-Don't cover their guilt. Don't let their mistake be blotted out from before you; for they have insulted the builders." 
+Don't cover their guilt. Don't let their wrongdoing be blotted out from before you; for they have insulted the builders." 
 So we built the wall; and all the wall was joined together to half its height, for the people had a mind to work. 
 But when Sanballat, Tobiah, the Arabians, the Ammonites, and the Ashdodites heard that the repairing of the walls of Jerusalem went forward, and that the breaches began to be filled, they were very angry; 
 and they all conspired together to come and fight against Jerusalem, and to cause confusion among us. 

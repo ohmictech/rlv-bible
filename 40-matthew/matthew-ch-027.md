@@ -1,7 +1,7 @@
 ﻿Now when morning had come, all the chief priests and the elders of the people plotted against Jesus to put him to death. 
 They tied him up, led him away, and handed him over to Pontius Pilate, the governor. 
 Then Judas, who had handed him over, when he saw that Jesus was sentenced, felt remorse and brought the thirty pieces of silver back to the chief priests and elders, 
-saying, "I have missed the mark by handing over innocent blood." But they said, "What is that to us? You see to it." 
+saying, "I have drifted by handing over innocent blood." But they said, "What is that to us? You see to it." 
 He threw the pieces of silver down in the temple and left. Then he went away and hanged himself. 
 The chief priests took the pieces of silver and said, "It isn't allowed to put them into the treasury, since it is the price of blood." 
 They decided together to buy the potter's field with the money, as a burial place for strangers. 

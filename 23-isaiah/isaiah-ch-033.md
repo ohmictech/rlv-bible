@@ -11,7 +11,7 @@ The land mourns and languishes. Lebanon is confounded and withers away. Sharon i
 You will conceive chaff. You will give birth to stubble. Your breath is a fire that will devour you. 
 The peoples will be like the burning of lime, like thorns that are cut down and burned in the fire. 
 Hear, you who are far off, what I have done; and, you who are near, acknowledge my might." 
-The those who miss the mark in Zion are afraid. Trembling has seized the godless ones. Who among us can live with the devouring fire? Who among us can live with perpetual burning? 
+The those who have drifted in Zion are afraid. Trembling has seized the godless ones. Who among us can live with the devouring fire? Who among us can live with perpetual burning? 
 He who walks righteously and speaks blamelessly, he who despises the gain of oppressions, who gestures with his hands, refusing to take a bribe, who stops his ears from hearing of bloodshed, and shuts his eyes from looking at bad 
 he will dwell on high. His place of defense will be the fortress of rocks. His bread will be supplied. His waters will be sure. 
 Your eyes will see the king in his beauty. They will see a distant land. 

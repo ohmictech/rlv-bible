@@ -12,5 +12,5 @@ So let us do our best to enter that rest, so that no one falls by following that
 For God's word is alive and active, sharper than any double-edged sword. It cuts all the way through to where life and spirit divide, to joints and marrow, and it passes a verdict on the thoughts and the intentions of the heart. 
 No creature is hidden from his sight. Everything is naked and laid bare before the eyes of the one we must answer to. 
 So then, since we have a great high priest who has gone through the skies, Jesus the Son of God, let us hold tightly to what we declare. 
-For we do not have a high priest who cannot feel for our weaknesses. We have one who has been tested in every way, just as we are, yet without a mistake. 
+For we do not have a high priest who cannot feel for our weaknesses. We have one who has been tested in every way, just as we are, yet without wrongdoing. 
 So let us come near to the throne of favor with boldness, so that we may receive mercy and find favor to help us when we need it. 

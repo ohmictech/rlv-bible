@@ -28,4 +28,4 @@ He who diligently seeks good seeks favor, but he who searches after bad, it shal
 He who trusts in his riches will fall, but the righteous shall flourish as the green leaf. 
 He who troubles his own house shall inherit the wind. The foolish shall be servant to the wise of heart. 
 The fruit of the righteous is a tree of life. He who is wise wins souls. 
-Behold, the righteous shall be repaid on the earth, how much more the guilty and the one who misses the mark! 
+Behold, the righteous shall be repaid on the earth, how much more the guilty and the one who drifts! 

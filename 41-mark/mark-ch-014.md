@@ -38,7 +38,7 @@ He came and found them sleeping, and said to Peter, "Simon, are you sleeping? Co
 Stay awake and pray, so that you may not come into testing. The spirit is willing, but the flesh is weak." 
 Again he went away and prayed, saying the same words. 
 Again he returned and found them sleeping, for their eyes were very heavy; and they didn't know what to answer him. 
-He came the third time and said to them, "Sleep on now and rest. That is enough. The time has come. Look, the Human One is being handed over into the hands of those who miss the mark. 
+He came the third time and said to them, "Sleep on now and rest. That is enough. The time has come. Look, the Human One is being handed over into the hands of those who have drifted. 
 Get up! Let's go. Look, the one who hands me over is near." 
 Immediately, while he was still speaking, Judas, one of the twelve, came, and with him a crowd with swords and clubs, from the chief priests, the Bible teachers, and the elders. 
 Now the one handing him over had given them a sign, saying, "Whomever I kiss, that is he. Seize him and lead him away safely." 

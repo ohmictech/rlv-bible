@@ -26,7 +26,7 @@ They asked him, "Why then do you immerse if you are not the Christ, nor Elijah, 
 John answered them, "I immerse in water, but among you stands one whom you don't know. 
 He is the one who comes after me, whose sandal strap I'm not worthy to loosen." 
 These things were done in Bethany beyond the Jordan, where John was immersing. 
-The next day, he saw Jesus coming to him, and said, "Look, the Lamb of God, who takes away the mistakes of the world! 
+The next day, he saw Jesus coming to him, and said, "Look, the Lamb of God, who takes away the drift of the world! 
 This is he of whom I said, 'After me comes a man who ranks before me, for he was before me.' 
 I didn't know him, but I came immersing in water so that he would be made known to Israel." 
 John testified, saying, "I have seen the Spirit coming down like a dove out of the sky, and it stayed on him. 

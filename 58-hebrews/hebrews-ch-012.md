@@ -1,7 +1,7 @@
-﻿So then, since we are surrounded by such a great cloud of witnesses, let us put aside everything that weighs us down and the mistake that so easily tangles our feet, and let us run with staying power the race set in front of us, 
+﻿So then, since we are surrounded by such a great cloud of witnesses, let us put aside everything that weighs us down and the drift that so easily tangles our feet, and let us run with staying power the race set in front of us, 
 keeping our eyes on Jesus, the one who starts and finishes our trust, who for the joy set in front of him endured the cross, thinking nothing of its shame, and has sat down at the right hand of the throne of God. 
-Think about the one who put up with such hostility from those who missed the mark, so that you do not grow tired and give up. 
-In your struggle against the mistake, you have not yet resisted to the point of blood. 
+Think about the one who put up with such hostility from those who drifted, so that you do not grow tired and give up. 
+In your struggle against the drift, you have not yet resisted to the point of blood. 
 You have forgotten the encouragement that speaks to you as children: "My child, don't make light of the Lord's training, and don't give up when you are corrected by him; 
 for the Lord trains everyone he loves, and corrects every child he receives." 
 Endure it as training. God is treating you as children, for what child is there whose father doesn't train them? 

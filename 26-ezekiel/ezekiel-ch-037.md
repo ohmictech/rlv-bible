@@ -20,7 +20,7 @@ tell them, 'The God says: "Behold, I will take the stick of Joseph, which is in 
 The sticks on which you write will be in your hand before their eyes."' 
 Say to them, 'The God says: "Behold, I will take the children of Israel from among the nations where they have gone, and will gather them on every side, and bring them into their own land. 
 I will make them one nation in the land, on the mountains of Israel. One king will be king to them all. They will no longer be two nations. They won't be divided into two kingdoms any more at all. 
-They won't defile themselves any more with their idols, nor with their detestable things, nor with any of their rebellion; but I will save them out of all their dwelling places in which they have missed the mark, and will cleanse them. So they will be my people, and I will be their God. 
+They won't defile themselves any more with their idols, nor with their detestable things, nor with any of their rebellion; but I will save them out of all their dwelling places in which they have drifted, and will cleanse them. So they will be my people, and I will be their God. 
 "'"My servant David will be king over them. They all will have one shepherd. They will also walk in my ordinances and observe my statutes, and do them. 
 They will dwell in the land that I have given to Jacob my servant, in which your fathers lived. They will dwell therein, they, and their children, and their children's children, for the eras. David my servant will be their prince for the eras. 
 Moreover I will make a covenant of peace with them. It will be an perpetual covenant with them. I will place them, multiply them, and will set my sanctuary among them for the eras more. 

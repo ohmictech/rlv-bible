@@ -17,7 +17,7 @@ You shall keep my statutes, and do them. I am God who sanctifies you.
 "'If a man takes his sister, his father's daughter, or his mother's daughter, and sees her nakedness, and she sees his nakedness, it is a shameful thing. They shall be cut off in the sight of the children of their people. He has uncovered his sister's nakedness. He shall bear his guilt. 
 "'If a man lies with a woman having her monthly period, and uncovers her nakedness, he has made her fountain naked, and she has uncovered the fountain of her blood. Both of them shall be cut off from among their people. 
 "'You shall not uncover the nakedness of your mother's sister, nor of your father's sister, for he has made his close relative naked. They shall bear their guilt. 
-If a man lies with his uncle's wife, he has uncovered his uncle's nakedness. They shall bear their mistake. They shall die childless. 
+If a man lies with his uncle's wife, he has uncovered his uncle's nakedness. They shall bear their guilt. They shall die childless. 
 "'If a man takes his brother's wife, it is an impurity. He has uncovered his brother's nakedness. They shall be childless. 
 "'You shall therefore keep all my statutes and all my ordinances, and do them, that the land where I am bringing you to dwell may not vomit you out. 
 You shall not walk in the customs of the nation which I am casting out before you; for they did all these things, and therefore I abhorred them. 

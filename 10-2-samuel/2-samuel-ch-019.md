@@ -17,7 +17,7 @@ Shimei the son of Gera, the Benjamite, who was of Bahurim, hurried and came down
 There were a thousand men of Benjamin with him, and Ziba the servant of Saul's house, and his fifteen sons and his twenty servants with him; and they went through the Jordan in the presence of the king. 
 A ferry boat went to bring over the king's household, and to do what he thought good. Shimei the son of Gera fell down before the king when he had come over the Jordan. 
 He said to the king, "Don't let my lord impute guilt to me, or remember that which your servant did perversely the day that my lord the king went out of Jerusalem, that the king should take it to his heart. 
-For your servant knows that I have missed the mark. Therefore behold, I have come today as the first of all the house of Joseph to go down to meet my lord the king." 
+For your servant knows that I have drifted. Therefore behold, I have come today as the first of all the house of Joseph to go down to meet my lord the king." 
 But Abishai the son of Zeruiah answered, "Shouldn't Shimei be put to death for this, because he cursed God's anointed?" 
 David said, "What have I to do with you, you sons of Zeruiah, that you should be adversaries to me today? Shall any man be put to death today in Israel? For don't I know that I am king over Israel today?" 
 The king said to Shimei, "You will not die." The king swore to him. 
@@ -32,7 +32,7 @@ Barzillai the Gileadite came down from Rogelim; and he went over the Jordan with
 Now Barzillai was a very aged man, even eighty years old. He had provided the king with sustenance while he stayed at Mahanaim, for he was a very great man. 
 The king said to Barzillai, "Come over with me, and I will sustain you with me in Jerusalem." 
 Barzillai said to the king, "How many are the days of the years of my life, that I should go up with the king to Jerusalem? 
-I am eighty years old, today. Can I discern between good and bad? Can your servant taste what I eat or what I drink? Can I hear the voice of singing men and misses the markging women any more? Why then should your servant be a burden to my lord the king? 
+I am eighty years old, today. Can I discern between good and bad? Can your servant taste what I eat or what I drink? Can I hear the voice of singing men and driftsging women any more? Why then should your servant be a burden to my lord the king? 
 Your servant will just go over the Jordan with the king. Why should the king repay me with such a reward? 
 Please let your servant turn back again, that I may die in my own city, by the grave of my father and my mother. But behold, your servant Chimham; let him go over with my lord the king; and do to him what shall seem good to you." 
 The king answered, "Chimham shall go over with me, and I will do to him that which shall seem good to you. Whatever you request of me, that I will do for you." 

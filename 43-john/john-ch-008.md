@@ -4,11 +4,11 @@ The Bible teachers and the strict religious ones brought a woman caught sleeping
 they told him, "Teacher, this woman was caught in the very act of sleeping around. 
 Now in our law, Moses commanded us to stone such women. What then do you say about her?" 
 They said this testing him, that they might have something to accuse him of. But Jesus stooped down and wrote on the ground with his finger. 
-But when they continued asking him, he looked up and said to them, "Whoever among you has never missed the mark, let them throw the first stone at her." 
+But when they continued asking him, he looked up and said to them, "Whoever among you has never drifted, let them throw the first stone at her." 
 Again he stooped down and wrote on the ground with his finger. 
 When they heard it, they were convicted by their conscience and went out one by one, beginning from the oldest, even to the last. Jesus was left alone with the woman where she was, in the middle. 
 Jesus stood up and saw her, and said, "Woman, where are your accusers? Did no one judge you?" 
-She said, "No one, Lord." Jesus said, "Neither do I judge you. Go your way. From now on, stop missing the mark." 
+She said, "No one, Lord." Jesus said, "Neither do I judge you. Go your way. From now on, stop drifting." 
 Again, therefore, Jesus spoke to them, saying, "I am the light of the world. Whoever follows me will not walk in the darkness, but will have the light of real life." 
 The strict religious ones therefore said to him, "You testify about yourself. Your witness is not valid." 
 Jesus answered them, "Even if I testify about myself, my witness is true, for I know where I came from, and where I am going; but you don't know where I came from, or where I am going. 
@@ -31,7 +31,7 @@ As he spoke these things, many trusted in him.
 Jesus therefore said to those Jewish people who had trusted him, "If you remain in my word, then you are truly my students. 
 You will know the truth, and the truth will make you free." 
 They answered him, "We are Abraham's descendants, and have never been slaves to anyone. How do you say, 'You will be made free'?" 
-Jesus answered them, "Truly I tell you, everyone who keeps missing the mark is a slave of their mistakes. 
+Jesus answered them, "Truly I tell you, everyone who keeps drifting is a slave of their mistakes. 
 A slave doesn't live in the house forever. A son remains forever. 
 If therefore the Son makes you free, you will be free indeed. 
 I know that you are Abraham's descendants, yet you seek to kill me, because my word finds no place in you. 
@@ -43,7 +43,7 @@ Therefore Jesus said to them, "If God were your father, you would love me, for I
 Why don't you understand my speech? Because you can't hear my word. 
 You are of your father the Slanderer, and you want to do the desires of your father. He was a murderer from the beginning, and doesn't stand in the truth, because there is no truth in him. When he speaks a lie, he speaks on his own; for he is a liar, and the father of lies. 
 But because I tell the truth, you don't trust me. 
-Which of you convicts me of missing the mark? If I tell the truth, why do you not trust me? 
+Which of you convicts me of drifting? If I tell the truth, why do you not trust me? 
 Whoever is of God hears the words of God. That is why you don't hear, because you are not of God." 
 Then the Jewish leaders answered him, "Aren't we right in saying that you are a Samaritan, and have an unclean spirit?" 
 Jesus answered, "I don't have an unclean spirit, but I honor my Father and you dishonor me. 

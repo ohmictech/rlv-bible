@@ -12,7 +12,7 @@ The sun rises with scorching heat and dries up the grass; the flower falls off a
 Flourishing is the one who holds up under testing, because when they have passed the test they will receive the wreath of real life that the Lord promised to those who love him. 
 Nobody who is being tempted should say, "God is tempting me," because God cannot be tempted by evil, and he tempts no one. 
 Each person is tempted when their own craving drags them away and lures them. 
-Then the craving conceives and gives birth to the mistake, and the mistake, once it is full grown, gives birth to death. 
+Then the craving conceives and gives birth to the drift, and the drift, once it is full grown, gives birth to death. 
 Do not be fooled, my truly loved brothers and sisters. 
 Every good gift and every complete gift comes from above, coming down from the Father of lights, who never changes and never shifts like a shadow. 
 He chose to give us birth through the message of truth, so that we would be a kind of firstfruits of everything he made. 

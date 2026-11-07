@@ -1,4 +1,4 @@
-﻿So since Christ suffered in the body, arm yourselves with the same way of thinking, because anyone who has suffered in the body is done with the mistake, 
+﻿So since Christ suffered in the body, arm yourselves with the same way of thinking, because anyone who has suffered in the body is done with the drift, 
 so that you no longer spend the rest of your life in the body chasing human cravings, but doing God's will. 
 For you have spent enough of your past time doing what the nations want: shameless living, craving, heavy drinking, wild parties, drunken brawls, and hateful idol worship. 
 They think it strange that you no longer plunge into the same flood of wild living with them, and they slander you. 
@@ -15,5 +15,5 @@ If you are insulted because of the name of Christ, you are flourishing, because 
 But none of you should suffer as a murderer, a thief, someone who does wrong, or someone who meddles in other people's business. 
 But if you suffer for being a Christian, do not be ashamed. Give weight to God because you bear that name. 
 For the time has come for the verdict to begin with God's own household. And if it begins with us, what will happen to those who refuse to obey God's Good News? 
-"If it is hard for the upright to be rescued, what will become of those who disregard God and keep missing the mark?" 
+"If it is hard for the upright to be rescued, what will become of those who disregard God and keep drifting?" 
 So those who suffer because God wills it, while they do good, should hand their lives over to a trustworthy Creator. 

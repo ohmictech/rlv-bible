@@ -17,7 +17,7 @@ for in six days God made the sky and the earth, the sea, and all that is in them
 "You shall not covet your neighbor's house. You shall not covet your neighbor's wife, nor his male servant, nor his female servant, nor his ox, nor his donkey, nor anything that is your neighbor's." 
 Everyone perceived the thunderings, the lightnings, the sound of the trumpet, and the mountain smoking. When the people saw it, they trembled, and stayed at a distance. 
 They said to Moses, "Speak with us yourself, and we will listen; but don't let God speak with us, lest we die." 
-Moses said to the people, "Don't be afraid, for God has come to test you, and that his fear may be before you, that you won't miss the mark." 
+Moses said to the people, "Don't be afraid, for God has come to test you, and that his fear may be before you, that you won't drift." 
 The people stayed at a distance, and Moses came near to the thick darkness where God was. 
 God said to Moses, "This is what you shall tell the children of Israel: 'You yourselves have seen that I have talked with you from the sky. 
 You shall most certainly not make gods of silver or gods of gold for yourselves to be alongside me. 

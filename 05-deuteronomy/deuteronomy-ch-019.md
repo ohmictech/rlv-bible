@@ -12,7 +12,7 @@ But if any man hates his neighbor, lies in wait for him, rises up against him, s
 then the elders of his city shall send and bring him there, and deliver him into the hand of the avenger of blood, that he may die. 
 Your eye shall not pity him, but you shall purge the innocent blood from Israel that it may go well with you. 
 You shall not remove your neighbor's landmark, which they of old time have set, in your inheritance which you shall inherit, in the land that your God gives you to possess. 
-One witness shall not rise up against a man for any guilt, or for any mistake that he misses the mark. At the mouth of two witnesses, or at the mouth of three witnesses, shall a matter be established. 
+One witness shall not rise up against a man for any guilt, or for any wrong that someone does. At the mouth of two witnesses, or at the mouth of three witnesses, shall a matter be established. 
 If an unrighteous witness rises up against any man to testify against him of wrongdoing, 
 then both the men, between whom the controversy is, shall stand before God, before the priests and the judges who shall be in those days; 
 and the judges shall make diligent inquisition; and behold, if the witness is a false witness, and has testified falsely against his brother, 

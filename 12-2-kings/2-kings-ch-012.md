@@ -13,7 +13,7 @@ and to the masons and the stone cutters, and for buying timber and cut stone to 
 But there were not made for God's house cups of silver, snuffers, basins, trumpets, any vessels of gold or vessels of silver, of the money that was brought into God's house; 
 for they gave that to those who did the work, and repaired God's house with it. 
 Moreover they didn't demand an accounting from the men into whose hand they delivered the money to give to those who did the work; for they dealt faithfully. 
-The money for the trespass offerings and the money for the offerings for mistakes was not brought into God's house. It was the priests'. 
+The money for the trespass offerings and the money for the offerings for wrongdoing was not brought into God's house. It was the priests'. 
 Then Hazael king of Syria went up and fought against Gath, and took it; and Hazael set his face to go up to Jerusalem. 
 Jehoash king of Judah took all the holy things that Jehoshaphat and Jehoram and Ahaziah, his fathers, kings of Judah, had dedicated, and his own holy things, and all the gold that was found in the treasures of God's house, and of the king's house, and sent it to Hazael king of Syria; and he went away from Jerusalem. 
 Now the rest of the acts of Joash, and all that he did, aren't they written in the book of the chronicles of the kings of Judah? 

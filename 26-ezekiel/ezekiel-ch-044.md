@@ -24,8 +24,8 @@ They shall teach my people the difference between the holy and the common, and c
 "'"In a controversy they shall stand to judge. They shall judge it according to my ordinances. They shall keep my laws and my statutes in all my appointed feasts. They shall make my Sabbaths holy. 
 "'"They shall go in to no dead person to defile themselves; but for father, or for mother, or for son, or for daughter, for brother, or for sister who has had no husband, they may defile themselves. 
 After he is cleansed, they shall reckon to him seven days. 
-In the day that he goes into the sanctuary, into the inner court, to minister in the sanctuary, he shall offer his offering for mistakes," says God. 
+In the day that he goes into the sanctuary, into the inner court, to minister in the sanctuary, he shall offer his offering for wrongdoing," says God. 
 "'They shall have an inheritance: I am their inheritance; and you shall give them no possession in Israel. I am their possession. 
-They shall eat the meal offering, and the offering for mistakes, and the trespass offering; and every devoted thing in Israel shall be theirs. 
+They shall eat the meal offering, and the offering for wrongdoing, and the trespass offering; and every devoted thing in Israel shall be theirs. 
 The first of all the first fruits of every thing, and every offering of everything, of all your offerings, shall be for the priest. You shall also give to the priests the first of your dough, to cause a blessing to rest on your house. 
 The priests shall not eat of anything that dies of itself or is torn, whether it is bird or animal. 

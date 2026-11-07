@@ -7,7 +7,7 @@ Samuel said to the people, "It is God who appointed Moses and Aaron, and that br
 Now therefore stand still, that I may plead with you before God concerning all the righteous acts of God, which he did to you and to your fathers. 
 "When Jacob had come into Egypt, and your fathers cried to God, then God sent Moses and Aaron, who brought your fathers out of Egypt, and made them to dwell in this place. 
 But they forgot their God; and he sold them into the hand of Sisera, captain of the army of Hazor, and into the hand of the Philistines, and into the hand of the king of Moab; and they fought against them. 
-They cried to God, and said, 'We have missed the mark, because we have forsaken God and have served the Baals and the Ashtaroth; but now deliver us out of the hand of our enemies, and we will serve you.' 
+They cried to God, and said, 'We have drifted, because we have forsaken God and have served the Baals and the Ashtaroth; but now deliver us out of the hand of our enemies, and we will serve you.' 
 God sent Jerubbaal, Bedan, Jephthah, and Samuel, and delivered you out of the hand of your enemies on every side; and you lived in safety. 
 "When you saw that Nahash the king of the children of Ammon came against you, you said to me, 'No, but a king shall reign over us,' when your God was your king. 
 Now therefore see the king whom you have chosen and whom you have asked for. Behold, God has set a king over you. 

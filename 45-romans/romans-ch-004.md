@@ -5,7 +5,7 @@ Now to him who works, the earned result is not counted as a gift, but as somethi
 But to him who doesn't work, but trusts in him who makes the one with no regard for God right, his trust is credited as rightness. 
 Even as David also pronounces flourishing on the one to whom God credits rightness apart from deeds: 
 "Flourishing are they whose wrongs are released, whose mistakes are covered. 
-Flourishing is the one whom the Lord will by no means charge with the mistake." 
+Flourishing is the one whom the Lord will by no means charge with the drift." 
 Is this flourishing then pronounced only on the circumcised, or on the uncircumcised also? For we say that trust was credited to Abraham as rightness. 
 How then was it counted? When he was circumcised, or when he was not? Not when he was circumcised, but when he was not. 
 He received the sign of circumcision, a seal of the rightness of the trust he had while he was not yet circumcised, that he might be the father of everyone who trusts, though they are not circumcised, that rightness might also be credited to them. 

@@ -12,7 +12,7 @@ Whoever touches anything that was under him shall be unclean until the evening. 
 "'The earthen vessel, which he who has the discharge touches, shall be broken; and every vessel of wood shall be rinsed in water. 
 "'When he who has a discharge is cleansed of his discharge, then he shall count to himself seven days for his cleansing, and wash his clothes; and he shall bathe his flesh in running water, and shall be clean. 
 "'On the eighth day he shall take two turtledoves, or two young pigeons, and come before God to the door of the Tent of Meeting, and give them to the priest. 
-The priest shall offer them, the one for an offering for mistakes, and the other for a burnt offering. The priest shall make things right for him before God for his discharge. 
+The priest shall offer them, the one for an offering for wrongdoing, and the other for a burnt offering. The priest shall make things right for him before God for his discharge. 
 "'If any man has an emission of semen, then he shall bathe all his flesh in water, and be unclean until the evening. 
 Every garment and every skin which the semen is on shall be washed with water, and be unclean until the evening. 
 If a man lies with a woman and there is an emission of semen, they shall both bathe themselves in water, and be unclean until the evening. 
@@ -27,7 +27,7 @@ Every bed she lies on all the days of her discharge shall be to her as the bed o
 Whoever touches these things shall be unclean, and shall wash his clothes and bathe himself in water, and be unclean until the evening. 
 "'But if she is cleansed of her discharge, then she shall count to herself seven days, and after that she shall be clean. 
 On the eighth day she shall take two turtledoves, or two young pigeons, and bring them to the priest, to the door of the Tent of Meeting. 
-The priest shall offer the one for an offering for mistakes, and the other for a burnt offering; and the priest shall make things right for her before God for the uncleanness of her discharge. 
+The priest shall offer the one for an offering for wrongdoing, and the other for a burnt offering; and the priest shall make things right for her before God for the uncleanness of her discharge. 
 "'Thus you shall separate the children of Israel from their uncleanness, so they will not die in their uncleanness when they defile my tabernacle that is among them.'" 
 This is the law of him who has a discharge, and of him who has an emission of semen, so that he is unclean by it; 
 and of her who has her period, and of a man or woman who has a discharge, and of him who lies with her who is unclean. 

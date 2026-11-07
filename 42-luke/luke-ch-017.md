@@ -1,7 +1,7 @@
 ﻿He said to his students, "It is impossible that no traps should come, but how terrible for him through whom they come! 
 It would be better for him to have a millstone hung around his neck and be thrown into the sea than to trap one of these little ones. 
-Be careful. If your brother misses the mark against you, rebuke him. If he has a change of heart, release him. 
-If he misses the mark against you seven times in the day, and seven times returns, saying, 'I have a change of heart,' you must release him." 
+Be careful. If your brother wrongs you, rebuke him. If he has a change of heart, release him. 
+If he wrongs you seven times in the day, and seven times returns, saying, 'I have a change of heart,' you must release him." 
 The ones sent out said to the Lord, "Increase our trust." 
 The Lord said, "If you had trust like a grain of mustard seed, you would tell this sycamore tree, 'Be uprooted and be planted in the sea,' and it would obey you. 
 But who is there among you, having a slave plowing or keeping sheep, that will say when he comes in from the field, 'Come immediately and sit down at the table'? 

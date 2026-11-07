@@ -7,7 +7,7 @@ You shall put it before the veil that is by the ark of the covenant, before the 
 Aaron shall burn incense of sweet spices on it every morning. When he tends the lamps, he shall burn it. 
 When Aaron lights the lamps at evening, he shall burn it, a perpetual incense before God throughout your generations. 
 You shall offer no strange incense on it, nor burnt offering, nor meal offering; and you shall pour no drink offering on it. 
-Aaron shall make things right on its horns once in the year; with the blood of the offering for mistakes that makes things right once in the year he shall make things right for it throughout your generations. It is most holy to God." 
+Aaron shall make things right on its horns once in the year; with the blood of the offering for wrongdoing that makes things right once in the year he shall make things right for it throughout your generations. It is most holy to God." 
 God spoke to Moses, saying, 
 "When you take a census of the children of Israel, according to those who are counted among them, then each man shall give a ransom for his soul to God when you count them, that there be no plague among them when you count them. 
 They shall give this, everyone who passes over to those who are counted, half a shekel according to the shekel of the sanctuary (the shekel is twenty gerahs); half a shekel for an offering to God. 

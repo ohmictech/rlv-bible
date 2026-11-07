@@ -1,7 +1,7 @@
 ﻿Amaziah was twenty-five years old when he began to reign, and he reigned twenty-nine years in Jerusalem. His mother's name was Jehoaddan, of Jerusalem. 
 He did that which was right in God's eyes, but not with a perfect heart. 
 Now when the kingdom was established to him, he killed his servants who had killed his father the king. 
-But he didn't put their children to death, but did according to that which is written in the law in the book of Moses, as God commanded, saying, "The fathers shall not die for the children, neither shall the children die for the fathers; but every man shall die for his own mistake." 
+But he didn't put their children to death, but did according to that which is written in the law in the book of Moses, as God commanded, saying, "The fathers shall not die for the children, neither shall the children die for the fathers; but every man shall die for his own wrongdoing." 
 Moreover Amaziah gathered Judah together and ordered them according to their fathers' houses, under captains of thousands and captains of hundreds, even all Judah and Benjamin. He counted them from twenty years old and upward, and found that there were three hundred thousand chosen men, able to go out to war, who could handle spear and shield. 
 He also hired one hundred thousand mighty men of valor out of Israel for one hundred talents of silver. 
 A man of God came to him, saying, "O king, don't let the army of Israel go with you, for God is not with Israel, with all the children of Ephraim. 

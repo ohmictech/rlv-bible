@@ -29,7 +29,7 @@ I will keep my loving kindness for him for the eras more. My covenant will stand
 I will also make his offspring endure for the eras, and his throne as the days of the sky. 
 If his children forsake my law, and don't walk in my ordinances; 
 if they break my statutes, and don't keep my commandments; 
-then I will punish their mistake with the rod, and their guilt with stripes. 
+then I will punish their wrongdoing with the rod, and their guilt with stripes. 
 But I will not completely take my loving kindness from him, nor allow my faithfulness to fail. 
 I will not break my covenant, nor alter what my lips have uttered. 
 Once I have sworn by my holiness, I will not lie to David. 

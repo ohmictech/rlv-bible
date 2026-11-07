@@ -18,4 +18,4 @@ Did I take advantage of you by anyone of those whom I have sent to you?
 I exhorted Titus, and I sent the brother with him. Did Titus take any advantage of you? Didn't we walk in the same spirit? Didn't we walk in the same steps? 
 Again, do you think that we are excusing ourselves to you? In the sight of God we speak in Christ. And all things, truly loved, are for building you up. 
 For I am afraid that perhaps when I come, I might find you not the way I want to, and you might find me not the way you want: perhaps quarreling, jealousy, flare, factions, slander, whispering, pride, and disorder. 
-that again when I come my God would humble me before you, and I would grieve for many of those who missed the mark before now, and have not had a change of heart about the uncleanness, sleeping around, and shamelessness which they practiced. 
+that again when I come my God would humble me before you, and I would grieve for many of those who drifted before now, and have not had a change of heart about the uncleanness, sleeping around, and shamelessness which they practiced. 

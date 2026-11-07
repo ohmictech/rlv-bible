@@ -19,7 +19,7 @@ Household slaves, submit to your masters with all respect, not only to the good 
 It is to your credit if you bear up under pain and suffer unjustly because of your conscience toward God. 
 What credit is there if you are beaten for doing wrong and take it patiently? But if you suffer for doing good and take it patiently, that is to your credit before God. 
 That is what you were called to, because Christ also suffered for you, leaving you an example so that you would follow in his steps. 
-He committed no mistake, and no deceit was found in his mouth. 
+He committed no wrongdoing, and no deceit was found in his mouth. 
 When he was insulted, he did not insult back. When he suffered, he did not threaten. Instead he handed himself over to the one who judges rightly. 
 He himself carried our mistakes in his body on the tree, so that we could be done with mistakes and live for rightness. By his wounds you were healed. 
 You were wandering like sheep, but now you have come back to the Shepherd and Overseer of your life. 

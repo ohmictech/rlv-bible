@@ -21,5 +21,5 @@ You see many things, but don't observe. His ears are open, but he doesn't listen
 It pleased God, for his righteousness' sake, to magnify the law and make it honorable. 
 But this is a robbed and plundered people. All of them are snared in holes, and they are hidden in prisons. They have become captives, and no one delivers, and a plunder, and no one says, 'Restore them!' 
 Who is there among you who will give ear to this? Who will listen and hear for the time to come? 
-Who gave Jacob as plunder, and Israel to the robbers? Didn't God, he against whom we have missed the mark? For they would not walk in his ways, and they disobeyed his law. 
+Who gave Jacob as plunder, and Israel to the robbers? Didn't God, he against whom we have drifted? For they would not walk in his ways, and they disobeyed his law. 
 Therefore he poured the fierceness of his anger on him, and the strength of battle. It set him on fire all around, but he didn't know. It burned him, but he didn't take it to heart." 

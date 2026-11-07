@@ -23,4 +23,4 @@ For what does a man have of all his labor and of the striving of his heart, in w
 For all his days are sorrows, and his travail is grief; yes, even in the night his heart takes no rest. This also is vanity. 
 There is nothing better for a man than that he should eat and drink, and make his soul enjoy good in his labor. This also I saw, that it is from the hand of God. 
 For who can eat, or who can have enjoyment, more than I? 
-For to the man who pleases him, God gives wisdom, knowledge, and joy; but to the one who misses the mark he gives travail, to gather and to heap up, that he may give to him who pleases God. This also is vanity and a chasing after wind. 
+For to the man who pleases him, God gives wisdom, knowledge, and joy; but to the one who drifts he gives travail, to gather and to heap up, that he may give to him who pleases God. This also is vanity and a chasing after wind. 

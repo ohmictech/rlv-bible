@@ -1,4 +1,4 @@
-﻿They took their journey from Elim, and all the congregation of the children of Israel came to the wilderness of Mistake, which is between Elim and Sinai, on the fifteenth day of the second month after their departing out of the land of Egypt. 
+﻿They took their journey from Elim, and all the congregation of the children of Israel came to the wilderness of Sin, which is between Elim and Sinai, on the fifteenth day of the second month after their departing out of the land of Egypt. 
 The whole congregation of the children of Israel murmured against Moses and against Aaron in the wilderness; 
 and the children of Israel said to them, "We wish that we had died by God's hand in the land of Egypt, when we sat by the meat pots, when we ate our fill of bread, for you have brought us out into this wilderness to kill this whole assembly with hunger." 
 Then God said to Moses, "Behold, I will rain bread from the sky for you, and the people shall go out and gather a day's portion every day, that I may test them, whether they will walk in my law or not. 

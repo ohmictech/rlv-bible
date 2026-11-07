@@ -1,6 +1,6 @@
 ﻿In the fourth year of Jehoiakim the son of Josiah, king of Judah, this word came to Jeremiah from God, saying, 
 "Take a scroll of a book, and write in it all the words that I have spoken to you against Israel, against Judah, and against all the nations, from the day I spoke to you, from the days of Josiah even to this day. 
-It may be that the house of Judah will hear all the bad which I intend to do to them, that they may each return from his bad way; that I may forgive their guilt and their mistake." 
+It may be that the house of Judah will hear all the bad which I intend to do to them, that they may each return from his bad way; that I may forgive their guilt and their wrongdoing." 
 Then Jeremiah called Baruch the son of Neriah; and Baruch wrote from the mouth of Jeremiah all God's words, which he had spoken to him, on a scroll of a book. 
 Jeremiah commanded Baruch, saying, "I am restricted. I can't go into God's house. 
 Therefore you go, and read from the scroll which you have written from my mouth, God's words, in the ears of the people in God's house on the fast day. Also you shall read them in the ears of all Judah who come out of their cities. 

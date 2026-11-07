@@ -1,4 +1,4 @@
-﻿"Woe to the rebellious children", says God, "who take counsel, but not from me; and who make an alliance, but not with my Spirit, that they may add mistake to miss the mark; 
+﻿"Woe to the rebellious children", says God, "who take counsel, but not from me; and who make an alliance, but not with my Spirit, that they may add wrongdoing to wrongdoing; 
 who set out to go down into Egypt without asking for my advice, to strengthen themselves in the strength of Pharaoh, and to take refuge in the shadow of Egypt! 
 Therefore the strength of Pharaoh will be your shame, and the refuge in the shadow of Egypt your confusion. 
 For their princes are at Zoan, and their ambassadors have come to Hanes. 

@@ -15,6 +15,6 @@ Now God raised the Lord, and will also raise us by his power.
 Don't you know that your bodies are members of Christ? Should I then take the members of Christ and make them members of a woman who sleeps around? May it never be! 
 Or don't you know that the one joined to a woman who sleeps around is one body? For, "The two," he says, "will become one flesh." 
 But he who is joined to the Lord is one spirit. 
-Run from sleeping around! "Every mistake a person makes is outside the body," but the one who sleeps around misses the mark against his own body. 
+Run from sleeping around! "Every wrongdoing a person makes is outside the body," but the one who sleeps around wrongs his own body. 
 Or don't you know that your body is a temple of the Holy Spirit who is in you, whom you have from God? You are not your own, 
 for you were bought with a price. Therefore give God weight in your body and in your spirit, which belong to God. 

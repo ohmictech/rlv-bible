@@ -1,12 +1,12 @@
 ﻿See what great love the Father has given us, that we should be called God's children! And that is what we are. That is why the world does not know us: it did not know Him. 
 My truly loved friends, we are God's children now. What we will be has not yet been shown, but we know that when he appears we will be like him, for we will see him just as he is. 
 Everyone who has this expectation set on him makes themselves pure, even as he is pure. 
-Everyone who keeps missing the mark is also living as if there were no law. The mistake is living as if there were no law. 
-You know that he appeared to take away our mistakes, and there is no mistake in him. 
-No one who makes their home in him keeps missing the mark. No one who keeps missing the mark has seen him or known him. 
+Everyone who keeps drifting is also living as if there were no law. The drift is living as if there were no law. 
+You know that he appeared to take away our mistakes, and there is no wrongdoing in him. 
+No one who makes their home in him keeps drifting. No one who keeps drifting has seen him or known him. 
 Dear children, do not let anyone lead you astray. Whoever does what is right is upright, just as he is upright. 
-Whoever keeps missing the mark belongs to the Slanderer, because the Slanderer has been missing the mark from the beginning. The Son of God appeared for this reason: to undo the deeds of the Slanderer. 
-No one who has been born of God keeps on missing the mark, because God's seed makes its home in them, and they cannot keep on missing the mark, because they have been born of God. 
+Whoever keeps drifting belongs to the Slanderer, because the Slanderer has been drifting from the beginning. The Son of God appeared for this reason: to undo the deeds of the Slanderer. 
+No one who has been born of God keeps on drifting, because God's seed makes its home in them, and they cannot keep on drifting, because they have been born of God. 
 This is how God's children and the Slanderer's children are shown for what they are. Anyone who does not do what is right is not God's child, and neither is anyone who does not love their brother or sister. 
 For this is the message which you heard from the beginning: we should love one another. 
 Do not be like Cain, who belonged to the Slanderer and murdered his brother. Why did he murder him? Because his own deeds were bad and his brother's were right. 

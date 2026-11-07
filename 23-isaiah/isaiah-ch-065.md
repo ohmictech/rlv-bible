@@ -17,7 +17,7 @@ so that he who blesses himself on the earth will bless himself in the God of tru
 "For, behold, I create new skies and a new earth; and the former things will not be remembered, nor come into mind. 
 But be glad and rejoice for the eras in that which I create; for, behold, I create Jerusalem to be a delight, and her people a joy. 
 I will rejoice in Jerusalem, and delight in my people; and the voice of weeping and the voice of crying will be heard in her no more. 
-"No more will there be an infant who only lives a few days, nor an old man who has not filled his days; for the child will die one hundred years old, and the one who misses the mark being one hundred years old will be accursed. 
+"No more will there be an infant who only lives a few days, nor an old man who has not filled his days; for the child will die one hundred years old, and the one who drifts being one hundred years old will be accursed. 
 They will build houses and inhabit them. They will plant vineyards and eat their fruit. 
 They will not build and another inhabit. They will not plant and another eat; for the days of my people will be like the days of a tree, and my chosen will long enjoy the work of their hands. 
 They will not labor in vain nor give birth for calamity; for they are the offspring of God's blessed and their descendants with them. 

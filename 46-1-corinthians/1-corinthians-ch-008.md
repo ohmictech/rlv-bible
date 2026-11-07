@@ -9,5 +9,5 @@ But food will not commend us to God. For neither, if we don't eat are we the wor
 But be careful that this freedom of yours doesn't somehow become a stumbling block to the weak. 
 For if a man sees you who have knowledge sitting in an idol's temple, won't his conscience, if he is weak, be emboldened to eat things sacrificed to idols? 
 And through your knowledge, the one who is weak is broken up, the brother for whose sake Christ died. 
-So when you miss the mark against the brothers and sisters, and wound their weak conscience, you are missing the mark against Christ. 
+So when you drift against the brothers and sisters, and wound their weak conscience, you are drifting against Christ. 
 Therefore, if food traps my brother, I will never eat meat again, so that I don't trap my brother. 

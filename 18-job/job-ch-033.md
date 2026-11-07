@@ -24,7 +24,7 @@ Yes, his soul draws near to the pit, and his life to the destroyers.
 then God is gracious to him, and says, 'Deliver him from going down to the pit, I have found a ransom.' 
 His flesh will be fresher than a child's. He returns to the days of his youth. 
 He prays to God, and he is favorable to him, so that he sees his face with joy. He restores to man his righteousness. 
-He sings before men, and says, 'I have missed the mark, and perverted that which was right, and it didn't profit me. 
+He sings before men, and says, 'I have drifted, and perverted that which was right, and it didn't profit me. 
 He has bought back my soul from going into the pit. My life will see the light.' 
 "Behold, God does all these things, twice, yes three times, with a man, 
 to bring back his soul from the pit, that he may be enlightened with the light of the living. 

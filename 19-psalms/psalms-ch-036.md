@@ -1,5 +1,5 @@
 ﻿For the Chief Musician. By David, the servant of God. A revelation is within my heart about the disobedience of the guilty: There is no fear of God before his eyes. 
-For he flatters himself in his own eyes, too much to detect and hate his mistake. 
+For he flatters himself in his own eyes, too much to detect and hate his wrongdoing. 
 The words of his mouth are guilt and deceit. He has ceased to be wise and to do good. 
 He plots guilt on his bed. He sets himself in a way that is not good. He doesn't abhor bad. 
 Your loving kindness, God, is in the sky. Your faithfulness reaches to the skies. 

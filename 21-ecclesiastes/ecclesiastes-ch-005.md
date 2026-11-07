@@ -3,7 +3,7 @@ Don't be rash with your mouth, and don't let your heart be hasty to utter anythi
 For as a dream comes with a multitude of cares, so a fool's speech with a multitude of words. 
 When you vow a vow to God, don't defer to pay it; for he has no pleasure in fools. Pay that which you vow. 
 It is better that you should not vow, than that you should vow and not pay. 
-Don't allow your mouth to lead you into miss the mark. Don't protest before the messenger that this was a mistake. Why should God be angry at your voice, and destroy the work of your hands? 
+Don't allow your mouth to lead you into wrongdoing. Don't protest before the messenger that it was a mistake. Why should God be angry at your voice, and destroy the work of your hands? 
 For in the multitude of dreams there are vanities, as well as in many words; but you must fear God. 
 If you see the oppression of the poor, and the violent taking away of justice and righteousness in a district, don't marvel at the matter, for one official is eyed by a higher one, and there are officials over them. 
 Moreover the profit of the earth is for all. The king profits from the field. 

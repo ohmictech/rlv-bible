@@ -10,7 +10,7 @@ He also spoke this story to certain people who were convinced of their own right
 "Two men went up into the temple to pray; one was a strict religious man, and the other was a tax collector. 
 The strict religious man stood and prayed by himself like this: 'God, I thank you that I am not like the rest of people: robbers, wrongdoers, adulterers, or even like this tax collector. 
 I go without food twice a week. I give tithes of all that I get.' 
-But the tax collector, standing far away, wouldn't even lift up his eyes to the sky, but beat his chest, saying, 'God, be merciful to me, a man who misses the mark!' 
+But the tax collector, standing far away, wouldn't even lift up his eyes to the sky, but beat his chest, saying, 'God, be merciful to me, a man who drifts!' 
 I tell you, this man went down to his house made right rather than the other; for everyone who lifts himself up will be humbled, but he who humbles himself will be lifted up." 
 They were also bringing their babies to him, that he might touch them. But when the students saw it, they rebuked them. 
 Jesus called them to him, saying, "Let the little children come to me, and don't stop them, for God's reign belongs to people like these. 

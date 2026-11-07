@@ -23,7 +23,7 @@ You were taught to put off, as far as your former way of life goes, the old pers
 and to be made new in the spirit of your mind, 
 and to put on the new person, created to be like God in true rightness and set-apartness. 
 So put away lying, and let each of you speak the truth with his neighbor, because we are parts of one another. 
-"Be angry, but don't miss the mark." Don't let the sun go down on your temper, 
+"Be angry, but don't drift." Don't let the sun go down on your temper, 
 and don't give the Slanderer an opening. 
 Anyone who has been stealing must steal no more, but must work hard instead, doing something good with his own hands, so that he has something to share with anyone in need. 
 Don't let any rotten talk come out of your mouth, but only what is good and needed to build others up, so that it gives a gift to those who hear. 

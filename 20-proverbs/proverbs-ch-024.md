@@ -6,7 +6,7 @@ A wise man has great power. A knowledgeable man increases strength,
 for by wise guidance you wage your war, and victory is in many advisors. 
 Wisdom is too high for a fool. He doesn't open his mouth in the gate. 
 One who plots to do bad things will be called a schemer. 
-The schemes of folly are mistake. The mocker is detested by men. 
+The schemes of folly are wrongdoing. The mocker is detested by men. 
 If you falter in the time of trouble, your strength is small. 
 Rescue those who are being led away to death! Indeed, hold back those who are staggering to the slaughter! 
 If you say, "Behold, we didn't know this," doesn't he who weighs the hearts consider it? He who keeps your soul, doesn't he know it? Shall he not give to every man according to his work? 

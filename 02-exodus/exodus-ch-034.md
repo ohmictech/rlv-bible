@@ -4,9 +4,9 @@ No one shall come up with you or be seen anywhere on the mountain. Do not let th
 He chiseled two tablets of stone like the first; then Moses rose up early in the morning, and went up to Mount Sinai, as God had commanded him, and took in his hand two stone tablets. 
 God descended in the cloud, and stood with him there, and proclaimed God's name. 
 God passed by before him, and proclaimed, "God! God, a merciful and gracious God, slow to anger, and abundant in loving kindness and truth, 
-keeping loving kindness for thousands, forgiving guilt and disobedience and misses the mark; and who will by no means clear the guilty, visiting the guilt of the fathers on the children, and on the children's children, on the third and on the fourth generation." 
+keeping loving kindness for thousands, forgiving guilt and disobedience and drifts; and who will by no means clear the guilty, visiting the guilt of the fathers on the children, and on the children's children, on the third and on the fourth generation." 
 Moses hurried and bowed his head toward the earth, and worshiped. 
-He said, "If now I have found favor in your sight, Lord, please let the Lord go among us, even though this is a stiff-necked people; pardon our guilt and our mistake, and take us for your inheritance." 
+He said, "If now I have found favor in your sight, Lord, please let the Lord go among us, even though this is a stiff-necked people; pardon our guilt and our wrongdoing, and take us for your inheritance." 
 He said, "Behold, I make a covenant: before all your people I will do marvels, such as have not been worked in all the earth, nor in any nation; and everyone among whom you are shall see the work of God; for it is an awesome thing that I do with you. 
 Observe that which I command you today. Behold, I will drive out before you the Amorite, the Canaanite, the Hittite, the Perizzite, the Hivite, and the Jebusite. 
 Be careful, lest you make a covenant with the inhabitants of the land where you are going, lest it be for a snare among you; 

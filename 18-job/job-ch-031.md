@@ -27,7 +27,7 @@ if I have seen the sun when it shined, or the moon moving in splendor,
 and my heart has been secretly enticed, and my hand threw a kiss from my mouth; 
 this also would be an guilt to be punished by the judges, for I would have denied the God who is above. 
 "If I have rejoiced at the destruction of him who hated me, or lifted up myself when bad found him 
-(I have certainly not allowed my mouth to miss the mark by asking his life with a curse); 
+(I have certainly not allowed my mouth to drift by asking his life with a curse); 
 if the men of my tent have not said, 'Who can find one who has not been filled with his meat?' 
 (the foreigner has not camped in the street, but I have opened my doors to the traveler); 
 if like Adam I have covered my rebellion, by hiding my guilt in my heart, 

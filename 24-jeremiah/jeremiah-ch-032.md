@@ -32,7 +32,7 @@ For this city has been to me a provocation of my anger and of my wrath from the 
 because of all the bad of the children of Israel and of the children of Judah, which they have done to provoke me to anger, they, their kings, their princes, their priests, their spokesmen, the men of Judah, and the inhabitants of Jerusalem. 
 They have turned their backs to me, and not their faces. Although I taught them, rising up early and teaching them, yet they have not listened to receive instruction. 
 But they set their abominations in the house which is called by my name, to defile it. 
-They built the high places of Baal, which are in the valley of the son of Hinnom, to cause their sons and their daughters to pass through fire to Molech, which I didn't command them. It didn't even come into my mind, that they should do this abomination, to cause Judah to miss the mark." 
+They built the high places of Baal, which are in the valley of the son of Hinnom, to cause their sons and their daughters to pass through fire to Molech, which I didn't command them. It didn't even come into my mind, that they should do this abomination, to cause Judah to drift." 
 Now therefore the God of Israel says concerning this city, about which you say, "It is given into the hand of the king of Babylon by the sword, by the famine, and by the pestilence:" 
 "Behold, I will gather them out of all the countries where I have driven them in my anger, and in my wrath, and in great indignation; and I will bring them again to this place. I will cause them to dwell safely. 
 Then they will be my people, and I will be their God. 

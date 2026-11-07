@@ -4,7 +4,7 @@ My people, what have I done to you? How have I burdened you? Answer me!
 For I brought you up out of the land of Egypt, and bought back you out of the house of bondage. I sent before you Moses, Aaron, and Miriam. 
 My people, remember now what Balak king of Moab devised, and what Balaam the son of Beor answered him from Shittim to Gilgal, that you may know the righteous acts of God." 
 How shall I come before God, and bow myself before the exalted God? Shall I come before him with burnt offerings, with calves a year old? 
-Will God be pleased with thousands of rams? With tens of thousands of rivers of oil? Shall I give my firstborn for my disobedience? The fruit of my body for the mistake of my soul? 
+Will God be pleased with thousands of rams? With tens of thousands of rivers of oil? Shall I give my firstborn for my disobedience? The fruit of my body for the wrongdoing of my soul? 
 He has shown you, O man, what is good. What does God require of you, but to act justly, to love mercy, and to walk humbly with your God? 
 God's voice calls to the city, and wisdom fears your name, "Listen to the rod, and he who appointed it. 
 Are there yet treasures of guilt in the house of the guilty, and a short ephah that is accursed? 

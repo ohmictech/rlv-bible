@@ -1,6 +1,6 @@
 ﻿In his days Nebuchadnezzar king of Babylon came up, and Jehoiakim became his servant for three years. Then he turned and rebelled against him. 
 God sent against him bands of the Chaldeans, bands of the Syrians, bands of the Moabites, and bands of the children of Ammon, and sent them against Judah to destroy it, according to God's word which he spoke by his servants the spokesmen. 
-Surely at the commandment of God this came on Judah, to remove them out of his sight for the misses the mark of Manasseh, according to all that he did, 
+Surely at the commandment of God this came on Judah, to remove them out of his sight for the drifts of Manasseh, according to all that he did, 
 and also for the innocent blood that he shed; for he filled Jerusalem with innocent blood, and God would not pardon. 
 Now the rest of the acts of Jehoiakim, and all that he did, aren't they written in the book of the chronicles of the kings of Judah? 
 So Jehoiakim slept with his fathers, and Jehoiachin his son reigned in his place. 

@@ -9,7 +9,7 @@ There is no man who has power over the spirit to contain the spirit; neither doe
 All this I have seen, and applied my mind to every work that is done under the sun. There is a time in which one man has power over another to his hurt. 
 So I saw the guilty buried. Indeed they came also from holiness. They went and were forgotten in the city where they did this. This also is vanity. 
 Because sentence against an bad work is not executed speedily, therefore the heart of the sons of men is fully set in them to do bad things. 
-Though someone who misses the mark commits crimes a hundred times, and lives long, yet surely I know that it will be better with those who fear God, who are reverent before him. 
+Though someone who drifts commits crimes a hundred times, and lives long, yet surely I know that it will be better with those who fear God, who are reverent before him. 
 But it shall not be well with the guilty, neither shall he lengthen days like a shadow, because he doesn't fear God. 
 There is a vanity which is done on the earth, that there are righteous men to whom it happens according to the work of the guilty. Again, there are guilty men to whom it happens according to the work of the righteous. I said that this also is vanity. 
 Then I commended mirth, because a man has no better thing under the sun than to eat, to drink, and to be joyful: for that will accompany him in his labor all the days of his life which God has given him under the sun. 

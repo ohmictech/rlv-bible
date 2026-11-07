@@ -15,7 +15,7 @@ But even if you do suffer for doing what is right, you are flourishing. "Do not 
 But set apart the Lord, the Christ, as holy in your hearts. Always be ready to give an answer to anyone who asks you why you have the expectation you have, but do it gently and with respect, 
 and keep a clean conscience. Then those who slander your good way of life in Christ may be put to shame for the way they speak against you. 
 For it is better, if God wills it, to suffer for doing good than for doing evil. 
-For Christ also suffered for mistakes once and for all, the upright one for the wrongdoers, to bring you to God. He was put to death in the body, but made alive in the Spirit, 
+For Christ also suffered for wrongdoing once and for all, the upright one for the wrongdoers, to bring you to God. He was put to death in the body, but made alive in the Spirit, 
 in whom he also went and announced the message to the spirits in prison, 
 to those who long ago refused to obey, while God waited patiently in the days of Noah, while the boat was being built. In it, only a few people, eight in all, were rescued through water. 
 That water is a picture of immersion, which now rescues you, not by washing dirt off the body, but by the pledge of a clean conscience toward God, through the rising again of Jesus Christ, 

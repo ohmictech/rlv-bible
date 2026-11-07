@@ -22,9 +22,9 @@ Listen to the petitions of your servant and of your people Israel, when they pra
 "If a man wrongs his neighbor, and an oath is laid on him to cause him to swear, and he comes and swears before your altar in this house, 
 then hear from the sky, act, and judge your servants, bringing retribution to the guilty, to bring his way on his own head; and justifying the righteous, to give him according to his righteousness. 
 "If your people Israel are struck down before the enemy because they have wronged you, and they turn again and confess your name, and pray and make supplication before you in this house, 
-then hear from the sky, and forgive the mistake of your people Israel, and bring them again to the land which you gave to them and to their fathers. 
-"When the sky is shut up and there is no rain because they have wronged you, if they pray toward this place and confess your name, and turn from their mistake when you afflict them, 
-then hear in the sky, and forgive the mistake of your servants, your people Israel, when you teach them the good way in which they should walk, and send rain on your land, which you have given to your people for an inheritance. 
+then hear from the sky, and forgive the wrongdoing of your people Israel, and bring them again to the land which you gave to them and to their fathers. 
+"When the sky is shut up and there is no rain because they have wronged you, if they pray toward this place and confess your name, and turn from their wrongdoing when you afflict them, 
+then hear in the sky, and forgive the wrongdoing of your servants, your people Israel, when you teach them the good way in which they should walk, and send rain on your land, which you have given to your people for an inheritance. 
 "If there is famine in the land, if there is pestilence, if there is blight or mildew, locust or caterpillar; if their enemies besiege them in the land of their cities; whatever plague or whatever sickness there is 
 whatever prayer and supplication is made by any man, or by all your people Israel, who will each know his own plague and his own sorrow, and shall spread out his hands toward this house, 
 then hear from the sky your dwelling place and forgive, and give to every man according to all his ways, whose heart you know (for you, even you only, know the hearts of the children of men), 
@@ -33,8 +33,8 @@ that they may fear you, to walk in your ways as long as they live in the land wh
 then hear from the sky, even from your dwelling place, and do according to all that the foreigner calls to you for; that everyones of the earth may know your name and fear you, as do your people Israel, and that they may know that this house which I have built is called by your name. 
 "If your people go out to battle against their enemies, by whatever way you send them, and they pray to you toward this city which you have chosen, and the house which I have built for your name; 
 then hear from the sky their prayer and their supplication, and maintain their cause. 
-"If they wrong you (for there is no man who doesn't miss the mark), and you are angry with them and deliver them to the enemy, so that they carry them away captive to a land far off or near; 
-yet if they come to their senses in the land where they are carried captive, and turn again, and make supplication to you in the land of their captivity, saying, 'We have missed the mark, we have done perversely, and have dealt guiltily;' 
+"If they wrong you (for there is no man who doesn't drift), and you are angry with them and deliver them to the enemy, so that they carry them away captive to a land far off or near; 
+yet if they come to their senses in the land where they are carried captive, and turn again, and make supplication to you in the land of their captivity, saying, 'We have drifted, we have done perversely, and have dealt guiltily;' 
 if they return to you with all their heart and with all their soul in the land of their captivity, where they have been taken captive, and pray toward their land which you gave to their fathers, and the city which you have chosen, and toward the house which I have built for your name; 
 then hear from the sky, even from your dwelling place, their prayer and their petitions, and maintain their cause, and forgive your people who have wronged you. 
 "Now, my God, let, I beg you, your eyes be open, and let your ears be attentive to the prayer that is made in this place. 

@@ -11,7 +11,7 @@ On the twenty-third day of the seventh month, he sent the people away to their t
 Thus Solomon finished God's house and the king's house; and he successfully completed all that came into Solomon's heart to make in God's house and in his own house. 
 Then God appeared to Solomon by night, and said to him, "I have heard your prayer, and have chosen this place for myself for a house of sacrifice. 
 "If I shut up the sky so that there is no rain, or if I command the locust to devour the land, or if I send pestilence among my people, 
-if my people who are called by my name will humble themselves, pray, seek my face, and turn from their guilty ways, then I will hear from the sky, will forgive their mistake, and will heal their land. 
+if my people who are called by my name will humble themselves, pray, seek my face, and turn from their guilty ways, then I will hear from the sky, will forgive their wrongdoing, and will heal their land. 
 Now my eyes will be open and my ears attentive to prayer that is made in this place. 
 For now I have chosen and made this house holy, that my name may be there for the eras; and my eyes and my heart will be there perpetually. 
 "As for you, if you will walk before me as David your father walked, and do according to all that I have commanded you, and will keep my statutes and my ordinances, 

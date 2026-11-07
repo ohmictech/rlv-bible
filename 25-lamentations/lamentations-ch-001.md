@@ -5,7 +5,7 @@ The roads to Zion mourn, because no one comes to the solemn assembly. All her ga
 Her adversaries have become the head. Her enemies prosper; for God has afflicted her for the multitude of her rebellion. Her young children have gone into captivity before the adversary. 
 All majesty has departed from the daughter of Zion. Her princes have become like deer that find no pasture. They have gone without strength before the pursuer. 
 Jerusalem remembers in the days of her affliction and of her miseries all her pleasant things that were from the days of old; when her people fell into the hand of the adversary, and no one helped her. The adversaries saw her. They mocked at her desolations. 
-Jerusalem has grievously missed the mark. Therefore she has become unclean. Everyone who honored her despise her, because they have seen her nakedness. Yes, she sighs and turns backward. 
+Jerusalem has grievously drifted. Therefore she has become unclean. Everyone who honored her despise her, because they have seen her nakedness. Yes, she sighs and turns backward. 
 Her filthiness was in her skirts. She didn't remember her latter end. Therefore she has come down astoundingly. She has no comforter. "See, God, my affliction; for the enemy has magnified himself." 
 The adversary has spread out his hand on all her pleasant things; for she has seen that the nations have entered into her sanctuary, concerning whom you commanded that they should not enter into your assembly. 
 All her people sigh. They seek bread. They have given their pleasant things for food to refresh their soul. "Look, God, and see, for I have become despised." 

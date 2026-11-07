@@ -29,7 +29,7 @@ He let them fall in the middle of their camp, around their habitations.
 So they ate, and were well filled. He gave them their own desire. 
 They didn't turn from their cravings. Their food was yet in their mouths, 
 when the anger of God went up against them, killed some of their strongest, and struck down the young men of Israel. 
-For all this they still missed the mark, and didn't believe in his wondrous works. 
+For all this they still drifted, and didn't believe in his wondrous works. 
 Therefore he consumed their days in vanity, and their years in terror. 
 When he killed them, then they inquired after him. They returned and sought God earnestly. 
 They remembered that God was their rock, the Most High God, the one who buys them back. 

@@ -28,7 +28,7 @@ If I drive out unclean spirits by Beelzebul, by whom do your children drive them
 But if I drive out unclean spirits by the Spirit of God, then God's reign has come upon you. 
 Or how can one enter into the house of the strong man and plunder his goods, unless he first ties up the strong man? Then he will plunder his house. 
 "He who is not with me is against me, and he who doesn't gather with me scatters. 
-Therefore I tell you, every mistake and slander will be released for people, but the slander against the Spirit will not be released for people. 
+Therefore I tell you, every wrongdoing and slander will be released for people, but the slander against the Spirit will not be released for people. 
 Anyone who speaks a word against the Human One will be released for it, but whoever speaks against the Holy Spirit will not be released, either in this era or in the era to come. 
 "Either make the tree good and its fruit good, or make the tree rotten and its fruit rotten, for the tree is known by its fruit. 
 You offspring of vipers, how can you, being malicious, speak good things? For out of the overflow of the heart, the mouth speaks. 

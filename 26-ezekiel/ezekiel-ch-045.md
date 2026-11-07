@@ -14,12 +14,12 @@ The shekel shall be twenty gerahs. Twenty shekels plus twenty-five shekels plus 
 and the set portion of oil, of the bath of oil, one tenth of a bath out of the cor, which is ten baths, even a homer (for ten baths are a homer), 
 and one lamb of the flock out of two hundred, from the well-watered pastures of Israel, for a meal offering, for a burnt offering, and for offerings for wholeness, to make things right for them," says God. 
 "Everyone in the land shall give to this offering for the prince in Israel. 
-It shall be the prince's part to give the burnt offerings, the meal offerings, and the drink offerings, in the feasts, and on the new moons, and on the Sabbaths, in all the appointed feasts of the house of Israel. He shall prepare the offering for mistakes, the meal offering, the burnt offering, and the offerings for wholeness, to make things right for the house of Israel." 
+It shall be the prince's part to give the burnt offerings, the meal offerings, and the drink offerings, in the feasts, and on the new moons, and on the Sabbaths, in all the appointed feasts of the house of Israel. He shall prepare the offering for wrongdoing, the meal offering, the burnt offering, and the offerings for wholeness, to make things right for the house of Israel." 
 "'The God says: "In the first month, on the first day of the month, you shall take a young bull without defect, and you shall cleanse the sanctuary. 
-The priest shall take of the blood of the offering for mistakes and put it on the door posts of the house, and on the four corners of the ledge of the altar, and on the posts of the gate of the inner court. 
+The priest shall take of the blood of the offering for wrongdoing and put it on the door posts of the house, and on the four corners of the ledge of the altar, and on the posts of the gate of the inner court. 
 So you shall do on the seventh day of the month for everyone who errs, and for him who is simple. So you shall make things right for the house. 
 "'"In the first month, on the fourteenth day of the month, you shall have the Passover, a feast of seven days; unleavened bread shall be eaten. 
-On that day the prince shall prepare for himself and for everyone in the land a bull for an offering for mistakes. 
-The seven days of the feast he shall prepare a burnt offering to God, seven bulls and seven rams without defect daily the seven days; and a male goat daily for an offering for mistakes. 
+On that day the prince shall prepare for himself and for everyone in the land a bull for an offering for wrongdoing. 
+The seven days of the feast he shall prepare a burnt offering to God, seven bulls and seven rams without defect daily the seven days; and a male goat daily for an offering for wrongdoing. 
 He shall prepare a meal offering, an ephah for a bull, an ephah for a ram, and a hin of oil to an ephah. 
-"'"In the seventh month, on the fifteenth day of the month, during the feast, he shall do like that for seven days. He shall make the same provision for offering for mistakes, the burnt offering, the meal offering, and the oil." 
+"'"In the seventh month, on the fifteenth day of the month, during the feast, he shall do like that for seven days. He shall make the same provision for offering for wrongdoing, the burnt offering, the meal offering, and the oil." 

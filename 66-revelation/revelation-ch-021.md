@@ -5,7 +5,7 @@ He will wipe away every tear from their eyes. Death will be no more, and there w
 The one sitting on the throne said, "Look, I am making everything new!" And he said, "Write it down, because these words are trustworthy and true." 
 He said to me, "I am the Alpha and the Omega, the beginning and the end. To anyone who is thirsty I will give freely from the spring of the water of real life. 
 The one who wins the victory will be given charge of all this. I will be their God, and they will be my child. 
-But the cowardly, those who refuse to trust, those who keep missing the mark, the hateful, murderers, those who sleep around, drug-magicians, idol worshipers, and all liars, their place is in the lake that burns with fire and sulfur. That is the second death." 
+But the cowardly, those who refuse to trust, those who keep drifting, the hateful, murderers, those who sleep around, drug-magicians, idol worshipers, and all liars, their place is in the lake that burns with fire and sulfur. That is the second death." 
 One of the seven messengers who had the seven bowls full of the seven last plagues came and spoke with me, saying, "Come here. I will show you the bride, the Lamb's wife." 
 He carried me away in the Spirit to a great, high mountain and showed me the holy city, Jerusalem, coming down out of the sky from God. 
 It had God's weight, and its light was like a very precious stone, like jasper, clear as crystal. 

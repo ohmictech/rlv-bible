@@ -64,7 +64,7 @@ Of the priests: the children of Hobaiah, the children of Hakkoz, the children of
 These searched for their genealogical records, but couldn't find them. Therefore they were deemed disqualified and removed from the priesthood. 
 The governor told them not to eat of the most holy things until a priest stood up to minister with Urim and Thummim. 
 The whole assembly together was forty-two thousand three hundred sixty, 
-in addition to their male servants and their female servants, of whom there were seven thousand three hundred thirty-seven. They had two hundred forty-five singing men and misses the markging women. 
+in addition to their male servants and their female servants, of whom there were seven thousand three hundred thirty-seven. They had two hundred forty-five singing men and driftsging women. 
 Their horses were seven hundred thirty-six; their mules, two hundred forty-five; 
 their camels, four hundred thirty-five; their donkeys, six thousand seven hundred twenty. 
 Some from among the heads of fathers' households gave to the work. The governor gave to the treasury one thousand darics of gold, fifty basins, and five hundred thirty priests' garments. 

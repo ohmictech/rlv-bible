@@ -10,7 +10,7 @@ Why have you despised God's word, to do that which is bad in his sight? You have
 Now therefore the sword will never depart from your house, because you have despised me and have taken Uriah the Hittite's wife to be your wife.' 
 "This is what God says: 'Behold, I will raise up bad against you out of your own house; and I will take your wives before your eyes and give them to your neighbor, and he will lie with your wives in the sight of this sun. 
 For you did this secretly, but I will do this thing before all Israel, and before the sun.'" 
-David said to Nathan, "I have wronged God." Nathan said to David, "God also has put away your mistake. You will not die. 
+David said to Nathan, "I have wronged God." Nathan said to David, "God also has put away your wrongdoing. You will not die. 
 However, because by this deed you have given great occasion to God's enemies to blaspheme, the child also who is born to you will surely die." 
 Then Nathan departed to his house. God struck the child that Uriah's wife bore to David, and he was very sick. 
 David therefore begged God for the child; and David fasted, and went in and lay all night on the ground. 

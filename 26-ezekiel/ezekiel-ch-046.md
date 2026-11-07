@@ -17,7 +17,7 @@ Thus they shall prepare the lamb, the meal offering, and the oil, morning by mor
 But if he gives of his inheritance a gift to one of his servants, it shall be his to the year of liberty; then it shall return to the prince; but as for his inheritance, it shall be for his sons. 
 Moreover the prince shall not take of the people's inheritance, to thrust them out of their possession. He shall give inheritance to his sons out of his own possession, that my people not each be scattered from his possession."'" 
 Then he brought me through the entry, which was at the side of the gate, into the holy rooms for the priests, which looked toward the north. Behold, there was a place on the back part westward. 
-He said to me, "This is the place where the priests shall boil the trespass offering and the offering for mistakes, and where they shall bake the meal offering, that they not bring them out into the outer court, to sanctify the people." 
+He said to me, "This is the place where the priests shall boil the trespass offering and the offering for wrongdoing, and where they shall bake the meal offering, that they not bring them out into the outer court, to sanctify the people." 
 Then he brought me out into the outer court and caused me to pass by the four corners of the court; and behold, in every corner of the court there was a court. 
 In the four corners of the court there were courts enclosed, forty cubits long and thirty wide. These four in the corners were the same size. 
 There was a wall around in them, around the four, and boiling places were made under the walls all around. 

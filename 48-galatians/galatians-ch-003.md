@@ -19,7 +19,7 @@ For if the charge handed down comes by the law, it is no longer by promise; but 
 Then why is there the law? It was added because of people stepping over the line, until the offspring should come to whom the promise was made. It was put in place through messengers by the hand of a mediator. 
 Now a mediator isn't for one party only, but God is one. 
 Is the law then against God's promises? Certainly not! For if a law had been given that could make alive, then rightness really would come by the law. 
-But the Scripture locked everything up under the mistake, so that the promise, by trust in Jesus Christ, might be given to those who trust. 
+But the Scripture locked everything up under the drift, so that the promise, by trust in Jesus Christ, might be given to those who trust. 
 But before trust came, we were kept in custody under the law, locked up until the trust that was to come should be unveiled. 
 So the law became our guardian to bring us to Christ, so that we might be made right by trust. 
 But now that trust has come, we are no longer under a guardian. 

@@ -31,12 +31,12 @@ But the strict religious ones and the experts in the law rejected God's purpose 
 "To what then should I compare the people of this generation? What are they like? 
 They are like children who sit in the marketplace and call to one another, saying, 'We piped to you, and you didn't dance. We mourned, and you didn't weep.' 
 For John the Baptist came neither eating bread nor drinking wine, and you say, 'He has an unclean spirit.' 
-The Human One has come eating and drinking, and you say, 'Look, a glutton and a drunkard, a friend of tax collectors and those who miss the mark!' 
+The Human One has come eating and drinking, and you say, 'Look, a glutton and a drunkard, a friend of tax collectors and those who have drifted!' 
 Wisdom is made right by all her children." 
 One of the strict religious ones invited him to eat with him. He entered into the strict religious man's house and sat at the table. 
-Look, a woman in the city who was known as a person who missed the mark, when she learned that he was at the table in the strict religious man's house, brought an alabaster jar of perfume. 
+Look, a woman in the city who was known as a person who drifted, when she learned that he was at the table in the strict religious man's house, brought an alabaster jar of perfume. 
 Standing behind at his feet crying, she began to wet his feet with her tears, and she wiped them with the hair of her head, kissed his feet, and anointed them with the perfume. 
-Now when the strict religious man who had invited him saw it, he said to himself, "This man, if he were a spokesman, would have perceived who and what kind of woman this is who touches him, that she misses the mark." 
+Now when the strict religious man who had invited him saw it, he said to himself, "This man, if he were a spokesman, would have perceived who and what kind of woman this is who touches him, that she drifts." 
 Jesus answered him, "Simon, I have something to say to you." He said, "Teacher, say on." 
 "A certain lender had two debtors. The one owed five hundred silver coins, and the other fifty. 
 When they couldn't pay, he released them both. Which of them therefore will love him most?" 

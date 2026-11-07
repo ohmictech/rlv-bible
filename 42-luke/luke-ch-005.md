@@ -5,7 +5,7 @@ When he had finished speaking, he said to Simon, "Put out into the deep water an
 Simon answered him, "Master, we worked all night and caught nothing; but at your word I will let down the nets." 
 When they had done this, they caught a great number of fish, and their nets were breaking. 
 They signaled to their partners in the other boat, that they should come and help them. They came and filled both boats, so that they began to sink. 
-But Simon Peter, when he saw it, fell down at Jesus' knees, saying, "Get away from me, for I am a man who misses the mark, Lord." 
+But Simon Peter, when he saw it, fell down at Jesus' knees, saying, "Get away from me, for I am a man who drifts, Lord." 
 For he was amazed, and everyone who was with him, at the catch of fish which they had caught; 
 and so also were James and John, the sons of Zebedee, who were partners with Simon. Jesus said to Simon, "Don't be afraid. From now on you will be catching people alive." 
 When they had brought their boats to land, they left everything, and followed him. 
@@ -27,9 +27,9 @@ Amazement took hold on all, and they gave weight to God. They were filled with f
 After these things he went out and saw a tax collector named Levi sitting at the tax collection office, and said to him, "Follow me!" 
 He left everything, and rose up and followed him. 
 Levi made a great feast for him in his house. There was a great crowd of tax collectors and others who were sitting at the table with them. 
-Their Bible teachers and the strict religious ones grumbled against his students, saying, "Why do you eat and drink with the tax collectors and those who miss the mark?" 
+Their Bible teachers and the strict religious ones grumbled against his students, saying, "Why do you eat and drink with the tax collectors and those who have drifted?" 
 Jesus answered them, "Those who are healthy have no need for a doctor, but those who are sick do. 
-I have not come to call the ones in the right, but to call those who miss the mark to a change of heart." 
+I have not come to call the ones in the right, but to call those who have drifted to a change of heart." 
 They said to him, "Why do John's students go without food often and pray, and likewise also the students of the strict religious ones, but yours eat and drink?" 
 He said to them, "Can you make the friends of the bridegroom go without food while the bridegroom is with them? 
 But the days will come when the bridegroom will be taken away from them. Then they will go without food in those days." 

@@ -49,5 +49,5 @@ Jehoshaphat made ships of Tarshish to go to Ophir for gold, but they didn't go, 
 Then Ahaziah the son of Ahab said to Jehoshaphat, "Let my servants go with your servants in the ships." But Jehoshaphat would not. 
 Jehoshaphat slept with his fathers, and was buried with his fathers in his father David's city. Jehoram his son reigned in his place. 
 Ahaziah the son of Ahab began to reign over Israel in Samaria in the seventeenth year of Jehoshaphat king of Judah, and he reigned two years over Israel. 
-He did that which was bad in God's sight, and walked in the way of his father, and in the way of his mother, and in the way of Jeroboam the son of Nebat, in which he made Israel to miss the mark. 
+He did that which was bad in God's sight, and walked in the way of his father, and in the way of his mother, and in the way of Jeroboam the son of Nebat, in which he made Israel to drift. 
 He served Baal and worshiped him, and provoked the God of Israel, to anger in all the ways that his father had done so. 

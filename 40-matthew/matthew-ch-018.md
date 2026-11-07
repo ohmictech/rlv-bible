@@ -12,13 +12,13 @@ For the Human One came to rescue what was lost.
 "What do you think? If a person has one hundred sheep, and one of them wanders off, doesn't he leave the ninety-nine on the mountains and go to look for the one that wandered off? 
 If he finds it, truly I tell you, he celebrates over it more than over the ninety-nine that did not wander off. 
 Even so it is not the will of your Father in the sky that one of these little ones should be lost. 
-"If your brother misses the mark against you, go, show him his fault between you and him alone. If he listens to you, you have gained back your brother. 
+"If your brother wrongs you, go, show him his fault between you and him alone. If he listens to you, you have gained back your brother. 
 But if he doesn't listen, take one or two more with you, so that at the mouth of two or three witnesses every word may be established. 
 If he refuses to listen to them, tell it to the gathering. If he refuses to hear the gathering also, let him be to you as an outsider or a tax collector. 
 Truly I tell you, whatever you forbid on earth will have been forbidden in the sky, and whatever you permit on earth will have been permitted in the sky. 
 Again, truly I tell you, that if two of you agree on earth about anything that they ask, it will be done for them by my Father in the sky. 
 For where two or three are gathered together in my name, there I am among them." 
-Then Peter came and said to him, "Lord, how often will my brother miss the mark against me, and I release him? Up to seven times?" 
+Then Peter came and said to him, "Lord, how often will my brother drift against me, and I release him? Up to seven times?" 
 Jesus said to him, "I don't tell you up to seven times, but up to seventy times seven. 
 Therefore the reign of the sky is like a certain king who wanted to settle accounts with his slaves. 
 When he had begun to settle, one was brought to him who owed him ten thousand bags of silver. 

@@ -36,7 +36,7 @@ He brought me to the north gate, and he measured it according to these measureme
 its lodges, its posts, and its arches. There were windows in it all around. The length was fifty cubits and the width twenty-five cubits. 
 Its posts were toward the outer court. Palm trees were on its posts on this side and on that side. The ascent to it had eight steps. 
 A room with its door was by the posts at the gates. They washed the burnt offering there. 
-In the porch of the gate were two tables on this side and two tables on that side, on which to kill the burnt offering, the offering for mistakes, and the trespass offering. 
+In the porch of the gate were two tables on this side and two tables on that side, on which to kill the burnt offering, the offering for wrongdoing, and the trespass offering. 
 On the one side outside, as one goes up to the entry of the gate toward the north, were two tables; and on the other side, which belonged to the porch of the gate, were two tables. 
 Four tables were on this side, and four tables on that side, by the side of the gate: eight tables, on which they killed the sacrifices. 
 There were four cut stone tables for the burnt offering, a cubit and a half long, a cubit and a half wide, and one cubit high. They laid the instruments with which they killed the burnt offering and the sacrifice on them. 

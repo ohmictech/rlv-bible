@@ -1,6 +1,6 @@
 ﻿A Psalm by David, for a memorial. God, don't rebuke me in your wrath, neither chasten me in your hot displeasure. 
 For your arrows have pierced me, your hand presses hard on me. 
-There is no soundness in my flesh because of your indignation, neither is there any health in my bones because of my mistake. 
+There is no soundness in my flesh because of your indignation, neither is there any health in my bones because of my wrongdoing. 
 For my guilt have gone over my head. As a heavy burden, they are too heavy for me. 
 My wounds are loathsome and corrupt because of my foolishness. 
 I am in pain and bowed down greatly. I go mourning all day long. 
@@ -15,7 +15,7 @@ Yes, I am as a man who doesn't hear, in whose mouth are no reproofs.
 For I hope in you, God. You will answer, Lord my God. 
 For I said, "Don't let them gloat over me, or exalt themselves over me when my foot slips." 
 For I am ready to fall. My pain is continually before me. 
-For I will declare my guilt. I will be sorry for my mistake. 
+For I will declare my guilt. I will be sorry for my wrongdoing. 
 But my enemies are vigorous and many. Those who hate me without reason are numerous. 
 They who give bad for good are also adversaries to me, because I follow what is good. 
 Don't forsake me, God. My God, don't be far from me. 

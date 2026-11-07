@@ -17,13 +17,13 @@ Don't be overly righteous, neither make yourself overly wise. Why should you des
 Don't be too guilty, neither be foolish. Why should you die before your time? 
 It is good that you should take hold of this. Yes, also don't withdraw your hand from that; for he who fears God will come out of them all. 
 Wisdom is a strength to the wise man more than ten rulers who are in a city. 
-Surely there is not a righteous man on earth who does good and doesn't miss the mark. 
+Surely there is not a righteous man on earth who does good and doesn't drift. 
 Also don't take heed to all words that are spoken, lest you hear your servant curse you; 
 for often your own heart knows that you yourself have likewise cursed others. 
 All this I have proved in wisdom. I said, "I will be wise;" but it was far from me. 
 That which is, is far off and exceedingly deep. Who can find it out? 
 I turned around, and my heart sought to know and to search out, and to seek wisdom and the scheme of things, and to know that guilt is stupidity, and that foolishness is madness. 
-I find more bitter than death the woman whose heart is snares and traps, whose hands are chains. Whoever pleases God shall escape from her; but the one who misses the mark will be ensnared by her. 
+I find more bitter than death the woman whose heart is snares and traps, whose hands are chains. Whoever pleases God shall escape from her; but the one who drifts will be ensnared by her. 
 "Behold, I have found this," says the Preacher, "to one another, to find an explanation 
 which my soul still seeks, but I have not found. I have found one man among a thousand, but I have not found a woman among all those. 
 Behold, I have only found this: that God made mankind upright; but they search for many inventions." 

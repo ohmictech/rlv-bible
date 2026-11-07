@@ -4,14 +4,14 @@ They have also surrounded me with words of hatred, and fought against me without
 In return for my love, they are my adversaries; but I am in prayer. 
 They have rewarded me bad for good, and hatred for my love. 
 Set a guilty man over him. Let an adversary stand at his right hand. 
-When he is judged, let him come out guilty. Let his prayer be turned into miss the mark. 
+When he is judged, let him come out guilty. Let his prayer be turned into drift. 
 Let his days be few. Let another take his office. 
 Let his children be fatherless, and his wife a widow. 
 Let his children be wandering beggars. Let them be sought from their ruins. 
 Let the creditor seize all that he has. Let strangers plunder the fruit of his labor. 
 Let there be no one to extend kindness to him, neither let there be anyone to have pity on his fatherless children. 
 Let his posterity be cut off. In the generation following let their name be blotted out. 
-Let the guilt of his fathers be remembered by God. Don't let the mistake of his mother be blotted out. 
+Let the guilt of his fathers be remembered by God. Don't let the wrongdoing of his mother be blotted out. 
 Let them be before God continually, that he may cut off their memory from the earth; 
 because he didn't remember to show kindness, but persecuted the poor and needy man, the broken in heart, to kill them. 
 Yes, he loved cursing, and it came to him. He didn't delight in blessing, and it was far from him. 

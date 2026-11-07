@@ -19,5 +19,5 @@ Let your spring be blessed. Rejoice in the wife of your youth.
 A loving doe and a graceful deer, let her breasts satisfy you at all times. Be captivated always with her love. 
 For why should you, my son, be captivated with an adulteress? Why embrace the bosom of another? 
 For the ways of man are before God's eyes. He examines all his paths. 
-The bad deeds of the guilty ensnare him. The cords of his mistake hold him firmly. 
+The bad deeds of the guilty ensnare him. The cords of his wrongdoing hold him firmly. 
 He will die for lack of instruction. In the greatness of his folly, he will go astray. 

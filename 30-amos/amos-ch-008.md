@@ -5,10 +5,10 @@ Hear this, you who desire to swallow up the needy, and cause the poor of the lan
 saying, 'When will the new moon be gone, that we may sell grain? And the Sabbath, that we may market wheat, making the ephah small, and the shekel large, and dealing falsely with balances of deceit; 
 that we may buy the poor for silver, and the needy for a pair of sandals, and sell the sweepings with the wheat?'" 
 God has sworn by the pride of Jacob, "Surely I will never forget any of their works. 
-Won't the land tremble for this, and everyone mourn who dwells in it? Yes, it will rise up wholly like the River; and it will be stirred up and misses the markk again, like the River of Egypt. 
+Won't the land tremble for this, and everyone mourn who dwells in it? Yes, it will rise up wholly like the River; and it will be stirred up and driftsk again, like the River of Egypt. 
 It will happen in that day," says God, "that I will cause the sun to go down at noon, and I will darken the earth in the clear day. 
 I will turn your feasts into mourning, and all your songs into lamentation; and I will make you wear sackcloth on all your bodies, and baldness on every head. I will make it like the mourning for an only son, and its end like a bitter day. 
 Behold, the days come," says God, "that I will send a famine in the land, not a famine of bread, nor a thirst for water, but of hearing God's words. 
 They will wander from sea to sea, and from the north even to the east; they will run back and forth to seek God's word, and will not find it. 
 In that day the beautiful virgins and the young men will faint for thirst. 
-Those who swear by the mistake of Samaria, and say, 'As your god, Dan, lives,' and, 'As the way of Beersheba lives,' they will fall, and never rise up again." 
+Those who swear by the wrongdoing of Samaria, and say, 'As your god, Dan, lives,' and, 'As the way of Beersheba lives,' they will fall, and never rise up again." 

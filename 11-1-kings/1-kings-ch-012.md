@@ -27,7 +27,7 @@ Jeroboam said in his heart, "Now the kingdom will return to David's house.
 If this people goes up to offer sacrifices in God's house at Jerusalem, then the heart of this people will turn again to their lord, even to Rehoboam king of Judah; and they will kill me, and return to Rehoboam king of Judah." 
 So the king took counsel, and made two calves of gold; and he said to them, "It is too much for you to go up to Jerusalem. Look and behold your gods, Israel, which brought you up out of the land of Egypt!" 
 He set the one in Bethel, and the other he put in Dan. 
-This thing became a mistake, for the people went even as far as Dan to worship before the one there. 
+This thing became a cause of drift, for the people went even as far as Dan to worship before the one there. 
 He made houses of high places, and made priests from among everyone, who were not of the sons of Levi. 
 Jeroboam ordained a feast in the eighth month, on the fifteenth day of the month, like the feast that is in Judah, and he went up to the altar. He did so in Bethel, sacrificing to the calves that he had made, and he placed in Bethel the priests of the high places that he had made. 
 He went up to the altar which he had made in Bethel on the fifteenth day in the eighth month, even in the month which he had devised of his own heart; and he ordained a feast for the children of Israel, and went up to the altar to burn incense. 

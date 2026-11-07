@@ -1,4 +1,4 @@
-﻿Praise God, for it is good to miss the markg praises to our God; for it is pleasant and fitting to praise him. 
+﻿Praise God, for it is good to driftg praises to our God; for it is pleasant and fitting to praise him. 
 God builds up Jerusalem. He gathers together the outcasts of Israel. 
 He heals the broken in heart, and binds up their wounds. 
 He counts the number of the stars. He calls them all by their names. 

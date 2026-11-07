@@ -26,9 +26,9 @@ As soon as he had finished offering the burnt offering, Jehu said to the guard a
 They brought out the pillars that were in the house of Baal and burned them. 
 They broke down the pillar of Baal, and broke down the house of Baal, and made it a latrine, to this day. 
 Thus Jehu destroyed Baal out of Israel. 
-However, Jehu didn't depart from the misses the mark of Jeroboam the son of Nebat, with which he made Israel to miss the mark, the golden calves that were in Bethel and that were in Dan. 
+However, Jehu didn't depart from the drifts of Jeroboam the son of Nebat, with which he made Israel to drift, the golden calves that were in Bethel and that were in Dan. 
 God said to Jehu, "Because you have done well in executing that which is right in my eyes, and have done to Ahab's house according to all that was in my heart, your descendants shall sit on the throne of Israel to the fourth generation." 
-But Jehu took no heed to walk in the law of the God of Israel, with all his heart. He didn't depart from the misses the mark of Jeroboam, with which he made Israel to miss the mark. 
+But Jehu took no heed to walk in the law of the God of Israel, with all his heart. He didn't depart from the drifts of Jeroboam, with which he made Israel to drift. 
 In those days God began to cut away parts of Israel; and Hazael struck them in all the borders of Israel 
 from the Jordan eastward, all the land of Gilead, the Gadites, and the Reubenites, and the Manassites, from Aroer, which is by the valley of the Arnon, even Gilead and Bashan. 
 Now the rest of the acts of Jehu, and all that he did, and all his might, aren't they written in the book of the chronicles of the kings of Israel? 

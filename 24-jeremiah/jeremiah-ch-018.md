@@ -20,4 +20,4 @@ Give heed to me, God, and listen to the voice of those who contend with me.
 Should bad be recompensed for good? For they have dug a pit for my soul. Remember how I stood before you to speak good for them, to turn away your wrath from them. 
 Therefore deliver up their children to the famine, and give them over to the power of the sword. Let their wives become childless and widows. Let their men be killed and their young men struck by the sword in battle. 
 Let a cry be heard from their houses when you bring a troop suddenly on them; for they have dug a pit to take me and hidden snares for my feet. 
-Yet, God, you know all their counsel against me to kill me. Don't forgive their guilt. Don't blot out their mistake from your sight, Let them be overthrown before you. Deal with them in the time of your anger. 
+Yet, God, you know all their counsel against me to kill me. Don't forgive their guilt. Don't blot out their wrongdoing from your sight, Let them be overthrown before you. Deal with them in the time of your anger. 

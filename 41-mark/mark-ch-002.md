@@ -12,9 +12,9 @@ But so that you may know that the Human One has authority on earth to release mi
 He got up, and immediately took the mat and went out in front of them all, so that they were all amazed and gave weight to God, saying, "We never saw anything like this!" 
 He went out again by the seashore. All the crowd came to him, and he taught them. 
 As he passed by, he saw Levi the son of Alphaeus sitting at the tax collection office. He said to him, "Follow me." And he got up and followed him. 
-He was at the table in his house, and many tax collectors and those who miss the mark sat down with Jesus and his students, for there were many, and they followed him. 
-The Bible teachers and the strict religious ones, when they saw that he was eating with those who miss the mark and tax collectors, said to his students, "Why does he eat and drink with tax collectors and those who miss the mark?" 
-When Jesus heard it, he said to them, "Those who are healthy have no need for a doctor, but those who are sick do. I came not to call the ones in the right, but to call those who miss the mark to a change of heart." 
+He was at the table in his house, and many tax collectors and those who have drifted sat down with Jesus and his students, for there were many, and they followed him. 
+The Bible teachers and the strict religious ones, when they saw that he was eating with those who have drifted and tax collectors, said to his students, "Why does he eat and drink with tax collectors and those who have drifted?" 
+When Jesus heard it, he said to them, "Those who are healthy have no need for a doctor, but those who are sick do. I came not to call the ones in the right, but to call those who have drifted to a change of heart." 
 John's students and the strict religious ones were going without food, and they came and asked him, "Why do John's students and the students of the strict religious ones go without food, but your students don't?" 
 Jesus said to them, "Can the groomsmen go without food while the bridegroom is with them? As long as they have the bridegroom with them, they can't go without food. 
 But the days will come when the bridegroom will be taken away from them, and then, on that day, they will go without food. 

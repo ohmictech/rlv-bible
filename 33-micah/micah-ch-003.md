@@ -5,7 +5,7 @@ Then they will cry to God, but he will not answer them. Yes, he will hide his fa
 God says concerning the spokesmen who lead my people astray, for those who feed their teeth, they proclaim, "Peace!" and whoever doesn't provide for their mouths, they prepare war against him: 
 "Therefore night is over you, with no vision, and it is dark to you, that you may not divine; and the sun will go down on the spokesmen, and the day will be black over them. 
 The seers shall be disappointed, and the diviners confounded. Yes, they shall all cover their lips, for there is no answer from God." 
-But as for me, I am full of power by God's Spirit, and of judgment, and of might, to declare to Jacob his disobedience, and to Israel his mistake. 
+But as for me, I am full of power by God's Spirit, and of judgment, and of might, to declare to Jacob his disobedience, and to Israel his wrongdoing. 
 Please listen to this, you heads of the house of Jacob, and rulers of the house of Israel, who abhor justice, and pervert all equity, 
 who build up Zion with blood, and Jerusalem with guilt. 
 Her leaders judge for bribes, and her priests teach for a price, and her spokesmen tell fortunes for money; yet they lean on God, and say, "Isn't God among us? No disaster will come on us." 

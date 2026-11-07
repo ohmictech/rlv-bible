@@ -9,7 +9,7 @@ but to those who are self-seeking and don't obey the truth, but obey wrong, will
 pressure, and anguish on every person who does bad, to the Jewish person first, and also to the Greek. 
 But weight, honor, and wholeness go to every person who does good, to the Jewish person first, and also to the Greek. 
 For there is no partiality with God. 
-For as many as have missed the mark without the law will also be broken up without the law. As many as have missed the mark under the law will be judged by the law. 
+For as many as have drifted without the law will also be broken up without the law. As many as have drifted under the law will be judged by the law. 
 For it isn't the hearers of the law who are right before God, but the doers of the law will be made right 
 (for when the nations who don't have the law do by nature the things of the law, these, not having the law, are a law to themselves, 
 in that they show the deed of the law written in their hearts, their conscience witnessing with them, and their thoughts among themselves accusing or else excusing them) 

@@ -4,7 +4,7 @@ He shall offer all of its fat: the fat tail, and the fat that covers the innards
 and he shall take away the two kidneys, and the fat that is on them, which is by the loins, and the cover on the liver, with the kidneys; 
 and the priest shall burn them on the altar for an offering made by fire to God: it is a trespass offering. 
 Every male among the priests may eat of it. It shall be eaten in a holy place. It is most holy. 
-"'As is the offering for mistakes, so is the trespass offering; there is one law for them. The priest who makes things right with them shall have it. 
+"'As is the offering for wrongdoing, so is the trespass offering; there is one law for them. The priest who makes things right with them shall have it. 
 The priest who offers any man's burnt offering shall have for himself the skin of the burnt offering which he has offered. 
 Every meal offering that is baked in the oven, and all that is prepared in the pan and on the griddle, shall be the priest's who offers it. 
 Every meal offering, mixed with oil or dry, belongs to all the sons of Aaron, one as well as another. 
@@ -34,5 +34,5 @@ He among the sons of Aaron who offers the blood of the offerings for wholeness, 
 For the waved breast and the heaved thigh I have taken from the children of Israel out of the sacrifices of their offerings for wholeness, and have given them to Aaron the priest and to his sons as their portion for the eras from the children of Israel.'" 
 This is the consecrated portion of Aaron, and the consecrated portion of his sons, out of the offerings of God made by fire, in the day when he presented them to minister to God in the priest's office; 
 which God commanded to be given them of the children of Israel, in the day that he anointed them. It is their portion for the eras throughout their generations. 
-This is the law of the burnt offering, the meal offering, the offering for mistakes, the trespass offering, the consecration, and the sacrifice of offerings for wholeness 
+This is the law of the burnt offering, the meal offering, the offering for wrongdoing, the trespass offering, the consecration, and the sacrifice of offerings for wholeness 
 which God commanded Moses in Mount Sinai in the day that he commanded the children of Israel to offer their offerings to God, in the wilderness of Sinai. 

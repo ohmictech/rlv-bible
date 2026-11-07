@@ -7,7 +7,7 @@ It is he who builds his rooms in the sky, and has founded his vault on the earth
 Are you not like the children of the Ethiopians to me, children of Israel?" says God. "Haven't I brought up Israel out of the land of Egypt, and the Philistines from Caphtor, and the Syrians from Kir? 
 Behold, the eyes of God are on the sinful kingdom, and I will destroy it from off the surface of the earth, except that I will not utterly destroy the house of Jacob," says God. 
 "For behold, I will command, and I will sift the house of Israel among all the nations as grain is sifted in a sieve, yet not the least kernel will fall on the earth. 
-All the those who miss the mark of my people will die by the sword, who say, 'Bad won't overtake nor meet us.' 
+All the those who have drifted of my people will die by the sword, who say, 'Bad won't overtake nor meet us.' 
 In that day I will raise up the tent of David who is fallen and close up its breaches, and I will raise up its ruins, and I will build it as in the days of old, 
 that they may possess the remnant of Edom and all the nations who are called by my name," says God who does this. 
 "Behold, the days come," says God, "that the plowman shall overtake the reaper, and the one treading grapes him who sows seed; and sweet wine will drip from the mountains, and flow from the hills. 

@@ -19,6 +19,6 @@ Yes, even when I am old and gray-haired, God, don't forsake me, until I have dec
 God, your righteousness also reaches to the sky. You have done great things. God, who is like you? 
 You, who have shown us many and bitter troubles, you will let me live. You will bring us up again from the depths of the earth. 
 Increase my honor and comfort me again. 
-I will also praise you with the harp for your faithfulness, my God. I miss the markg praises to you with the lyre, Holy One of Israel. 
+I will also praise you with the harp for your faithfulness, my God. I driftg praises to you with the lyre, Holy One of Israel. 
 My lips shall shout for joy! My soul, which you have bought back, sings praises to you! 
 My tongue will also talk about your righteousness all day long, for they are disappointed, and they are confounded, who want to harm me. 

@@ -4,7 +4,7 @@ He was trying to see who Jesus was, and couldn't because of the crowd, because h
 He ran on ahead and climbed up into a sycamore tree to see him, for he was going to pass that way. 
 When Jesus came to the place, he looked up and saw him, and said to him, "Zacchaeus, hurry and come down, for today I must stay at your house." 
 He hurried, came down, and received him joyfully. 
-When they saw it, they all grumbled, saying, "He has gone in to lodge with a man who misses the mark." 
+When they saw it, they all grumbled, saying, "He has gone in to lodge with a man who drifts." 
 Zacchaeus stood and said to the Lord, "Look, Lord, half of my goods I give to the poor. If I have cheated anyone out of anything, I pay it back four times over." 
 Jesus said to him, "Today, rescue has come to this house, because he also is a son of Abraham. 
 For the Human One came to seek and to rescue that which was lost." 

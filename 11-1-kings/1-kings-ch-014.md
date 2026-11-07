@@ -13,7 +13,7 @@ Arise therefore, and go to your house. When your feet enter into the city, the c
 All Israel will mourn for him and bury him; for he only of Jeroboam will come to the grave, because in him there is found some good thing toward the God of Israel, in the house of Jeroboam. 
 Moreover God will raise up a king for himself over Israel who will cut off the house of Jeroboam. This is the day! What? Even now. 
 For God will strike Israel, as a reed is shaken in the water; and he will root up Israel out of this good land which he gave to their fathers, and will scatter them beyond the River, because they have made their Asherah poles, provoking God to anger. 
-He will give Israel up because of the misses the mark of Jeroboam, which he has missed the mark, and with which he has made Israel to miss the mark." 
+He will give Israel up because of the drifts of Jeroboam, which he has drifted, and with which he has made Israel to drift." 
 Jeroboam's wife arose and departed, and came to Tirzah. As she came to the threshold of the house, the child died. 
 All Israel buried him and mourned for him, according to God's word, which he spoke by his servant Ahijah the spokesman. 
 The rest of the acts of Jeroboam, how he fought and how he reigned, behold, they are written in the book of the chronicles of the kings of Israel. 

@@ -7,7 +7,7 @@ God said to Satan, "Behold, he is in your hand. Only spare his life."
 So Satan went out from the presence of God, and struck Job with painful sores from the sole of his foot to his head. 
 He took for himself a potsherd to scrape himself with, and he sat among the ashes. 
 Then his wife said to him, "Do you still maintain your integrity? Renounce God, and die." 
-But he said to her, "You speak as one of the foolish women would speak. What? Shall we receive good at the hand of God, and shall we not receive bad?" In all this Job didn't miss the mark with his lips. 
+But he said to her, "You speak as one of the foolish women would speak. What? Shall we receive good at the hand of God, and shall we not receive bad?" In all this Job didn't drift with his lips. 
 Now when Job's three friends heard of all this bad that had come on him, they each came from his own place: Eliphaz the Temanite, Bildad the Shuhite, and Zophar the Naamathite; and they made an appointment together to come to sympathize with him and to comfort him. 
 When they lifted up their eyes from a distance, and didn't recognize him, they raised their voices, and wept; and they each tore his robe, and sprinkled dust on their heads toward the sky. 
 So they sat down with him on the ground seven days and seven nights, and no one spoke a word to him, for they saw that his grief was very great. 

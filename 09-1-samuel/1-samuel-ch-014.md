@@ -35,7 +35,7 @@ Saul said, "Disperse yourselves among the people, and tell them, 'Every man brin
 Saul built an altar to God. This was the first altar that he built to God. 
 Saul said, "Let's go down after the Philistines by night, and take plunder among them until the morning light. Let's not leave a man of them." They said, "Do whatever seems good to you." Then the priest said, "Let's draw near here to God." 
 Saul asked counsel of God: "Shall I go down after the Philistines? Will you deliver them into the hand of Israel?" But he didn't answer him that day. 
-Saul said, "Draw near here, all you chiefs of the people, and know and see in whom this mistake has been today. 
+Saul said, "Draw near here, all you chiefs of the people, and know and see in whom this wrongdoing lies today. 
 For as God lives, who saves Israel, though it is in Jonathan my son, he shall surely die." But there was not a man among everyone who answered him. 
 Then he said to all Israel, "You be on one side, and I and Jonathan my son will be on the other side." The people said to Saul, "Do what seems good to you." 
 Therefore Saul said to the God of Israel, "Show the right." Jonathan and Saul were chosen, but the people escaped. 

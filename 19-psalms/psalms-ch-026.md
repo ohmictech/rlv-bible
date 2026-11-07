@@ -6,7 +6,7 @@ I hate the assembly of those who do bad, and will not sit with the guilty.
 I will wash my hands in innocence, so I will go about your altar, God, 
 that I may make the voice of thanksgiving to be heard and tell of all your wondrous deeds. 
 God, I love the habitation of your house, the place where your glory dwells. 
-Don't gather my soul with those who miss the mark, nor my life with bloodthirsty men 
+Don't gather my soul with those who have drifted, nor my life with bloodthirsty men 
 in whose hands is guilt; their right hand is full of bribes. 
 But as for me, I will walk in my integrity. Buy me back, and be merciful to me. 
 My foot stands in an even place. In the congregations I will bless God. 

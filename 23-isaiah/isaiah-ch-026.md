@@ -16,6 +16,6 @@ You have increased the nation, O God. You have increased the nation! You are glo
 God, in trouble they have visited you. They poured out a prayer when your chastening was on them. 
 Just as a woman with child, who draws near the time of her delivery, is in pain and cries out in her pangs, so we have been before you, God. 
 We have been with child. We have been in pain. We gave birth, it seems, only to wind. We have not worked any deliverance on the earth; neither have the inhabitants of the world fallen. 
-Your dead shall live. Their dead bodies shall arise. Awake and misses the markg, you who dwell in the dust; for your dew is like the dew of herbs, and the earth will cast out the departed spirits. 
+Your dead shall live. Their dead bodies shall arise. Awake and driftsg, you who dwell in the dust; for your dew is like the dew of herbs, and the earth will cast out the departed spirits. 
 Come, my people, enter into your rooms, and shut your doors behind you. Hide yourself for a little moment, until the indignation is past. 
 For, behold, God comes out of his place to punish the inhabitants of the earth for their guilt. The earth also will disclose her blood, and will no longer cover her slain. 

@@ -1,7 +1,7 @@
 ﻿God's word came to me again, saying, 
 "What do you mean, that you use this proverb concerning the land of Israel, saying, 'The fathers have eaten sour grapes, and the children's teeth are set on edge'? 
 "As I live," says God, "you shall not use this proverb any more in Israel. 
-Behold, all souls are mine; as the soul of the father, so also the soul of the son is mine. The soul who misses the mark, he shall die. 
+Behold, all souls are mine; as the soul of the father, so also the soul of the son is mine. The soul who drifts, he shall die. 
 "But if a man is just, and does that which is lawful and right, 
 and has not eaten on the mountains, hasn't lifted up his eyes to the idols of the house of Israel, hasn't defiled his neighbor's wife, hasn't come near a woman in her impurity, 
 and has not wronged any, but has restored to the debtor his pledge, has taken nothing by robbery, has given his bread to the hungry, and has covered the naked with a garment; 
@@ -17,11 +17,11 @@ hasn't wronged any, hasn't taken anything to pledge, hasn't taken by robbery, bu
 who has withdrawn his hand from the poor, who hasn't received interest or increase, has executed my ordinances, has walked in my statutes; he shall not die for the guilt of his father. He shall surely live. 
 As for his father, because he cruelly oppressed, robbed his brother, and did that which is not good among his people, behold, he will die in his guilt. 
 "Yet you say, 'Why doesn't the son bear the guilt of the father?' When the son has done that which is lawful and right, and has kept all my statutes, and has done them, he will surely live. 
-The soul who misses the mark, he shall die. The son shall not bear the guilt of the father, neither shall the father bear the guilt of the son. The righteousness of the righteous shall be on him, and the guilt of the guilty shall be on him. 
+The soul who drifts, he shall die. The son shall not bear the guilt of the father, neither shall the father bear the guilt of the son. The righteousness of the righteous shall be on him, and the guilt of the guilty shall be on him. 
 "But if the guilty turns from all his mistakes that he has committed, and keeps all my statutes, and does that which is lawful and right, he shall surely live. He shall not die. 
 None of his rebellion that he has committed will be remembered against him. In his righteousness that he has done, he shall live. 
 Have I any pleasure in the death of the guilty?" says God, "and not rather that he should return from his way, and live? 
-"But when the righteous turns away from his righteousness, and commits guilt, and does according to all the abominations that the guilty man does, should he live? None of his righteous deeds that he has done will be remembered. In his trespass that he has trespassed, and in his mistake that he has missed the mark, in them he shall die. 
+"But when the righteous turns away from his righteousness, and commits guilt, and does according to all the abominations that the guilty man does, should he live? None of his righteous deeds that he has done will be remembered. In his trespass that he has trespassed, and in the wrong he has done, in them he shall die. 
 "Yet you say, 'The way of the Lord is not equal.' Hear now, house of Israel: Is my way not equal? Aren't your ways unequal? 
 When the righteous man turns away from his righteousness, and commits guilt, and dies in it, then he dies in his guilt that he has done. 
 Again, when the guilty man turns away from his guilt that he has committed, and does that which is lawful and right, he will save his soul alive. 

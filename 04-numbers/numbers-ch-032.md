@@ -20,7 +20,7 @@ For we will not inherit with them on the other side of the Jordan and beyond, be
 Moses said to them: "If you will do this thing, if you will arm yourselves to go before God to the war, 
 and every one of your armed men will pass over the Jordan before God until he has driven out his enemies from before him, 
 and the land is subdued before God; then afterward you shall return, and be clear of obligation to God and to Israel. Then this land shall be your possession before God. 
-"But if you will not do so, behold, you have wronged God; and be sure your mistake will find you out. 
+"But if you will not do so, behold, you have wronged God; and be sure your wrongdoing will find you out. 
 Build cities for your little ones, and folds for your sheep; and do that which has proceeded out of your mouth." 
 The children of Gad and the children of Reuben spoke to Moses, saying, "Your servants will do as my lord commands. 
 Our little ones, our wives, our flocks, and all our livestock shall be there in the cities of Gilead; 

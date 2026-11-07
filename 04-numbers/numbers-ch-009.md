@@ -10,7 +10,7 @@ God spoke to Moses, saying,
 "Say to the children of Israel, 'If any man of you or of your generations is unclean by reason of a dead body, or is on a journey far away, he shall still keep the Passover to God. 
 In the second month, on the fourteenth day at evening they shall keep it; they shall eat it with unleavened bread and bitter herbs. 
 They shall leave none of it until the morning, nor break a bone of it. According to all the statute of the Passover they shall keep it. 
-But the man who is clean, and is not on a journey, and fails to keep the Passover, that soul shall be cut off from his people. Because he didn't offer the offering of God in its appointed season, that man shall bear his mistake. 
+But the man who is clean, and is not on a journey, and fails to keep the Passover, that soul shall be cut off from his people. Because he didn't offer the offering of God in its appointed season, that man shall bear his guilt. 
 "'If a foreigner lives among you and desires to keep the Passover to God, then he shall do so according to the statute of the Passover, and according to its ordinance. You shall have one statute, both for the foreigner and for him who is born in the land.'" 
 On the day that the tabernacle was raised up, the cloud covered the tabernacle, even the Tent of the Testimony. At evening it was over the tabernacle, as it were the appearance of fire, until morning. 
 So it was continually. The cloud covered it, and the appearance of fire by night. 

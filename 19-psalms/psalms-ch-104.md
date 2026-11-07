@@ -32,4 +32,4 @@ Let God's glory endure for the eras. Let God rejoice in his works.
 He looks at the earth, and it trembles. He touches the mountains, and they smoke. 
 I will sing to God as long as I live. I will sing praise to my God while I have any being. 
 Let my meditation be sweet to him. I will rejoice in God. 
-Let those who miss the mark be consumed out of the earth. Let the guilty be no more. Bless God, my soul. Praise God! 
+Let those who have drifted be consumed out of the earth. Let the guilty be no more. Bless God, my soul. Praise God! 

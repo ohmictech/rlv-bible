@@ -17,7 +17,7 @@ If anyone who trusts has widows in the family, they should help them, and not le
 The elders who lead well should be counted worthy of double honor, especially those who work hard at speaking and teaching. 
 For the Scripture says, "You shall not muzzle the ox while it treads out the grain," and, "The worker deserves his pay." 
 Don't take up an accusation against an elder unless two or three witnesses bring it. 
-Show those who go on missing the mark their fault in front of everyone, so that the rest may be afraid too. 
+Show those who go on drifting their fault in front of everyone, so that the rest may be afraid too. 
 Before God and Christ Jesus and the chosen messengers, I command you to keep these things without prejudging anyone, and to do nothing out of favoritism. 
 Don't lay hands on anyone in a hurry, and don't share in other people's mistakes. Keep yourself pure. 
 Stop drinking only water; use a little wine for your stomach and for the illnesses you keep having. 

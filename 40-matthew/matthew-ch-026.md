@@ -42,7 +42,7 @@ Stay awake and pray, so that you don't come into testing. The spirit is willing,
 Again he went away a second time and prayed, saying, "My Father, if this cup can't pass away unless I drink it, let what you want be done." 
 He came again and found them sleeping, for their eyes were heavy. 
 He left them again, went away, and prayed a third time, saying the same words. 
-Then he came to his students and said to them, "Are you still sleeping and resting? Look, the time has come, and the Human One is being handed over into the hands of those who miss the mark. 
+Then he came to his students and said to them, "Are you still sleeping and resting? Look, the time has come, and the Human One is being handed over into the hands of those who have drifted. 
 Get up, let's go. Look, the one who hands me over is near." 
 While he was still speaking, look, Judas, one of the twelve, came, and with him a large crowd with swords and clubs, from the chief priests and elders of the people. 
 Now the one handing him over had given them a sign, saying, "Whoever I kiss, he is the one. Seize him." 

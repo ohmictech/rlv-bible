@@ -24,7 +24,7 @@ and traded the weight of the undecaying God for images made to look like a decay
 So God handed them over, in the cravings of their hearts, to uncleanness, so that their bodies were dishonored among themselves; 
 They traded the truth of God for a lie, and worshiped and served the creation rather than its Creator, who is praised for all the eras. Amen. 
 For this reason God handed them over to dishonoring passions. For their women traded the natural function for what is against nature. 
-In the same way the men too left the natural function of the woman and burned in their craving for one another. Men did shameful things with men, and received in themselves the payback their mistake deserved. 
+In the same way the men too left the natural function of the woman and burned in their craving for one another. Men did shameful things with men, and received in themselves the payback their wrongdoing deserved. 
 And just as they did not think it worth holding God in their knowledge, God handed them over to a mind that fails the test, to do things that should not be done; 
 being filled with every kind of wrong, sleeping around, malice, greed, ill will; full of envy, murder, quarreling, deceit, and spite, 
 slanderers, haters of God, insolent, arrogant, boastful, inventors of bad things, disobedient to parents, 

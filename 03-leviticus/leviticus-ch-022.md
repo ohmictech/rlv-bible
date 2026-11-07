@@ -6,7 +6,7 @@ or whoever touches any creeping thing by which he may be made unclean, or a man 
 the person that touches any such shall be unclean until the evening, and shall not eat of the holy things unless he bathes his body in water. 
 When the sun is down, he shall be clean; and afterward he shall eat of the holy things, because it is his bread. 
 He shall not eat that which dies of itself or is torn by animals, defiling himself by it. I am God. 
-"'They shall therefore follow my commandment, lest they bear mistake for it and die in it, if they profane it. I am God who sanctifies them. 
+"'They shall therefore follow my commandment, lest they incur guilt for it and die in it, if they profane it. I am God who sanctifies them. 
 "'No stranger shall eat of the holy thing: a foreigner living with the priests, or a hired servant, shall not eat of the holy thing. 
 But if a priest buys a slave, purchased by his money, he shall eat of it; and those who are born in his house shall eat of his bread. 
 If a priest's daughter is married to an outsider, she shall not eat of the heave offering of the holy things. 

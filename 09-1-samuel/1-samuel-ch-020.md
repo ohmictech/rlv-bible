@@ -1,4 +1,4 @@
-﻿David fled from Naioth in Ramah, and came and said to Jonathan, "What have I done? What is my guilt? What is my mistake before your father, that he seeks my life?" 
+﻿David fled from Naioth in Ramah, and came and said to Jonathan, "What have I done? What is my guilt? What is my wrongdoing before your father, that he seeks my life?" 
 He said to him, "Far from it; you will not die. Behold, my father does nothing either great or small, but that he discloses it to me. Why would my father hide this thing from me? It is not so." 
 David swore moreover, and said, "Your father knows well that I have found favor in your eyes; and he says, 'Don't let Jonathan know this, lest he be grieved;' but truly as God lives, and as your soul lives, there is but a step between me and death." 
 Then Jonathan said to David, "Whatever your soul desires, I will even do it for you." 

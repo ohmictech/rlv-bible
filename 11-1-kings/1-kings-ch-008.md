@@ -31,9 +31,9 @@ Listen to the supplication of your servant, and of your people Israel, when they
 "If a man wrongs his neighbor, and an oath is laid on him to cause him to swear, and he comes and swears before your altar in this house, 
 then hear in the sky, and act, and judge your servants, condemning the guilty, to bring his way on his own head, and justifying the righteous, to give him according to his righteousness. 
 "When your people Israel are struck down before the enemy because they have wronged you, if they turn again to you and confess your name, and pray and make supplication to you in this house, 
-then hear in the sky, and forgive the mistake of your people Israel, and bring them again to the land which you gave to their fathers. 
-"When the sky is shut up and there is no rain because they have wronged you, if they pray toward this place and confess your name, and turn from their mistake when you afflict them, 
-then hear in the sky, and forgive the mistake of your servants, and of your people Israel, when you teach them the good way in which they should walk; and send rain on your land which you have given to your people for an inheritance. 
+then hear in the sky, and forgive the wrongdoing of your people Israel, and bring them again to the land which you gave to their fathers. 
+"When the sky is shut up and there is no rain because they have wronged you, if they pray toward this place and confess your name, and turn from their wrongdoing when you afflict them, 
+then hear in the sky, and forgive the wrongdoing of your servants, and of your people Israel, when you teach them the good way in which they should walk; and send rain on your land which you have given to your people for an inheritance. 
 "If there is famine in the land, if there is pestilence, if there is blight, mildew, locust or caterpillar; if their enemy besieges them in the land of their cities, whatever plague, whatever sickness there is, 
 whatever prayer and supplication is made by any man, or by all your people Israel, who shall each know the plague of his own heart, and spread out his hands toward this house, 
 then hear in the sky, your dwelling place, and forgive, and act, and give to every man according to all his ways, whose heart you know (for you, even you only, know the hearts of all the children of men); 
@@ -43,8 +43,8 @@ that they may fear you all the days that they live in the land which you gave to
 hear in the sky, your dwelling place, and do according to all that the foreigner calls to you for; that everyones of the earth may know your name, to fear you, as do your people Israel, and that they may know that this house which I have built is called by your name. 
 "If your people go out to battle against their enemy, by whatever way you shall send them, and they pray to God toward the city which you have chosen, and toward the house which I have built for your name, 
 then hear in the sky their prayer and their supplication, and maintain their cause. 
-If they wrong you (for there is no man who doesn't miss the mark), and you are angry with them and deliver them to the enemy, so that they carry them away captive to the land of the enemy, far off or near; 
-yet if they repent in the land where they are carried captive, and turn again, and make supplication to you in the land of those who carried them captive, saying, 'We have missed the mark and have done perversely; we have dealt guiltily,' 
+If they wrong you (for there is no man who doesn't drift), and you are angry with them and deliver them to the enemy, so that they carry them away captive to the land of the enemy, far off or near; 
+yet if they repent in the land where they are carried captive, and turn again, and make supplication to you in the land of those who carried them captive, saying, 'We have drifted and have done perversely; we have dealt guiltily,' 
 if they return to you with all their heart and with all their soul in the land of their enemies who carried them captive, and pray to you toward their land which you gave to their fathers, the city which you have chosen and the house which I have built for your name, 
 then hear their prayer and their supplication in the sky, your dwelling place, and maintain their cause; 
 and forgive your people who have wronged you, and all their rebellion in which they have transgressed against you; and give them compassion before those who carried them captive, that they may have compassion on them 

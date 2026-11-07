@@ -15,6 +15,6 @@ which my lips promised, and my mouth spoke, when I was in distress.
 I will offer to you burnt offerings of fat animals, with the offering of rams, I will offer bulls with goats. Selah. 
 Come and hear, all you who fear God. I will declare what he has done for my soul. 
 I cried to him with my mouth. He was extolled with my tongue. 
-If I cherished mistake in my heart, the Lord wouldn't have listened. 
+If I cherished wrongdoing in my heart, the Lord wouldn't have listened. 
 But most certainly, God has listened. He has heard the voice of my prayer. 
 Blessed be God, who has not turned away my prayer, nor his loving kindness from me. 

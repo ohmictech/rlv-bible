@@ -34,4 +34,4 @@ Shall his recompense be as you desire, that you refuse it? For you must choose, 
 Men of understanding will tell me, yes, every wise man who hears me: 
 'Job speaks without knowledge. His words are without wisdom.' 
 I wish that Job were tried to the end, because of his answering like guilty men. 
-For he adds rebellion to his mistake. He claps his hands among us, and multiplies his words against God." 
+For he adds rebellion to his wrongdoing. He claps his hands among us, and multiplies his words against God." 

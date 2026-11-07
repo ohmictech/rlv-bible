@@ -46,4 +46,4 @@ Righteous men will judge them with the judgment of adulteresses and with the jud
 "For God says: 'I will bring up a mob against them, and will give them to be tossed back and forth and robbed. 
 The company will stone them with stones and dispatch them with their swords. They will kill their sons and their daughters, and burn up their houses with fire. 
 "'Thus I will cause lewdness to cease out of the land, that all women may be taught not to be lewd like you. 
-They will recompense your lewdness on you, and you will bear the misses the mark of your idols. Then you will know that I am God.'" 
+They will recompense your lewdness on you, and you will bear the drifts of your idols. Then you will know that I am God.'" 

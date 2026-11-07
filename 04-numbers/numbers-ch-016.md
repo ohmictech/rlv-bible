@@ -19,7 +19,7 @@ They each took his censer, and put fire in it, and laid incense on it, and stood
 Korah assembled all the congregation opposite them to the door of the Tent of Meeting. God's glory appeared to all the congregation. 
 God spoke to Moses and to Aaron, saying, 
 "Separate yourselves from among this congregation, that I may consume them in a moment!" 
-They fell on their faces, and said, "the God of the spirits of all flesh, shall one a man misses the mark, and will you be angry with all the congregation?" 
+They fell on their faces, and said, "the God of the spirits of all flesh, shall one a man drifts, and will you be angry with all the congregation?" 
 God spoke to Moses, saying, 
 "Speak to the congregation, saying, 'Get away from around the tent of Korah, Dathan, and Abiram!'" 
 Moses rose up and went to Dathan and Abiram; and the elders of Israel followed him. 

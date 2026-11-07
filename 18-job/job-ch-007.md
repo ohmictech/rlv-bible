@@ -17,5 +17,5 @@ I loathe my life. I don't want to live for the eras. Leave me alone, for my days
 What is man, that you should magnify him, that you should set your mind on him, 
 that you should visit him every morning, and test him every moment? 
 How long will you not look away from me, nor leave me alone until I swallow down my spittle? 
-If I have missed the mark, what do I do to you, you watcher of men? Why have you set me as a mark for you, so that I am a burden to myself? 
+If I have drifted, what do I do to you, you watcher of men? Why have you set me as a mark for you, so that I am a burden to myself? 
 Why do you not pardon my disobedience, and take away my guilt? For now will I lie down in the dust. You will seek me diligently, but I will not be." 

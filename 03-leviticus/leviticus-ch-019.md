@@ -14,12 +14,12 @@ You shall not glean your vineyard, neither shall you gather the fallen grapes of
 "'You shall not curse the deaf, nor put a stumbling block before the blind; but you shall fear your God. I am God. 
 "'You shall do no injustice in judgment. You shall not be partial to the poor, nor show favoritism to the great; but you shall judge your neighbor in righteousness. 
 "'You shall not go around as a slanderer among your people. "'You shall not endanger the life of your neighbor. I am God. 
-"'You shall not hate your brother in your heart. You shall surely rebuke your neighbor, and not bear mistake because of him. 
+"'You shall not hate your brother in your heart. You shall surely rebuke your neighbor, and not incur guilt because of him. 
 "'You shall not take vengeance, nor bear any grudge against the children of your people; but you shall love your neighbor as yourself. I am God. 
 "'You shall keep my statutes. "'You shall not cross-breed different kinds of animals. "'You shall not sow your field with two kinds of seed; "'Don't wear a garment made of two kinds of material. 
 "'If a man lies carnally with a woman who is a slave girl, pledged to be married to another man, and not ransomed or given her freedom; they shall be punished. They shall not be put to death, because she was not free. 
 He shall bring his trespass offering to God, to the door of the Tent of Meeting, even a ram for a trespass offering. 
-The priest shall make things right for him with the ram of the trespass offering before God for his mistake which he has committed; and the mistake which he has committed shall be forgiven him. 
+The priest shall make things right for him with the ram of the trespass offering before God for the wrong he has done; and the wrongdoing he has committed shall be forgiven him. 
 "'When you come into the land, and have planted all kinds of trees for food, then you shall count their fruit as forbidden. For three years it shall be forbidden to you. It shall not be eaten. 
 But in the fourth year all its fruit shall be holy, for giving praise to God. 
 In the fifth year you shall eat its fruit, that it may yield its increase to you. I am your God. 

@@ -1,4 +1,4 @@
-﻿My dear children, I am writing these things so that you will not miss the mark. But if anyone does, we have someone who comes alongside us, with the Father, Jesus Christ, the upright one. 
+﻿My dear children, I am writing these things so that you will not drift. But if anyone does, we have someone who comes alongside us, with the Father, Jesus Christ, the upright one. 
 He is the sacrifice that makes things right for our mistakes, and not only for ours, but for the whole world. 
 This is how we know that we know him: if we keep his commands. 
 Anyone who says, "I know him," but does not keep his commands is a liar, and the truth is not in them. 

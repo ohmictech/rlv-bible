@@ -4,7 +4,7 @@ God listened to the voice of Israel, and delivered up the Canaanites; and they u
 They traveled from Mount Hor by the way to the Red Sea, to go around the land of Edom. The soul of the people was very discouraged because of the journey. 
 The people spoke against God and against Moses: "Why have you brought us up out of Egypt to die in the wilderness? For there is no bread, there is no water, and our soul loathes this disgusting food!" 
 God sent venomous snakes among the people, and they bit the people. Many people of Israel died. 
-The people came to Moses, and said, "We have missed the mark, because we have spoken against God and against you. Pray to God, that he take away the serpents from us." Moses prayed for the people. 
+The people came to Moses, and said, "We have drifted, because we have spoken against God and against you. Pray to God, that he take away the serpents from us." Moses prayed for the people. 
 God said to Moses, "Make a venomous snake, and set it on a pole. It shall happen that everyone who is bitten, when he sees it, shall live." 
 Moses made a serpent of bronze, and set it on the pole. If a serpent had bitten any man, when he looked at the serpent of bronze, he lived. 
 The children of Israel traveled, and encamped in Oboth. 

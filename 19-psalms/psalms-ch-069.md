@@ -1,5 +1,5 @@
 ﻿For the Chief Musician. To the tune of "Lilies." By David. Save me, God, for the waters have come up to my neck! 
-I miss the markk in deep mire, where there is no foothold. I have come into deep waters, where the floods overflow me. 
+I driftk in deep mire, where there is no foothold. I have come into deep waters, where the floods overflow me. 
 I am weary with my crying. My throat is dry. My eyes fail looking for my God. 
 Those who hate me without a cause are more than the hairs of my head. Those who want to cut me off, being my enemies wrongfully, are mighty. I have to restore what I didn't take away. 
 God, you know my foolishness. My mistakes aren't hidden from you. 

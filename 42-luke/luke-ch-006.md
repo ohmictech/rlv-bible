@@ -29,9 +29,9 @@ bless those who curse you, and pray for those who mistreat you.
 To him who strikes you on the cheek, offer also the other; and from him who takes away your cloak, don't withhold your coat also. 
 Give to everyone who asks you, and don't demand back from him who takes away your goods. 
 "As you would like people to do to you, do the same to them. 
-"If you love those who love you, what credit is that to you? For even those who miss the mark love those who love them. 
-If you do good to those who do good to you, what credit is that to you? For even those who miss the mark do the same. 
-If you lend to those from whom you hope to receive, what credit is that to you? Even those who miss the mark lend to those who miss the mark, to receive back as much. 
+"If you love those who love you, what credit is that to you? For even those who have drifted love those who love them. 
+If you do good to those who do good to you, what credit is that to you? For even those who have drifted do the same. 
+If you lend to those from whom you hope to receive, what credit is that to you? Even those who have drifted lend to those who have drifted, to receive back as much. 
 But love your enemies, and do good, and lend, expecting nothing back; and your earned result will be great, and you will be children of the Most High; for he is kind toward the unthankful and the malicious. 
 "Therefore be merciful, even as your Father is also merciful. 
 Don't pass a verdict, and you won't be judged. Don't sentence, and you won't be sentenced. Set free, and you will be set free. 

@@ -4,7 +4,7 @@ But I am afraid that somehow, just as the snake tricked Eve with his craftiness,
 For if someone comes and announces another Jesus we didn't announce, or if you receive a different spirit you didn't receive, or a different "good news" you didn't accept, you put up with it well enough. 
 For I don't think I am at all behind those super-sent ones. 
 But though I am unskilled in speech, yet I am not unskilled in knowledge. No, in every way we have been revealed to you in all things. 
-Or did I make a mistake by humbling myself so that you might be lifted up, because I announced God's Good News to you free of charge? 
+Or did I do wrong by humbling myself so that you might be lifted up, because I announced God's Good News to you free of charge? 
 I robbed other gatherings, taking pay from them so that I could serve you. 
 When I was present with you and was in need, I wasn't a burden on anyone, for the brothers, when they came from Macedonia, supplied the measure of my need. In everything I kept myself from being burdensome to you, and I will continue to do so. 
 As the truth of Christ is in me, no one will stop me from this pride in the regions of Achaia. 

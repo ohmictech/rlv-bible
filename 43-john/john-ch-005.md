@@ -11,7 +11,7 @@ So the Jewish leaders said to him who was cured, "It is the Sabbath. It is not a
 He answered them, "He who made me well said to me, 'Pick up your mat and walk.'" 
 Then they asked him, "Who is the man who said to you, 'Pick up your mat and walk'?" 
 But the one who was healed didn't know who it was, for Jesus had slipped away into the crowd that was in the place. 
-Afterward Jesus found him in the temple courts and said to him, "Look, you are made well. Stop missing the mark, so that nothing worse happens to you." 
+Afterward Jesus found him in the temple courts and said to him, "Look, you are made well. Stop drifting, so that nothing worse happens to you." 
 The man went away, and told the Jewish leaders that it was Jesus who had made him well. 
 For this cause the Jewish leaders began to hunt Jesus down and tried to kill him, because he did these things on the Sabbath. 
 But Jesus answered them, "My Father is still working, so I am working, too." 

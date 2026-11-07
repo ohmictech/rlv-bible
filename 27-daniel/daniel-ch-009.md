@@ -2,7 +2,7 @@
 in the first year of his reign I, Daniel, understood by the books the number of the years about which God's word came to Jeremiah the spokesman for the accomplishing of the desolations of Jerusalem, even seventy years. 
 I set my face to the Lord God, to seek by prayer and petitions, with fasting and sackcloth and ashes. 
 I prayed to my God, and made confession, and said, "Oh, Lord, the great and dreadful God, who keeps covenant and loving kindness with those who love him and keep his commandments, 
-we have missed the mark, and have dealt perversely, and have done guiltily, and have rebelled, even turning aside from your precepts and from your ordinances. 
+we have drifted, and have dealt perversely, and have done guiltily, and have rebelled, even turning aside from your precepts and from your ordinances. 
 We haven't listened to your servants the spokesmen, who spoke in your name to our kings, our princes, and our fathers, and to everyone in the land. 
 "Lord, righteousness belongs to you, but to us confusion of face, as it is today; to the men of Judah, and to the inhabitants of Jerusalem, and to all Israel, who are near and who are far off, through all the countries where you have driven them, because of their trespass that they have trespassed against you. 
 Lord, to us belongs confusion of face, to our kings, to our princes, and to our fathers, because we have wronged you. 
@@ -12,12 +12,12 @@ Yes, all Israel have transgressed your law, turning aside, and not obeying your 
 He has confirmed his words, which he spoke against us and against our judges who judged us, by bringing on us a great bad; for under the whole sky, such has not been done as has been done to Jerusalem. 
 As it is written in the law of Moses, all this bad has come on us. Yet we have not entreated the favor of our God, that we should turn from our guilt and have discernment in your truth. 
 Therefore God has watched over the bad, and brought it on us; for our God is righteous in all his works which he does, and we have not obeyed his voice. 
-"Now, Lord our God, who has brought your people out of the land of Egypt with a mighty hand, and have gotten yourself renown, as it is today, we have missed the mark. We have done guiltily. 
+"Now, Lord our God, who has brought your people out of the land of Egypt with a mighty hand, and have gotten yourself renown, as it is today, we have drifted. We have done guiltily. 
 Lord, according to all your righteousness, please let your anger and your wrath be turned away from your city Jerusalem, your holy mountain; because for our mistakes and for the guilt of our fathers, Jerusalem and your people have become a reproach to everyone who is around us. 
 "Now therefore, our God, listen to the prayer of your servant and to his petitions, and cause your face to shine on your sanctuary that is desolate, for the Lord's sake. 
 My God, turn your ear and hear. Open your eyes and see our desolations, and the city which is called by your name; for we do not present our petitions before you for our righteousness, but for your great mercies' sake. 
 Lord, hear. Lord, forgive. Lord, listen and do. Don't defer, for your own sake, my God, because your city and your people are called by your name." 
-While I was speaking, praying, and confessing my mistake and the mistake of my people Israel, and presenting my supplication before my God for the holy mountain of my God 
+While I was speaking, praying, and confessing my wrongdoing and the wrongdoing of my people Israel, and presenting my supplication before my God for the holy mountain of my God 
 yes, while I was speaking in prayer, the man Gabriel, whom I had seen in the vision at the beginning, being caused to fly swiftly, touched me about the time of the evening offering. 
 He instructed me and talked with me, and said, "Daniel, I have now come to give you wisdom and understanding. 
 At the beginning of your petitions the commandment went out, and I have come to tell you, for you are greatly beloved. Therefore consider the matter and understand the vision. 

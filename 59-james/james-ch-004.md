@@ -5,7 +5,7 @@ You who cheat on God! Don't you know that loving the world means hating God? Any
 Or do you think the Scripture says for nothing, "The Spirit he made to live in us longs for us jealously"? 
 But he gives more favor. That is why it says, "God stands against the proud, but gives favor to the humble." 
 So submit to God. Stand against the Slanderer, and he will run from you. 
-Come near to God, and he will come near to you. Wash your hands, you who keep missing the mark. Make your hearts pure, you who are of two minds. 
+Come near to God, and he will come near to you. Wash your hands, you who keep drifting. Make your hearts pure, you who are of two minds. 
 Be miserable, mourn, and weep. Let your laughter turn to mourning and your joy to gloom. 
 Humble yourselves before the Lord, and he will lift you up. 
 Brothers and sisters, don't speak against one another. Anyone who speaks against a brother or sister, or passes a verdict on them, speaks against the law and passes a verdict on the law. And if you pass a verdict on the law, you are not doing the law; you are setting yourself up as its judge. 
@@ -14,4 +14,4 @@ Now listen, you who say, "Today or tomorrow we will go to this city, spend a yea
 You don't even know what will happen tomorrow. For what is your life? You are a mist that appears for a little time and then disappears. 
 Instead, you ought to say, "If the Lord wills it, we will live, and do this or that." 
 But as it is, you brag and take pride in it. All such bragging is evil. 
-So anyone who knows the good they ought to do, and does not do it, that is their mistake. 
+So anyone who knows the good they ought to do, and does not do it, that is their wrongdoing. 

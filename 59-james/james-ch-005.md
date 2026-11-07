@@ -17,4 +17,4 @@ Confess your mistakes to one another, and pray for one another, so that you may 
 Elijah was a person just like us, and he prayed earnestly that it might not rain, and it didn't rain on the land for three years and six months. 
 Then he prayed again, and the sky gave rain, and the land produced its crop. 
 My brothers and sisters, if anyone among you wanders away from the truth and someone brings them back, 
-remember this: whoever turns a person who keeps missing the mark away from the error of their way will rescue their life from death and will cover over a great many mistakes. 
+remember this: whoever turns a person who keeps drifting away from the error of their way will rescue their life from death and will cover over a great many mistakes. 

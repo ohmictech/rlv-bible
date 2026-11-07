@@ -6,7 +6,7 @@ Ahab said to Obadiah, "Go through the land, to all the springs of water, and to 
 So they divided the land between them to pass throughout it. Ahab went one way by himself, and Obadiah went another way by himself. 
 As Obadiah was on the way, behold, Elijah met him. He recognized him, and fell on his face, and said, "Is it you, my lord Elijah?" 
 He answered him, "It is I. Go, tell your lord, 'Behold, Elijah is here!'" 
-He said, "How have I missed the mark, that you would deliver your servant into the hand of Ahab, to kill me? 
+He said, "How have I drifted, that you would deliver your servant into the hand of Ahab, to kill me? 
 As your God lives, there is no nation or kingdom where my lord has not sent to seek you. When they said, 'He is not here,' he took an oath of the kingdom and nation that they didn't find you. 
 Now you say, 'Go, tell your lord, "Behold, Elijah is here."' 
 It will happen, as soon as I leave you, that God's Spirit will carry you I don't know where; and so when I come and tell Ahab, and he can't find you, he will kill me. But I, your servant, have feared God from my youth. 

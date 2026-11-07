@@ -37,7 +37,7 @@ The men whom Moses sent to spy out the land, who returned and made all the congr
 even those men who brought up an bad report of the land, died by the plague before God. 
 But Joshua the son of Nun and Caleb the son of Jephunneh remained alive of those men who went to spy out the land. 
 Moses told these words to all the children of Israel, and the people mourned greatly. 
-They rose up early in the morning and went up to the top of the mountain, saying, "Behold, we are here, and will go up to the place which God has promised; for we have missed the mark." 
+They rose up early in the morning and went up to the top of the mountain, saying, "Behold, we are here, and will go up to the place which God has promised; for we have drifted." 
 Moses said, "Why now do you disobey the commandment of God, since it shall not prosper? 
 Don't go up, for God isn't among you; that way you won't be struck down before your enemies. 
 For there the Amalekite and the Canaanite are before you, and you will fall by the sword because you turned back from following God; therefore God will not be with you." 

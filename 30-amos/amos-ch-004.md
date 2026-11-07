@@ -1,7 +1,7 @@
 ﻿Listen to this word, you cows of Bashan, who are on the mountain of Samaria, who oppress the poor, who crush the needy, who tell their husbands, "Bring us drinks!" 
 The God has sworn by his holiness, "Behold, the days shall come on you that they will take you away with hooks, and the last of you with fish hooks. 
 You will go out at the breaks in the wall, everyone straight before her; and you will cast yourselves into Harmon," says God. 
-"Go to Bethel, and misses the mark; to Gilgal, and misses the mark more. Bring your sacrifices every morning, your tithes every three days, 
+"Go to Bethel, and drifts; to Gilgal, and drifts more. Bring your sacrifices every morning, your tithes every three days, 
 offer a sacrifice of thanksgiving of that which is leavened, and proclaim free will offerings and brag about them; for this pleases you, you children of Israel," says God. 
 "I also have given you cleanness of teeth in all your cities, and lack of bread in every town; yet you haven't returned to me," says God. 
 "I also have withheld the rain from you, when there were yet three months to the harvest; and I caused it to rain on one city, and caused it not to rain on another city. One field was rained on, and the field where it didn't rain withered. 

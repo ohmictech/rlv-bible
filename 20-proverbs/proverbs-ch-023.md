@@ -14,7 +14,7 @@ Don't withhold correction from a child. If you punish him with the rod, he will 
 Punish him with the rod, and save his soul from Hades. 
 My son, if your heart is wise, then my heart will be glad, even mine. 
 Yes, my heart will rejoice when your lips speak what is right. 
-Don't let your heart envy those who miss the mark, but rather fear God all day long. 
+Don't let your heart envy those who have drifted, but rather fear God all day long. 
 Indeed surely there is a future hope, and your hope will not be cut off. 
 Listen, my son, and be wise, and keep your heart on the right path! 
 Don't be among ones drinking too much wine, or those who gorge themselves on meat; 

@@ -20,7 +20,7 @@ Who is he who will contend with me? For then I would hold my peace and give up t
 "Only don't do two things to me, then I will not hide myself from your face: 
 withdraw your hand far from me, and don't let your terror make me afraid. 
 Then call, and I will answer, or let me speak, and you answer me. 
-How many are my guilt and misses the mark? Make me know my disobedience and my mistake. 
+How many are my wrongdoings and my drift? Make me know my disobedience and my wrongdoing. 
 Why do you hide your face, and consider me your enemy? 
 Will you harass a driven leaf? Will you pursue the dry stubble? 
 For you write bitter things against me, and make me inherit the guilt of my youth. 

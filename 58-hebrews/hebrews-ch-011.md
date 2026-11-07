@@ -22,7 +22,7 @@ By trust Jacob, when he was dying, blessed each of Joseph's sons, and bowed down
 By trust Joseph, when his end was near, spoke about the departure of the people of Israel, and gave instructions concerning his bones. 
 By trust Moses, when he was born, was hidden for three months by his parents, because they saw that he was a beautiful child; and they were not afraid of the king's command. 
 By trust Moses, when he had grown up, refused to be called the son of Pharaoh's daughter, 
-and chose to be treated badly along with God's people rather than enjoy the pleasures of the mistake for a while, 
+and chose to be treated badly along with God's people rather than enjoy the pleasures of the drift for a while, 
 because he considered the shame of Christ greater wealth than the treasures of Egypt; for he kept his eyes on the reward. 
 By trust he left Egypt, not afraid of the king's heat, because he held on, as though he could see the one who cannot be seen. 
 By trust he kept the Passover and the sprinkling of the blood, so that the destroyer of the firstborn would not touch them. 

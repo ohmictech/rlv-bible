@@ -1,24 +1,24 @@
 ﻿On the eighth day, Moses called Aaron and his sons, and the elders of Israel; 
-and he said to Aaron, "Take a calf from the herd for an offering for mistakes, and a ram for a burnt offering, without defect, and offer them before God. 
-You shall speak to the children of Israel, saying, 'Take a male goat for an offering for mistakes; and a calf and a lamb, both a year old, without defect, for a burnt offering; 
+and he said to Aaron, "Take a calf from the herd for an offering for wrongdoing, and a ram for a burnt offering, without defect, and offer them before God. 
+You shall speak to the children of Israel, saying, 'Take a male goat for an offering for wrongdoing; and a calf and a lamb, both a year old, without defect, for a burnt offering; 
 and a bull and a ram for offerings for wholeness, to sacrifice before God; and a meal offering mixed with oil: for today God appears to you.'" 
 They brought what Moses commanded before the Tent of Meeting. All the congregation came near and stood before God. 
 Moses said, "This is the thing which God commanded that you should do; and God's glory shall appear to you." 
-Moses said to Aaron, "Draw near to the altar, and offer your offering for mistakes, and your burnt offering, and make things right for yourself, and for the people; and offer the offering of the people, and make things right for them, as God commanded." 
-So Aaron came near to the altar, and killed the calf of the offering for mistakes, which was for himself. 
+Moses said to Aaron, "Draw near to the altar, and offer your offering for wrongdoing, and your burnt offering, and make things right for yourself, and for the people; and offer the offering of the people, and make things right for them, as God commanded." 
+So Aaron came near to the altar, and killed the calf of the offering for wrongdoing, which was for himself. 
 The sons of Aaron presented the blood to him; and he dipped his finger in the blood, and put it on the horns of the altar, and poured out the blood at the base of the altar; 
-but the fat, and the kidneys, and the cover from the liver of the offering for mistakes, he burned upon the altar, as God commanded Moses. 
+but the fat, and the kidneys, and the cover from the liver of the offering for wrongdoing, he burned upon the altar, as God commanded Moses. 
 The meat and the skin he burned with fire outside the camp. 
 He killed the burnt offering; and Aaron's sons delivered the blood to him, and he sprinkled it around on the altar. 
 They delivered the burnt offering to him, piece by piece, and the head. He burned them upon the altar. 
 He washed the innards and the legs, and burned them on the burnt offering on the altar. 
-He presented the people's offering, and took the goat of the offering for mistakes which was for the people, and killed it, and offered it as an offering for mistakes, like the first. 
+He presented the people's offering, and took the goat of the offering for wrongdoing which was for the people, and killed it, and offered it as an offering for wrongdoing, like the first. 
 He presented the burnt offering, and offered it according to the ordinance. 
 He presented the meal offering, and filled his hand from there, and burned it upon the altar, in addition to the burnt offering of the morning. 
 He also killed the bull and the ram, the sacrifice of offerings for wholeness, which was for the people. Aaron's sons delivered to him the blood, which he sprinkled around on the altar; 
 and the fat of the bull and of the ram, the fat tail, and that which covers the innards, and the kidneys, and the cover of the liver; 
 and they put the fat upon the breasts, and he burned the fat on the altar. 
 Aaron waved the breasts and the right thigh for a wave offering before God, as Moses commanded. 
-Aaron lifted up his hands toward the people, and blessed them; and he came down from offering the offering for mistakes, and the burnt offering, and the offerings for wholeness. 
+Aaron lifted up his hands toward the people, and blessed them; and he came down from offering the offering for wrongdoing, and the burnt offering, and the offerings for wholeness. 
 Moses and Aaron went into the Tent of Meeting, and came out, and blessed the people; and God's glory appeared to everyone. 
 Fire came out from before God, and consumed the burnt offering and the fat upon the altar. When everyone saw it, they shouted, and fell on their faces. 

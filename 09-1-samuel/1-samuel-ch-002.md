@@ -14,7 +14,7 @@ The custom of the priests with the people was that when anyone offered a sacrifi
 and he stabbed it into the pan, or kettle, or cauldron, or pot. The priest took all that the fork brought up for himself. They did this to all the Israelites who came there to Shiloh. 
 Yes, before they burned the fat, the priest's servant came, and said to the man who sacrificed, "Give meat to roast for the priest; for he will not accept boiled meat from you, but raw." 
 If the man said to him, "Let the fat be burned first, and then take as much as your soul desires;" then he would say, "No, but you shall give it to me now; and if not, I will take it by force." 
-The mistake of the young men was very great before God; for the men despised God's offering. 
+The wrongdoing of the young men was very great before God; for the men despised God's offering. 
 But Samuel ministered before God, being a child, clothed with a linen ephod. 
 Moreover his mother made him a little robe, and brought it to him from year to year when she came up with her husband to offer the yearly sacrifice. 
 Eli blessed Elkanah and his wife, and said, "May God give you offspring from this woman for the petition which was asked of God." Then they went to their own home. 

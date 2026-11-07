@@ -10,10 +10,10 @@ where your fathers tested me and tried me, and saw what I did for forty years.
 That is why I was angry with that generation, and I said, 'They always go astray in their hearts, and they have not known my ways.' 
 So I swore in my heat, 'They will never enter my rest.'" 
 Watch out, brothers and sisters, that none of you has a bad heart that refuses to trust, and turns away from the living God. 
-Instead, encourage one another every day, as long as it is still called "today", so that none of you is hardened by the way the mistake deceives. 
+Instead, encourage one another every day, as long as it is still called "today", so that none of you is hardened by the way the drift deceives. 
 For we share in Christ, if we hold tightly to the boldness we had at the start, firm to the end, 
 as long as it is still said, "Today, if you hear his voice, don't harden your hearts as they did in the rebellion." 
 For who were the ones who heard and rebelled? Was it not all those Moses led out of Egypt? 
-And with whom was he angry for forty years? Was it not with those who missed the mark, whose bodies fell in the wilderness? 
+And with whom was he angry for forty years? Was it not with those who drifted, whose bodies fell in the wilderness? 
 And to whom did he swear that they would never enter his rest, if not to those who refused to obey? 
 So we see that they were not able to enter because they refused to trust. 

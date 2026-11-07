@@ -13,7 +13,7 @@ Hatred stirs up strife, but love covers all wrongs.
 Wisdom is found on the lips of him who has discernment, but a rod is for the back of him who is void of understanding. 
 Wise men lay up knowledge, but the mouth of the foolish is near ruin. 
 The rich man's wealth is his strong city. The destruction of the poor is their poverty. 
-The labor of the righteous leads to life. The increase of the guilty leads to miss the mark. 
+The labor of the righteous leads to life. The increase of the guilty leads to drift. 
 He is in the way of life who heeds correction, but he who forsakes reproof leads others astray. 
 He who hides hatred has lying lips. He who utters a slander is a fool. 
 In the multitude of words there is no lack of disobedience, but he who restrains his lips does wisely. 

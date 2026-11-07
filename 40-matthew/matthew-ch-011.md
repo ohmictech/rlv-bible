@@ -16,7 +16,7 @@ He who has ears to hear, let him hear.
 "But what can I compare this generation to? It is like children sitting in the marketplaces, who call to their companions 
 and say, 'We played the flute for you, and you didn't dance. We mourned for you, and you didn't lament.' 
 For John came neither eating nor drinking, and they say, 'He has an unclean spirit.' 
-The Human One came eating and drinking, and they say, 'Look, a glutton and a drunkard, a friend of tax collectors and those who miss the mark!' But wisdom is made right by her children." 
+The Human One came eating and drinking, and they say, 'Look, a glutton and a drunkard, a friend of tax collectors and those who have drifted!' But wisdom is made right by her children." 
 Then he began to call out the cities where most of his powerful works had been done, because they had not had a change of heart. 
 "How terrible for you, Chorazin! How terrible for you, Bethsaida! For if the powerful works had been done in Tyre and Sidon that were done in you, they would have had a change of heart long ago in rough cloth and ashes. 
 But I tell you, it will be more tolerable for Tyre and Sidon on the day of verdict than for you. 

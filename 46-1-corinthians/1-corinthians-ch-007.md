@@ -25,7 +25,7 @@ Brothers, let each person stay with God in whatever condition he was called.
 Now about virgins, I have no command from the Lord, but I give my opinion as one who has been shown mercy by the Lord and can be trusted. 
 Therefore I think that because of the distress that is on us, it's good for a man to remain as he is. 
 Are you bound to a wife? Don't seek to be freed. Are you free from a wife? Don't seek a wife. 
-But if you do marry, you have not missed the mark. And if a virgin marries, she has not missed the mark. Yet those who marry will have pressure in the flesh, and I want to spare you. 
+But if you do marry, you have not drifted. And if a virgin marries, she has not drifted. Yet those who marry will have pressure in the flesh, and I want to spare you. 
 But I say this, brothers: the time is short. From now on, both those who have wives may be as though they had none; 
 and those who weep, as though they didn't weep; and those who celebrate, as though they didn't celebrate; and those who buy, as though they didn't possess; 
 and those who use the world, as though they were not using it to the full. For the shape of this world is passing away. 
@@ -33,7 +33,7 @@ But I want you to be free from worries. The unmarried man is concerned with the 
 but he who is married is concerned about the things of the world, how he may please his wife. 
 There is also a difference between a wife and a virgin. The unmarried woman cares about the things of the Lord, so that she may be set apart in both body and spirit. But the married woman cares about the things of the world: how she may please her husband. 
 This I say for your own benefit, not that I may ensnare you, but for that which is appropriate, and that you may attend to the Lord without distraction. 
-But if anyone thinks he is behaving improperly toward the woman he is pledged to, and she is past the age for marrying, and it seems necessary, let him do what he wants. He is not missing the mark. Let them marry. 
+But if anyone thinks he is behaving improperly toward the woman he is pledged to, and she is past the age for marrying, and it seems necessary, let him do what he wants. He is not drifting. Let them marry. 
 But the one who stands firm in his heart, under no pressure, but has control over his own will, and has decided in his own heart to keep the woman he is pledged to, does well. 
 So then the one who gives her in marriage does well, and the one who doesn't give her in marriage does better. 
 A wife is bound as long as her husband lives; but if her husband dies, she is free to marry anyone she wishes, only in the Lord. 

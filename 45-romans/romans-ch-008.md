@@ -1,13 +1,13 @@
 ﻿There is therefore now no sentence for those who are in Christ Jesus, who don't walk according to the flesh, but according to the Spirit. 
-For the law of the Spirit of real life in Christ Jesus made me free from the law of the mistake and of death. 
-For what the law could not do, because it was weak through the flesh, God did: he sent his own Son in the likeness of our mistake-prone flesh, and, to deal with the mistake, he passed sentence on it in the flesh, 
+For the law of the Spirit of real life in Christ Jesus made me free from the law of the drift and of death. 
+For what the law could not do, because it was weak through the flesh, God did: he sent his own Son in the likeness of our drift-prone flesh, and, to deal with the drift, he passed sentence on it in the flesh, 
 that the ordinance of the law might be fulfilled in us who don't walk according to the flesh, but according to the Spirit. 
 For those who live according to the flesh set their minds on the things of the flesh, but those who live according to the Spirit, the things of the Spirit. 
 For the mind of the flesh is death, but the mind of the Spirit is real life and wholeness; 
 because the mind of the flesh is hostile toward God, for it is not subject to God's law, neither indeed can it be. 
 Those who are in the flesh can't please God. 
 But you are not in the flesh but in the Spirit, if it is so that the Spirit of God dwells in you. But if any man doesn't have the Spirit of Christ, he is not his. 
-If Christ is in you, the body is dead because of the mistake, but the spirit is alive because of rightness. 
+If Christ is in you, the body is dead because of the drift, but the spirit is alive because of rightness. 
 But if the Spirit of him who raised up Jesus from the dead dwells in you, he who raised up Christ Jesus from the dead will also give life to your mortal bodies through his Spirit who dwells in you. 
 So then, brothers, we are debtors, not to the flesh, to live after the flesh. 
 For if you live after the flesh, you must die; but if by the Spirit you put to death the bad habits of the body, you will live. 

@@ -14,7 +14,7 @@ Moses stretched out his rod over the land of Egypt, and God brought an east wind
 The locusts went up over all the land of Egypt, and rested in all the borders of Egypt. They were very grievous. Before them there were no such locusts as they, nor will there ever be again. 
 For they covered the surface of the whole earth, so that the land was darkened, and they ate every herb of the land, and all the fruit of the trees which the hail had left. There remained nothing green, either tree or herb of the field, through all the land of Egypt. 
 Then Pharaoh called for Moses and Aaron in haste, and he said, "I have wronged your God, and against you. 
-Now therefore please forgive my mistake again, and pray to your God, that he may also take away from me this death." 
+Now therefore please forgive my wrongdoing again, and pray to your God, that he may also take away from me this death." 
 Moses went out from Pharaoh, and prayed to God. 
 God sent an exceedingly strong west wind, which took up the locusts, and drove them into the Red Sea. There remained not one locust in all the borders of Egypt. 
 But God hardened Pharaoh's heart, and he didn't let the children of Israel go. 

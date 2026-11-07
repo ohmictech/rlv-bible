@@ -1,5 +1,5 @@
 ﻿The wilderness and the dry land will be glad. The desert will rejoice and blossom like a rose. 
-It will blossom abundantly, and rejoice even with joy and misses the markging. Lebanon's glory will be given to it, the excellence of Carmel and Sharon. They will see God's glory, the excellence of our God. 
+It will blossom abundantly, and rejoice even with joy and driftsging. Lebanon's glory will be given to it, the excellence of Carmel and Sharon. They will see God's glory, the excellence of our God. 
 Strengthen the weak hands, and make the feeble knees firm. 
 Tell those who have a fearful heart, "Be strong! Don't be afraid! Behold, your God will come with vengeance, God's retribution. He will come and save you. 
 Then the eyes of the blind will be opened, and the ears of the deaf will be unstopped. 

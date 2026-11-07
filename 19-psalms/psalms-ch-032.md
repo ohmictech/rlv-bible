@@ -1,8 +1,8 @@
-﻿By David. A contemplative psalm. Blessed is he whose disobedience is forgiven, whose mistake is covered. 
+﻿By David. A contemplative psalm. Blessed is he whose disobedience is forgiven, whose wrongdoing is covered. 
 Blessed is the man to whom God doesn't impute guilt, in whose spirit there is no deceit. 
 When I kept silence, my bones wasted away through my groaning all day long. 
 For day and night your hand was heavy on me. My strength was sapped in the heat of summer. Selah. 
-I acknowledged my mistake to you. I didn't hide my guilt. I said, I will confess my rebellion to God, and you forgave the guilt of my mistake. Selah. 
+I acknowledged my wrongdoing to you. I didn't hide my guilt. I said, I will confess my rebellion to God, and you forgave the guilt of my wrongdoing. Selah. 
 For this, let everyone who is godly pray to you in a time when you may be found. Surely when the great waters overflow, they shall not reach to him. 
 You are my hiding place. You will preserve me from trouble. You will surround me with songs of deliverance. Selah. 
 I will instruct you and teach you in the way which you shall go. I will counsel you with my eye on you. 

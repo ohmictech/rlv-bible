@@ -8,7 +8,7 @@ He did this so that, made right by his favor, we might become heirs with the exp
 This saying is trustworthy, and I want you to insist on these things, so that those who have put their trust in God make it their business to do good deeds. These things are good and useful to people. 
 But have nothing to do with foolish arguments, endless family trees, quarrels, and fights about the law, because they are useless and empty. 
 Warn a divider once, and warn him a second time; after that, have nothing to do with him. 
-You know that a person like that has turned off the road and keeps on missing the mark, and he has passed sentence on himself. 
+You know that a person like that has turned off the road and keeps on drifting, and he has passed sentence on himself. 
 When I send Artemas or Tychicus to you, do your best to come to me at Nicopolis, because I have decided to spend the winter there. 
 Do everything you can to help Zenas the expert in the law and Apollos on their way, and see that they lack nothing. 
 Our people must learn to do good deeds and meet whatever needs come up, so that they are not fruitless. 

@@ -9,7 +9,7 @@ Behold, I will bring them from the north country, and gather them from the utter
 They will come with weeping. I will lead them with petitions. I will cause them to walk by rivers of waters, in a straight way in which they won't stumble; for I am a father to Israel. Ephraim is my firstborn. 
 "Hear God's word, you nations, and declare it in the distant islands. Say, 'He who scattered Israel will gather him, and keep him, as a shepherd does his flock.' 
 For God has ransomed Jacob, and bought back him from the hand of him who was stronger than he. 
-They will come and misses the markg in the height of Zion, and will flow to the goodness of God, to the grain, to the new wine, to the oil, and to the young of the flock and of the herd. Their soul will be as a watered garden. They will not sorrow any more at all. 
+They will come and driftsg in the height of Zion, and will flow to the goodness of God, to the grain, to the new wine, to the oil, and to the young of the flock and of the herd. Their soul will be as a watered garden. They will not sorrow any more at all. 
 Then the virgin will rejoice in the dance, the young men and the old together; for I will turn their mourning into joy, and will comfort them, and make them rejoice from their sorrow. 
 I will satiate the soul of the priests with fatness, and my people will be satisfied with my goodness," says God. 
 God says: "A voice is heard in Ramah, lamentation and bitter weeping, Rachel weeping for her children. She refuses to be comforted for her children, because they are no more." 
@@ -31,7 +31,7 @@ But everyone will die for his own guilt. Every man who eats the sour grapes, his
 "Behold, the days come," says God, "that I will make a new covenant with the house of Israel, and with the house of Judah, 
 not according to the covenant that I made with their fathers in the day that I took them by the hand to bring them out of the land of Egypt, which covenant of mine they broke, although I was a husband to them," says God. 
 "But this is the covenant that I will make with the house of Israel after those days," says God: "I will put my law in their inward parts, and I will write it in their heart. I will be their God, and they shall be my people. 
-They will no longer each teach his neighbor, and every man teach his brother, saying, 'Know God;' for they will all know me, from their least to their greatest," says God, "for I will forgive their guilt, and I will remember their mistake no more." 
+They will no longer each teach his neighbor, and every man teach his brother, saying, 'Know God;' for they will all know me, from their least to their greatest," says God, "for I will forgive their guilt, and I will remember their wrongdoing no more." 
 God, who gives the sun for a light by day, and the ordinances of the moon and of the stars for a light by night, who stirs up the sea, so that its waves roar, the God of Armies is his name, says: 
 "If these ordinances depart from before me," says God, "then the offspring of Israel also will cease from being a nation before me for the eras." 
 God says: "If sky above can be measured, and the foundations of the earth searched out beneath, then I will also cast off all the offspring of Israel for all that they have done," says God. 

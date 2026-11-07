@@ -18,16 +18,16 @@ Now they began on the first day of the first month to sanctify, and on the eight
 Then they went in to Hezekiah the king within the palace and said, "We have cleansed all God's house, including the altar of burnt offering with all its vessels, and the table of show bread with all its vessels. 
 Moreover, we have prepared and sanctified all the vessels which King Ahaz threw away in his reign when he was unfaithful. Behold, they are before God's altar." 
 Then Hezekiah the king arose early, gathered the princes of the city, and went up to God's house. 
-They brought seven bulls, seven rams, seven lambs, and seven male goats, for an offering for mistakes for the kingdom, for the sanctuary, and for Judah. He commanded the priests the sons of Aaron to offer them on God's altar. 
+They brought seven bulls, seven rams, seven lambs, and seven male goats, for an offering for wrongdoing for the kingdom, for the sanctuary, and for Judah. He commanded the priests the sons of Aaron to offer them on God's altar. 
 So they killed the bulls, and the priests received the blood and sprinkled it on the altar. They killed the rams and sprinkled the blood on the altar. They also killed the lambs and sprinkled the blood on the altar. 
-They brought near the male goats for the offering for mistakes before the king and the assembly; and they laid their hands on them. 
-Then the priests killed them, and they made an offering for mistakes with their blood on the altar, to make things right for all Israel; for the king commanded that the burnt offering and the offering for mistakes should be made for all Israel. 
+They brought near the male goats for the offering for wrongdoing before the king and the assembly; and they laid their hands on them. 
+Then the priests killed them, and they made an offering for wrongdoing with their blood on the altar, to make things right for all Israel; for the king commanded that the burnt offering and the offering for wrongdoing should be made for all Israel. 
 He set the Levites in God's house with cymbals, with stringed instruments, and with harps, according to the commandment of David, of Gad the king's seer, and Nathan the spokesman; for the commandment was from God by his spokesmen. 
 The Levites stood with David's instruments, and the priests with the trumpets. 
 Hezekiah commanded them to offer the burnt offering on the altar. When the burnt offering began, God's song also began, along with the trumpets and instruments of David king of Israel. 
 All the assembly worshiped, the singers sang, and the trumpeters sounded. All this continued until the burnt offering was finished. 
 When they had finished offering, the king and everyone who was present with him bowed themselves and worshiped. 
-Moreover Hezekiah the king and the princes commanded the Levites to miss the markg praises to God with the words of David, and of Asaph the seer. They sang praises with gladness, and they bowed their heads and worshiped. 
+Moreover Hezekiah the king and the princes commanded the Levites to driftg praises to God with the words of David, and of Asaph the seer. They sang praises with gladness, and they bowed their heads and worshiped. 
 Then Hezekiah answered, "Now you have consecrated yourselves to God. Come near and bring sacrifices and thank offerings into God's house." The assembly brought in sacrifices and thank offerings, and as many as were of a willing heart brought burnt offerings. 
 The number of the burnt offerings which the assembly brought was seventy bulls, one hundred rams, and two hundred lambs. All these were for a burnt offering to God. 
 The consecrated things were six hundred head of cattle and three thousand sheep. 

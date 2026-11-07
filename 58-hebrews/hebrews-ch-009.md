@@ -23,6 +23,6 @@ Under the law, almost everything is made clean with blood, and without blood bei
 So the copies of what is in the sky had to be made clean with these things, but the things in the sky themselves need better sacrifices than these. 
 For Christ did not enter a place set apart that was made by hands, which is only a picture of the real one. He entered the sky itself, and now he stands before God on our behalf. 
 And he did not go in to offer himself over and over, the way the high priest enters the Holy Place year after year with blood that is not his own. 
-If he had, he would have had to suffer many times since the world was founded. But as it is, he has appeared once, at the end of the eras, to do away with the mistake by sacrificing himself. 
+If he had, he would have had to suffer many times since the world was founded. But as it is, he has appeared once, at the end of the eras, to do away with the drift by sacrificing himself. 
 Just as people are appointed to die once, and after that comes the verdict, 
-so Christ also, having been offered once to carry the mistakes of everyone, will appear a second time, not to deal with the mistake, but to rescue those who are waiting for him with eager expectation. 
+so Christ also, having been offered once to carry the mistakes of everyone, will appear a second time, not to deal with the drift, but to rescue those who are waiting for him with eager expectation. 

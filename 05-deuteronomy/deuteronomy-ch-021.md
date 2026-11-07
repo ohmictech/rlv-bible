@@ -19,5 +19,5 @@ If a man has a stubborn and rebellious son who will not obey the voice of his fa
 then his father and his mother shall take hold of him and bring him out to the elders of his city and to the gate of his place. 
 They shall tell the elders of his city, "This our son is stubborn and rebellious. He will not obey our voice. He is a glutton and a drunkard." 
 All the men of his city shall stone him to death with stones. So you shall remove the bad from among you. All Israel shall hear, and fear. 
-If a man has committed a mistake worthy of death, and he is put to death, and you hang him on a tree, 
+If a man has committed wrongdoing worthy of death, and he is put to death, and you hang him on a tree, 
 his body shall not remain all night on the tree, but you shall surely bury him the same day; for he who is hanged is accursed of God. Don't defile your land which your God gives you for an inheritance. 

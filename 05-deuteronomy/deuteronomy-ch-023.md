@@ -19,7 +19,7 @@ You shall not bring the hire of a prostitute, or the wages of a male prostitute,
 You shall not lend on interest to your brother: interest of money, interest of food, interest of anything that is lent on interest. 
 You may charge a foreigner interest; but you shall not charge your brother interest, that your God may bless you in all that you put your hand to, in the land where you go in to possess it. 
 When you vow a vow to your God, you shall not be slack to pay it, for your God will surely require it of you; and it would be guilt in you. 
-But if you refrain from making a vow, it shall be no mistake in you. 
+But if you refrain from making a vow, it shall be no wrongdoing in you. 
 You shall observe and do that which has gone out of your lips. Whatever you have vowed to your God as a free will offering, which you have promised with your mouth, you must do. 
 When you come into your neighbor's vineyard, then you may eat your fill of grapes at your own pleasure; but you shall not put any in your container. 
 When you come into your neighbor's standing grain, then you may pluck the ears with your hand; but you shall not use a sickle on your neighbor's standing grain. 

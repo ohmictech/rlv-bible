@@ -3,7 +3,7 @@ By the fruit of his lips, a man enjoys good things, but the unfaithful crave vio
 He who guards his mouth guards his soul. One who opens wide his lips comes to ruin. 
 The soul of the sluggard desires, and has nothing, but the desire of the diligent shall be fully satisfied. 
 A righteous man hates lies, but a guilty man brings shame and disgrace. 
-Righteousness guards the way of integrity, but guilt overthrows the one who misses the mark. 
+Righteousness guards the way of integrity, but guilt overthrows the one who drifts. 
 There are some who pretend to be rich, yet have nothing. There are some who pretend to be poor, yet have great wealth. 
 The ransom of a man's life is his riches, but the poor hear no threats. 
 The light of the righteous shines brightly, but the lamp of the guilty is snuffed out. 
@@ -18,8 +18,8 @@ A guilty messenger falls into trouble, but a trustworthy envoy gains healing.
 Poverty and shame come to him who refuses discipline, but he who heeds correction shall be honored. 
 Longing fulfilled is sweet to the soul, but fools detest turning from what is bad. 
 One who walks with wise men grows wise, but a companion of fools suffers harm. 
-Misfortune pursues those who miss the mark, but prosperity rewards the righteous. 
-A good man leaves an inheritance to his children's children, but the wealth of the one who misses the mark is stored for the righteous. 
+Misfortune pursues those who have drifted, but prosperity rewards the righteous. 
+A good man leaves an inheritance to his children's children, but the wealth of the one who drifts is stored for the righteous. 
 An abundance of food is in poor people's fields, but injustice sweeps it away. 
 One who spares the rod hates his son, but one who loves him is careful to discipline him. 
 The righteous one eats to the satisfying of his soul, but the belly of the guilty goes hungry. 

@@ -7,10 +7,10 @@ But so that you may know that the Human One has authority on earth to release mi
 He got up and went to his house. 
 But when the crowds saw it, they were amazed and made much of God, who had given such authority to people. 
 As Jesus went on from there, he saw a man called Matthew sitting at the tax collection office. He said to him, "Follow me." He got up and followed him. 
-As he sat in the house, many tax collectors and those who miss the mark came and sat down with Jesus and his students. 
-When the strict religious ones saw it, they said to his students, "Why does your teacher eat with tax collectors and those who miss the mark?" 
+As he sat in the house, many tax collectors and those who have drifted came and sat down with Jesus and his students. 
+When the strict religious ones saw it, they said to his students, "Why does your teacher eat with tax collectors and those who have drifted?" 
 When Jesus heard it, he said to them, "Those who are healthy have no need for a doctor, but those who are sick do. 
-But you go and learn what this means: 'I want mercy, and not sacrifice,' for I came not to call the ones who are in the right, but to call those who miss the mark to a change of heart." 
+But you go and learn what this means: 'I want mercy, and not sacrifice,' for I came not to call the ones who are in the right, but to call those who have drifted to a change of heart." 
 Then John's students came to him, saying, "Why do we and the strict religious ones go without food often, but your students don't go without food?" 
 Jesus said to them, "Can the friends of the bridegroom mourn as long as the bridegroom is with them? But the days will come when the bridegroom is taken away from them, and then they will go without food. 
 No one puts a piece of unshrunk cloth on an old garment, for the patch would tear away from the garment, and a worse hole is made. 

@@ -5,7 +5,7 @@ Therefore the land will mourn, and everyone who dwells in it will waste away, wi
 You will stumble in the day, and the spokesman will also stumble with you in the night; and I will destroy your mother. 
 My people are destroyed for lack of knowledge. Because you have rejected knowledge, I will also reject you, that you may be no priest to me. Because you have forgotten your God's law, I will also forget your children. 
 As they were multiplied, so they wronged me. I will change their glory into shame. 
-They feed on the mistake of my people, and set their heart on their guilt. 
+They feed on the wrongdoing of my people, and set their heart on their guilt. 
 It will be like people, like priest; and I will punish them for their ways, and will repay them for their deeds. 
 They will eat, and not have enough. They will play the prostitute, and will not increase; because they have abandoned listening to God. 
 Prostitution, wine, and new wine take away understanding. 

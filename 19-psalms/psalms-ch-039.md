@@ -1,4 +1,4 @@
-﻿For the Chief Musician. For Jeduthun. A Psalm by David. I said, "I will watch my ways, so that I don't miss the mark with my tongue. I will keep my mouth with a bridle while the guilty is before me." 
+﻿For the Chief Musician. For Jeduthun. A Psalm by David. I said, "I will watch my ways, so that I don't drift with my tongue. I will keep my mouth with a bridle while the guilty is before me." 
 I was mute with silence. I held my peace, even from good. My sorrow was stirred. 
 My heart was hot within me. While I meditated, the fire burned. I spoke with my tongue: 
 "God, show me my end, what is the measure of my days. Let me know how frail I am. 

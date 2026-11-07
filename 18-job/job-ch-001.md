@@ -2,7 +2,7 @@
 There were born to him seven sons and three daughters. 
 His possessions also were seven thousand sheep, three thousand camels, five hundred yoke of oxen, five hundred female donkeys, and a very great household; so that this man was the greatest of all the children of the east. 
 His sons went and held a feast in the house of each one on his birthday; and they sent and called for their three sisters to eat and to drink with them. 
-It was so, when the days of their feasting had run their course, that Job sent and sanctified them, and rose up early in the morning, and offered burnt offerings according to the number of them all. For Job said, "It may be that my sons have missed the mark, and renounced God in their hearts." Job did so continually. 
+It was so, when the days of their feasting had run their course, that Job sent and sanctified them, and rose up early in the morning, and offered burnt offerings according to the number of them all. For Job said, "It may be that my sons have drifted, and renounced God in their hearts." Job did so continually. 
 Now on the day when God's sons came to present themselves before God, Satan also came among them. 
 God said to Satan, "Where have you come from?" Then Satan answered God, and said, "From going back and forth on the earth, and from walking up and down in it." 
 God said to Satan, "Have you considered my servant, Job? For there is no one like him on the earth, a blameless and an upright man, one who fears God, and turns away from what is bad." 
@@ -19,4 +19,4 @@ While he was still speaking, there came also another, and said, "Your sons and y
 and behold, there came a great wind from the wilderness, and struck the four corners of the house, and it fell on the young men, and they are dead. I alone have escaped to tell you." 
 Then Job arose, and tore his robe, and shaved his head, and fell down on the ground, and worshiped. 
 He said, "Naked I came out of my mother's womb, and naked will I return there. God gave, and God has taken away. Blessed be God's name." 
-In all this, Job didn't miss the mark, nor charge God with wrongdoing. 
+In all this, Job didn't drift, nor charge God with wrongdoing. 

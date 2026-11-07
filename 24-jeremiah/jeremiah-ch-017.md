@@ -1,4 +1,4 @@
-﻿"The mistake of Judah is written with a pen of iron, and with the point of a diamond. It is engraved on the tablet of their heart, and on the horns of your altars. 
+﻿"The wrongdoing of Judah is written with a pen of iron, and with the point of a diamond. It is engraved on the tablet of their heart, and on the horns of your altars. 
 Even their children remember their altars and their Asherah poles by the green trees on the high hills. 
 My mountain in the field, I will give your substance and all your treasures for a plunder, and your high places, because of wrongdoing, throughout all your borders. 
 You, even of yourself, will discontinue from your heritage that I gave you. I will cause you to serve your enemies in the land which you don't know, for you have kindled a fire in my anger which will burn for the eras." 

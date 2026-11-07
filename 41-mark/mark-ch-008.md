@@ -35,4 +35,4 @@ He called the crowd to himself with his students and said to them, "Whoever want
 For whoever wants to rescue his life will lose it, and whoever loses his life for my sake and for the Good News will rescue it. 
 For what good is it for someone to gain the whole world and forfeit his life? 
 For what will anyone give in exchange for his life? 
-For whoever is ashamed of me and of my words in this generation that cheats and misses the mark, the Human One also will be ashamed of him when he comes in his Father's weight with the set-apart messengers." 
+For whoever is ashamed of me and of my words in this generation that cheats and drifts, the Human One also will be ashamed of him when he comes in his Father's weight with the set-apart messengers." 

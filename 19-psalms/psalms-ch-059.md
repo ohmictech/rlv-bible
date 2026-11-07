@@ -1,6 +1,6 @@
 ﻿For the Chief Musician. To the tune of "Do Not Destroy." A poem by David, when Saul sent, and they watched the house to kill him. Deliver me from my enemies, my God. Set me on high from those who rise up against me. 
 Deliver me from the workers of guilt. Save me from the bloodthirsty men. 
-For, behold, they lie in wait for my soul. The mighty gather themselves together against me, not for my disobedience, nor for my mistake, God. 
+For, behold, they lie in wait for my soul. The mighty gather themselves together against me, not for my disobedience, nor for my wrongdoing, God. 
 I have done no wrong, yet they are ready to attack me. Rise up, behold, and help me! 
 You, God of Armies, the God of Israel, rouse yourself to punish the nations. Show no mercy to the guilty traitors. Selah. 
 They return at evening, howling like dogs, and prowl around the city. 
@@ -9,7 +9,7 @@ But you, God, laugh at them. You scoff at all the nations.
 Oh, my Strength, I watch for you, for God is my high tower. 
 My God will go before me with his loving kindness. God will let me look at my enemies in triumph. 
 Don't kill them, or my people may forget. Scatter them by your power, and bring them down, Lord our shield. 
-For the mistake of their mouth, and the words of their lips, let them be caught in their pride, for the curses and lies which they utter. 
+For the wrongdoing of their mouth, and the words of their lips, let them be caught in their pride, for the curses and lies which they utter. 
 Consume them in wrath. Consume them, and they will be no more. Let them know that God rules in Jacob, to the ends of the earth. Selah. 
 At evening let them return. Let them howl like a dog, and go around the city. 
 They shall wander up and down for food, and wait all night if they aren't satisfied. 

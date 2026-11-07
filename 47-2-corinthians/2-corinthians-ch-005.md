@@ -18,4 +18,4 @@ So if anyone is in Christ, they are a new creation. The old things have passed a
 But all things are from God, who made friends with us through Jesus Christ, and gave us the service of making friends; 
 that is, God was in Christ making friends with the world, not counting their false steps against them, and he has handed us the message of making friends. 
 So we are ambassadors for Christ, as though God were appealing through us. We beg you for Christ's sake: make friends with God. 
-For God made the one who knew no wrongdoing to be the drift on our behalf, so that in him we might become the rightness of God. 
+For God made the one who had not drifted to be the drift on our behalf, so that in him we might become the rightness of God. 

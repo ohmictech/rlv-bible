@@ -2,7 +2,7 @@
 My truly loved friends, we are God's children now. What we will be has not yet been shown, but we know that when he appears we will be like him, for we will see him just as he is. 
 Everyone who has this expectation set on him makes themselves pure, even as he is pure. 
 Everyone who keeps drifting is also living as if there were no law. The drift is living as if there were no law. 
-You know that he appeared to take away our mistakes, and there is no wrongdoing in him. 
+You know that he appeared to take away our mistakes, and there is no drift in him. 
 No one who makes their home in him keeps drifting. No one who keeps drifting has seen him or known him. 
 Dear children, do not let anyone lead you astray. Whoever does what is right is upright, just as he is upright. 
 Whoever keeps drifting belongs to the Slanderer, because the Slanderer has been drifting from the beginning. The Son of God appeared for this reason: to undo the deeds of the Slanderer. 

@@ -22,7 +22,7 @@ But now apart from the law, a rightness of God has been revealed, being testifie
 even the rightness of God through trust in Jesus Christ to all and on everyone who trusts. For there is no distinction, 
 for all have drifted, and fall short of the weight of God; 
 being made right freely by his favor through the setting free that is in Christ Jesus, 
-whom God sent to be a mercy seat through trust in his blood, for a demonstration of his rightness through the passing over of prior mistakes, in God's forbearance; 
+whom God sent to be a mercy seat through trust in his blood, for a demonstration of his rightness through the overlooking of prior mistakes, in God's forbearance; 
 to demonstrate his rightness at this present time, that he might himself be right and the one who makes right the person who has trust in Jesus. 
 Where then is the boasting? It is excluded. By what kind of law? Of deeds? No, but by a law of trust. 
 We maintain therefore that a man is made right by trust apart from the deeds of the law. 

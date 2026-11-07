@@ -3,7 +3,7 @@ The offspring of Israel separated themselves from all foreigners and stood and c
 They stood up in their place, and read in the book of the law of their God a fourth part of the day; and a fourth part they confessed and worshiped their God. 
 Then Jeshua, Bani, Kadmiel, Shebaniah, Bunni, Sherebiah, Bani, and Chenani of the Levites stood up on the stairs, and cried with a loud voice to their God. 
 Then the Levites, Jeshua, and Kadmiel, Bani, Hashabneiah, Sherebiah, Hodiah, Shebaniah, and Pethahiah, said, "Stand up and bless your God from perpetual to perpetual! Blessed be your glorious name, which is exalted above all blessing and praise! 
-You are God, even you alone. You have made sky, the sky above the skies, with all their army, the earth and all things that are on it, the seas and all that is in them, and you preserve them all. The army of the sky worships you. 
+You are God, even you alone. You have made the sky, the sky above the skies, with all their army, the earth and all things that are on it, the seas and all that is in them, and you preserve them all. The army of the sky worships you. 
 You are the God who chose Abram, brought him out of Ur of the Chaldees, gave him the name of Abraham, 
 found his heart faithful before you, and made a covenant with him to give the land of the Canaanite, the Hittite, the Amorite, the Perizzite, the Jebusite, and the Girgashite, to give it to his offspring, and have performed your words, for you are righteous. 
 "You saw the affliction of our fathers in Egypt, and heard their cry by the Red Sea, 

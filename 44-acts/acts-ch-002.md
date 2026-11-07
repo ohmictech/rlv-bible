@@ -16,7 +16,7 @@ For these aren't drunken, as you suppose, since it is only mid-morning.
 But this is what has been spoken through the spokesman Joel: 
 'It will be in the last days, says God, that I will pour out my Spirit on all flesh. Your sons and your daughters will speak for God. Your young men will see visions. Your old men will dream dreams. 
 Yes, and on my slaves, both men and women, in those days, I will pour out my Spirit, and they will speak for God. 
-I will show wonders in the sky above, and signs on the land beneath: blood, and fire, and billows of smoke. 
+I will show wonders in the sky above, and signs on the earth beneath: blood, and fire, and billows of smoke. 
 The sun will be turned into darkness, and the moon into blood, before the great and splendid day of the Lord comes. 
 It will be that whoever will call on the name of the Lord will be made whole.' 
 "Men of Israel, hear these words! Jesus of Nazareth, a man whom God approved for you by powerful deeds and wonders and signs which God did through him among you, even as you yourselves know, 

@@ -24,7 +24,7 @@ and he said, "the God of Israel, there is no God like you, in the sky above, or 
 who has kept with your servant David my father that which you promised him. Yes, you spoke with your mouth, and have fulfilled it with your hand, as it is today. 
 Now therefore, may the God of Israel, keep with your servant David my father that which you have promised him, saying, 'There shall not fail from you a man in my sight to sit on the throne of Israel, if only your children take heed to their way, to walk before me as you have walked before me.' 
 "Now therefore, God of Israel, please let your word be verified, which you spoke to your servant David my father. 
-But will God in very deed dwell on the earth? Behold, sky and the sky above the skies can't contain you; how much less this house that I have built! 
+But will God in very deed dwell on the earth? Behold, the sky and the sky above the skies can't contain you; how much less this house that I have built! 
 Yet have respect for the prayer of your servant and for his supplication, God my God, to listen to the cry and to the prayer which your servant prays before you today; 
 that your eyes may be open toward this house night and day, even toward the place of which you have said, 'My name shall be there;' to listen to the prayer which your servant prays toward this place. 
 Listen to the supplication of your servant, and of your people Israel, when they pray toward this place. Yes, hear in the sky, your dwelling place; and when you hear, forgive. 

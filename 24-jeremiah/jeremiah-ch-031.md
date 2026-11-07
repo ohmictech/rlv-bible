@@ -34,7 +34,7 @@ not according to the covenant that I made with their fathers in the day that I t
 They will no longer each teach his neighbor, and every man teach his brother, saying, 'Know God;' for they will all know me, from their least to their greatest," says God, "for I will forgive their guilt, and I will remember their wrongdoing no more." 
 God, who gives the sun for a light by day, and the ordinances of the moon and of the stars for a light by night, who stirs up the sea, so that its waves roar, the God of Armies is his name, says: 
 "If these ordinances depart from before me," says God, "then the offspring of Israel also will cease from being a nation before me for the eras." 
-God says: "If sky above can be measured, and the foundations of the earth searched out beneath, then I will also cast off all the offspring of Israel for all that they have done," says God. 
+God says: "If the sky above can be measured, and the foundations of the earth searched out beneath, then I will also cast off all the offspring of Israel for all that they have done," says God. 
 "Behold, the days come," says God, "that the city will be built to God from the tower of Hananel to the gate of the corner. 
 The measuring line will go out further straight onward to the hill Gareb, and will turn toward Goah. 
 The whole valley of the dead bodies and of the ashes, and all the fields to the brook Kidron, to the corner of the horse gate toward the east, will be holy to God. It will not be plucked up or thrown down any more for the eras." 

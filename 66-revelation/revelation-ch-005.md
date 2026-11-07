@@ -1,6 +1,6 @@
 ﻿Then I saw, in the right hand of the one sitting on the throne, a scroll written on both sides and sealed shut with seven seals. 
 And I saw a mighty messenger calling out in a loud voice, "Who is worthy to open the scroll and break its seals?" 
-But no one in the sky above, or on the land, or under the land was able to open the scroll or even look inside it. 
+But no one in the sky above, or on the earth, or under the earth was able to open the scroll or even look inside it. 
 I wept and wept, because no one was found worthy to open the scroll or look inside it. 
 Then one of the elders said to me, "Don't weep. Look, the Lion from the tribe of Judah, the Root of David, has won the victory, and he can open the scroll and its seven seals." 
 Then I saw, standing between the throne and the four living creatures and among the elders, a Lamb that looked as though it had been killed. It had seven horns and seven eyes, which are the seven Spirits of God sent out into all the land. 

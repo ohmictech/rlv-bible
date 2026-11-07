@@ -1,4 +1,4 @@
-﻿What shall we say then? Should we continue in the drift, so that favor may overflow? 
+﻿What should we say then? Should we continue in the drift, so that favor may overflow? 
 May it never be! We who died to the drift, how could we live in it any longer? 
 Or don't you know that all of us who were immersed into Christ Jesus were immersed into his death? 
 We were buried therefore with him through immersion into death, that just as Christ was raised from the dead through the weight of the Father, so we also might walk in newness of life. 

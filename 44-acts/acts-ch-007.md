@@ -46,7 +46,7 @@ which also our fathers, in their turn, brought in with Joshua when they took pos
 who found favor in the sight of God, and asked to find a habitation for the God of Jacob. 
 But Solomon built him a house. 
 However, the Most High doesn't dwell in temples made with hands, as the spokesman says, 
-'The sky is my throne, and the land a footstool for my feet. What kind of house will you build me?' says the Lord. 'Or what is the place of my rest? 
+'The sky is my throne, and the earth a footstool for my feet. What kind of house will you build me?' says the Lord. 'Or what is the place of my rest? 
 Didn't my hand make all these things?' 
 "You stiff-necked and uncircumcised in heart and ears, you always resist the Holy Spirit! As your fathers did, so you do. 
 Which of the spokesmen didn't your ancestors hunt down? They killed those who foretold the coming of the Upright One, of whom you have now become betrayers and murderers. 

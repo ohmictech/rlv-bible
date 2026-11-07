@@ -1,4 +1,4 @@
-﻿God says: "Sky is my throne, and the earth is my footstool. What kind of house will you build to me? Where will I rest? 
+﻿God says: "The sky is my throne, and the earth is my footstool. What kind of house will you build to me? Where will I rest? 
 For my hand has made all these things, and so all these things came to be," says God: "but I will look to this man, even to he who is poor and of a contrite spirit, and who trembles at my word. 
 He who kills an ox is as he who kills a man; he who sacrifices a lamb, as he who breaks a dog's neck; he who offers an offering, as he who offers pig's blood; he who burns frankincense, as he who blesses an idol. Yes, they have chosen their own ways, and their soul delights in their abominations. 
 I also will choose their delusions, and will bring their fears on them, because when I called, no one answered; when I spoke, they didn't listen, but they did that which was bad in my eyes, and chose that in which I didn't delight." 

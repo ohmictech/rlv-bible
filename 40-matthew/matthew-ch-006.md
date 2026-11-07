@@ -7,7 +7,7 @@ When you pray, go into your room, close the door, and pray to your Father in sec
 When you pray, do not babble on the way the outsiders do, because they think they will be heard for their many words. 
 Do not be like them. Your Father knows what you need before you ask him. 
 Pray, then, like this: Our Father in the sky, let your name be held in honor. 
-Let your reign come. Let your will be done on land as it is in the sky. 
+Let your reign come. Let your will be done on earth as it is in the sky. 
 Give us today our bread for the coming day. 
 Release us from what we owe, as we also release those who owe us. 
 And do not bring us into the test, but rescue us from the Slanderer. For yours is the reign and the power and the honor, into the eras. Amen. 

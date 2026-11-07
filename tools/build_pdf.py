@@ -69,6 +69,8 @@ GUTTER = 0.25 * inch
 GREY = colors.HexColor("#808080")
 DARK = colors.HexColor("#3A3A3A")
 VERSE_NUMBER_INK = "#3A3A3A"
+HEADER_INK = colors.HexColor("#2E2E2E")
+HEADER_Y = PAGE_HEIGHT - MARGIN_TOP * 0.52
 
 
 # --------------------------------------------------------------------------- io
@@ -128,6 +130,7 @@ class BookMarker(Flowable):
 
     def draw(self) -> None:
         self.book_state["current"] = self.title
+        self.book_state["start_page"] = self.canv.getPageNumber()
         self.canv.bookmarkPage(self.key)
         self.canv.addOutlineEntry(self.title, self.key, level=self.level, closed=False)
 
@@ -235,22 +238,29 @@ def styles(justify: bool, base_size: float) -> dict[str, ParagraphStyle]:
 # ------------------------------------------------------------------- templates
 
 
-def draw_footer(canvas, doc) -> None:
+def draw_page_number(canvas, doc) -> None:
+    """Folio at the top right, on the same line as the running head."""
     canvas.saveState()
-    canvas.setFont(SERIF, 8.5)
-    canvas.setFillColor(GREY)
-    canvas.drawCentredString(PAGE_WIDTH / 2, MARGIN_BOTTOM / 2, str(canvas.getPageNumber()))
+    canvas.setFont(SERIF, 9)
+    canvas.setFillColor(HEADER_INK)
+    canvas.drawRightString(PAGE_WIDTH - MARGIN_SIDE, HEADER_Y + 0.5, str(canvas.getPageNumber()))
     canvas.restoreState()
 
 
 def draw_running_head(canvas, doc, book_state: dict) -> None:
+    """Book name at the top left, in the same letterspaced capitals as the headings."""
     name = book_state.get("current")
     if not name:
         return
+    if canvas.getPageNumber() == book_state.get("start_page"):
+        return
     canvas.saveState()
-    canvas.setFont(SERIF_ITALIC, 8.5)
-    canvas.setFillColor(GREY)
-    canvas.drawCentredString(PAGE_WIDTH / 2, PAGE_HEIGHT - MARGIN_TOP / 2 - 2, name)
+    canvas.setFillColor(HEADER_INK)
+    text = canvas.beginText(MARGIN_SIDE, HEADER_Y + 0.5)
+    text.setFont(SERIF, 7.5)
+    text.setCharSpace(1.3)
+    text.textOut(name.upper())
+    canvas.drawText(text)
     canvas.restoreState()
 
 
@@ -292,11 +302,12 @@ def make_documents(out_path: Path, book_state: dict, title: str, columns: int):
 
     doc.addPageTemplates(
         [
-            PageTemplate(id="front", frames=make_frames(1, "front"), onPageEnd=draw_footer),
+            PageTemplate(id="title", frames=make_frames(1, "title")),
+            PageTemplate(id="front", frames=make_frames(1, "front"), onPageEnd=draw_page_number),
             PageTemplate(
                 id="body",
                 frames=make_frames(columns, "body"),
-                onPageEnd=lambda canvas, doc: (draw_running_head(canvas, doc, book_state), draw_footer(canvas, doc)),
+                onPageEnd=lambda canvas, doc: (draw_running_head(canvas, doc, book_state), draw_page_number(canvas, doc)),
             ),
         ]
     )
@@ -339,12 +350,13 @@ def book_story(doc, book_state: dict, order: int, slug: str, book_dir: Path, lay
 
 
 def front_matter(doc, style: dict, include_contents: bool) -> list:
-    story: list = [NextPageTemplate("front")]
+    story: list = []
     story.append(Spacer(1, 190))
     story.append(Paragraph(TITLE.upper(), style["title"]))
     story.append(Paragraph(SUBTITLE.upper(), style["subtitle"]))
     story.append(Spacer(1, 230))
     story.append(Paragraph(COLOPHON, style["colophon"]))
+    story.append(NextPageTemplate("front"))
 
     if include_contents:
         story.append(PageBreak())

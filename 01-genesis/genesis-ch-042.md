@@ -1,38 +1,38 @@
-﻿Now Jacob saw that there was grain in Egypt, and Jacob said to his sons, "Why do you look at one another?" 
-He said, "Look, I have heard that there's grain in Egypt. Go down there, and buy for us from there, so that we can live, and not die." 
-Joseph's ten brothers went down to buy grain from Egypt. 
-But Jacob didn't send Benjamin, Joseph's brother, with his brothers; for he said, "Lest perhaps harm happen to him." 
-The sons of Israel came to buy among those who came, for the famine was in the land of Canaan. 
-Joseph was the governor over the land. It was he who sold to everyone in the land. Joseph's brothers came, and bowed themselves down to him with their faces to the earth. 
-Joseph saw his brothers, and he recognized them, but acted like a stranger to them, and spoke roughly with them. He said to them, "Where did you come from?" They said, "From the land of Canaan, to buy food." 
+﻿Jacob saw that there was grain in Egypt, so he said to his sons, "Why are you standing there looking at each other?" 
+He said, "I've heard there's grain in Egypt. Go down there and buy some for us, so we can stay alive instead of dying." 
+So Joseph's ten brothers went down to buy grain in Egypt. 
+Jacob didn't send Benjamin, Joseph's brother, with the others. He said, "Something might happen to him." 
+The sons of Israel came to buy grain along with everyone else, because the famine had reached Canaan too. 
+Joseph was in charge of the land, and he was the one who sold grain to everyone in it. His brothers came and bowed down to him, their faces to the ground. 
+Joseph saw his brothers and recognized them, but he acted like a stranger and spoke harshly. "Where have you come from?" he asked. They said, "From Canaan. We've come to buy food." 
 Joseph recognized his brothers, but they didn't recognize him. 
-Joseph remembered the dreams which he dreamed about them, and said to them, "You're spies! You have come to see the nakedness of the land." 
-They said to him, "No, my lord, but your servants have come to buy food. 
-We're all one man's sons; we're honest men. Your servants aren't spies." 
-He said to them, "No, but you have come to see the nakedness of the land!" 
-They said, "We, your servants, are twelve brothers, the sons of one man in the land of Canaan; and look, the youngest is today with our father, and one is no more." 
-Joseph said to them, "It's like I told you, saying, 'You're spies!' 
-By this you will be tested. By the life of Pharaoh, you won't go out from here, unless your youngest brother comes here. 
-Send one of you, and let him get your brother, and you will be bound, that your words may be tested, whether there's truth in you, or else by the life of Pharaoh surely you're spies." 
-He put them all together into custody for three days. 
-Joseph said to them the third day, "Do this, and live, for I fear God. 
-If you're honest men, then let one of your brothers be bound in your prison; but you go, carry grain for the famine of your houses. 
-Bring your youngest brother to me; so will your words be verified, and you won't die." They did so. 
-They said to one another, "We're certainly guilty concerning our brother, in that we saw the distress of his soul, when he begged us, and we wouldn't listen. So this distress has come upon us." 
-Reuben answered them, saying, "Didn't I tell you, saying, 'Don't wrong the child,' and you wouldn't listen? So also, look, his blood is required." 
-They didn't know that Joseph understood them; for there was an interpreter between them. 
-He turned himself away from them, and wept. Then he returned to them, and spoke to them, and took Simeon from among them, and bound him before their eyes. 
-Then Joseph gave a command to fill their bags with grain, and to restore each man's money into his sack, and to give them food for the way. So it was done to them. 
-They loaded their donkeys with their grain, and departed from there. 
-As one of them opened his sack to give his donkey food in the lodging place, he saw his money. Look, it was in the mouth of his sack. 
-He said to his brothers, "My money is restored! Look, it's in my sack!" Their hearts failed them, and they turned trembling to one another, saying, "What's this that God has done to us?" 
-They came to Jacob their father, to the land of Canaan, and told him all that had happened to them, saying, 
-"The man, the lord of the land, spoke roughly with us, and took us for spies of the country. 
-We said to him, 'We're honest men. We're no spies. 
-We're twelve brothers, sons of our father; one is no more, and the youngest is today with our father in the land of Canaan.' 
-The man, the lord of the land, said to us, 'By this I'll know that you're honest men: leave one of your brothers with me, and take grain for the famine of your houses, and go your way. 
-Bring your youngest brother to me. Then I'll know that you aren't spies, but that you're honest men. So I'll deliver your brother to you, and you will trade in the land.'" 
-As they emptied their sacks, look, each man's bundle of money was in his sack. When they and their father saw their bundles of money, they were afraid. 
-Jacob, their father, said to them, "You have bereaved me of my children! Joseph is no more, Simeon is no more, and you want to take Benjamin away. All these things are against me." 
-Reuben spoke to his father, saying, "Kill my two sons, if I don't bring him to you. Entrust him to my care, and I'll bring him to you again." 
-He said, "My son won't go down with you; for his brother is dead, and he only is left. If harm happens to him along the way in which you go, then you'll bring down my gray hairs with sorrow to Hades." 
+He remembered the dreams he had dreamed about them, and said, "You're spies. You've come to find the weak spots in the land." 
+"No, sir," they said. "Your servants have come to buy food. 
+We're all sons of one man. We're honest men. We're not spies." 
+"No," he said. "You've come to find the weak spots in the land." 
+They said, "There are twelve of us, all brothers, sons of one man in Canaan. The youngest is with our father today, and one of us is gone." 
+Joseph said, "It's just as I told you: you're spies. 
+This is how you'll be tested. By Pharaoh's life, you won't leave this place unless your youngest brother comes here. 
+Send one of you to fetch him, and the rest of you will stay in chains, so your story can be checked and we can see whether there's any truth in you. If not, by Pharaoh's life, you're spies." 
+So he put them all in custody for three days. 
+On the third day Joseph said to them, "Do this and you'll live, because I fear God. 
+If you're honest men, let one of your brothers stay locked up here, and the rest of you go and carry grain back for your starving families. 
+Then bring your youngest brother to me, and your story will be checked out and you won't die." So they did it. 
+They said to each other, "We're paying for what we did to our brother. We saw how distressed he was when he begged us, and we wouldn't listen. That's why this trouble has come on us." 
+Reuben answered, "Didn't I tell you not to do anything to the boy? You wouldn't listen, and now his blood is being demanded." 
+They didn't know Joseph could understand them, because he had been using an interpreter. 
+He turned away from them and wept. Then he came back and spoke to them, and had Simeon taken from them and tied up while they watched. 
+Joseph gave orders to fill their bags with grain, put each man's money back in his sack, and give them food for the journey. That's what was done. 
+They loaded their donkeys with the grain and set off. 
+At the place where they stopped for the night, one of them opened his sack to feed his donkey, and there was his money, right at the top of the sack. 
+He said to his brothers, "My money's been put back. Here it is, in my sack." Their hearts sank, and they turned to each other trembling. "What has God done to us?" they said. 
+They came to their father Jacob in Canaan and told him everything that had happened. 
+"The man who's in charge of the land spoke harshly to us and took us for spies. 
+We told him, 'We're honest men. We're not spies. 
+There are twelve of us, sons of one father. One of us is gone, and the youngest is with our father in Canaan today.' 
+Then the man who's in charge of the land said, 'This is how I'll know you're honest men. Leave one of your brothers here with me, take grain for your starving families, and go. 
+Bring your youngest brother back to me, and I'll know you're not spies but honest men. Then I'll give your brother back to you, and you can do business in the land.'" 
+As they emptied their sacks, there was each man's bag of money in his own sack. When they and their father saw the money, they were afraid. 
+Their father Jacob said, "You've taken my children from me. Joseph is gone, Simeon is gone, and now you want Benjamin. Everything is against me." 
+Reuben said to his father, "You can kill my two sons if I don't bring him back to you. Put him in my care and I'll bring him back." 
+But he said, "My son won't go down with you. His brother is dead, and he's the only one left. If something happens to him on the way, you'll bring my gray head down to Hades in grief." 

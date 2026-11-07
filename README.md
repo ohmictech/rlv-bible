@@ -72,6 +72,10 @@ One folder per book in canonical order, one file per chapter, verses only:
 
 Verse *V* sits on line *V*, so the verse number is the line number. Files are UTF-8 with BOM, LF line endings only, a newline at the end of the file, one trailing space on each line, straight quotes only, and no em or en dashes.
 
+## Building a reading edition
+
+`tools/build_docx.py` turns the chapter files into Word documents, one per book plus one combined volume, with a title page, a table of contents, page numbers, book and chapter headings, and the verse number set small at the start of each verse. It only reads the chapter files and writes to `build/`, which git ignores, so the text never has a second copy to drift out of step. `python tools/build_docx.py --list` shows what it can build, `--book genesis` builds a single book, and `--layout inline` runs the verses of a chapter together the way a printed Bible does. It needs `python-docx` from `tools/requirements.txt`.
+
 ## Source and license
 
 The text is rendered from the World English Bible, which is in the public domain and is itself a modern English update of the American Standard Version. The result is released under CC BY-SA 4.0, which permits copying, printing, public reading, quotation, modification and commercial use, provided the source is credited and any derivative is released under the same terms. Public domain status does not oblige anyone to that condition; it is adopted here so that the text, and anything made from it, stays available.

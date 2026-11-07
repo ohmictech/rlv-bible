@@ -1,2 +1,4 @@
 *.zip
 *.tmp.md
+build/
+*.docx

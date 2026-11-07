@@ -7,10 +7,10 @@ He appointed it in Joseph for a covenant, when he went out over the land of Egyp
 You called in trouble, and I delivered you. I answered you in the secret place of thunder. I tested you at the waters of Meribah." Selah. 
 "Hear, my people, and I will testify to you, Israel, if you would listen to me! 
 There shall be no strange god in you, neither shall you worship any foreign god. 
-I am the LORD, your God, who brought you up out of the land of Egypt. Open your mouth wide, and I will fill it. 
+I am God, your God, who brought you up out of the land of Egypt. Open your mouth wide, and I will fill it. 
 But my people didn't listen to my voice. Israel desired none of me. 
 So I let them go after the stubbornness of their hearts, that they might walk in their own counsels. 
 Oh that my people would listen to me, that Israel would walk in my ways! 
 I would soon subdue their enemies, and turn my hand against their adversaries. 
-The haters of the LORD would cringe before him, and their punishment would last forever. 
+The haters of God would cringe before him, and their punishment would last for the eras. 
 But he would have also fed them with the finest of the wheat. I will satisfy you with honey out of the rock." 

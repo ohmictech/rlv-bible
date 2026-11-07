@@ -9,4 +9,4 @@ David and his men went up and raided the Geshurites, the Girzites, and the Amale
 David struck the land, and saved no man or woman alive, and took away the sheep, the cattle, the donkeys, the camels, and the clothing. Then he returned, and came to Achish. 
 Achish said, "Against whom have you made a raid today?" David said, "Against the South of Judah, against the South of the Jerahmeelites, and against the South of the Kenites." 
 David saved neither man nor woman alive to bring them to Gath, saying, "Lest they should tell about us, saying, 'David did this, and this has been his way all the time he has lived in the country of the Philistines.'" 
-Achish believed David, saying, "He has made his people Israel utterly to abhor him. Therefore he will be my servant forever." 
+Achish believed David, saying, "He has made his people Israel utterly to abhor him. Therefore he will be my servant for the eras." 

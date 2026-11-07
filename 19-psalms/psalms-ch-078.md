@@ -1,7 +1,7 @@
 ﻿A contemplation by Asaph. Hear my teaching, my people. Turn your ears to the words of my mouth. 
 I will open my mouth in a parable. I will utter dark sayings of old, 
 which we have heard and known, and our fathers have told us. 
-We will not hide them from their children, telling to the generation to come the praises of the LORD, his strength, and his wondrous deeds that he has done. 
+We will not hide them from their children, telling to the generation to come the praises of God, his strength, and his wondrous deeds that he has done. 
 For he established a covenant in Jacob, and appointed a teaching in Israel, which he commanded our fathers, that they should make them known to their children; 
 that the generation to come might know, even the children who should be born; who should arise and tell their children, 
 that they might set their hope in God, and not forget God's deeds, but keep his commandments, 
@@ -18,7 +18,7 @@ Yet they still went on to sin against him, to rebel against the Most High in the
 They tempted God in their heart by asking food according to their desire. 
 Yes, they spoke against God. They said, "Can God prepare a table in the wilderness? 
 Behold, he struck the rock, so that waters gushed out, and streams overflowed. Can he give bread also? Will he provide meat for his people?" 
-Therefore the LORD heard, and was angry. A fire was kindled against Jacob, anger also went up against Israel, 
+Therefore God heard, and was angry. A fire was kindled against Jacob, anger also went up against Israel, 
 because they didn't believe in God, and didn't trust in his salvation. 
 Yet he commanded the skies above, and opened the doors of heaven. 
 He rained down manna on them to eat, and gave them food from the sky. 
@@ -66,7 +66,7 @@ Then the Lord awakened as one out of sleep, like a mighty man who shouts by reas
 He struck his adversaries backward. He put them to a perpetual reproach. 
 Moreover he rejected the tent of Joseph, and didn't choose the tribe of Ephraim, 
 But chose the tribe of Judah, Mount Zion which he loved. 
-He built his sanctuary like the heights, like the earth which he has established forever. 
+He built his sanctuary like the heights, like the earth which he has established for the eras. 
 He also chose David his servant, and took him from the sheepfolds; 
 from following the ewes that have their young, he brought him to be the shepherd of Jacob, his people, and Israel, his inheritance. 
 So he was their shepherd according to the integrity of his heart, and guided them by the skillfulness of his hands. 

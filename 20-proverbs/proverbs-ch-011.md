@@ -1,4 +1,4 @@
-﻿A false balance is an abomination to the LORD, but accurate weights are his delight. 
+﻿A false balance is an abomination to God, but accurate weights are his delight. 
 When pride comes, then comes shame, but with humility comes wisdom. 
 The integrity of the upright shall guide them, but the perverseness of the treacherous shall destroy them. 
 Riches don't profit in the day of wrath, but righteousness delivers from death. 
@@ -17,7 +17,7 @@ A gracious woman obtains honor, but violent men obtain riches.
 The merciful man does good to his own soul, but he who is cruel troubles his own flesh. 
 Wicked people earn deceitful wages, but one who sows righteousness reaps a sure reward. 
 He who is truly righteous gets life. He who pursues evil gets death. 
-Those who are perverse in heart are an abomination to the LORD, but those whose ways are blameless are his delight. 
+Those who are perverse in heart are an abomination to God, but those whose ways are blameless are his delight. 
 Most certainly, the evil man will not be unpunished, but the offspring of the righteous will be delivered. 
 Like a gold ring in a pig's snout, is a beautiful woman who lacks discretion. 
 The desire of the righteous is only good. The expectation of the wicked is wrath. 

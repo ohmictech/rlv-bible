@@ -7,9 +7,9 @@ Many men claim to be men of unfailing love, but who can find a faithful man?
 A righteous man walks in integrity. Blessed are his children after him. 
 A king who sits on the throne of judgment scatters away all evil with his eyes. 
 Who can say, "I have made my heart pure. I am clean and without sin"? 
-Differing weights and differing measures, both of them alike are an abomination to the LORD. 
+Differing weights and differing measures, both of them alike are an abomination to God. 
 Even a child makes himself known by his doings, whether his work is pure, and whether it is right. 
-The hearing ear, and the seeing eye, the LORD has made even both of them. 
+The hearing ear, and the seeing eye, God has made even both of them. 
 Don't love sleep, lest you come to poverty. Open your eyes, and you shall be satisfied with bread. 
 "It's no good, it's no good," says the buyer; but when he is gone his way, then he boasts. 
 There is gold and abundance of rubies, but the lips of knowledge are a rare jewel. 
@@ -19,12 +19,12 @@ Plans are established by advice; by wise guidance you wage war!
 He who goes about as a tale-bearer reveals secrets; therefore don't keep company with him who opens wide his lips. 
 Whoever curses his father or his mother, his lamp shall be put out in blackness of darkness. 
 An inheritance quickly gained at the beginning won't be blessed in the end. 
-Don't say, "I will pay back evil." Wait for the LORD, and he will save you. 
-The LORD detests differing weights, and dishonest scales are not pleasing. 
-A man's steps are from the LORD; how then can man understand his way? 
+Don't say, "I will pay back evil." Wait for God, and he will save you. 
+God detests differing weights, and dishonest scales are not pleasing. 
+A man's steps are from God; how then can man understand his way? 
 It is a snare to a man to make a rash dedication, then later to consider his vows. 
 A wise king winnows out the wicked, and drives the threshing wheel over them. 
-The spirit of man is the LORD's lamp, searching all his innermost parts. 
+The spirit of man is God's lamp, searching all his innermost parts. 
 Love and faithfulness keep the king safe. His throne is sustained by love. 
 The glory of young men is their strength. The splendor of old men is their gray hair. 
 Wounding blows cleanse away evil, and beatings purge the innermost parts. 

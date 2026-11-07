@@ -1,10 +1,10 @@
 ﻿"Listen to this, you priests! Listen, house of Israel, and give ear, house of the king! For the judgment is against you; for you have been a snare at Mizpah, and a net spread on Tabor. 
 The rebels are deep in slaughter, but I discipline all of them. 
 I know Ephraim, and Israel is not hidden from me; for now, Ephraim, you have played the prostitute. Israel is defiled. 
-Their deeds won't allow them to turn to their God, for the spirit of prostitution is within them, and they don't know the LORD. 
+Their deeds won't allow them to turn to their God, for the spirit of prostitution is within them, and they don't know God. 
 The pride of Israel testifies to his face. Therefore Israel and Ephraim will stumble in their iniquity. Judah also will stumble with them. 
-They will go with their flocks and with their herds to seek the LORD, but they won't find him. He has withdrawn himself from them. 
-They are unfaithful to the LORD; for they have borne illegitimate children. Now the new moon will devour them with their fields. 
+They will go with their flocks and with their herds to seek God, but they won't find him. He has withdrawn himself from them. 
+They are unfaithful to God; for they have borne illegitimate children. Now the new moon will devour them with their fields. 
 "Blow the cornet in Gibeah, and the trumpet in Ramah! Sound a battle cry at Beth Aven, behind you, Benjamin! 
 Ephraim will become a desolation in the day of rebuke. Among the tribes of Israel, I have made known that which will surely be. 
 The princes of Judah are like those who remove a landmark. I will pour out my wrath on them like water. 

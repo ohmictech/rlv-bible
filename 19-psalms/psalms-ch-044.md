@@ -5,7 +5,7 @@ God, you are my King. Command victories for Jacob!
 Through you, we will push down our adversaries. Through your name, we will tread down those who rise up against us. 
 For I will not trust in my bow, neither will my sword save me. 
 But you have saved us from our adversaries, and have shamed those who hate us. 
-In God we have made our boast all day long. We will give thanks to your name forever. Selah. 
+In God we have made our boast all day long. We will give thanks to your name for the eras. Selah. 
 But now you rejected us, and brought us to dishonor, and don't go out with our armies. 
 You make us turn back from the adversary. Those who hate us take plunder for themselves. 
 You have made us like sheep for food, and have scattered us among the nations. 
@@ -20,7 +20,7 @@ though you have crushed us in the haunt of jackals, and covered us with the shad
 If we have forgotten the name of our God, or spread out our hands to a strange god, 
 won't God search this out? For he knows the secrets of the heart. 
 Yes, for your sake we are killed all day long. We are regarded as sheep for the slaughter. 
-Wake up! Why do you sleep, Lord? Arise! Don't reject us forever. 
+Wake up! Why do you sleep, Lord? Arise! Don't reject us for the eras. 
 Why do you hide your face, and forget our affliction and our oppression? 
 For our soul is bowed down to the dust. Our body clings to the earth. 
 Rise up to help us. Redeem us for your loving kindness' sake. 

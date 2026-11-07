@@ -6,7 +6,7 @@ but if you don't send him, we won't go down, for the man said to us, 'You shall 
 Israel said, "Why did you treat me so badly, telling the man that you had another brother?" 
 They said, "The man asked directly concerning ourselves, and concerning our relatives, saying, 'Is your father still alive? Have you another brother?' We just answered his questions. Is there any way we could know that he would say, 'Bring your brother down'?" 
 Judah said to Israel, his father, "Send the boy with me, and we'll get up and go, so that we may live, and not die, both we, and you, and also our little ones. 
-I'll be collateral for him. From my hand will you require him. If I don't bring him to you, and set him before you, then let me bear the blame forever; 
+I'll be collateral for him. From my hand will you require him. If I don't bring him to you, and set him before you, then let me bear the blame for the eras; 
 for if we hadn't delayed, surely we would have returned a second time by now." 
 Their father, Israel, said to them, "If it must be so, then do this: Take from the choice fruits of the land in your bags, and carry down a present for the man, a little balm, a little honey, spices and myrrh, nuts, and almonds; 
 and take double money in your hand, and take back the money that was returned in the mouth of your sacks. Perhaps it was an oversight. 

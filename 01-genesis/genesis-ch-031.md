@@ -1,6 +1,6 @@
 ﻿Jacob heard Laban's sons' words, saying, "Jacob has taken away all that was our father's. He has obtained all this wealth from that which was our father's." 
 Jacob saw the expression on Laban's face, and, behold, it was not toward him as before. 
-The LORD said to Jacob, "Return to the land of your fathers, and to your relatives, and I will be with you." 
+God said to Jacob, "Return to the land of your fathers, and to your relatives, and I will be with you." 
 Jacob sent and called Rachel and Leah to the field to his flock, 
 and said to them, "I see the expression on your father's face, that it is not toward me as before; but the God of my father has been with me. 
 You know that I have served your father with all of my strength. 
@@ -46,7 +46,7 @@ Jacob took a stone, and set it up for a pillar.
 Jacob said to his relatives, "Gather stones." They took stones, and made a heap. They ate there by the heap. 
 Laban called it Jegar Sahadutha, but Jacob called it Galeed. 
 Laban said, "This heap is witness between me and you today." Therefore it was named Galeed 
-and Mizpah, for he said, "The LORD watch between me and you, when we are absent one from another. 
+and Mizpah, for he said, "God watch between me and you, when we are absent one from another. 
 If you afflict my daughters, or if you take wives in addition to my daughters, no man is with us; behold, God is witness between me and you." 
 Laban said to Jacob, "See this heap, and see the pillar, which I have set between me and you. 
 May this heap be a witness, and the pillar be a witness, that I will not pass over this heap to you, and that you will not pass over this heap and this pillar to me, for harm. 

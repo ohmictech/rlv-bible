@@ -1,5 +1,5 @@
-﻿Samuel said to Saul, "The LORD sent me to anoint you to be king over his people, over Israel. Now therefore listen to the voice of the LORD's words. 
-The LORD of Armies says, 'I remember what Amalek did to Israel, how he set himself against him on the way when he came up out of Egypt. 
+﻿Samuel said to Saul, "God sent me to anoint you to be king over his people, over Israel. Now therefore listen to the voice of God's words. 
+The God of Armies says, 'I remember what Amalek did to Israel, how he set himself against him on the way when he came up out of Egypt. 
 Now go and strike Amalek, and utterly destroy all that they have, and don't spare them; but kill both man and woman, infant and nursing baby, ox and sheep, camel and donkey.'" 
 Saul summoned the people, and counted them in Telaim, two hundred thousand footmen and ten thousand men of Judah. 
 Saul came to the city of Amalek, and set an ambush in the valley. 
@@ -7,29 +7,29 @@ Saul said to the Kenites, "Go, depart, go down from among the Amalekites, lest I
 Saul struck the Amalekites, from Havilah as you go to Shur, which is before Egypt. 
 He took Agag the king of the Amalekites alive, and utterly destroyed all the people with the edge of the sword. 
 But Saul and the people spared Agag and the best of the sheep, of the cattle, of the fat calves, of the lambs, and all that was good, and were not willing to utterly destroy them; but everything that was vile and refuse, that they destroyed utterly. 
-Then the LORD's word came to Samuel, saying, 
-"It grieves me that I have set up Saul to be king, for he has turned back from following me, and has not performed my commandments." Samuel was angry; and he cried to the LORD all night. 
+Then God's word came to Samuel, saying, 
+"It grieves me that I have set up Saul to be king, for he has turned back from following me, and has not performed my commandments." Samuel was angry; and he cried to God all night. 
 Samuel rose early to meet Saul in the morning; and Samuel was told, saying, "Saul came to Carmel, and behold, he set up a monument for himself, turned, passed on, and went down to Gilgal." 
-Samuel came to Saul; and Saul said to him, "You are blessed by the LORD! I have performed the commandment of the LORD." 
+Samuel came to Saul; and Saul said to him, "You are blessed by God! I have performed the commandment of God." 
 Samuel said, "Then what does this bleating of the sheep in my ears and the lowing of the cattle which I hear mean?" 
-Saul said, "They have brought them from the Amalekites; for the people spared the best of the sheep and of the cattle, to sacrifice to the LORD your God. We have utterly destroyed the rest." 
-Then Samuel said to Saul, "Stay, and I will tell you what the LORD said to me last night." He said to him, "Say on." 
-Samuel said, "Though you were little in your own sight, weren't you made the head of the tribes of Israel? The LORD anointed you king over Israel; 
-and the LORD sent you on a journey, and said, 'Go, and utterly destroy the sinners the Amalekites, and fight against them until they are consumed.' 
-Why then didn't you obey the LORD's voice, but took the plunder, and did that which was evil in the LORD's sight?" 
-Saul said to Samuel, "But I have obeyed the LORD's voice, and have gone the way which the LORD sent me, and have brought Agag the king of Amalek, and have utterly destroyed the Amalekites. 
-But the people took of the plunder, sheep and cattle, the best of the devoted things, to sacrifice to the LORD your God in Gilgal." 
-Samuel said, "Has the LORD as great delight in burnt offerings and sacrifices, as in obeying the LORD's voice? Behold, to obey is better than sacrifice, and to listen than the fat of rams. 
-For rebellion is as the sin of witchcraft, and stubbornness is as idolatry and teraphim. Because you have rejected the LORD's word, he has also rejected you from being king." 
-Saul said to Samuel, "I have sinned; for I have transgressed the commandment of the LORD and your words, because I feared the people and obeyed their voice. 
-Now therefore, please pardon my sin, and turn again with me, that I may worship the LORD." 
-Samuel said to Saul, "I will not return with you; for you have rejected the LORD's word, and the LORD has rejected you from being king over Israel." 
+Saul said, "They have brought them from the Amalekites; for the people spared the best of the sheep and of the cattle, to sacrifice to your God. We have utterly destroyed the rest." 
+Then Samuel said to Saul, "Stay, and I will tell you what God said to me last night." He said to him, "Say on." 
+Samuel said, "Though you were little in your own sight, weren't you made the head of the tribes of Israel? God anointed you king over Israel; 
+and God sent you on a journey, and said, 'Go, and utterly destroy the sinners the Amalekites, and fight against them until they are consumed.' 
+Why then didn't you obey God's voice, but took the plunder, and did that which was evil in God's sight?" 
+Saul said to Samuel, "But I have obeyed God's voice, and have gone the way which God sent me, and have brought Agag the king of Amalek, and have utterly destroyed the Amalekites. 
+But the people took of the plunder, sheep and cattle, the best of the devoted things, to sacrifice to your God in Gilgal." 
+Samuel said, "Has God as great delight in burnt offerings and sacrifices, as in obeying God's voice? Behold, to obey is better than sacrifice, and to listen than the fat of rams. 
+For rebellion is as the sin of witchcraft, and stubbornness is as idolatry and teraphim. Because you have rejected God's word, he has also rejected you from being king." 
+Saul said to Samuel, "I have sinned; for I have transgressed the commandment of God and your words, because I feared the people and obeyed their voice. 
+Now therefore, please pardon my sin, and turn again with me, that I may worship God." 
+Samuel said to Saul, "I will not return with you; for you have rejected God's word, and God has rejected you from being king over Israel." 
 As Samuel turned around to go away, Saul grabbed the skirt of his robe, and it tore. 
-Samuel said to him, "The LORD has torn the kingdom of Israel from you today, and has given it to a neighbor of yours who is better than you. 
+Samuel said to him, "God has torn the kingdom of Israel from you today, and has given it to a neighbor of yours who is better than you. 
 Also the Strength of Israel will not lie nor repent; for he is not a man, that he should repent." 
-Then he said, "I have sinned; yet please honor me now before the elders of my people and before Israel, and come back with me, that I may worship the LORD your God." 
-So Samuel went back with Saul; and Saul worshiped the LORD. 
+Then he said, "I have sinned; yet please honor me now before the elders of my people and before Israel, and come back with me, that I may worship your God." 
+So Samuel went back with Saul; and Saul worshiped God. 
 Then Samuel said, "Bring Agag the king of the Amalekites here to me!" Agag came to him cheerfully. Agag said, "Surely the bitterness of death is past." 
-Samuel said, "As your sword has made women childless, so your mother will be childless among women!" Then Samuel cut Agag in pieces before the LORD in Gilgal. 
+Samuel said, "As your sword has made women childless, so your mother will be childless among women!" Then Samuel cut Agag in pieces before God in Gilgal. 
 Then Samuel went to Ramah; and Saul went up to his house to Gibeah of Saul. 
-Samuel came no more to see Saul until the day of his death, but Samuel mourned for Saul. The LORD grieved that he had made Saul king over Israel. 
+Samuel came no more to see Saul until the day of his death, but Samuel mourned for Saul. God grieved that he had made Saul king over Israel. 

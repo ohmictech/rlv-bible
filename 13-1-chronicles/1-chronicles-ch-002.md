@@ -1,6 +1,6 @@
 ﻿These are the sons of Israel: Reuben, Simeon, Levi, Judah, Issachar, Zebulun, 
 Dan, Joseph, Benjamin, Naphtali, Gad, and Asher. 
-The sons of Judah: Er, Onan, and Shelah, which three were born to him of Shua's daughter the Canaanitess. Er, Judah's firstborn, was wicked in the LORD's sight; and he killed him. 
+The sons of Judah: Er, Onan, and Shelah, which three were born to him of Shua's daughter the Canaanitess. Er, Judah's firstborn, was wicked in God's sight; and he killed him. 
 Tamar his daughter-in-law bore him Perez and Zerah. All the sons of Judah were five. 
 The sons of Perez: Hezron and Hamul. 
 The sons of Zerah: Zimri, Ethan, Heman, Calcol, and Dara, five of them in all. 

@@ -1,6 +1,6 @@
 ﻿In the month Nisan, in the twentieth year of Artaxerxes the king, when wine was before him, I picked up the wine, and gave it to the king. Now I had not been sad before in his presence. 
 The king said to me, "Why is your face sad, since you are not sick? This is nothing else but sorrow of heart." Then I was very much afraid. 
-I said to the king, "Let the king live forever! Why shouldn't my face be sad, when the city, the place of my fathers' tombs, lies waste, and its gates have been consumed with fire?" 
+I said to the king, "Let the king live for the eras! Why shouldn't my face be sad, when the city, the place of my fathers' tombs, lies waste, and its gates have been consumed with fire?" 
 Then the king said to me, "What is your request?" So I prayed to the God of heaven. 
 I said to the king, "If it pleases the king, and if your servant has found favor in your sight, I ask that you would send me to Judah, to the city of my fathers' tombs, that I may build it." 
 The king said to me (the queen was also sitting by him), "How long will your journey be? When will you return?" So it pleased the king to send me, and I set a time for him. 

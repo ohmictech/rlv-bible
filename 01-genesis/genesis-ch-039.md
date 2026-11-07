@@ -1,8 +1,8 @@
 ﻿Joseph was brought down to Egypt. Potiphar, an officer of Pharaoh's, the captain of the guard, an Egyptian, bought him from the hand of the Ishmaelites that had brought him down there. 
-The LORD was with Joseph, and he was a prosperous man. He was in the house of his master the Egyptian. 
-His master saw that the LORD was with him, and that the LORD made all that he did prosper in his hand. 
+God was with Joseph, and he was a prosperous man. He was in the house of his master the Egyptian. 
+His master saw that God was with him, and that God made all that he did prosper in his hand. 
 Joseph found favor in his sight. He ministered to him, and Potiphar made him overseer over his house, and all that he had he put into his hand. 
-From the time that he made him overseer in his house, and over all that he had, the LORD blessed the Egyptian's house for Joseph's sake. The LORD's blessing was on all that he had, in the house and in the field. 
+From the time that he made him overseer in his house, and over all that he had, God blessed the Egyptian's house for Joseph's sake. God's blessing was on all that he had, in the house and in the field. 
 He left all that he had in Joseph's hand. He didn't concern himself with anything, except for the food which he ate. Joseph was well-built and handsome. 
 After these things, his master's wife set her eyes on Joseph; and she said, "Lie with me." 
 But he refused, and said to his master's wife, "Behold, my master doesn't know what is with me in the house, and he has put all that he has into my hand. 
@@ -18,6 +18,6 @@ She spoke to him according to these words, saying, "The Hebrew servant, whom you
 and as I lifted up my voice and cried, he left his garment by me, and ran outside." 
 When his master heard the words of his wife, which she spoke to him, saying, "This is what your servant did to me," his wrath was kindled. 
 Joseph's master took him, and put him into the prison, the place where the king's prisoners were bound, and he was there in custody. 
-But the LORD was with Joseph, and showed kindness to him, and gave him favor in the sight of the keeper of the prison. 
+But God was with Joseph, and showed kindness to him, and gave him favor in the sight of the keeper of the prison. 
 The keeper of the prison committed to Joseph's hand all the prisoners who were in the prison. Whatever they did there, he was responsible for it. 
-The keeper of the prison didn't look after anything that was under his hand, because the LORD was with him; and that which he did, the LORD made it prosper. 
+The keeper of the prison didn't look after anything that was under his hand, because God was with him; and that which he did, God made it prosper. 

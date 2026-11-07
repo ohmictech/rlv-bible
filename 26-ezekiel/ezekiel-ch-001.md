@@ -1,6 +1,6 @@
 ﻿Now in the thirtieth year, in the fourth month, in the fifth day of the month, as I was among the captives by the river Chebar, the heavens were opened, and I saw visions of God. 
 In the fifth of the month, which was the fifth year of King Jehoiachin's captivity, 
-the LORD's word came to Ezekiel the priest, the son of Buzi, in the land of the Chaldeans by the river Chebar; and the LORD's hand was there on him. 
+God's word came to Ezekiel the priest, the son of Buzi, in the land of the Chaldeans by the river Chebar; and God's hand was there on him. 
 I looked, and behold, a stormy wind came out of the north: a great cloud, with flashing lightning, and a brightness around it, and out of the middle of it as it were glowing metal, out of the middle of the fire. 
 Out of its center came the likeness of four living creatures. This was their appearance: They had the likeness of a man. 
 Everyone had four faces, and each one of them had four wings. 
@@ -25,4 +25,4 @@ When they went, I heard the noise of their wings like the noise of great waters,
 There was a voice above the expanse that was over their heads. When they stood, they let down their wings. 
 Above the expanse that was over their heads was the likeness of a throne, as the appearance of a sapphire stone. On the likeness of the throne was a likeness as the appearance of a man on it above. 
 I saw as it were glowing metal, as the appearance of fire within it all around, from the appearance of his waist and upward; and from the appearance of his waist and downward I saw as it were the appearance of fire, and there was brightness around him. 
-As the appearance of the rainbow that is in the cloud in the day of rain, so was the appearance of the brightness all around. This was the appearance of the likeness of the LORD's glory. When I saw it, I fell on my face, and I heard a voice of one that spoke. 
+As the appearance of the rainbow that is in the cloud in the day of rain, so was the appearance of the brightness all around. This was the appearance of the likeness of God's glory. When I saw it, I fell on my face, and I heard a voice of one that spoke. 

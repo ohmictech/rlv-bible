@@ -10,7 +10,7 @@ They are all plain to him who understands, right to those who find knowledge.
 Receive my instruction rather than silver, knowledge rather than choice gold. 
 For wisdom is better than rubies. All the things that may be desired can't be compared to it. 
 "I, wisdom, have made prudence my dwelling. Find out knowledge and discretion. 
-The fear of the LORD is to hate evil. I hate pride, arrogance, the evil way, and the perverse mouth. 
+The fear of God is to hate evil. I hate pride, arrogance, the evil way, and the perverse mouth. 
 Counsel and sound knowledge are mine. I have understanding and power. 
 By me kings reign, and princes decree justice. 
 By me princes rule, nobles, and all the righteous rulers of the earth. 
@@ -19,7 +19,7 @@ With me are riches, honor, enduring wealth, and prosperity.
 My fruit is better than gold, yes, than fine gold, my yield than choice silver. 
 I walk in the way of righteousness, in the middle of the paths of justice, 
 that I may give wealth to those who love me. I fill their treasuries. 
-"The LORD possessed me in the beginning of his work, before his deeds of old. 
+"God possessed me in the beginning of his work, before his deeds of old. 
 I was set up from everlasting, from the beginning, before the earth existed. 
 When there were no depths, I was born, when there were no springs abounding with water. 
 Before the mountains were settled in place, before the hills, I was born; 
@@ -32,5 +32,5 @@ rejoicing in his whole world. My delight was with the sons of men.
 "Now therefore, my sons, listen to me, for blessed are those who keep my ways. 
 Hear instruction, and be wise. Don't refuse it. 
 Blessed is the man who hears me, watching daily at my gates, waiting at my door posts. 
-For whoever finds me finds life, and will obtain favor from the LORD. 
+For whoever finds me finds life, and will obtain favor from God. 
 But he who sins against me wrongs his own soul. All those who hate me love death." 

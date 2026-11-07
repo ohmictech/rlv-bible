@@ -7,7 +7,7 @@ A fool's lips come into strife, and his mouth invites beatings.
 A fool's mouth is his destruction, and his lips are a snare to his soul. 
 The words of a gossip are like dainty morsels: they go down into a person's innermost parts. 
 One who is slack in his work is brother to him who is a master of destruction. 
-The LORD's name is a strong tower: the righteous run to him, and are safe. 
+God's name is a strong tower: the righteous run to him, and are safe. 
 The rich man's wealth is his strong city, like an unscalable wall in his own imagination. 
 Before destruction the heart of man is proud, but before honor is humility. 
 He who answers before he hears, that is folly and shame to him. 
@@ -19,6 +19,6 @@ The lot settles disputes, and keeps strong ones apart.
 A brother offended is more difficult than a fortified city. Disputes are like the bars of a fortress. 
 A man's stomach is filled with the fruit of his mouth. With the harvest of his lips he is satisfied. 
 Death and life are in the power of the tongue; those who love it will eat its fruit. 
-Whoever finds a wife finds a good thing, and obtains favor of the LORD. 
+Whoever finds a wife finds a good thing, and obtains favor of God. 
 The poor plead for mercy, but the rich answer harshly. 
 A man of many companions may be ruined, but there is a friend who sticks closer than a brother. 

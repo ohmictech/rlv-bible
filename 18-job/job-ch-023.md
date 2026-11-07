@@ -4,7 +4,7 @@ Oh that I knew where I might find him! That I might come even to his seat!
 I would set my cause in order before him, and fill my mouth with arguments. 
 I would know the words which he would answer me, and understand what he would tell me. 
 Would he contend with me in the greatness of his power? No, but he would listen to me. 
-There the upright might reason with him, so I should be delivered forever from my judge. 
+There the upright might reason with him, so I should be delivered for the eras from my judge. 
 "If I go east, he is not there. If I go west, I can't find him. 
 He works to the north, but I can't see him. He turns south, but I can't catch a glimpse of him. 
 But he knows the way that I take. When he has tried me, I will come out like gold. 

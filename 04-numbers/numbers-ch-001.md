@@ -1,4 +1,4 @@
-﻿The LORD spoke to Moses in the wilderness of Sinai, in the Tent of Meeting, on the first day of the second month, in the second year after they had come out of the land of Egypt, saying, 
+﻿God spoke to Moses in the wilderness of Sinai, in the Tent of Meeting, on the first day of the second month, in the second year after they had come out of the land of Egypt, saying, 
 "Take a census of all the congregation of the children of Israel, by their families, by their fathers' houses, according to the number of the names, every male, one by one, 
 from twenty years old and upward, all who are able to go out to war in Israel. You and Aaron shall count them by their divisions. 
 With you there shall be a man of every tribe, each one head of his fathers' house. 
@@ -16,7 +16,7 @@ Of Naphtali: Ahira the son of Enan."
 These are those who were called of the congregation, the princes of the tribes of their fathers; they were the heads of the thousands of Israel. 
 Moses and Aaron took these men who are mentioned by name. 
 They assembled all the congregation together on the first day of the second month; and they declared their ancestry by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, one by one. 
-As the LORD commanded Moses, so he counted them in the wilderness of Sinai. 
+As God commanded Moses, so he counted them in the wilderness of Sinai. 
 The children of Reuben, Israel's firstborn, their generations, by their families, by their fathers' houses, according to the number of the names, one by one, every male from twenty years old and upward, all who were able to go out to war: 
 those who were counted of them, of the tribe of Reuben, were forty-six thousand five hundred. 
 Of the children of Simeon, their generations, by their families, by their fathers' houses, those who were counted of it, according to the number of the names, one by one, every male from twenty years old and upward, all who were able to go out to war: 
@@ -45,10 +45,10 @@ These are those who were counted, whom Moses and Aaron counted, and the twelve m
 So all those who were counted of the children of Israel by their fathers' houses, from twenty years old and upward, all who were able to go out to war in Israel 
 all those who were counted were six hundred three thousand five hundred fifty. 
 But the Levites after the tribe of their fathers were not counted among them. 
-For the LORD spoke to Moses, saying, 
+For God spoke to Moses, saying, 
 "Only the tribe of Levi you shall not count, neither shall you take a census of them among the children of Israel; 
 but appoint the Levites over the Tabernacle of the Testimony, and over all its furnishings, and over all that belongs to it. They shall carry the tabernacle and all its furnishings; and they shall take care of it, and shall encamp around it. 
 When the tabernacle is to move, the Levites shall take it down; and when the tabernacle is to be set up, the Levites shall set it up. The stranger who comes near shall be put to death. 
 The children of Israel shall pitch their tents, every man by his own camp, and every man by his own standard, according to their divisions. 
 But the Levites shall encamp around the Tabernacle of the Testimony, that there may be no wrath on the congregation of the children of Israel. The Levites shall be responsible for the Tabernacle of the Testimony." 
-Thus the children of Israel did. According to all that the LORD commanded Moses, so they did. 
+Thus the children of Israel did. According to all that God commanded Moses, so they did. 

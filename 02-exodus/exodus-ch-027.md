@@ -18,4 +18,4 @@ All the pillars of the court around shall be filleted with silver; their hooks o
 The length of the court shall be one hundred cubits, and the width fifty throughout, and the height five cubits, of fine twined linen, and their sockets of bronze. 
 All the instruments of the tabernacle in all its service, and all its pins, and all the pins of the court, shall be of bronze. 
 "You shall command the children of Israel, that they bring to you pure olive oil beaten for the light, to cause a lamp to burn continually. 
-In the Tent of Meeting, outside the veil which is before the covenant, Aaron and his sons shall keep it in order from evening to morning before the LORD: it shall be a statute forever throughout their generations on the behalf of the children of Israel. 
+In the Tent of Meeting, outside the veil which is before the covenant, Aaron and his sons shall keep it in order from evening to morning before God: it shall be a statute for the eras throughout their generations on the behalf of the children of Israel. 

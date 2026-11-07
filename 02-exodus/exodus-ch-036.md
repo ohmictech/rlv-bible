@@ -1,8 +1,8 @@
-﻿"Bezalel and Oholiab shall work with every wise-hearted man, in whom the LORD has put wisdom and understanding to know how to do all the work for the service of the sanctuary, according to all that the LORD has commanded." 
-Moses called Bezalel and Oholiab, and every wise-hearted man, in whose heart the LORD had put wisdom, even everyone whose heart stirred him up to come to the work to do it. 
+﻿"Bezalel and Oholiab shall work with every wise-hearted man, in whom God has put wisdom and understanding to know how to do all the work for the service of the sanctuary, according to all that God has commanded." 
+Moses called Bezalel and Oholiab, and every wise-hearted man, in whose heart God had put wisdom, even everyone whose heart stirred him up to come to the work to do it. 
 They received from Moses all the offering which the children of Israel had brought for the work of the service of the sanctuary, with which to make it. They kept bringing free will offerings to him every morning. 
 All the wise men, who performed all the work of the sanctuary, each came from his work which he did. 
-They spoke to Moses, saying, "The people have brought much more than enough for the service of the work which the LORD commanded to make." 
+They spoke to Moses, saying, "The people have brought much more than enough for the service of the work which God commanded to make." 
 Moses gave a commandment, and they caused it to be proclaimed throughout the camp, saying, "Let neither man nor woman make anything else for the offering for the sanctuary." So the people were restrained from bringing. 
 For the stuff they had was sufficient to do all the work, and too much. 
 All the wise-hearted men among those who did the work made the tabernacle with ten curtains of fine twined linen, blue, purple, and scarlet. They made them with cherubim, the work of a skillful workman. 

@@ -12,8 +12,8 @@ When men strive against each other, and the wife of one draws near to deliver he
 then you shall cut off her hand. Your eye shall have no pity. 
 You shall not have in your bag diverse weights, one heavy and one light. 
 You shall not have in your house diverse measures, one large and one small. 
-You shall have a perfect and just weight. You shall have a perfect and just measure, that your days may be long in the land which the LORD your God gives you. 
-For all who do such things, all who do unrighteously, are an abomination to the LORD your God. 
+You shall have a perfect and just weight. You shall have a perfect and just measure, that your days may be long in the land which your God gives you. 
+For all who do such things, all who do unrighteously, are an abomination to your God. 
 Remember what Amalek did to you by the way as you came out of Egypt, 
 how he met you by the way, and struck the rearmost of you, all who were feeble behind you, when you were faint and weary; and he didn't fear God. 
-Therefore it shall be, when the LORD your God has given you rest from all your enemies all around, in the land which the LORD your God gives you for an inheritance to possess it, that you shall blot out the memory of Amalek from under the sky. You shall not forget. 
+Therefore it shall be, when your God has given you rest from all your enemies all around, in the land which your God gives you for an inheritance to possess it, that you shall blot out the memory of Amalek from under the sky. You shall not forget. 

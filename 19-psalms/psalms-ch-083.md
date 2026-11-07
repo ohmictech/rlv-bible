@@ -13,6 +13,6 @@ who said, "Let's take possession of God's pasture lands."
 My God, make them like tumbleweed, like chaff before the wind. 
 As the fire that burns the forest, as the flame that sets the mountains on fire, 
 so pursue them with your tempest, and terrify them with your storm. 
-Fill their faces with confusion, that they may seek your name, LORD. 
-Let them be disappointed and dismayed forever. Yes, let them be confounded and perish; 
-that they may know that you alone, whose name is the LORD, are the Most High over all the earth. 
+Fill their faces with confusion, that they may seek your name, God. 
+Let them be disappointed and dismayed for the eras. Yes, let them be confounded and perish; 
+that they may know that you alone, whose name is God, are the Most High over all the earth. 

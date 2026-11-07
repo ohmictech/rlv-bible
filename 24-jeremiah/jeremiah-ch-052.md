@@ -1,6 +1,6 @@
 ﻿Zedekiah was twenty-one years old when he began to reign. He reigned eleven years in Jerusalem. His mother's name was Hamutal the daughter of Jeremiah of Libnah. 
-He did that which was evil in the LORD's sight, according to all that Jehoiakim had done. 
-For through the LORD's anger this happened in Jerusalem and Judah, until he had cast them out from his presence. Zedekiah rebelled against the king of Babylon. 
+He did that which was evil in God's sight, according to all that Jehoiakim had done. 
+For through God's anger this happened in Jerusalem and Judah, until he had cast them out from his presence. Zedekiah rebelled against the king of Babylon. 
 In the ninth year of his reign, in the tenth month, in the tenth day of the month, Nebuchadnezzar king of Babylon came, he and all his army, against Jerusalem, and encamped against it; and they built forts against it round about. 
 So the city was besieged to the eleventh year of King Zedekiah. 
 In the fourth month, in the ninth day of the month, the famine was severe in the city, so that there was no bread for the people of the land. 
@@ -10,14 +10,14 @@ Then they took the king, and carried him up to the king of Babylon to Riblah in 
 The king of Babylon killed the sons of Zedekiah before his eyes. He also killed all the princes of Judah in Riblah. 
 He put out the eyes of Zedekiah; and the king of Babylon bound him in fetters, and carried him to Babylon, and put him in prison until the day of his death. 
 Now in the fifth month, in the tenth day of the month, which was the nineteenth year of King Nebuchadnezzar, king of Babylon, Nebuzaradan the captain of the guard, who stood before the king of Babylon, came into Jerusalem. 
-He burned the LORD's house, and the king's house; and all the houses of Jerusalem, even every great house, he burned with fire. 
+He burned God's house, and the king's house; and all the houses of Jerusalem, even every great house, he burned with fire. 
 All the army of the Chaldeans, who were with the captain of the guard, broke down all the walls of Jerusalem all around. 
 Then Nebuzaradan the captain of the guard carried away captive of the poorest of the people, and the rest of the people who were left in the city, and those who fell away, who defected to the king of Babylon, and the rest of the multitude. 
 But Nebuzaradan the captain of the guard left of the poorest of the land to be vineyard keepers and farmers. 
-The Chaldeans broke the pillars of bronze that were in the LORD's house and the bases and the bronze sea that were in the LORD's house in pieces, and carried all of their bronze to Babylon. 
+The Chaldeans broke the pillars of bronze that were in God's house and the bases and the bronze sea that were in God's house in pieces, and carried all of their bronze to Babylon. 
 They also took away the pots, the shovels, the snuffers, the basins, the spoons, and all the vessels of bronze with which they ministered. 
 The captain of the guard took away the cups, the fire pans, the basins, the pots, the lamp stands, the spoons, and the bowls; that which was of gold, as gold, and that which was of silver, as silver. 
-They took the two pillars, the one sea, and the twelve bronze bulls that were under the bases, which King Solomon had made for the LORD's house. The bronze of all these vessels was without weight. 
+They took the two pillars, the one sea, and the twelve bronze bulls that were under the bases, which King Solomon had made for God's house. The bronze of all these vessels was without weight. 
 As for the pillars, the height of the one pillar was eighteen cubits; and a line of twelve cubits encircled it; and its thickness was four fingers. It was hollow. 
 A capital of bronze was on it; and the height of the one capital was five cubits, with network and pomegranates on the capital all around, all of bronze. The second pillar also had the same, with pomegranates. 
 There were ninety-six pomegranates on the sides; all the pomegranates were one hundred on the network all around. 

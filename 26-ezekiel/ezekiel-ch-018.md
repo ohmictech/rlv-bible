@@ -1,12 +1,12 @@
-﻿The LORD's word came to me again, saying, 
+﻿God's word came to me again, saying, 
 "What do you mean, that you use this proverb concerning the land of Israel, saying, 'The fathers have eaten sour grapes, and the children's teeth are set on edge'? 
-"As I live," says the Lord GOD, "you shall not use this proverb any more in Israel. 
+"As I live," says God, "you shall not use this proverb any more in Israel. 
 Behold, all souls are mine; as the soul of the father, so also the soul of the son is mine. The soul who sins, he shall die. 
 "But if a man is just, and does that which is lawful and right, 
 and has not eaten on the mountains, hasn't lifted up his eyes to the idols of the house of Israel, hasn't defiled his neighbor's wife, hasn't come near a woman in her impurity, 
 and has not wronged any, but has restored to the debtor his pledge, has taken nothing by robbery, has given his bread to the hungry, and has covered the naked with a garment; 
 he who hasn't lent to them with interest, hasn't taken any increase from them, who has withdrawn his hand from iniquity, has executed true justice between man and man, 
-has walked in my statutes, and has kept my ordinances, to deal truly; he is just, he shall surely live," says the Lord GOD. 
+has walked in my statutes, and has kept my ordinances, to deal truly; he is just, he shall surely live," says God. 
 "If he fathers a son who is a robber who sheds blood, and who does any one of these things, 
 or who does not do any of those things but has eaten at the mountain shrines and defiled his neighbor's wife, 
 has wronged the poor and needy, has taken by robbery, has not restored the pledge, and has lifted up his eyes to the idols, has committed abomination, 
@@ -20,13 +20,13 @@ As for his father, because he cruelly oppressed, robbed his brother, and did tha
 The soul who sins, he shall die. The son shall not bear the iniquity of the father, neither shall the father bear the iniquity of the son. The righteousness of the righteous shall be on him, and the wickedness of the wicked shall be on him. 
 "But if the wicked turns from all his sins that he has committed, and keeps all my statutes, and does that which is lawful and right, he shall surely live. He shall not die. 
 None of his transgressions that he has committed will be remembered against him. In his righteousness that he has done, he shall live. 
-Have I any pleasure in the death of the wicked?" says the Lord GOD, "and not rather that he should return from his way, and live? 
+Have I any pleasure in the death of the wicked?" says God, "and not rather that he should return from his way, and live? 
 "But when the righteous turns away from his righteousness, and commits iniquity, and does according to all the abominations that the wicked man does, should he live? None of his righteous deeds that he has done will be remembered. In his trespass that he has trespassed, and in his sin that he has sinned, in them he shall die. 
 "Yet you say, 'The way of the Lord is not equal.' Hear now, house of Israel: Is my way not equal? Aren't your ways unequal? 
 When the righteous man turns away from his righteousness, and commits iniquity, and dies in it, then he dies in his iniquity that he has done. 
 Again, when the wicked man turns away from his wickedness that he has committed, and does that which is lawful and right, he will save his soul alive. 
 Because he considers, and turns away from all his transgressions that he has committed, he shall surely live. He shall not die. 
 Yet the house of Israel says, 'The way of the Lord is not fair.' House of Israel, aren't my ways fair? Aren't your ways unfair? 
-"Therefore I will judge you, house of Israel, everyone according to his ways," says the Lord GOD. "Return, and turn yourselves from all your transgressions, so iniquity will not be your ruin. 
+"Therefore I will judge you, house of Israel, everyone according to his ways," says God. "Return, and turn yourselves from all your transgressions, so iniquity will not be your ruin. 
 Cast away from you all your transgressions in which you have transgressed; and make yourself a new heart and a new spirit. For why will you die, house of Israel? 
-For I have no pleasure in the death of him who dies," says the Lord GOD. "Therefore turn yourselves, and live! 
+For I have no pleasure in the death of him who dies," says God. "Therefore turn yourselves, and live! 

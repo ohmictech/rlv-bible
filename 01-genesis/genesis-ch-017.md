@@ -1,4 +1,4 @@
-﻿When Abram was ninety-nine years old, the LORD appeared to Abram and said to him, "I am God Almighty. Walk before me and be blameless. 
+﻿When Abram was ninety-nine years old, God appeared to Abram and said to him, "I am God Almighty. Walk before me and be blameless. 
 I will make my covenant between me and you, and will multiply you exceedingly." 
 Abram fell on his face. God talked with him, saying, 
 "As for me, behold, my covenant is with you. You will be the father of a multitude of nations. 

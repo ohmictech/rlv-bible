@@ -1,5 +1,5 @@
-﻿"Hear this, house of Jacob, you who are called by the name of Israel, and have come out of the waters of Judah. You swear by the LORD's name, and make mention of the God of Israel, but not in truth, nor in righteousness 
-for they call themselves citizens of the holy city, and rely on the God of Israel; the LORD of Armies is his name. 
+﻿"Hear this, house of Jacob, you who are called by the name of Israel, and have come out of the waters of Judah. You swear by God's name, and make mention of the God of Israel, but not in truth, nor in righteousness 
+for they call themselves citizens of the holy city, and rely on the God of Israel; the God of Armies is his name. 
 I have declared the former things from of old. Yes, they went out of my mouth, and I revealed them. I did them suddenly, and they happened. 
 Because I knew that you are obstinate, and your neck is an iron sinew, and your brow bronze; 
 therefore I have declared it to you from of old; before it came to pass I showed it to you; lest you should say, 'My idol has done them. My engraved image and my molten image has commanded them.' 
@@ -11,12 +11,12 @@ Behold, I have refined you, but not as silver. I have chosen you in the furnace 
 For my own sake, for my own sake, I will do it; for how would my name be profaned? I will not give my glory to another. 
 "Listen to me, O Jacob, and Israel my called: I am he. I am the first. I am also the last. 
 Yes, my hand has laid the foundation of the earth, and my right hand has spread out the heavens. when I call to them, they stand up together. 
-"Assemble yourselves, all of you, and hear! Who among them has declared these things? He whom the LORD loves will do what he likes to Babylon, and his arm will be against the Chaldeans. 
+"Assemble yourselves, all of you, and hear! Who among them has declared these things? He whom God loves will do what he likes to Babylon, and his arm will be against the Chaldeans. 
 I, even I, have spoken. Yes, I have called him. I have brought him and he shall make his way prosperous. 
-"Come near to me and hear this: "From the beginning I have not spoken in secret; from the time that it happened, I was there." Now the Lord GOD has sent me with his Spirit. 
-The LORD, your Redeemer, the Holy One of Israel, says: "I am the LORD your God, who teaches you to profit, who leads you by the way that you should go. 
+"Come near to me and hear this: "From the beginning I have not spoken in secret; from the time that it happened, I was there." Now God has sent me with his Spirit. 
+God, your Redeemer, the Holy One of Israel, says: "I am your God, who teaches you to profit, who leads you by the way that you should go. 
 Oh that you had listened to my commandments! Then your peace would have been like a river and your righteousness like the waves of the sea. 
 Your offspring also would have been as the sand and the descendants of your body like its grains. His name would not be cut off nor destroyed from before me." 
-Leave Babylon! Flee from the Chaldeans! With the sound of joyful shouting announce this, tell it even to the end of the earth; say, "The LORD has redeemed his servant Jacob!" 
+Leave Babylon! Flee from the Chaldeans! With the sound of joyful shouting announce this, tell it even to the end of the earth; say, "God has redeemed his servant Jacob!" 
 They didn't thirst when he led them through the deserts. He caused the waters to flow out of the rock for them. He also split the rock and the waters gushed out. 
-"There is no peace", says the LORD, "for the wicked." 
+"There is no peace", says God, "for the wicked." 

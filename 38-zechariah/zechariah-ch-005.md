@@ -1,7 +1,7 @@
 ﻿Then again I lifted up my eyes and saw, and behold, a flying scroll. 
 He said to me, "What do you see?" I answered, "I see a flying scroll; its length is twenty cubits, and its width ten cubits." 
 Then he said to me, "This is the curse that goes out over the surface of the whole land, for everyone who steals shall be cut off according to it on the one side; and everyone who swears falsely shall be cut off according to it on the other side. 
-I will cause it to go out," says the LORD of Armies, "and it will enter into the house of the thief, and into the house of him who swears falsely by my name; and it will remain in the middle of his house, and will destroy it with its timber and its stones." 
+I will cause it to go out," says the God of Armies, "and it will enter into the house of the thief, and into the house of him who swears falsely by my name; and it will remain in the middle of his house, and will destroy it with its timber and its stones." 
 Then the angel who talked with me came forward and said to me, "Lift up now your eyes and see what this is that is appearing." 
 I said, "What is it?" He said, "This is the ephah basket that is appearing." He said moreover, "This is their appearance in all the land 
 and behold, a lead cover weighing one talent was lifted up, and there was a woman sitting in the middle of the ephah basket." 

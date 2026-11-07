@@ -1,4 +1,4 @@
-﻿In the twenty-fifth year of our captivity, in the beginning of the year, in the tenth day of the month, in the fourteenth year after the city was struck, in the same day, the LORD's hand was on me, and he brought me there. 
+﻿In the twenty-fifth year of our captivity, in the beginning of the year, in the tenth day of the month, in the fourteenth year after the city was struck, in the same day, God's hand was on me, and he brought me there. 
 In the visions of God he brought me into the land of Israel, and set me down on a very high mountain, on which was something like the frame of a city to the south. 
 He brought me there; and, behold, there was a man whose appearance was like the appearance of bronze, with a line of flax in his hand and a measuring reed; and he stood in the gate. 
 The man said to me, "Son of man, see with your eyes, and hear with your ears, and set your heart on all that I will show you; for you have been brought here so that I may show them to you. Declare all that you see to the house of Israel." 
@@ -43,7 +43,7 @@ There were four cut stone tables for the burnt offering, a cubit and a half long
 The hooks, a hand width long, were fastened within all around. The meat of the offering was on the tables. 
 Outside of the inner gate were rooms for the singers in the inner court, which was at the side of the north gate. They faced toward the south. One at the side of the east gate faced toward the north. 
 He said to me, "This room, which faces toward the south, is for the priests who perform the duty of the house. 
-The room which faces toward the north is for the priests who perform the duty of the altar. These are the sons of Zadok, who from among the sons of Levi come near to the LORD to minister to him." 
+The room which faces toward the north is for the priests who perform the duty of the altar. These are the sons of Zadok, who from among the sons of Levi come near to God to minister to him." 
 He measured the court, one hundred cubits long and one hundred cubits wide, square. The altar was before the house. 
 Then he brought me to the porch of the house, and measured each post of the porch, five cubits on this side, and five cubits on that side. The width of the gate was three cubits on this side and three cubits on that side. 
 The length of the porch was twenty cubits and the width eleven cubits, even by the steps by which they went up to it. There were pillars by the posts, one on this side, and another on that side. 

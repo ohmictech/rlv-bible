@@ -4,7 +4,7 @@ I will get my knowledge from afar, and will ascribe righteousness to my Maker.
 For truly my words are not false. One who is perfect in knowledge is with you. 
 "Behold, God is mighty, and doesn't despise anyone. He is mighty in strength of understanding. 
 He doesn't preserve the life of the wicked, but gives justice to the afflicted. 
-He doesn't withdraw his eyes from the righteous, but with kings on the throne, he sets them forever, and they are exalted. 
+He doesn't withdraw his eyes from the righteous, but with kings on the throne, he sets them for the eras, and they are exalted. 
 If they are bound in fetters, and are taken in the cords of afflictions, 
 then he shows them their work, and their transgressions, that they have behaved themselves proudly. 
 He also opens their ears to instruction, and commands that they return from iniquity. 

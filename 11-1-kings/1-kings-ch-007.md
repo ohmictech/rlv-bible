@@ -9,7 +9,7 @@ His house where he was to dwell, the other court within the porch, was of the sa
 All these were of costly stones, even of stone cut according to measure, sawed with saws, inside and outside, even from the foundation to the coping, and so on the outside to the great court. 
 The foundation was of costly stones, even great stones, stones of ten cubits and stones of eight cubits. 
 Above were costly stones, even cut stone, according to measure, and cedar wood. 
-The great court around had three courses of cut stone with a course of cedar beams, like the inner court of the LORD's house and the porch of the house. 
+The great court around had three courses of cut stone with a course of cedar beams, like the inner court of God's house and the porch of the house. 
 King Solomon sent and brought Hiram out of Tyre. 
 He was the son of a widow of the tribe of Naphtali, and his father was a man of Tyre, a worker in bronze; and he was filled with wisdom and understanding and skill to work all works in bronze. He came to King Solomon and performed all his work. 
 For he fashioned the two pillars of bronze, eighteen cubits high apiece; and a line of twelve cubits encircled either of them. 
@@ -37,15 +37,15 @@ On the plates of its supports and on its panels, he engraved cherubim, lions, an
 He made the ten bases in this way: all of them had one casting, one measure, and one form. 
 He made ten basins of bronze. One basin contained forty baths. Every basin measured four cubits. One basin was on every one of the ten bases. 
 He set the bases, five on the right side of the house and five on the left side of the house. He set the sea on the right side of the house eastward and toward the south. 
-Hiram made the pots, the shovels, and the basins. So Hiram finished doing all the work that he worked for King Solomon in the LORD's house: 
+Hiram made the pots, the shovels, and the basins. So Hiram finished doing all the work that he worked for King Solomon in God's house: 
 the two pillars; the two bowls of the capitals that were on the top of the pillars; the two networks to cover the two bowls of the capitals that were on the top of the pillars; 
 the four hundred pomegranates for the two networks; two rows of pomegranates for each network, to cover the two bowls of the capitals that were on the pillars; 
 the ten bases; the ten basins on the bases; 
 the one sea; the twelve oxen under the sea; 
-the pots; the shovels; and the basins. All of these vessels, which Hiram made for King Solomon for the LORD's house, were of burnished bronze. 
+the pots; the shovels; and the basins. All of these vessels, which Hiram made for King Solomon for God's house, were of burnished bronze. 
 The king cast them in the plain of the Jordan, in the clay ground between Succoth and Zarethan. 
 Solomon left all the vessels unweighed, because there were so many of them. The weight of the bronze could not be determined. 
-Solomon made all the vessels that were in the LORD's house: the golden altar and the table that the show bread was on, of gold; 
+Solomon made all the vessels that were in God's house: the golden altar and the table that the show bread was on, of gold; 
 and the lamp stands, five on the right side and five on the left, in front of the inner sanctuary, of pure gold; and the flowers, the lamps, and the tongs, of gold; 
 the cups, the snuffers, the basins, the spoons, and the fire pans, of pure gold; and the hinges, both for the doors of the inner house, the most holy place, and for the doors of the house, of the temple, of gold. 
-Thus all the work that King Solomon did in the LORD's house was finished. Solomon brought in the things which David his father had dedicated, the silver, the gold, and the vessels, and put them in the treasuries of the LORD's house. 
+Thus all the work that King Solomon did in God's house was finished. Solomon brought in the things which David his father had dedicated, the silver, the gold, and the vessels, and put them in the treasuries of God's house. 

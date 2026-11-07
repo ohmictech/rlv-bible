@@ -1,5 +1,5 @@
-﻿A Song of Ascents. In my distress, I cried to the LORD. He answered me. 
-Deliver my soul, LORD, from lying lips, from a deceitful tongue. 
+﻿A Song of Ascents. In my distress, I cried to God. He answered me. 
+Deliver my soul, God, from lying lips, from a deceitful tongue. 
 What will be given to you, and what will be done more to you, you deceitful tongue? 
 Sharp arrows of the mighty, with coals of juniper. 
 Woe is me, that I live in Meshech, that I dwell among the tents of Kedar! 

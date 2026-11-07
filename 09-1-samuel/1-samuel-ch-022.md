@@ -7,17 +7,17 @@ Saul heard that David was discovered, with the men who were with him. Now Saul w
 Saul said to his servants who stood around him, "Hear now, you Benjamites! Will the son of Jesse give everyone of you fields and vineyards? Will he make you all captains of thousands and captains of hundreds? 
 Is that why all of you have conspired against me, and there is no one who discloses to me when my son makes a treaty with the son of Jesse, and there is none of you who is sorry for me, or discloses to me that my son has stirred up my servant against me, to lie in wait, as it is today?" 
 Then Doeg the Edomite, who stood by the servants of Saul, answered and said, "I saw the son of Jesse coming to Nob, to Ahimelech the son of Ahitub. 
-He inquired of the LORD for him, gave him food, and gave him the sword of Goliath the Philistine." 
+He inquired of God for him, gave him food, and gave him the sword of Goliath the Philistine." 
 Then the king sent to call Ahimelech the priest, the son of Ahitub, and all his father's house, the priests who were in Nob; and they all came to the king. 
 Saul said, "Hear now, you son of Ahitub." He answered, "Here I am, my lord." 
 Saul said to him, "Why have you conspired against me, you and the son of Jesse, in that you have given him bread, and a sword, and have inquired of God for him, that he should rise against me, to lie in wait, as it is today?" 
 Then Ahimelech answered the king, and said, "Who among all your servants is so faithful as David, who is the king's son-in-law, captain of your body guard, and honored in your house? 
 Have I today begun to inquire of God for him? Be it far from me! Don't let the king impute anything to his servant, nor to all the house of my father; for your servant knew nothing of all this, less or more." 
 The king said, "You shall surely die, Ahimelech, you and all your father's house." 
-The king said to the guard who stood about him, "Turn and kill the priests of the LORD, because their hand also is with David, and because they knew that he fled and didn't disclose it to me." But the servants of the king wouldn't put out their hand to fall on the priests of the LORD. 
+The king said to the guard who stood about him, "Turn and kill the priests of God, because their hand also is with David, and because they knew that he fled and didn't disclose it to me." But the servants of the king wouldn't put out their hand to fall on the priests of God. 
 The king said to Doeg, "Turn and attack the priests!" Doeg the Edomite turned, and he attacked the priests, and he killed on that day eighty-five people who wore a linen ephod. 
 He struck Nob, the city of the priests, with the edge of the sword, both men and women, children and nursing babies, and cattle, donkeys, and sheep, with the edge of the sword. 
 One of the sons of Ahimelech the son of Ahitub, named Abiathar, escaped and fled after David. 
-Abiathar told David that Saul had slain the LORD's priests. 
+Abiathar told David that Saul had slain God's priests. 
 David said to Abiathar, "I knew on that day, when Doeg the Edomite was there, that he would surely tell Saul. I am responsible for the death of all the persons of your father's house. 
 Stay with me. Don't be afraid, for he who seeks my life seeks your life. You will be safe with me." 

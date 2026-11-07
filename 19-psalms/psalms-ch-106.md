@@ -1,7 +1,7 @@
-﻿Praise the LORD! Give thanks to the LORD, for he is good, for his loving kindness endures forever. 
-Who can utter the mighty acts of the LORD, or fully declare all his praise? 
+﻿Praise God! Give thanks to God, for he is good, for his loving kindness endures for the eras. 
+Who can utter the mighty acts of God, or fully declare all his praise? 
 Blessed are those who keep justice. Blessed is one who does what is right at all times. 
-Remember me, LORD, with the favor that you show to your people. Visit me with your salvation, 
+Remember me, God, with the favor that you show to your people. Visit me with your salvation, 
 that I may see the prosperity of your chosen, that I may rejoice in the gladness of your nation, that I may glory with your inheritance. 
 We have sinned with our fathers. We have committed iniquity. We have done wickedly. 
 Our fathers didn't understand your wonders in Egypt. They didn't remember the multitude of your loving kindnesses, but were rebellious at the sea, even at the Red Sea. 
@@ -13,7 +13,7 @@ Then they believed his words. They sang his praise.
 They soon forgot his works. They didn't wait for his counsel, 
 but gave in to craving in the desert, and tested God in the wasteland. 
 He gave them their request, but sent leanness into their soul. 
-They envied Moses also in the camp, and Aaron, the LORD's saint. 
+They envied Moses also in the camp, and Aaron, God's saint. 
 The earth opened and swallowed up Dathan, and covered the company of Abiram. 
 A fire was kindled in their company. The flame burned up the wicked. 
 They made a calf in Horeb, and worshiped a molten image. 
@@ -22,7 +22,7 @@ They forgot God, their Savior, who had done great things in Egypt,
 wondrous works in the land of Ham, and awesome things by the Red Sea. 
 Therefore he said that he would destroy them, had Moses, his chosen, not stood before him in the breach, to turn away his wrath, so that he wouldn't destroy them. 
 Yes, they despised the pleasant land. They didn't believe his word, 
-but murmured in their tents, and didn't listen to the LORD's voice. 
+but murmured in their tents, and didn't listen to God's voice. 
 Therefore he swore to them that he would overthrow them in the wilderness, 
 that he would overthrow their offspring among the nations, and scatter them in the lands. 
 They joined themselves also to Baal Peor, and ate the sacrifices of the dead. 
@@ -31,18 +31,18 @@ Then Phinehas stood up and executed judgment, so the plague was stopped.
 That was credited to him for righteousness, for all generations to come. 
 They angered him also at the waters of Meribah, so that Moses was troubled for their sakes; 
 because they were rebellious against his spirit, he spoke rashly with his lips. 
-They didn't destroy the peoples, as the LORD commanded them, 
+They didn't destroy the peoples, as God commanded them, 
 but mixed themselves with the nations, and learned their works. 
 They served their idols, which became a snare to them. 
 Yes, they sacrificed their sons and their daughters to demons. 
 They shed innocent blood, even the blood of their sons and of their daughters, whom they sacrificed to the idols of Canaan. The land was polluted with blood. 
 Thus they were defiled with their works, and prostituted themselves in their deeds. 
-Therefore the LORD burned with anger against his people. He abhorred his inheritance. 
+Therefore God burned with anger against his people. He abhorred his inheritance. 
 He gave them into the hand of the nations. Those who hated them ruled over them. 
 Their enemies also oppressed them. They were brought into subjection under their hand. 
 He rescued them many times, but they were rebellious in their counsel, and were brought low in their iniquity. 
 Nevertheless he regarded their distress, when he heard their cry. 
 He remembered for them his covenant, and repented according to the multitude of his loving kindnesses. 
 He made them also to be pitied by all those who carried them captive. 
-Save us, LORD, our God, gather us from among the nations, to give thanks to your holy name, to triumph in your praise! 
-Blessed be the LORD, the God of Israel, from everlasting even to everlasting! Let all the people say, "Amen." Praise the LORD! 
+Save us, God, our God, gather us from among the nations, to give thanks to your holy name, to triumph in your praise! 
+Blessed be the God of Israel, from everlasting even to everlasting! Let all the people say, "Amen." Praise God! 

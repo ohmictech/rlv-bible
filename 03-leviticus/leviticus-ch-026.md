@@ -1,5 +1,5 @@
-﻿"'You shall make for yourselves no idols, and you shall not raise up a carved image or a pillar, and you shall not place any figured stone in your land, to bow down to it; for I am the LORD your God. 
-"'You shall keep my Sabbaths, and have reverence for my sanctuary. I am the LORD. 
+﻿"'You shall make for yourselves no idols, and you shall not raise up a carved image or a pillar, and you shall not place any figured stone in your land, to bow down to it; for I am your God. 
+"'You shall keep my Sabbaths, and have reverence for my sanctuary. I am God. 
 "'If you walk in my statutes and keep my commandments, and do them, 
 then I will give you your rains in their season, and the land shall yield its increase, and the trees of the field shall yield their fruit. 
 Your threshing shall continue until the vintage, and the vintage shall continue until the sowing time. You shall eat your bread to the full, and dwell in your land safely. 
@@ -10,7 +10,7 @@ Five of you shall chase a hundred, and a hundred of you shall chase ten thousand
 You shall eat old supplies long kept, and you shall move out the old because of the new. 
 I will set my tent among you, and my soul won't abhor you. 
 I will walk among you, and will be your God, and you will be my people. 
-I am the LORD your God, who brought you out of the land of Egypt, that you should not be their slaves. I have broken the bars of your yoke, and made you walk upright. 
+I am your God, who brought you out of the land of Egypt, that you should not be their slaves. I have broken the bars of your yoke, and made you walk upright. 
 "'But if you will not listen to me, and will not do all these commandments, 
 and if you shall reject my statutes, and if your soul abhors my ordinances, so that you will not do all my commandments, but break my covenant, 
 I also will do this to you: I will appoint terror over you, even consumption and fever, that shall consume the eyes, and make the soul to pine away. You will sow your seed in vain, for your enemies will eat it. 
@@ -41,6 +41,6 @@ Those of you who are left will pine away in their iniquity in your enemies' land
 I also walked contrary to them, and brought them into the land of their enemies; if then their uncircumcised heart is humbled, and they then accept the punishment of their iniquity, 
 then I will remember my covenant with Jacob, my covenant with Isaac, and also my covenant with Abraham; and I will remember the land. 
 The land also will be left by them, and will enjoy its Sabbaths while it lies desolate without them; and they will accept the punishment of their iniquity because they rejected my ordinances, and their soul abhorred my statutes. 
-Yet for all that, when they are in the land of their enemies, I will not reject them, neither will I abhor them, to destroy them utterly and to break my covenant with them; for I am the LORD their God. 
-But I will for their sake remember the covenant of their ancestors, whom I brought out of the land of Egypt in the sight of the nations, that I might be their God. I am the LORD.'" 
-These are the statutes, ordinances, and laws, which the LORD made between him and the children of Israel in Mount Sinai by Moses. 
+Yet for all that, when they are in the land of their enemies, I will not reject them, neither will I abhor them, to destroy them utterly and to break my covenant with them; for I am their God. 
+But I will for their sake remember the covenant of their ancestors, whom I brought out of the land of Egypt in the sight of the nations, that I might be their God. I am God.'" 
+These are the statutes, ordinances, and laws, which God made between him and the children of Israel in Mount Sinai by Moses. 

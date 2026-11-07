@@ -10,7 +10,7 @@ It will happen that every living creature which swarms, in every place where the
 It will happen that fishermen will stand by it. From En Gedi even to En Eglaim will be a place for the spreading of nets. Their fish will be after their kinds, as the fish of the great sea, exceedingly many. 
 But its swamps and marshes will not be healed. They will be given up to salt. 
 By the river banks, on both sides, will grow every tree for food, whose leaf won't wither, neither will its fruit fail. It will produce new fruit every month, because its waters issue out of the sanctuary. Its fruit will be for food, and its leaf for healing." 
-The Lord GOD says: "This shall be the border by which you shall divide the land for inheritance according to the twelve tribes of Israel. Joseph shall have two portions. 
+The God says: "This shall be the border by which you shall divide the land for inheritance according to the twelve tribes of Israel. Joseph shall have two portions. 
 You shall inherit it, one as well as another; for I swore to give it to your fathers. This land will fall to you for inheritance. 
 "This shall be the border of the land: "On the north side, from the great sea, by the way of Hethlon, to the entrance of Zedad; 
 Hamath, Berothah, Sibraim (which is between the border of Damascus and the border of Hamath), to Hazer Hatticon, which is by the border of Hauran. 
@@ -20,4 +20,4 @@ The border from the sea shall be Hazar Enon at the border of Damascus; and on th
 "The west side shall be the great sea, from the south border as far as opposite the entrance of Hamath. This is the west side. 
 "So you shall divide this land to yourselves according to the tribes of Israel. 
 You shall divide it by lot for an inheritance to you and to the aliens who live among you, who will father children among you. Then they shall be to you as the native-born among the children of Israel. They shall have inheritance with you among the tribes of Israel. 
-In whatever tribe the stranger lives, there you shall give him his inheritance," says the Lord GOD. 
+In whatever tribe the stranger lives, there you shall give him his inheritance," says God. 

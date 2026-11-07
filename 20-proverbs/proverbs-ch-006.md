@@ -13,7 +13,7 @@ A worthless person, a man of iniquity, is he who walks with a perverse mouth,
 who winks with his eyes, who signals with his feet, who motions with his fingers, 
 in whose heart is perverseness, who devises evil continually, who always sows discord. 
 Therefore his calamity will come suddenly. He will be broken suddenly, and that without remedy. 
-There are six things which the LORD hates; yes, seven which are an abomination to him: 
+There are six things which God hates; yes, seven which are an abomination to him: 
 arrogant eyes, a lying tongue, hands that shed innocent blood, 
 a heart that devises wicked schemes, feet that are swift in running to mischief, 
 a false witness who utters lies, and he who sows discord among brothers. 

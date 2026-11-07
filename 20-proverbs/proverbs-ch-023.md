@@ -11,10 +11,10 @@ Don't move the ancient boundary stone. Don't encroach on the fields of the fathe
 for their Defender is strong. He will plead their case against you. 
 Apply your heart to instruction, and your ears to the words of knowledge. 
 Don't withhold correction from a child. If you punish him with the rod, he will not die. 
-Punish him with the rod, and save his soul from Sheol. 
+Punish him with the rod, and save his soul from Hades. 
 My son, if your heart is wise, then my heart will be glad, even mine. 
 Yes, my heart will rejoice when your lips speak what is right. 
-Don't let your heart envy sinners, but rather fear the LORD all day long. 
+Don't let your heart envy sinners, but rather fear God all day long. 
 Indeed surely there is a future hope, and your hope will not be cut off. 
 Listen, my son, and be wise, and keep your heart on the right path! 
 Don't be among ones drinking too much wine, or those who gorge themselves on meat; 

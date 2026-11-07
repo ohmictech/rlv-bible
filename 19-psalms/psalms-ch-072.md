@@ -14,7 +14,7 @@ He will have pity on the poor and needy. He will save the souls of the needy.
 He will redeem their soul from oppression and violence. Their blood will be precious in his sight. 
 He will live; and Sheba's gold will be given to him. Men will pray for him continually. They will bless him all day long. 
 Abundance of grain shall be throughout the land. Its fruit sways like Lebanon. Let it flourish, thriving like the grass of the field. 
-His name endures forever. His name continues as long as the sun. Men shall be blessed by him. All nations will call him blessed. 
-Praise be to the LORD God, the God of Israel, who alone does marvelous deeds. 
-Blessed be his glorious name forever! Let the whole earth be filled with his glory! Amen and amen. 
+His name endures for the eras. His name continues as long as the sun. Men shall be blessed by him. All nations will call him blessed. 
+Praise be to the God of Israel, who alone does marvelous deeds. 
+Blessed be his glorious name for the eras! Let the whole earth be filled with his glory! Amen and amen. 
 This ends the prayers by David, the son of Jesse. 

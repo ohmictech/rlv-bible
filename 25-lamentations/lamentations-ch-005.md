@@ -1,4 +1,4 @@
-﻿Remember, LORD, what has come on us. Look, and see our reproach. 
+﻿Remember, God, what has come on us. Look, and see our reproach. 
 Our inheritance has been turned over to strangers, our houses to aliens. 
 We are orphans and fatherless. Our mothers are as widows. 
 We must pay for water to drink. Our wood is sold to us. 
@@ -16,7 +16,7 @@ The joy of our heart has ceased. Our dance is turned into mourning.
 The crown has fallen from our head. Woe to us, for we have sinned! 
 For this our heart is faint. For these things our eyes are dim: 
 for the mountain of Zion, which is desolate. The foxes walk on it. 
-You, LORD, remain forever. Your throne is from generation to generation. 
-Why do you forget us forever, and forsake us for so long a time? 
-Turn us to yourself, LORD, and we will be turned. Renew our days as of old. 
+You, God, remain for the eras. Your throne is from generation to generation. 
+Why do you forget us for the eras, and forsake us for so long a time? 
+Turn us to yourself, God, and we will be turned. Renew our days as of old. 
 But you have utterly rejected us. You are very angry against us. 

@@ -1,10 +1,10 @@
 ﻿Now in the twenty-fourth day of this month the children of Israel were assembled with fasting, with sackcloth, and dirt on them. 
 The offspring of Israel separated themselves from all foreigners and stood and confessed their sins and the iniquities of their fathers. 
-They stood up in their place, and read in the book of the law of the LORD their God a fourth part of the day; and a fourth part they confessed and worshiped the LORD their God. 
-Then Jeshua, Bani, Kadmiel, Shebaniah, Bunni, Sherebiah, Bani, and Chenani of the Levites stood up on the stairs, and cried with a loud voice to the LORD their God. 
-Then the Levites, Jeshua, and Kadmiel, Bani, Hashabneiah, Sherebiah, Hodiah, Shebaniah, and Pethahiah, said, "Stand up and bless the LORD your God from everlasting to everlasting! Blessed be your glorious name, which is exalted above all blessing and praise! 
-You are the LORD, even you alone. You have made heaven, the heaven of heavens, with all their army, the earth and all things that are on it, the seas and all that is in them, and you preserve them all. The army of heaven worships you. 
-You are the LORD, the God who chose Abram, brought him out of Ur of the Chaldees, gave him the name of Abraham, 
+They stood up in their place, and read in the book of the law of their God a fourth part of the day; and a fourth part they confessed and worshiped their God. 
+Then Jeshua, Bani, Kadmiel, Shebaniah, Bunni, Sherebiah, Bani, and Chenani of the Levites stood up on the stairs, and cried with a loud voice to their God. 
+Then the Levites, Jeshua, and Kadmiel, Bani, Hashabneiah, Sherebiah, Hodiah, Shebaniah, and Pethahiah, said, "Stand up and bless your God from everlasting to everlasting! Blessed be your glorious name, which is exalted above all blessing and praise! 
+You are God, even you alone. You have made heaven, the heaven of heavens, with all their army, the earth and all things that are on it, the seas and all that is in them, and you preserve them all. The army of heaven worships you. 
+You are the God who chose Abram, brought him out of Ur of the Chaldees, gave him the name of Abraham, 
 found his heart faithful before you, and made a covenant with him to give the land of the Canaanite, the Hittite, the Amorite, the Perizzite, the Jebusite, and the Girgashite, to give it to his offspring, and have performed your words, for you are righteous. 
 "You saw the affliction of our fathers in Egypt, and heard their cry by the Red Sea, 
 and showed signs and wonders against Pharaoh, against all his servants, and against all the people of his land, for you knew that they dealt proudly against them, and made a name for yourself, as it is today. 

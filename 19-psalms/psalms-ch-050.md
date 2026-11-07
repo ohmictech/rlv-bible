@@ -1,4 +1,4 @@
-﻿A Psalm by Asaph. The Mighty One, God, the LORD, speaks, and calls the earth from sunrise to sunset. 
+﻿A Psalm by Asaph. The Mighty One, God, God, speaks, and calls the earth from sunrise to sunset. 
 Out of Zion, the perfection of beauty, God shines out. 
 Our God comes, and does not keep silent. A fire devours before him. It is very stormy around him. 
 He calls to the heavens above, to the earth, that he may judge his people: 

@@ -1,6 +1,6 @@
-﻿The LORD's word came to Jonah the second time, saying, 
+﻿God's word came to Jonah the second time, saying, 
 "Arise, go to Nineveh, that great city, and preach to it the message that I give you." 
-So Jonah arose, and went to Nineveh, according to the LORD's word. Now Nineveh was an exceedingly great city, three days' journey across. 
+So Jonah arose, and went to Nineveh, according to God's word. Now Nineveh was an exceedingly great city, three days' journey across. 
 Jonah began to enter into the city a day's journey, and he cried out, and said, "In forty days, Nineveh will be overthrown!" 
 The people of Nineveh believed God; and they proclaimed a fast and put on sackcloth, from their greatest even to their least. 
 The news reached the king of Nineveh, and he arose from his throne, took off his royal robe, covered himself with sackcloth, and sat in ashes. 

@@ -11,7 +11,7 @@ I have seen the burden which God has given to the sons of men to be afflicted wi
 He has made everything beautiful in its time. He has also set eternity in their hearts, yet so that man can't find out the work that God has done from the beginning even to the end. 
 I know that there is nothing better for them than to rejoice, and to do good as long as they live. 
 Also that every man should eat and drink, and enjoy good in all his labor, is the gift of God. 
-I know that whatever God does, it shall be forever. Nothing can be added to it, nor anything taken from it; and God has done it, that men should fear before him. 
+I know that whatever God does, it shall be for the eras. Nothing can be added to it, nor anything taken from it; and God has done it, that men should fear before him. 
 That which is has been long ago, and that which is to be has been long ago. God seeks again that which is passed away. 
 Moreover I saw under the sun, in the place of justice, that wickedness was there; and in the place of righteousness, that wickedness was there. 
 I said in my heart, "God will judge the righteous and the wicked; for there is a time there for every purpose and for every work." 

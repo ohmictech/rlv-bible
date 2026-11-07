@@ -24,4 +24,4 @@ Until an arrow strikes through his liver, as a bird hurries to the snare, and do
 Now therefore, sons, listen to me. Pay attention to the words of my mouth. 
 Don't let your heart turn to her ways. Don't go astray in her paths, 
 for she has thrown down many wounded. Yes, all her slain are a mighty army. 
-Her house is the way to Sheol, going down to the rooms of death. 
+Her house is the way to Hades, going down to the rooms of death. 

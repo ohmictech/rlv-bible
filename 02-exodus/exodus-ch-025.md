@@ -1,4 +1,4 @@
-﻿The LORD spoke to Moses, saying, 
+﻿God spoke to Moses, saying, 
 "Speak to the children of Israel, that they take an offering for me. From everyone whose heart makes him willing you shall take my offering. 
 This is the offering which you shall take from them: gold, silver, bronze, 
 blue, purple, scarlet, fine linen, goats' hair, 

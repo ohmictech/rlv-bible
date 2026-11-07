@@ -18,9 +18,9 @@ These are the years of the life of Ishmael: one hundred thirty-seven years. He g
 They lived from Havilah to Shur that is before Egypt, as you go toward Assyria. He lived opposite all his relatives. 
 This is the history of the generations of Isaac, Abraham's son. Abraham became the father of Isaac. 
 Isaac was forty years old when he took Rebekah, the daughter of Bethuel the Syrian of Paddan Aram, the sister of Laban the Syrian, to be his wife. 
-Isaac entreated the LORD for his wife, because she was barren. The LORD was entreated by him, and Rebekah his wife conceived. 
-The children struggled together within her. She said, "If it is like this, why do I live?" She went to inquire of the LORD. 
-The LORD said to her, "Two nations are in your womb. Two peoples will be separated from your body. The one people will be stronger than the other people. The elder will serve the younger." 
+Isaac entreated God for his wife, because she was barren. God was entreated by him, and Rebekah his wife conceived. 
+The children struggled together within her. She said, "If it is like this, why do I live?" She went to inquire of God. 
+God said to her, "Two nations are in your womb. Two peoples will be separated from your body. The one people will be stronger than the other people. The elder will serve the younger." 
 When her days to be delivered were fulfilled, behold, there were twins in her womb. 
 The first came out red all over, like a hairy garment. They named him Esau. 
 After that, his brother came out, and his hand had hold on Esau's heel. He was named Jacob. Isaac was sixty years old when she bore them. 

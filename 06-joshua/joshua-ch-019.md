@@ -47,5 +47,5 @@ Me Jarkon, and Rakkon, with the border opposite Joppa.
 The border of the children of Dan went out beyond them; for the children of Dan went up and fought against Leshem, and took it, and struck it with the edge of the sword, and possessed it, and lived therein, and called Leshem, Dan, after the name of Dan their forefather. 
 This is the inheritance of the tribe of the children of Dan according to their families, these cities with their villages. 
 So they finished distributing the land for inheritance by its borders. The children of Israel gave an inheritance to Joshua the son of Nun among them. 
-According to the LORD's commandment, they gave him the city which he asked, even Timnathserah in the hill country of Ephraim; and he built the city, and lived there. 
-These are the inheritances, which Eleazar the priest, Joshua the son of Nun, and the heads of the fathers' houses of the tribes of the children of Israel, distributed for inheritance by lot in Shiloh before the LORD, at the door of the Tent of Meeting. So they finished dividing the land. 
+According to God's commandment, they gave him the city which he asked, even Timnathserah in the hill country of Ephraim; and he built the city, and lived there. 
+These are the inheritances, which Eleazar the priest, Joshua the son of Nun, and the heads of the fathers' houses of the tribes of the children of Israel, distributed for inheritance by lot in Shiloh before God, at the door of the Tent of Meeting. So they finished dividing the land. 

@@ -1,13 +1,13 @@
-﻿By David. Contend, LORD, with those who contend with me. Fight against those who fight against me. 
+﻿By David. Contend, God, with those who contend with me. Fight against those who fight against me. 
 Take hold of shield and buckler, and stand up for my help. 
 Brandish the spear and block those who pursue me. Tell my soul, "I am your salvation." 
 Let those who seek after my soul be disappointed and brought to dishonor. Let those who plot my ruin be turned back and confounded. 
-Let them be as chaff before the wind, the LORD's angel driving them on. 
-Let their way be dark and slippery, the LORD's angel pursuing them. 
+Let them be as chaff before the wind, God's angel driving them on. 
+Let their way be dark and slippery, God's angel pursuing them. 
 For without cause they have hidden their net in a pit for me. Without cause they have dug a pit for my soul. 
 Let destruction come on him unawares. Let his net that he has hidden catch himself. Let him fall into that destruction. 
-My soul shall be joyful in the LORD. It shall rejoice in his salvation. 
-All my bones shall say, "LORD, who is like you, who delivers the poor from him who is too strong for him; yes, the poor and the needy from him who robs him?" 
+My soul shall be joyful in God. It shall rejoice in his salvation. 
+All my bones shall say, "God, who is like you, who delivers the poor from him who is too strong for him; yes, the poor and the needy from him who robs him?" 
 Unrighteous witnesses rise up. They ask me about things that I don't know about. 
 They reward me evil for good, to the bereaving of my soul. 
 But as for me, when they were sick, my clothing was sackcloth. I afflicted my soul with fasting. My prayer returned into my own bosom. 
@@ -19,10 +19,10 @@ I will give you thanks in the great assembly. I will praise you among many peopl
 Don't let those who are my enemies wrongfully rejoice over me; neither let those who hate me without a cause wink their eyes. 
 For they don't speak peace, but they devise deceitful words against those who are quiet in the land. 
 Yes, they opened their mouth wide against me. They said, "Aha! Aha! Our eye has seen it!" 
-You have seen it, LORD. Don't keep silent. Lord, don't be far from me. 
+You have seen it, God. Don't keep silent. Lord, don't be far from me. 
 Wake up! Rise up to defend me, my God! My Lord, contend for me! 
-Vindicate me, LORD my God, according to your righteousness. Don't let them gloat over me. 
+Vindicate me, God my God, according to your righteousness. Don't let them gloat over me. 
 Don't let them say in their heart, "Aha! That's the way we want it!" Don't let them say, "We have swallowed him up!" 
 Let them be disappointed and confounded together who rejoice at my calamity. Let them be clothed with shame and dishonor who magnify themselves against me. 
-Let those who favor my righteous cause shout for joy and be glad. Yes, let them say continually, "May the LORD be magnified, who has pleasure in the prosperity of his servant!" 
+Let those who favor my righteous cause shout for joy and be glad. Yes, let them say continually, "May God be magnified, who has pleasure in the prosperity of his servant!" 
 My tongue shall talk about your righteousness and about your praise all day long. 

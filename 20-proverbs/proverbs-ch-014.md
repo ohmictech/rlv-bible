@@ -1,5 +1,5 @@
 ﻿Every wise woman builds her house, but the foolish one tears it down with her own hands. 
-He who walks in his uprightness fears the LORD, but he who is perverse in his ways despises him. 
+He who walks in his uprightness fears God, but he who is perverse in his ways despises him. 
 The fool's talk brings a rod to his back, but the lips of the wise protect them. 
 Where no oxen are, the crib is clean, but much increase is by the strength of the ox. 
 A truthful witness will not lie, but a false witness pours out lies. 
@@ -23,8 +23,8 @@ Don't they go astray who plot evil? But love and faithfulness belong to those wh
 In all hard work there is profit, but the talk of the lips leads only to poverty. 
 The crown of the wise is their riches, but the folly of fools crowns them with folly. 
 A truthful witness saves souls, but a false witness is deceitful. 
-In the fear of the LORD is a secure fortress, and he will be a refuge for his children. 
-The fear of the LORD is a fountain of life, turning people from the snares of death. 
+In the fear of God is a secure fortress, and he will be a refuge for his children. 
+The fear of God is a fountain of life, turning people from the snares of death. 
 In the multitude of people is the king's glory, but in the lack of people is the destruction of the prince. 
 He who is slow to anger has great understanding, but he who has a quick temper displays folly. 
 The life of the body is a heart at peace, but envy rots the bones. 

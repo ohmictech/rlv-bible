@@ -1,7 +1,7 @@
 ﻿The words of the Preacher, the son of David, king in Jerusalem: 
 "Vanity of vanities," says the Preacher; "Vanity of vanities, all is vanity." 
 What does man gain from all his labor in which he labors under the sun? 
-One generation goes, and another generation comes; but the earth remains forever. 
+One generation goes, and another generation comes; but the earth remains for the eras. 
 The sun also rises, and the sun goes down, and hurries to its place where it rises. 
 The wind goes toward the south, and turns around to the north. It turns around continually as it goes, and the wind returns again to its courses. 
 All the rivers run into the sea, yet the sea is not full. To the place where the rivers flow, there they flow again. 

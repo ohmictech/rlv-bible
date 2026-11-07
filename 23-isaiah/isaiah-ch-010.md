@@ -17,13 +17,13 @@ Therefore the Lord, GOD of Armies, will send among his fat ones leanness; and un
 The light of Israel will be for a fire, and his Holy One for a flame; and it will burn and devour his thorns and his briers in one day. 
 He will consume the glory of his forest and of his fruitful field, both soul and body. It will be as when a standard bearer faints. 
 The remnant of the trees of his forest shall be few, so that a child could write their number. 
-It will come to pass in that day that the remnant of Israel, and those who have escaped from the house of Jacob will no more again lean on him who struck them, but shall lean on the LORD, the Holy One of Israel, in truth. 
+It will come to pass in that day that the remnant of Israel, and those who have escaped from the house of Jacob will no more again lean on him who struck them, but shall lean on God, the Holy One of Israel, in truth. 
 A remnant will return, even the remnant of Jacob, to the mighty God. 
 For though your people, Israel, are like the sand of the sea, only a remnant of them will return. A destruction is determined, overflowing with righteousness. 
 For the Lord, GOD of Armies, will make a full end, and that determined, throughout all the earth. 
 Therefore the Lord, GOD of Armies, says, "My people who dwell in Zion, don't be afraid of the Assyrian, though he strike you with the rod, and lift up his staff against you, as Egypt did. 
 For yet a very little while, and the indignation against you will be accomplished, and my anger will be directed to his destruction." 
-The LORD of Armies will stir up a scourge against him, as in the slaughter of Midian at the rock of Oreb. His rod will be over the sea, and he will lift it up like he did against Egypt. 
+The God of Armies will stir up a scourge against him, as in the slaughter of Midian at the rock of Oreb. His rod will be over the sea, and he will lift it up like he did against Egypt. 
 It will happen in that day that his burden will depart from off your shoulder, and his yoke from off your neck, and the yoke shall be destroyed because of the anointing oil. 
 He has come to Aiath. He has passed through Migron. At Michmash he stores his baggage. 
 They have gone over the pass. They have taken up their lodging at Geba. Ramah trembles. Gibeah of Saul has fled. 

@@ -6,7 +6,7 @@ In the thought of him who is at ease there is contempt for misfortune. It is rea
 The tents of robbers prosper. Those who provoke God are secure, who carry their god in their hands. 
 "But ask the animals now, and they will teach you; the birds of the sky, and they will tell you. 
 Or speak to the earth, and it will teach you. The fish of the sea will declare to you. 
-Who doesn't know that in all these, the LORD's hand has done this, 
+Who doesn't know that in all these, God's hand has done this, 
 in whose hand is the life of every living thing, and the breath of all mankind? 
 Doesn't the ear try words, even as the palate tastes its food? 
 With aged men is wisdom, in length of days understanding. 

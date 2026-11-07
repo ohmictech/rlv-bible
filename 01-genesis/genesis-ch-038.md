@@ -4,10 +4,10 @@ She conceived, and bore a son; and he named him Er.
 She conceived again, and bore a son; and she named him Onan. 
 She yet again bore a son, and named him Shelah. He was at Chezib when she bore him. 
 Judah took a wife for Er, his firstborn, and her name was Tamar. 
-Er, Judah's firstborn, was wicked in the LORD's sight. So the LORD killed him. 
+Er, Judah's firstborn, was wicked in God's sight. So God killed him. 
 Judah said to Onan, "Go in to your brother's wife, and perform the duty of a husband's brother to her, and raise up offspring for your brother." 
 Onan knew that the offspring wouldn't be his; and when he went in to his brother's wife, he spilled his semen on the ground, lest he should give offspring to his brother. 
-The thing which he did was evil in the LORD's sight, and he killed him also. 
+The thing which he did was evil in God's sight, and he killed him also. 
 Then Judah said to Tamar, his daughter-in-law, "Remain a widow in your father's house, until Shelah, my son, is grown up;" for he said, "Lest he also die, like his brothers." Tamar went and lived in her father's house. 
 After many days, Shua's daughter, the wife of Judah, died. Judah was comforted, and went up to his sheep shearers to Timnah, he and his friend Hirah, the Adullamite. 
 Tamar was told, "Behold, your father-in-law is going up to Timnah to shear his sheep." 

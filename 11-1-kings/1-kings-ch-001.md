@@ -14,7 +14,7 @@ Go in to King David, and tell him, 'Didn't you, my lord the king, swear to your 
 Behold, while you are still talking there with the king, I will also come in after you and confirm your words." 
 Bathsheba went in to the king in his room. The king was very old; and Abishag the Shunammite was serving the king. 
 Bathsheba bowed and showed respect to the king. The king said, "What would you like?" 
-She said to him, "My lord, you swore by the LORD your God to your servant, 'Assuredly Solomon your son shall reign after me, and he shall sit on my throne.' 
+She said to him, "My lord, you swore by your God to your servant, 'Assuredly Solomon your son shall reign after me, and he shall sit on my throne.' 
 Now, behold, Adonijah reigns; and you, my lord the king, don't know it. 
 He has slain cattle and fatlings and sheep in abundance, and has called all the sons of the king, Abiathar the priest, and Joab the captain of the army; but he hasn't called Solomon your servant. 
 You, my lord the king, the eyes of all Israel are on you, that you should tell them who will sit on the throne of my lord the king after him. 
@@ -26,15 +26,15 @@ For he has gone down today, and has slain cattle, fatlings, and sheep in abundan
 But he hasn't called me, even me your servant, Zadok the priest, Benaiah the son of Jehoiada, and your servant Solomon. 
 Was this thing done by my lord the king, and you haven't shown to your servants who should sit on the throne of my lord the king after him?" 
 Then King David answered, "Call Bathsheba in to me." She came into the king's presence and stood before the king. 
-The king vowed and said, "As the LORD lives, who has redeemed my soul out of all adversity, 
-most certainly as I swore to you by the LORD, the God of Israel, saying, 'Assuredly Solomon your son shall reign after me, and he shall sit on my throne in my place;' I will most certainly do this today." 
-Then Bathsheba bowed with her face to the earth and showed respect to the king, and said, "Let my lord King David live forever!" 
+The king vowed and said, "As God lives, who has redeemed my soul out of all adversity, 
+most certainly as I swore to you by the God of Israel, saying, 'Assuredly Solomon your son shall reign after me, and he shall sit on my throne in my place;' I will most certainly do this today." 
+Then Bathsheba bowed with her face to the earth and showed respect to the king, and said, "Let my lord King David live for the eras!" 
 King David said, "Call to me Zadok the priest, Nathan the prophet, and Benaiah the son of Jehoiada." They came before the king. 
 The king said to them, "Take with you the servants of your lord, and cause Solomon my son to ride on my own mule, and bring him down to Gihon. 
 Let Zadok the priest and Nathan the prophet anoint him there king over Israel. Blow the trumpet, and say, 'Long live King Solomon!' 
 Then come up after him, and he shall come and sit on my throne; for he shall be king in my place. I have appointed him to be prince over Israel and over Judah." 
-Benaiah the son of Jehoiada answered the king, and said, "Amen. May the LORD, the God of my lord the king, say so. 
-As the LORD has been with my lord the king, even so may he be with Solomon, and make his throne greater than the throne of my lord King David." 
+Benaiah the son of Jehoiada answered the king, and said, "Amen. May the God of my lord the king, say so. 
+As God has been with my lord the king, even so may he be with Solomon, and make his throne greater than the throne of my lord King David." 
 So Zadok the priest, Nathan the prophet, Benaiah the son of Jehoiada, and the Cherethites and the Pelethites went down and had Solomon ride on King David's mule, and brought him to Gihon. 
 Zadok the priest took the horn of oil from the Tent, and anointed Solomon. They blew the trumpet; and all the people said, "Long live King Solomon!" 
 All the people came up after him, and the people piped with pipes, and rejoiced with great joy, so that the earth shook with their sound. 
@@ -45,7 +45,7 @@ The king has sent with him Zadok the priest, Nathan the prophet, Benaiah the son
 Zadok the priest and Nathan the prophet have anointed him king in Gihon. They have come up from there rejoicing, so that the city rang again. This is the noise that you have heard. 
 Also, Solomon sits on the throne of the kingdom. 
 Moreover the king's servants came to bless our lord King David, saying, 'May your God make the name of Solomon better than your name, and make his throne greater than your throne;' and the king bowed himself on the bed. 
-Also thus said the king, 'Blessed be the LORD, the God of Israel, who has given one to sit on my throne today, my eyes even seeing it.'" 
+Also thus said the king, 'Blessed be the God of Israel, who has given one to sit on my throne today, my eyes even seeing it.'" 
 All the guests of Adonijah were afraid, and rose up, and each man went his way. 
 Adonijah was afraid because of Solomon; and he arose, and went, and hung onto the horns of the altar. 
 Solomon was told, "Behold, Adonijah fears King Solomon; for, behold, he is hanging onto the horns of the altar, saying, 'Let King Solomon swear to me first that he will not kill his servant with the sword.'" 

@@ -1,5 +1,5 @@
-﻿In the four hundred and eightieth year after the children of Israel had come out of the land of Egypt, in the fourth year of Solomon's reign over Israel, in the month Ziv, which is the second month, he began to build the LORD's house. 
-The house which King Solomon built for the LORD had a length of sixty cubits, and its width twenty, and its height thirty cubits. 
+﻿In the four hundred and eightieth year after the children of Israel had come out of the land of Egypt, in the fourth year of Solomon's reign over Israel, in the month Ziv, which is the second month, he began to build God's house. 
+The house which King Solomon built for God had a length of sixty cubits, and its width twenty, and its height thirty cubits. 
 The porch in front of the temple of the house had a length of twenty cubits, which was along the width of the house. Ten cubits was its width in front of the house. 
 He made windows of fixed lattice work for the house. 
 Against the wall of the house, he built floors all around, against the walls of the house all around, both of the temple and of the inner sanctuary; and he made side rooms all around. 
@@ -8,7 +8,7 @@ The house, when it was under construction, was built of stone prepared at the qu
 The door for the middle side rooms was in the right side of the house. They went up by winding stairs into the middle floor, and out of the middle into the third. 
 So he built the house and finished it; and he covered the house with beams and planks of cedar. 
 He built the floors all along the house, each five cubits high; and they rested on the house with timbers of cedar. 
-The LORD's word came to Solomon, saying, 
+God's word came to Solomon, saying, 
 "Concerning this house which you are building, if you will walk in my statutes, and execute my ordinances, and keep all my commandments to walk in them, then I will establish my word with you, which I spoke to David your father. 
 I will dwell among the children of Israel, and will not forsake my people Israel." 
 So Solomon built the house and finished it. 
@@ -16,7 +16,7 @@ He built the walls of the house within with boards of cedar; from the floor of t
 He built twenty cubits of the back part of the house with boards of cedar from the floor to the ceiling. He built this within, for an inner sanctuary, even for the most holy place. 
 In front of the temple sanctuary was forty cubits long. 
 There was cedar on the house within, carved with buds and open flowers. All was cedar. No stone was visible. 
-He prepared an inner sanctuary in the middle of the house within, to set the ark of the LORD's covenant there. 
+He prepared an inner sanctuary in the middle of the house within, to set the ark of God's covenant there. 
 Within the inner sanctuary was twenty cubits in length, and twenty cubits in width, and twenty cubits in its height. He overlaid it with pure gold. He covered the altar with cedar. 
 So Solomon overlaid the house within with pure gold. He drew chains of gold across before the inner sanctuary, and he overlaid it with gold. 
 He overlaid the whole house with gold, until all the house was finished. He also overlaid the whole altar that belonged to the inner sanctuary with gold. 
@@ -34,5 +34,5 @@ He also made the entrance of the temple door posts of olive wood, out of a fourt
 and two doors of cypress wood. The two leaves of the one door were folding, and the two leaves of the other door were folding. 
 He carved cherubim, palm trees, and open flowers; and he overlaid them with gold fitted on the engraved work. 
 He built the inner court with three courses of cut stone and a course of cedar beams. 
-The foundation of the LORD's house was laid in the fourth year, in the month Ziv. 
+The foundation of God's house was laid in the fourth year, in the month Ziv. 
 In the eleventh year, in the month Bul, which is the eighth month, the house was finished throughout all its parts and according to all its specifications. So he spent seven years building it. 

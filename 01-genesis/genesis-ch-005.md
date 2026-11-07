@@ -26,7 +26,7 @@ Methuselah lived one hundred eighty-seven years, then became the father of Lamec
 Methuselah lived after he became the father of Lamech seven hundred eighty-two years, and became the father of other sons and daughters. 
 All the days of Methuselah were nine hundred sixty-nine years, then he died. 
 Lamech lived one hundred eighty-two years, then became the father of a son. 
-He named him Noah, saying, "This one will comfort us in our work and in the toil of our hands, caused by the ground which the LORD has cursed." 
+He named him Noah, saying, "This one will comfort us in our work and in the toil of our hands, caused by the ground which God has cursed." 
 Lamech lived after he became the father of Noah five hundred ninety-five years, and became the father of other sons and daughters. 
 All the days of Lamech were seven hundred seventy-seven years, then he died. 
 Noah was five hundred years old, then Noah became the father of Shem, Ham, and Japheth. 

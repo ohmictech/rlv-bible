@@ -1,4 +1,4 @@
-﻿Then Solomon began to build the LORD's house at Jerusalem on Mount Moriah, where the LORD appeared to David his father, which he prepared in the place that David had appointed, on the threshing floor of Ornan the Jebusite. 
+﻿Then Solomon began to build God's house at Jerusalem on Mount Moriah, where God appeared to David his father, which he prepared in the place that David had appointed, on the threshing floor of Ornan the Jebusite. 
 He began to build in the second day of the second month, in the fourth year of his reign. 
 Now these are the foundations which Solomon laid for the building of God's house: the length by cubits after the first measure was sixty cubits, and the width twenty cubits. 
 The porch that was in front, its length, across the width of the house, was twenty cubits, and the height one hundred twenty; and he overlaid it within with pure gold. 

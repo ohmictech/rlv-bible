@@ -6,14 +6,14 @@ Who has ascended up into heaven, and descended? Who has gathered the wind in his
 Don't you add to his words, lest he reprove you, and you be found a liar. 
 "Two things I have asked of you. Don't deny me before I die. 
 Remove far from me falsehood and lies. Give me neither poverty nor riches. Feed me with the food that is needful for me, 
-lest I be full, deny you, and say, 'Who is the LORD?' or lest I be poor, and steal, and so dishonor the name of my God. 
+lest I be full, deny you, and say, 'Who is God?' or lest I be poor, and steal, and so dishonor the name of my God. 
 "Don't slander a servant to his master, lest he curse you, and you be held guilty. 
 There is a generation that curses their father, and doesn't bless their mother. 
 There is a generation that is pure in their own eyes, yet are not washed from their filthiness. 
 There is a generation, oh how lofty are their eyes! Their eyelids are lifted up. 
 There is a generation whose teeth are like swords, and their jaws like knives, to devour the poor from the earth, and the needy from among men. 
 "The leech has two daughters: 'Give, give.' "There are three things that are never satisfied; four that don't say, 'Enough!': 
-Sheol, the barren womb, the earth that is not satisfied with water, and the fire that doesn't say, 'Enough!' 
+Hades, the barren womb, the earth that is not satisfied with water, and the fire that doesn't say, 'Enough!' 
 "The eye that mocks at his father, and scorns obedience to his mother, the ravens of the valley shall pick it out, the young eagles shall eat it. 
 "There are three things which are too amazing for me, four which I don't understand: 
 The way of an eagle in the air, the way of a serpent on a rock, the way of a ship in the middle of the sea, and the way of a man with a maiden. 

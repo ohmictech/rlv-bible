@@ -6,12 +6,12 @@ About the time of the shutting of the gate, when it was dark, the men went out. 
 But she had brought them up to the roof, and hidden them under the stalks of flax which she had laid in order on the roof. 
 The men pursued them along the way to the fords of the Jordan River. As soon as those who pursued them had gone out, they shut the gate. 
 Before they had lain down, she came up to them on the roof. 
-She said to the men, "I know that the LORD has given you the land, and that the fear of you has fallen upon us, and that all the inhabitants of the land melt away before you. 
-For we have heard how the LORD dried up the water of the Red Sea before you, when you came out of Egypt; and what you did to the two kings of the Amorites, who were beyond the Jordan, to Sihon and to Og, whom you utterly destroyed. 
-As soon as we had heard it, our hearts melted, and there wasn't any more spirit in any man, because of you: for the LORD your God, he is God in heaven above, and on earth beneath. 
-Now therefore, please swear to me by the LORD, since I have dealt kindly with you, that you also will deal kindly with my father's house, and give me a true sign; 
+She said to the men, "I know that God has given you the land, and that the fear of you has fallen upon us, and that all the inhabitants of the land melt away before you. 
+For we have heard how God dried up the water of the Red Sea before you, when you came out of Egypt; and what you did to the two kings of the Amorites, who were beyond the Jordan, to Sihon and to Og, whom you utterly destroyed. 
+As soon as we had heard it, our hearts melted, and there wasn't any more spirit in any man, because of you: for your God is God in heaven above, and on earth beneath. 
+Now therefore, please swear to me by God, since I have dealt kindly with you, that you also will deal kindly with my father's house, and give me a true sign; 
 and that you will save alive my father, my mother, my brothers, and my sisters, and all that they have, and will deliver our lives from death." 
-The men said to her, "Our life for yours, if you don't talk about this business of ours; and it shall be, when the LORD gives us the land, that we will deal kindly and truly with you." 
+The men said to her, "Our life for yours, if you don't talk about this business of ours; and it shall be, when God gives us the land, that we will deal kindly and truly with you." 
 Then she let them down by a cord through the window; for her house was on the side of the wall, and she lived on the wall. 
 She said to them, "Go to the mountain, lest the pursuers find you. Hide yourselves there three days, until the pursuers have returned. Afterward, you may go your way." 
 The men said to her, "We will be guiltless of this your oath which you've made us to swear. 
@@ -21,4 +21,4 @@ But if you talk about this business of ours, then we shall be guiltless of your 
 She said, "Let it be as you have said." She sent them away, and they departed. Then she tied the scarlet line in the window. 
 They went and came to the mountain, and stayed there three days, until the pursuers had returned. The pursuers sought them all along the way, but didn't find them. 
 Then the two men returned, descended from the mountain, crossed the river, and came to Joshua the son of Nun. They told him all that had happened to them. 
-They said to Joshua, "Truly the LORD has delivered all the land into our hands. Moreover, all the inhabitants of the land melt away before us." 
+They said to Joshua, "Truly God has delivered all the land into our hands. Moreover, all the inhabitants of the land melt away before us." 

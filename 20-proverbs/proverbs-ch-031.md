@@ -27,5 +27,5 @@ She opens her mouth with wisdom. Kind instruction is on her tongue.
 She looks well to the ways of her household, and doesn't eat the bread of idleness. 
 Her children rise up and call her blessed. Her husband also praises her: 
 "Many women do noble things, but you excel them all." 
-Charm is deceitful, and beauty is vain; but a woman who fears the LORD, she shall be praised. 
+Charm is deceitful, and beauty is vain; but a woman who fears God, she shall be praised. 
 Give her of the fruit of her hands! Let her works praise her in the gates! 

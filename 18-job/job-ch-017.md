@@ -10,7 +10,7 @@ Yet the righteous will hold to his way. He who has clean hands will grow stronge
 But as for you all, come back. I will not find a wise man among you. 
 My days are past. My plans are broken off, as are the thoughts of my heart. 
 They change the night into day, saying 'The light is near' in the presence of darkness. 
-If I look for Sheol as my house, if I have spread my couch in the darkness, 
+If I look for Hades as my house, if I have spread my couch in the darkness, 
 if I have said to corruption, 'You are my father,' and to the worm, 'My mother,' and 'My sister,' 
 where then is my hope? As for my hope, who will see it? 
-Shall it go down with me to the gates of Sheol, or descend together into the dust?" 
+Shall it go down with me to the gates of Hades, or descend together into the dust?" 

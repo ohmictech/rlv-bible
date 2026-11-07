@@ -10,7 +10,7 @@ For all our days have passed away in your wrath. We bring our years to an end as
 The days of our years are seventy, or even by reason of strength eighty years; yet their pride is but labor and sorrow, for it passes quickly, and we fly away. 
 Who knows the power of your anger, your wrath according to the fear that is due to you? 
 So teach us to count our days, that we may gain a heart of wisdom. 
-Relent, LORD! How long? Have compassion on your servants! 
+Relent, God! How long? Have compassion on your servants! 
 Satisfy us in the morning with your loving kindness, that we may rejoice and be glad all our days. 
 Make us glad for as many days as you have afflicted us, for as many years as we have seen evil. 
 Let your work appear to your servants, your glory to their children. 

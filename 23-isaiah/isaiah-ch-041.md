@@ -1,7 +1,7 @@
 ﻿"Keep silent before me, islands, and let the peoples renew their strength. Let them come near, then let them speak. Let's meet together for judgment. 
 Who has raised up one from the east? Who called him to his feet in righteousness? He hands over nations to him and makes him rule over kings. He gives them like the dust to his sword, like the driven stubble to his bow. 
 He pursues them and passes by safely, even by a way that he had not gone with his feet. 
-Who has worked and done it, calling the generations from the beginning? I, the LORD, the first, and with the last, I am he." 
+Who has worked and done it, calling the generations from the beginning? I, God, the first, and with the last, I am he." 
 The islands have seen, and fear. The ends of the earth tremble. They approach, and come. 
 Everyone helps his neighbor. They say to their brothers, "Be strong!" 
 So the carpenter encourages the goldsmith. He who smooths with the hammer encourages him who strikes the anvil, saying of the soldering, "It is good;" and he fastens it with nails, that it might not totter. 
@@ -10,15 +10,15 @@ you whom I have taken hold of from the ends of the earth, and called from its co
 Don't you be afraid, for I am with you. Don't be dismayed, for I am your God. I will strengthen you. Yes, I will help you. Yes, I will uphold you with the right hand of my righteousness. 
 Behold, all those who are incensed against you will be disappointed and confounded. Those who strive with you will be like nothing, and shall perish. 
 You will seek them, and won't find them, even those who contend with you. Those who war against you will be as nothing, as a nonexistent thing. 
-For I, the LORD your God, will hold your right hand, saying to you, 'Don't be afraid. I will help you.' 
-Don't be afraid, you worm Jacob, and you men of Israel. I will help you," says the LORD. "Your Redeemer is the Holy One of Israel. 
+For I, your God, will hold your right hand, saying to you, 'Don't be afraid. I will help you.' 
+Don't be afraid, you worm Jacob, and you men of Israel. I will help you," says God. "Your Redeemer is the Holy One of Israel. 
 Behold, I have made you into a new sharp threshing instrument with teeth. You will thresh the mountains, and beat them small, and will make the hills like chaff. 
-You will winnow them, and the wind will carry them away, and the whirlwind will scatter them. You will rejoice in the LORD. You will glory in the Holy One of Israel. 
-The poor and needy seek water, and there is none. Their tongue fails for thirst. I, the LORD, will answer them. I, the God of Israel, will not forsake them. 
+You will winnow them, and the wind will carry them away, and the whirlwind will scatter them. You will rejoice in God. You will glory in the Holy One of Israel. 
+The poor and needy seek water, and there is none. Their tongue fails for thirst. I, God, will answer them. I, the God of Israel, will not forsake them. 
 I will open rivers on the bare heights, and springs in the middle of the valleys. I will make the wilderness a pool of water, and the dry land springs of water. 
 I will put cedar, acacia, myrtle, and oil trees in the wilderness. I will set cypress trees, pine, and box trees together in the desert; 
-that they may see, know, consider, and understand together, that the LORD's hand has done this, and the Holy One of Israel has created it. 
-Produce your cause," says the LORD. "Bring out your strong reasons!" says the King of Jacob. 
+that they may see, know, consider, and understand together, that God's hand has done this, and the Holy One of Israel has created it. 
+Produce your cause," says God. "Bring out your strong reasons!" says the King of Jacob. 
 "Let them announce and declare to us what will happen! Declare the former things, what they are, that we may consider them, and know the latter end of them; or show us things to come. 
 Declare the things that are to come hereafter, that we may know that you are gods. Yes, do good, or do evil, that we may be dismayed, and see it together. 
 Behold, you are nothing, and your work is nothing. He who chooses you is an abomination. 

@@ -23,20 +23,20 @@ God do so to the enemies of David, and more also, if I leave of all that belongs
 When Abigail saw David, she hurried and got off her donkey, and fell before David on her face and bowed herself to the ground. 
 She fell at his feet and said, "On me, my lord, on me be the blame! Please let your servant speak in your ears. Hear the words of your servant. 
 Please don't let my lord pay attention to this worthless fellow, Nabal, for as his name is, so is he. Nabal is his name, and folly is with him; but I, your servant, didn't see my lord's young men whom you sent. 
-Now therefore, my lord, as the LORD lives and as your soul lives, since the LORD has withheld you from blood guiltiness and from avenging yourself with your own hand, now therefore let your enemies and those who seek evil to my lord be as Nabal. 
+Now therefore, my lord, as God lives and as your soul lives, since God has withheld you from blood guiltiness and from avenging yourself with your own hand, now therefore let your enemies and those who seek evil to my lord be as Nabal. 
 Now this present which your servant has brought to my lord, let it be given to the young men who follow my lord. 
-Please forgive the trespass of your servant. For the LORD will certainly make my lord a sure house, because my lord fights the LORD's battles. Evil will not be found in you all your days. 
-Though men may rise up to pursue you and to seek your soul, yet the soul of my lord will be bound in the bundle of life with the LORD your God. He will sling out the souls of your enemies as from a sling's pocket. 
-It will come to pass, when the LORD has done to my lord according to all the good that he has spoken concerning you, and has appointed you prince over Israel, 
-that this shall be no grief to you, nor offense of heart to my lord, either that you have shed blood without cause, or that my lord has avenged himself. When the LORD has dealt well with my lord, then remember your servant." 
-David said to Abigail, "Blessed is the LORD, the God of Israel, who sent you today to meet me! 
+Please forgive the trespass of your servant. For God will certainly make my lord a sure house, because my lord fights God's battles. Evil will not be found in you all your days. 
+Though men may rise up to pursue you and to seek your soul, yet the soul of my lord will be bound in the bundle of life with your God. He will sling out the souls of your enemies as from a sling's pocket. 
+It will come to pass, when God has done to my lord according to all the good that he has spoken concerning you, and has appointed you prince over Israel, 
+that this shall be no grief to you, nor offense of heart to my lord, either that you have shed blood without cause, or that my lord has avenged himself. When God has dealt well with my lord, then remember your servant." 
+David said to Abigail, "Blessed is the God of Israel, who sent you today to meet me! 
 Blessed is your discretion, and blessed are you, who have kept me today from blood guiltiness, and from avenging myself with my own hand. 
-For indeed, as the LORD the God of Israel lives, who has withheld me from harming you, unless you had hurried and come to meet me, surely there wouldn't have been left to Nabal by the morning light so much as one who urinates on a wall." 
+For indeed, as God the God of Israel lives, who has withheld me from harming you, unless you had hurried and come to meet me, surely there wouldn't have been left to Nabal by the morning light so much as one who urinates on a wall." 
 So David received from her hand that which she had brought him. Then he said to her, "Go up in peace to your house. Behold, I have listened to your voice and have granted your request." 
 Abigail came to Nabal; and behold, he held a feast in his house like the feast of a king. Nabal's heart was merry within him, for he was very drunk. Therefore she told him nothing until the morning light. 
 In the morning, when the wine had gone out of Nabal, his wife told him these things; and his heart died within him, and he became as a stone. 
-About ten days later, the LORD struck Nabal, so that he died. 
-When David heard that Nabal was dead, he said, "Blessed is the LORD, who has pleaded the cause of my reproach from the hand of Nabal, and has kept back his servant from evil. The LORD has returned the evildoing of Nabal on his own head." David sent and spoke concerning Abigail, to take her to himself as wife. 
+About ten days later, God struck Nabal, so that he died. 
+When David heard that Nabal was dead, he said, "Blessed is God, who has pleaded the cause of my reproach from the hand of Nabal, and has kept back his servant from evil. God has returned the evildoing of Nabal on his own head." David sent and spoke concerning Abigail, to take her to himself as wife. 
 When David's servants had come to Abigail to Carmel, they spoke to her, saying, "David has sent us to you, to take you to him as wife." 
 She arose and bowed herself with her face to the earth, and said, "Behold, your servant is a servant to wash the feet of the servants of my lord." 
 Abigail hurriedly arose and rode on a donkey with her five maids who followed her; and she went after the messengers of David, and became his wife. 

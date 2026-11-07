@@ -7,11 +7,11 @@ For the Lord said to me, "Go, set a watchman. Let him declare what he sees.
 When he sees a troop, horsemen in pairs, a troop of donkeys, a troop of camels, he shall listen diligently with great attentiveness." 
 He cried like a lion: "Lord, I stand continually on the watchtower in the daytime, and every night I stay at my post. 
 Behold, here comes a troop of men, horsemen in pairs." He answered, "Fallen, fallen is Babylon; and all the engraved images of her gods are broken to the ground. 
-You are my threshing, and the grain of my floor!" That which I have heard from the LORD of Armies, the God of Israel, I have declared to you. 
+You are my threshing, and the grain of my floor!" That which I have heard from the God of Armies, the God of Israel, I have declared to you. 
 The burden of Dumah. One calls to me out of Seir, "Watchman, what of the night? Watchman, what of the night?" 
 The watchman said, "The morning comes, and also the night. If you will inquire, inquire. Come back again." 
 The burden on Arabia. You will lodge in the thickets in Arabia, you caravans of Dedanites. 
 They brought water to him who was thirsty. The inhabitants of the land of Tema met the fugitives with their bread. 
 For they fled away from the swords, from the drawn sword, from the bent bow, and from the heat of battle. 
 For the Lord said to me, "Within a year, as a worker bound by contract would count it, all the glory of Kedar will fail, 
-and the residue of the number of the archers, the mighty men of the children of Kedar, will be few; for the LORD, the God of Israel, has spoken it." 
+and the residue of the number of the archers, the mighty men of the children of Kedar, will be few; for the God of Israel, has spoken it." 

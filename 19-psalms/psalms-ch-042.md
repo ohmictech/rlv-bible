@@ -5,7 +5,7 @@ These things I remember, and pour out my soul within me, how I used to go with t
 Why are you in despair, my soul? Why are you disturbed within me? Hope in God! For I shall still praise him for the saving help of his presence. 
 My God, my soul is in despair within me. Therefore I remember you from the land of the Jordan, the heights of Hermon, from the hill Mizar. 
 Deep calls to deep at the noise of your waterfalls. All your waves and your billows have swept over me. 
-The LORD will command his loving kindness in the daytime. In the night his song shall be with me: a prayer to the God of my life. 
+God will command his loving kindness in the daytime. In the night his song shall be with me: a prayer to the God of my life. 
 I will ask God, my rock, "Why have you forgotten me? Why do I go mourning because of the oppression of the enemy?" 
 As with a sword in my bones, my adversaries reproach me, while they continually ask me, "Where is your God?" 
 Why are you in despair, my soul? Why are you disturbed within me? Hope in God! For I shall still praise him, the saving help of my countenance, and my God. 

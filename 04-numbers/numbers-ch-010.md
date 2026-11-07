@@ -1,16 +1,16 @@
-﻿The LORD spoke to Moses, saying, 
+﻿God spoke to Moses, saying, 
 "Make two trumpets of silver. You shall make them of beaten work. You shall use them for the calling of the congregation and for the journeying of the camps. 
 When they blow them, all the congregation shall gather themselves to you at the door of the Tent of Meeting. 
 If they blow just one, then the princes, the heads of the thousands of Israel, shall gather themselves to you. 
 When you blow an alarm, the camps that lie on the east side shall go forward. 
 When you blow an alarm the second time, the camps that lie on the south side shall go forward. They shall blow an alarm for their journeys. 
 But when the assembly is to be gathered together, you shall blow, but you shall not sound an alarm. 
-"The sons of Aaron, the priests, shall blow the trumpets. This shall be to you for a statute forever throughout your generations. 
-When you go to war in your land against the adversary who oppresses you, then you shall sound an alarm with the trumpets. Then you will be remembered before the LORD your God, and you will be saved from your enemies. 
-"Also in the day of your gladness, and in your set feasts, and in the beginnings of your months, you shall blow the trumpets over your burnt offerings, and over the sacrifices of your peace offerings; and they shall be to you for a memorial before your God. I am the LORD your God." 
+"The sons of Aaron, the priests, shall blow the trumpets. This shall be to you for a statute for the eras throughout your generations. 
+When you go to war in your land against the adversary who oppresses you, then you shall sound an alarm with the trumpets. Then you will be remembered before your God, and you will be saved from your enemies. 
+"Also in the day of your gladness, and in your set feasts, and in the beginnings of your months, you shall blow the trumpets over your burnt offerings, and over the sacrifices of your peace offerings; and they shall be to you for a memorial before your God. I am your God." 
 In the second year, in the second month, on the twentieth day of the month, the cloud was taken up from over the tabernacle of the covenant. 
 The children of Israel went forward on their journeys out of the wilderness of Sinai; and the cloud stayed in the wilderness of Paran. 
-They first went forward according to the commandment of the LORD by Moses. 
+They first went forward according to the commandment of God by Moses. 
 First, the standard of the camp of the children of Judah went forward according to their armies. Nahshon the son of Amminadab was over his army. 
 Nethanel the son of Zuar was over the army of the tribe of the children of Issachar. 
 Eliab the son of Helon was over the army of the tribe of the children of Zebulun. 
@@ -26,11 +26,11 @@ The standard of the camp of the children of Dan, which was the rear guard of all
 Pagiel the son of Ochran was over the army of the tribe of the children of Asher. 
 Ahira the son of Enan was over the army of the tribe of the children of Naphtali. 
 Thus were the travels of the children of Israel according to their armies; and they went forward. 
-Moses said to Hobab, the son of Reuel the Midianite, Moses' father-in-law, "We are journeying to the place of which the LORD said, 'I will give it to you.' Come with us, and we will treat you well; for the LORD has spoken good concerning Israel." 
+Moses said to Hobab, the son of Reuel the Midianite, Moses' father-in-law, "We are journeying to the place of which God said, 'I will give it to you.' Come with us, and we will treat you well; for God has spoken good concerning Israel." 
 He said to him, "I will not go; but I will depart to my own land, and to my relatives." 
 Moses said, "Don't leave us, please; because you know how we are to encamp in the wilderness, and you can be our eyes. 
-It shall be, if you go with us, yes, it shall be, that whatever good the LORD does to us, we will do the same to you." 
-They set forward from the Mount of the LORD three days' journey. The ark of the LORD's covenant went before them three days' journey, to seek out a resting place for them. 
-The cloud of the LORD was over them by day, when they set forward from the camp. 
-When the ark went forward, Moses said, "Rise up, LORD, and let your enemies be scattered! Let those who hate you flee before you!" 
-When it rested, he said, "Return, LORD, to the ten thousands of the thousands of Israel." 
+It shall be, if you go with us, yes, it shall be, that whatever good God does to us, we will do the same to you." 
+They set forward from the Mount of God three days' journey. The ark of God's covenant went before them three days' journey, to seek out a resting place for them. 
+The cloud of God was over them by day, when they set forward from the camp. 
+When the ark went forward, Moses said, "Rise up, God, and let your enemies be scattered! Let those who hate you flee before you!" 
+When it rested, he said, "Return, God, to the ten thousands of the thousands of Israel." 

@@ -1,6 +1,6 @@
 ﻿Shephatiah the son of Mattan, Gedaliah the son of Pashhur, Jucal the son of Shelemiah, and Pashhur the son of Malchijah heard the words that Jeremiah spoke to all the people, saying, 
-"The LORD says, 'He who remains in this city will die by the sword, by the famine, and by the pestilence, but he who goes out to the Chaldeans will live. He will escape with his life and he will live.' 
-The LORD says, 'This city will surely be given into the hand of the army of the king of Babylon, and he will take it.'" 
+"God says, 'He who remains in this city will die by the sword, by the famine, and by the pestilence, but he who goes out to the Chaldeans will live. He will escape with his life and he will live.' 
+God says, 'This city will surely be given into the hand of the army of the king of Babylon, and he will take it.'" 
 Then the princes said to the king, "Please let this man be put to death, because he weakens the hands of the men of war who remain in this city, and the hands of all the people, in speaking such words to them; for this man doesn't seek the welfare of this people, but harm." 
 Zedekiah the king said, "Behold, he is in your hand; for the king can't do anything to oppose you." 
 Then they took Jeremiah and threw him into the dungeon of Malchijah the king's son, that was in the court of the guard. They let down Jeremiah with cords. In the dungeon there was no water, but mire; and Jeremiah sank in the mire. 
@@ -11,14 +11,14 @@ Then the king commanded Ebedmelech the Ethiopian, saying, "Take from here thirty
 So Ebedmelech took the men with him, and went into the house of the king under the treasury, and took from there rags and worn-out garments, and let them down by cords into the dungeon to Jeremiah. 
 Ebedmelech the Ethiopian said to Jeremiah, "Now put these rags and worn-out garments under your armpits under the cords." Jeremiah did so. 
 So they lifted Jeremiah up with the cords, and took him up out of the dungeon; and Jeremiah remained in the court of the guard. 
-Then Zedekiah the king sent and took Jeremiah the prophet to himself into the third entry that is in the LORD's house. Then the king said to Jeremiah, "I will ask you something. Hide nothing from me." 
+Then Zedekiah the king sent and took Jeremiah the prophet to himself into the third entry that is in God's house. Then the king said to Jeremiah, "I will ask you something. Hide nothing from me." 
 Then Jeremiah said to Zedekiah, "If I declare it to you, will you not surely put me to death? If I give you counsel, you will not listen to me." 
-So Zedekiah the king swore secretly to Jeremiah, saying, "As the LORD lives, who made our souls, I will not put you to death, neither will I give you into the hand of these men who seek your life." 
-Then Jeremiah said to Zedekiah, "The LORD, the God of Armies, the God of Israel, says: 'If you will go out to the king of Babylon's princes, then your soul will live, and this city will not be burned with fire. You will live, along with your house. 
+So Zedekiah the king swore secretly to Jeremiah, saying, "As God lives, who made our souls, I will not put you to death, neither will I give you into the hand of these men who seek your life." 
+Then Jeremiah said to Zedekiah, "The God of Armies, the God of Israel, says: 'If you will go out to the king of Babylon's princes, then your soul will live, and this city will not be burned with fire. You will live, along with your house. 
 But if you will not go out to the king of Babylon's princes, then this city will be given into the hand of the Chaldeans, and they will burn it with fire, and you won't escape out of their hand.'" 
 Zedekiah the king said to Jeremiah, "I am afraid of the Jews who have defected to the Chaldeans, lest they deliver me into their hand, and they mock me." 
-But Jeremiah said, "They won't deliver you. Obey, I beg you, the LORD's voice, in that which I speak to you; so it will be well with you, and your soul will live. 
-But if you refuse to go out, this is the word that the LORD has shown me: 
+But Jeremiah said, "They won't deliver you. Obey, I beg you, God's voice, in that which I speak to you; so it will be well with you, and your soul will live. 
+But if you refuse to go out, this is the word that God has shown me: 
 'Behold, all the women who are left in the king of Judah's house will be brought out to the king of Babylon's princes, and those women will say, "Your familiar friends have turned on you, and have prevailed over you. Your feet are sunk in the mire, they have turned away from you." 
 They will bring out all your wives and your children to the Chaldeans. You won't escape out of their hand, but will be taken by the hand of the king of Babylon. You will cause this city to be burned with fire.'" 
 Then Zedekiah said to Jeremiah, "Let no man know of these words, and you won't die. 

@@ -21,7 +21,7 @@ My bones stick to my skin and to my flesh. I have escaped by the skin of my teet
 "Have pity on me. Have pity on me, you my friends, for the hand of God has touched me. 
 Why do you persecute me as God, and are not satisfied with my flesh? 
 "Oh that my words were now written! Oh that they were inscribed in a book! 
-That with an iron pen and lead they were engraved in the rock forever! 
+That with an iron pen and lead they were engraved in the rock for the eras! 
 But as for me, I know that my Redeemer lives. In the end, he will stand upon the earth. 
 After my skin is destroyed, then I will see God in my flesh, 
 whom I, even I, will see on my side. My eyes will see, and not as a stranger. "My heart is consumed within me. 

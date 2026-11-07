@@ -2,7 +2,7 @@
 In rebellion, a land has many rulers, but order is maintained by a man of understanding and knowledge. 
 A needy man who oppresses the poor is like a driving rain which leaves no crops. 
 Those who forsake the law praise the wicked; but those who keep the law contend with them. 
-Evil men don't understand justice; but those who seek the LORD understand it fully. 
+Evil men don't understand justice; but those who seek God understand it fully. 
 Better is the poor who walks in his integrity than he who is perverse in his ways, and he is rich. 
 Whoever keeps the law is a wise son; but he who is a companion of gluttons shames his father. 
 He who increases his wealth by excessive interest gathers it for one who has pity on the poor. 
@@ -22,7 +22,7 @@ To show partiality is not good, yet a man will do wrong for a piece of bread.
 A stingy man hurries after riches, and doesn't know that poverty waits for him. 
 One who rebukes a man will afterward find more favor than one who flatters with the tongue. 
 Whoever robs his father or his mother and says, "It's not wrong," is a partner with a destroyer. 
-One who is greedy stirs up strife; but one who trusts in the LORD will prosper. 
+One who is greedy stirs up strife; but one who trusts in God will prosper. 
 One who trusts in himself is a fool; but one who walks in wisdom is kept safe. 
 One who gives to the poor has no lack; but one who closes his eyes will have many curses. 
 When the wicked rise, men hide themselves; but when they perish, the righteous thrive. 

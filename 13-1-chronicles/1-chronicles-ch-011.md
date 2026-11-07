@@ -1,21 +1,21 @@
 ﻿Then all Israel gathered themselves to David to Hebron, saying, "Behold, we are your bone and your flesh. 
-In times past, even when Saul was king, it was you who led out and brought in Israel. The LORD your God said to you, 'You shall be shepherd of my people Israel, and you shall be prince over my people Israel.'" 
-So all the elders of Israel came to the king to Hebron; and David made a covenant with them in Hebron before the LORD. They anointed David king over Israel, according to the LORD's word by Samuel. 
+In times past, even when Saul was king, it was you who led out and brought in Israel. Your God said to you, 'You shall be shepherd of my people Israel, and you shall be prince over my people Israel.'" 
+So all the elders of Israel came to the king to Hebron; and David made a covenant with them in Hebron before God. They anointed David king over Israel, according to God's word by Samuel. 
 David and all Israel went to Jerusalem (also called Jebus); and the Jebusites, the inhabitants of the land, were there. 
 The inhabitants of Jebus said to David, "You will not come in here!" Nevertheless David took the stronghold of Zion. The same is David's city. 
 David had said, "Whoever strikes the Jebusites first shall be chief and captain." Joab the son of Zeruiah went up first, and was made chief. 
 David lived in the stronghold; therefore they called it David's city. 
 He built the city all around, from Millo even around; and Joab repaired the rest of the city. 
-David grew greater and greater, for the LORD of Armies was with him. 
-Now these are the chief of the mighty men whom David had, who showed themselves strong with him in his kingdom, together with all Israel, to make him king, according to the LORD's word concerning Israel. 
+David grew greater and greater, for the God of Armies was with him. 
+Now these are the chief of the mighty men whom David had, who showed themselves strong with him in his kingdom, together with all Israel, to make him king, according to God's word concerning Israel. 
 This is the number of the mighty men whom David had: Jashobeam, the son of a Hachmonite, the chief of the thirty; he lifted up his spear against three hundred and killed them at one time. 
 After him was Eleazar the son of Dodo, the Ahohite, who was one of the three mighty men. 
 He was with David at Pasdammim, and there the Philistines were gathered together to battle, where there was a plot of ground full of barley; and the people fled from before the Philistines. 
-They stood in the middle of the plot, defended it, and killed the Philistines; and the LORD saved them by a great victory. 
+They stood in the middle of the plot, defended it, and killed the Philistines; and God saved them by a great victory. 
 Three of the thirty chief men went down to the rock to David, into the cave of Adullam; and the army of the Philistines were encamped in the valley of Rephaim. 
 David was then in the stronghold, and the garrison of the Philistines was in Bethlehem at that time. 
 David longed, and said, "Oh, that someone would give me water to drink from the well of Bethlehem, which is by the gate!" 
-The three broke through the army of the Philistines, and drew water out of the well of Bethlehem that was by the gate, took it, and brought it to David; but David would not drink any of it, but poured it out to the LORD, 
+The three broke through the army of the Philistines, and drew water out of the well of Bethlehem that was by the gate, took it, and brought it to David; but David would not drink any of it, but poured it out to God, 
 and said, "My God forbid me, that I should do this! Shall I drink the blood of these men who have put their lives in jeopardy?" For they risked their lives to bring it. Therefore he would not drink it. The three mighty men did these things. 
 Abishai, the brother of Joab, was chief of the three; for he lifted up his spear against three hundred and killed them, and had a name among the three. 
 Of the three, he was more honorable than the two, and was made their captain; however he wasn't included in the three. 

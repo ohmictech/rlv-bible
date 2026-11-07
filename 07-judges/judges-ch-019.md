@@ -15,7 +15,7 @@ So they passed on and went their way; and the sun went down on them near Gibeah,
 They went over there, to go in to stay in Gibeah. He went in, and sat down in the street of the city; for there was no one who took them into his house to stay. 
 Behold, an old man came from his work out of the field at evening. Now the man was from the hill country of Ephraim, and he lived in Gibeah; but the men of the place were Benjamites. 
 He lifted up his eyes, and saw the wayfaring man in the street of the city; and the old man said, "Where are you going? Where did you come from?" 
-He said to him, "We are passing from Bethlehem Judah to the farther side of the hill country of Ephraim. I am from there, and I went to Bethlehem Judah. I am going to the LORD's house; and there is no one who has taken me into his house. 
+He said to him, "We are passing from Bethlehem Judah to the farther side of the hill country of Ephraim. I am from there, and I went to Bethlehem Judah. I am going to God's house; and there is no one who has taken me into his house. 
 Yet there is both straw and feed for our donkeys; and there is bread and wine also for me, and for your servant, and for the young man who is with your servants. There is no lack of anything." 
 The old man said, "Peace be to you! Just let me supply all your needs, but don't sleep in the street." 
 So he brought him into his house, and gave the donkeys fodder. Then they washed their feet, and ate and drank. 

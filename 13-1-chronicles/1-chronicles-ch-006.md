@@ -12,7 +12,7 @@ Azariah became the father of Amariah. Amariah became the father of Ahitub.
 Ahitub became the father of Zadok. Zadok became the father of Shallum. 
 Shallum became the father of Hilkiah. Hilkiah became the father of Azariah. 
 Azariah became the father of Seraiah. Seraiah became the father of Jehozadak. 
-Jehozadak went into captivity when the LORD carried Judah and Jerusalem away by the hand of Nebuchadnezzar. 
+Jehozadak went into captivity when God carried Judah and Jerusalem away by the hand of Nebuchadnezzar. 
 The sons of Levi: Gershom, Kohath, and Merari. 
 These are the names of the sons of Gershom: Libni and Shimei. 
 The sons of Kohath were Amram, Izhar, Hebron, and Uzziel. 
@@ -28,8 +28,8 @@ Eliab his son, Jeroham his son, and Elkanah his son.
 The sons of Samuel: the firstborn, Joel, and the second, Abijah. 
 The sons of Merari: Mahli, Libni his son, Shimei his son, Uzzah his son, 
 Shimea his son, Haggiah his son, Asaiah his son. 
-These are they whom David set over the service of song in the LORD's house after the ark came to rest there. 
-They ministered with song before the tabernacle of the Tent of Meeting until Solomon had built the LORD's house in Jerusalem. They performed the duties of their office according to their order. 
+These are they whom David set over the service of song in God's house after the ark came to rest there. 
+They ministered with song before the tabernacle of the Tent of Meeting until Solomon had built God's house in Jerusalem. They performed the duties of their office according to their order. 
 These are those who served, and their sons. Of the sons of the Kohathites: Heman the singer, the son of Joel, the son of Samuel, 
 the son of Elkanah, the son of Jeroham, the son of Eliel, the son of Toah, 
 the son of Zuph, the son of Elkanah, the son of Mahath, the son of Amasai, 

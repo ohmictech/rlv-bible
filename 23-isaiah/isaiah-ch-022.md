@@ -11,10 +11,10 @@ You counted the houses of Jerusalem, and you broke down the houses to fortify th
 You also made a reservoir between the two walls for the water of the old pool. But you didn't look to him who had done this, neither did you have respect for him who planned it long ago. 
 In that day, the Lord, GOD of Armies, called to weeping, to mourning, to baldness, and to dressing in sackcloth; 
 and behold, there is joy and gladness, killing cattle and killing sheep, eating meat and drinking wine: "Let's eat and drink, for tomorrow we will die." 
-The LORD of Armies revealed himself in my ears, "Surely this iniquity will not be forgiven you until you die," says the Lord, GOD of Armies. 
+The God of Armies revealed himself in my ears, "Surely this iniquity will not be forgiven you until you die," says the Lord, GOD of Armies. 
 The Lord, GOD of Armies says, "Go, get yourself to this treasurer, even to Shebna, who is over the house, and say, 
 'What are you doing here? Who has you here, that you have dug out a tomb here?' Cutting himself out a tomb on high, chiseling a habitation for himself in the rock!" 
-Behold, the LORD will overcome you and hurl you away violently. Yes, he will grasp you firmly. 
+Behold, God will overcome you and hurl you away violently. Yes, he will grasp you firmly. 
 He will surely wind you around and around, and throw you like a ball into a large country. There you will die, and there the chariots of your glory will be, you disgrace of your lord's house. 
 I will thrust you from your office. You will be pulled down from your station. 
 It will happen in that day that I will call my servant Eliakim the son of Hilkiah, 
@@ -22,4 +22,4 @@ and I will clothe him with your robe, and strengthen him with your belt. I will 
 I will lay the key of David's house on his shoulder. He will open, and no one will shut. He will shut, and no one will open. 
 I will fasten him like a nail in a sure place. He will be for a throne of glory to his father's house. 
 They will hang on him all the glory of his father's house, the offspring and the issue, every small vessel, from the cups even to all the pitchers. 
-"In that day," says the LORD of Armies, "the nail that was fastened in a sure place will give way. It will be cut down and fall. The burden that was on it will be cut off, for the LORD has spoken it." 
+"In that day," says the God of Armies, "the nail that was fastened in a sure place will give way. It will be cut down and fall. The burden that was on it will be cut off, for God has spoken it." 

@@ -1,5 +1,5 @@
 ﻿Whoever loves correction loves knowledge, but he who hates reproof is stupid. 
-A good man shall obtain favor from the LORD, but he will condemn a man of wicked plans. 
+A good man shall obtain favor from God, but he will condemn a man of wicked plans. 
 A man shall not be established by wickedness, but the root of the righteous shall not be moved. 
 A worthy woman is the crown of her husband, but a disgraceful wife is as rottenness in his bones. 
 The thoughts of the righteous are just, but the advice of the wicked is deceitful. 
@@ -16,10 +16,10 @@ The way of a fool is right in his own eyes, but he who is wise listens to counse
 A fool shows his annoyance the same day, but one who overlooks an insult is prudent. 
 He who is truthful testifies honestly, but a false witness lies. 
 There is one who speaks rashly like the piercing of a sword, but the tongue of the wise heals. 
-Truth's lips will be established forever, but a lying tongue is only momentary. 
+Truth's lips will be established for the eras, but a lying tongue is only momentary. 
 Deceit is in the heart of those who plot evil, but joy comes to the promoters of peace. 
 No mischief shall happen to the righteous, but the wicked shall be filled with evil. 
-Lying lips are an abomination to the LORD, but those who do the truth are his delight. 
+Lying lips are an abomination to God, but those who do the truth are his delight. 
 A prudent man keeps his knowledge, but the hearts of fools proclaim foolishness. 
 The hands of the diligent ones shall rule, but laziness ends in slave labor. 
 Anxiety in a man's heart weighs it down, but a kind word makes it glad. 

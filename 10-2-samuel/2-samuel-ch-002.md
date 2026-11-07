@@ -1,9 +1,9 @@
-﻿After this, David inquired of the LORD, saying, "Shall I go up into any of the cities of Judah?" The LORD said to him, "Go up." David said, "Where shall I go up?" He said, "To Hebron." 
+﻿After this, David inquired of God, saying, "Shall I go up into any of the cities of Judah?" God said to him, "Go up." David said, "Where shall I go up?" He said, "To Hebron." 
 So David went up there with his two wives, Ahinoam the Jezreelitess, and Abigail the wife of Nabal the Carmelite. 
 David brought up his men who were with him, every man with his household. They lived in the cities of Hebron. 
 The men of Judah came, and there they anointed David king over the house of Judah. They told David, "The men of Jabesh Gilead were those who buried Saul." 
-David sent messengers to the men of Jabesh Gilead, and said to them, "Blessed are you by the LORD, that you have shown this kindness to your lord, even to Saul, and have buried him. 
-Now may the LORD show loving kindness and truth to you. I also will reward you for this kindness, because you have done this thing. 
+David sent messengers to the men of Jabesh Gilead, and said to them, "Blessed are you by God, that you have shown this kindness to your lord, even to Saul, and have buried him. 
+Now may God show loving kindness and truth to you. I also will reward you for this kindness, because you have done this thing. 
 Now therefore let your hands be strong, and be valiant; for Saul your lord is dead, and also the house of Judah have anointed me king over them." 
 Now Abner the son of Ner, captain of Saul's army, had taken Ishbosheth the son of Saul and brought him over to Mahanaim. 
 He made him king over Gilead, over the Ashurites, over Jezreel, over Ephraim, over Benjamin, and over all Israel. 
@@ -23,7 +23,7 @@ Abner said again to Asahel, "Turn away from following me. Why should I strike yo
 However, he refused to turn away. Therefore Abner with the back end of the spear struck him in the body, so that the spear came out behind him; and he fell down there and died in the same place. As many as came to the place where Asahel fell down and died stood still. 
 But Joab and Abishai pursued Abner. The sun went down when they had come to the hill of Ammah, that lies before Giah by the way of the wilderness of Gibeon. 
 The children of Benjamin gathered themselves together after Abner and became one band, and stood on the top of a hill. 
-Then Abner called to Joab, and said, "Shall the sword devour forever? Don't you know that it will be bitterness in the latter end? How long will it be then, before you ask the people to return from following their brothers?" 
+Then Abner called to Joab, and said, "Shall the sword devour for the eras? Don't you know that it will be bitterness in the latter end? How long will it be then, before you ask the people to return from following their brothers?" 
 Joab said, "As God lives, if you had not spoken, surely then in the morning the people would have gone away, and not each followed his brother." 
 So Joab blew the trumpet; and all the people stood still and pursued Israel no more, and they fought no more. 
 Abner and his men went all that night through the Arabah; and they passed over the Jordan, and went through all Bithron, and came to Mahanaim. 

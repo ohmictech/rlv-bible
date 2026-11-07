@@ -7,7 +7,7 @@ They conspire and lurk, watching my steps. They are eager to take my life.
 Shall they escape by iniquity? In anger cast down the peoples, God. 
 You count my wanderings. You put my tears into your container. Aren't they in your book? 
 Then my enemies shall turn back in the day that I call. I know this: that God is for me. 
-In God, I will praise his word. In the LORD, I will praise his word. 
+In God, I will praise his word. In God, I will praise his word. 
 I have put my trust in God. I will not be afraid. What can man do to me? 
 Your vows are on me, God. I will give thank offerings to you. 
 For you have delivered my soul from death, and prevented my feet from falling, that I may walk before God in the light of the living. 

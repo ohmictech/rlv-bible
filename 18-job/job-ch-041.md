@@ -1,7 +1,7 @@
 ﻿"Can you draw out Leviathan with a fish hook, or press down his tongue with a cord? 
 Can you put a rope into his nose, or pierce his jaw through with a hook? 
 Will he make many petitions to you, or will he speak soft words to you? 
-Will he make a covenant with you, that you should take him for a servant forever? 
+Will he make a covenant with you, that you should take him for a servant for the eras? 
 Will you play with him as with a bird? Or will you bind him for your girls? 
 Will traders barter for him? Will they part him among the merchants? 
 Can you fill his skin with barbed irons, or his head with fish spears? 

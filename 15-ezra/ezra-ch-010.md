@@ -8,7 +8,7 @@ They made a proclamation throughout Judah and Jerusalem to all the children of t
 and that whoever didn't come within three days, according to the counsel of the princes and the elders, all his possessions should be forfeited, and he himself separated from the assembly of the captivity. 
 Then all the men of Judah and Benjamin gathered themselves together to Jerusalem within the three days. It was the ninth month, on the twentieth day of the month; and all the people sat in the wide place in front of God's house, trembling because of this matter, and because of the great rain. 
 Ezra the priest stood up and said to them, "You have trespassed, and have married foreign women, increasing the guilt of Israel. 
-Now therefore make confession to the LORD, the God of your fathers and do his pleasure. Separate yourselves from the peoples of the land and from the foreign women." 
+Now therefore make confession to the God of your fathers and do his pleasure. Separate yourselves from the peoples of the land and from the foreign women." 
 Then all the assembly answered with a loud voice, "We must do as you have said concerning us. 
 But the people are many, and it is a time of much rain, and we are not able to stand outside. This is not a work of one day or two, for we have greatly transgressed in this matter. 
 Now let our princes be appointed for all the assembly, and let all those who are in our cities who have married foreign women come at appointed times, and with them the elders of every city and its judges, until the fierce wrath of our God is turned from us, until this matter is resolved." 

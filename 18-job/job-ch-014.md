@@ -10,13 +10,13 @@ yet through the scent of water it will bud, and sprout boughs like a plant.
 But man dies, and is laid low. Yes, man gives up the spirit, and where is he? 
 As the waters fail from the sea, and the river wastes and dries up, 
 so man lies down and doesn't rise. Until the heavens are no more, they will not awake, nor be roused out of their sleep. 
-"Oh that you would hide me in Sheol, that you would keep me secret until your wrath is past, that you would appoint me a set time and remember me! 
+"Oh that you would hide me in Hades, that you would keep me secret until your wrath is past, that you would appoint me a set time and remember me! 
 If a man dies, will he live again? I would wait all the days of my warfare, until my release should come. 
 You would call, and I would answer you. You would have a desire for the work of your hands. 
 But now you count my steps. Don't you watch over my sin? 
 My disobedience is sealed up in a bag. You fasten up my iniquity. 
 "But the mountain falling comes to nothing. The rock is removed out of its place. 
 The waters wear the stones. The torrents of it wash away the dust of the earth. So you destroy the hope of man. 
-You forever prevail against him, and he departs. You change his face, and send him away. 
+You for the eras prevail against him, and he departs. You change his face, and send him away. 
 His sons come to honor, and he doesn't know it. They are brought low, but he doesn't perceive it of them. 
 But his flesh on him has pain, and his soul within him mourns." 

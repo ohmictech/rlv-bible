@@ -15,20 +15,20 @@ I have become a derision to all my people, and their song all day long.
 He has filled me with bitterness. He has stuffed me with wormwood. 
 He has also broken my teeth with gravel. He has covered me with ashes. 
 You have removed my soul far away from peace. I forgot prosperity. 
-I said, "My strength has perished, along with my expectation from the LORD." 
+I said, "My strength has perished, along with my expectation from God." 
 Remember my affliction and my misery, the wormwood and the bitterness. 
 My soul still remembers them, and is bowed down within me. 
 This I recall to my mind; therefore I have hope. 
-It is because of the LORD's loving kindnesses that we are not consumed, because his mercies don't fail. 
+It is because of God's loving kindnesses that we are not consumed, because his mercies don't fail. 
 They are new every morning. Great is your faithfulness. 
-"The LORD is my portion," says my soul. "Therefore I will hope in him." 
-The LORD is good to those who wait for him, to the soul who seeks him. 
-It is good that a man should hope and quietly wait for the salvation of the LORD. 
+"God is my portion," says my soul. "Therefore I will hope in him." 
+God is good to those who wait for him, to the soul who seeks him. 
+It is good that a man should hope and quietly wait for the salvation of God. 
 It is good for a man that he bear the yoke in his youth. 
 Let him sit alone and keep silence, because he has laid it on him. 
 Let him put his mouth in the dust, if it is so that there may be hope. 
 Let him give his cheek to him who strikes him. Let him be filled full of reproach. 
-For the Lord will not cast off forever. 
+For the Lord will not cast off for the eras. 
 For though he causes grief, yet he will have compassion according to the multitude of his loving kindnesses. 
 For he does not afflict willingly, nor grieve the children of men. 
 To crush under foot all the prisoners of the earth, 
@@ -37,7 +37,7 @@ to subvert a man in his cause, the Lord doesn't approve.
 Who is he who says, and it comes to pass, when the Lord doesn't command it? 
 Doesn't evil and good come out of the mouth of the Most High? 
 Why should a living man complain, a man for the punishment of his sins? 
-Let us search and try our ways, and turn again to the LORD. 
+Let us search and try our ways, and turn again to God. 
 Let's lift up our heart with our hands to God in the heavens. 
 "We have transgressed and have rebelled. You have not pardoned. 
 "You have covered us with anger and pursued us. You have killed. You have not pitied. 
@@ -47,20 +47,20 @@ You have made us an off-scouring and refuse in the middle of the peoples.
 Terror and the pit have come on us, devastation and destruction." 
 My eye runs down with streams of water, for the destruction of the daughter of my people. 
 My eye pours down and doesn't cease, without any intermission, 
-until the LORD looks down, and sees from heaven. 
+until God looks down, and sees from heaven. 
 My eye affects my soul, because of all the daughters of my city. 
 They have chased me relentlessly like a bird, those who are my enemies without cause. 
 They have cut off my life in the dungeon, and have cast a stone on me. 
 Waters flowed over my head. I said, "I am cut off." 
-I called on your name, LORD, out of the lowest dungeon. 
+I called on your name, God, out of the lowest dungeon. 
 You heard my voice: "Don't hide your ear from my sighing, and my cry." 
 You came near in the day that I called on you. You said, "Don't be afraid." 
 Lord, you have pleaded the causes of my soul. You have redeemed my life. 
-LORD, you have seen my wrong. Judge my cause. 
+God, you have seen my wrong. Judge my cause. 
 You have seen all their vengeance and all their plans against me. 
-You have heard their reproach, LORD, and all their plans against me, 
+You have heard their reproach, God, and all their plans against me, 
 the lips of those that rose up against me, and their plots against me all day long. 
 You see their sitting down and their rising up. I am their song. 
-You will pay them back, LORD, according to the work of their hands. 
+You will pay them back, God, according to the work of their hands. 
 You will give them hardness of heart, your curse to them. 
-You will pursue them in anger, and destroy them from under the heavens of the LORD. 
+You will pursue them in anger, and destroy them from under the heavens of God. 

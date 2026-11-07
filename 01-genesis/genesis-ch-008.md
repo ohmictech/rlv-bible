@@ -17,6 +17,6 @@ God spoke to Noah, saying,
 Bring out with you every living thing that is with you of all flesh, including birds, livestock, and every creeping thing that creeps on the earth, that they may breed abundantly on the earth, and be fruitful, and multiply on the earth." 
 Noah went out, with his sons, his wife, and his sons' wives with him. 
 Every animal, every creeping thing, and every bird, whatever moves on the earth, after their families, went out of the ship. 
-Noah built an altar to the LORD, and took of every clean animal, and of every clean bird, and offered burnt offerings on the altar. 
-The LORD smelled the pleasant aroma. The LORD said in his heart, "I will not again curse the ground any more for man's sake because the imagination of man's heart is evil from his youth. I will never again strike every living thing, as I have done. 
+Noah built an altar to God, and took of every clean animal, and of every clean bird, and offered burnt offerings on the altar. 
+God smelled the pleasant aroma. God said in his heart, "I will not again curse the ground any more for man's sake because the imagination of man's heart is evil from his youth. I will never again strike every living thing, as I have done. 
 While the earth remains, seed time and harvest, and cold and heat, and summer and winter, and day and night will not cease." 

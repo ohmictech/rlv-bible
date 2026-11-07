@@ -1,5 +1,5 @@
 ﻿The revelation which Habakkuk the prophet saw. 
-LORD, how long will I cry, and you will not hear? I cry out to you "Violence!" and will you not save? 
+God, how long will I cry, and you will not hear? I cry out to you "Violence!" and will you not save? 
 Why do you show me iniquity, and look at perversity? For destruction and violence are before me. There is strife, and contention rises up. 
 Therefore the law is paralyzed, and justice never prevails; for the wicked surround the righteous; therefore justice comes out perverted. 
 "Look among the nations, watch, and wonder marvelously; for I am working a work in your days which you will not believe though it is told you. 
@@ -9,7 +9,7 @@ Their horses also are swifter than leopards, and are more fierce than the evenin
 All of them come for violence. Their hordes face forward. They gather prisoners like sand. 
 Yes, they scoff at kings, and princes are a derision to them. They laugh at every stronghold, for they build up an earthen ramp and take it. 
 Then they sweep by like the wind and go on. They are indeed guilty, whose strength is their god." 
-Aren't you from everlasting, LORD my God, my Holy One? We will not die. LORD, you have appointed them for judgment. You, Rock, have established him to punish. 
+Aren't you from everlasting, God my God, my Holy One? We will not die. God, you have appointed them for judgment. You, Rock, have established him to punish. 
 You who have purer eyes than to see evil, and who cannot look on perversity, why do you tolerate those who deal treacherously and keep silent when the wicked swallows up the man who is more righteous than he, 
 and make men like the fish of the sea, like the creeping things that have no ruler over them? 
 He takes up all of them with the hook. He catches them in his net and gathers them in his dragnet. Therefore he rejoices and is glad. 

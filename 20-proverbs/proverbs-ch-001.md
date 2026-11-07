@@ -4,12 +4,12 @@ to receive instruction in wise dealing, in righteousness, justice, and equity;
 to give prudence to the simple, knowledge and discretion to the young man 
 that the wise man may hear, and increase in learning; that the man of understanding may attain to sound counsel; 
 to understand a proverb and parables, the words and riddles of the wise. 
-The fear of the LORD is the beginning of knowledge, but the foolish despise wisdom and instruction. 
+The fear of God is the beginning of knowledge, but the foolish despise wisdom and instruction. 
 My son, listen to your father's instruction, and don't forsake your mother's teaching; 
 for they will be a garland to grace your head, and chains around your neck. 
 My son, if sinners entice you, don't consent. 
 If they say, "Come with us. Let's lie in wait for blood. Let's lurk secretly for the innocent without cause. 
-Let's swallow them up alive like Sheol, and whole, like those who go down into the pit. 
+Let's swallow them up alive like Hades, and whole, like those who go down into the pit. 
 We'll find all valuable wealth. We'll fill our houses with plunder. 
 You shall cast your lot among us. We'll all have one purse" 
 my son, don't walk on the path with them. Keep your foot from their path, 
@@ -26,7 +26,7 @@ but you have ignored all my counsel, and wanted none of my reproof;
 I also will laugh at your disaster. I will mock when calamity overtakes you, 
 when calamity overtakes you like a storm, when your disaster comes on like a whirlwind, when distress and anguish come on you. 
 Then they will call on me, but I will not answer. They will seek me diligently, but they will not find me, 
-because they hated knowledge, and didn't choose the fear of the LORD. 
+because they hated knowledge, and didn't choose the fear of God. 
 They wanted none of my counsel. They despised all my reproof. 
 Therefore they will eat of the fruit of their own way, and be filled with their own schemes. 
 For the backsliding of the simple will kill them. The careless ease of fools will destroy them. 

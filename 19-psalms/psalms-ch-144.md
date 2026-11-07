@@ -1,8 +1,8 @@
-﻿By David. Blessed be the LORD, my rock, who trains my hands to war, and my fingers to battle 
+﻿By David. Blessed be God, my rock, who trains my hands to war, and my fingers to battle 
 my loving kindness, my fortress, my high tower, my deliverer, my shield, and he in whom I take refuge, who subdues my people under me. 
-LORD, what is man, that you care for him? Or the son of man, that you think of him? 
+God, what is man, that you care for him? Or the son of man, that you think of him? 
 Man is like a breath. His days are like a shadow that passes away. 
-Part your heavens, LORD, and come down. Touch the mountains, and they will smoke. 
+Part your heavens, God, and come down. Touch the mountains, and they will smoke. 
 Throw out lightning, and scatter them. Send out your arrows, and rout them. 
 Stretch out your hand from above, rescue me, and deliver me out of great waters, out of the hands of foreigners, 
 whose mouths speak deceit, whose right hand is a right hand of falsehood. 
@@ -12,4 +12,4 @@ Rescue me, and deliver me out of the hands of foreigners, whose mouths speak dec
 Then our sons will be like well-nurtured plants, our daughters like pillars carved to adorn a palace. 
 Our barns are full, filled with all kinds of provision. Our sheep produce thousands and ten thousands in our fields. 
 Our oxen will pull heavy loads. There is no breaking in, and no going away, and no outcry in our streets. 
-Happy are the people who are in such a situation. Happy are the people whose God is the LORD. 
+Happy are the people who are in such a situation. Happy are the people whose God he is. 

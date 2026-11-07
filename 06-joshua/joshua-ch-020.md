@@ -1,4 +1,4 @@
-﻿The LORD spoke to Joshua, saying, 
+﻿God spoke to Joshua, saying, 
 "Speak to the children of Israel, saying, 'Assign the cities of refuge, of which I spoke to you by Moses, 
 that the man slayer who kills any person accidentally or unintentionally may flee there. They shall be to you for a refuge from the avenger of blood. 
 He shall flee to one of those cities, and shall stand at the entrance of the gate of the city, and declare his case in the ears of the elders of that city. They shall take him into the city with them, and give him a place, that he may live among them. 

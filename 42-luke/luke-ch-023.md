@@ -40,7 +40,7 @@ One of the criminals who was hanging there insulted him, saying, "If you are the
 But the other answered, and rebuking him said, "Don't you even fear God, seeing you are under the same verdict? 
 And we indeed justly, for we are getting what our deeds deserve, but this man has done nothing wrong." 
 He said to Jesus, "Lord, remember me when you come into your reign." 
-Jesus said to him, "Truly I tell you, today you will be with me in the garden park." 
+Jesus said to him, "Truly I tell you, today you will be with me in paradise." 
 It was now about noon, and darkness came over the whole land until mid-afternoon. 
 The sun was darkened, and the curtain of the temple was torn in two. 
 Jesus, crying with a loud voice, said, "Father, into your hands I commit my spirit!" Having said this, he breathed his last. 

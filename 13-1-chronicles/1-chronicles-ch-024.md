@@ -16,7 +16,7 @@ the seventeenth to Hezir, the eighteenth to Happizzez,
 the nineteenth to Pethahiah, the twentieth to Jehezkel, 
 the twenty-first to Jachin, the twenty-second to Gamul, 
 the twenty-third to Delaiah, and the twenty-fourth to Maaziah. 
-This was their ordering in their service, to come into the LORD's house according to the ordinance given to them by Aaron their father, as the LORD, the God of Israel, had commanded him. 
+This was their ordering in their service, to come into God's house according to the ordinance given to them by Aaron their father, as the God of Israel, had commanded him. 
 Of the rest of the sons of Levi: of the sons of Amram, Shubael; of the sons of Shubael, Jehdeiah. 
 Of Rehabiah: of the sons of Rehabiah, Isshiah the chief. 
 Of the Izharites, Shelomoth; of the sons of Shelomoth, Jahath. 

@@ -1,7 +1,7 @@
 ﻿For the Chief Musician. To the tune of "The Lilies of the Covenant." A Psalm by Asaph. Hear us, Shepherd of Israel, you who lead Joseph like a flock, you who sit above the cherubim, shine out. 
 Before Ephraim, Benjamin, and Manasseh, stir up your might! Come to save us! 
 Turn us again, God. Cause your face to shine, and we will be saved. 
-LORD God of Armies, how long will you be angry against the prayer of your people? 
+God of Armies, how long will you be angry against the prayer of your people? 
 You have fed them with the bread of tears, and given them tears to drink in large measure. 
 You make us a source of contention to our neighbors. Our enemies laugh among themselves. 
 Turn us again, God of Armies. Cause your face to shine, and we will be saved. 
@@ -16,4 +16,4 @@ the stock which your right hand planted, the branch that you made strong for you
 It's burned with fire. It's cut down. They perish at your rebuke. 
 Let your hand be on the man of your right hand, on the son of man whom you made strong for yourself. 
 So we will not turn away from you. Revive us, and we will call on your name. 
-Turn us again, LORD God of Armies. Cause your face to shine, and we will be saved. 
+Turn us again, God of Armies. Cause your face to shine, and we will be saved. 

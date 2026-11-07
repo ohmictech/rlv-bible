@@ -1,14 +1,14 @@
-﻿The plans of the heart belong to man, but the answer of the tongue is from the LORD. 
-All the ways of a man are clean in his own eyes, but the LORD weighs the motives. 
-Commit your deeds to the LORD, and your plans shall succeed. 
-The LORD has made everything for its own end, yes, even the wicked for the day of evil. 
-Everyone who is proud in heart is an abomination to the LORD; they shall certainly not be unpunished. 
-By mercy and truth iniquity is atoned for. By the fear of the LORD men depart from evil. 
-When a man's ways please the LORD, he makes even his enemies to be at peace with him. 
+﻿The plans of the heart belong to man, but the answer of the tongue is from God. 
+All the ways of a man are clean in his own eyes, but God weighs the motives. 
+Commit your deeds to God, and your plans shall succeed. 
+God has made everything for its own end, yes, even the wicked for the day of evil. 
+Everyone who is proud in heart is an abomination to God; they shall certainly not be unpunished. 
+By mercy and truth iniquity is atoned for. By the fear of God men depart from evil. 
+When a man's ways please God, he makes even his enemies to be at peace with him. 
 Better is a little with righteousness, than great revenues with injustice. 
-A man's heart plans his course, but the LORD directs his steps. 
+A man's heart plans his course, but God directs his steps. 
 Inspired judgments are on the lips of the king. He shall not betray his mouth. 
-Honest balances and scales are the LORD's; all the weights in the bag are his work. 
+Honest balances and scales are God's; all the weights in the bag are his work. 
 It is an abomination for kings to do wrong, for the throne is established by righteousness. 
 Righteous lips are the delight of kings. They value one who speaks the truth. 
 The king's wrath is a messenger of death, but a wise man will pacify it. 
@@ -17,7 +17,7 @@ How much better it is to get wisdom than gold! Yes, to get understanding is to b
 The highway of the upright is to depart from evil. He who keeps his way preserves his soul. 
 Pride goes before destruction, and an arrogant spirit before a fall. 
 It is better to be of a lowly spirit with the poor, than to divide the plunder with the proud. 
-He who heeds the Word finds prosperity. Whoever trusts in the LORD is blessed. 
+He who heeds the Word finds prosperity. Whoever trusts in God is blessed. 
 The wise in heart shall be called prudent. Pleasantness of the lips promotes instruction. 
 Understanding is a fountain of life to one who has it, but the punishment of fools is their folly. 
 The heart of the wise instructs his mouth, and adds learning to his lips. 
@@ -30,4 +30,4 @@ A man of violence entices his neighbor, and leads him in a way that is not good.
 One who winks his eyes to plot perversities, one who compresses his lips, is bent on evil. 
 Gray hair is a crown of glory. It is attained by a life of righteousness. 
 One who is slow to anger is better than the mighty; one who rules his spirit, than he who takes a city. 
-The lot is cast into the lap, but its every decision is from the LORD. 
+The lot is cast into the lap, but its every decision is from God. 

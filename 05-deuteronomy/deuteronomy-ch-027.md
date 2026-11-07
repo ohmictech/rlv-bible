@@ -1,18 +1,18 @@
 ﻿Moses and the elders of Israel commanded the people, saying, "Keep all the commandment which I command you today. 
-It shall be on the day when you shall pass over the Jordan to the land which the LORD your God gives you, that you shall set yourself up great stones, and coat them with plaster. 
-You shall write on them all the words of this law, when you have passed over, that you may go in to the land which the LORD your God gives you, a land flowing with milk and honey, as the LORD, the God of your fathers, has promised you. 
+It shall be on the day when you shall pass over the Jordan to the land which your God gives you, that you shall set yourself up great stones, and coat them with plaster. 
+You shall write on them all the words of this law, when you have passed over, that you may go in to the land which your God gives you, a land flowing with milk and honey, as the God of your fathers, has promised you. 
 It shall be, when you have crossed over the Jordan, that you shall set up these stones, which I command you today, on Mount Ebal, and you shall coat them with plaster. 
-There you shall build an altar to the LORD your God, an altar of stones. You shall not use any iron tool on them. 
-You shall build the LORD your God's altar of uncut stones. You shall offer burnt offerings on it to the LORD your God. 
-You shall sacrifice peace offerings, and shall eat there. You shall rejoice before the LORD your God. 
+There you shall build an altar to your God, an altar of stones. You shall not use any iron tool on them. 
+You shall build your God's altar of uncut stones. You shall offer burnt offerings on it to your God. 
+You shall sacrifice peace offerings, and shall eat there. You shall rejoice before your God. 
 You shall write on the stones all the words of this law very plainly." 
-Moses and the Levitical priests spoke to all Israel, saying, "Be silent and listen, Israel! Today you have become the people of the LORD your God. 
-You shall therefore obey the LORD your God's voice, and do his commandments and his statutes, which I command you today." 
+Moses and the Levitical priests spoke to all Israel, saying, "Be silent and listen, Israel! Today you have become the people of your God. 
+You shall therefore obey your God's voice, and do his commandments and his statutes, which I command you today." 
 Moses commanded the people the same day, saying, 
 "These shall stand on Mount Gerizim to bless the people, when you have crossed over the Jordan: Simeon, Levi, Judah, Issachar, Joseph, and Benjamin. 
 These shall stand on Mount Ebal for the curse: Reuben, Gad, Asher, Zebulun, Dan, and Naphtali. 
 With a loud voice, the Levites shall say to all the men of Israel, 
-'Cursed is the man who makes an engraved or molten image, an abomination to the LORD, the work of the hands of the craftsman, and sets it up in secret.' All the people shall answer and say, 'Amen.' 
+'Cursed is the man who makes an engraved or molten image, an abomination to God, the work of the hands of the craftsman, and sets it up in secret.' All the people shall answer and say, 'Amen.' 
 'Cursed is he who dishonors his father or his mother.' All the people shall say, 'Amen.' 
 'Cursed is he who removes his neighbor's landmark.' All the people shall say, 'Amen.' 
 'Cursed is he who leads the blind astray on the road.' All the people shall say, 'Amen.' 

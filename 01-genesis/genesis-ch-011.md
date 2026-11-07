@@ -2,11 +2,11 @@
 As they traveled east, they found a plain in the land of Shinar, and they lived there. 
 They said to one another, "Come, let's make bricks, and burn them thoroughly." They had brick for stone, and they used tar for mortar. 
 They said, "Come, let's build ourselves a city, and a tower whose top reaches to the sky, and let's make a name for ourselves, lest we be scattered abroad on the surface of the whole earth." 
-The LORD came down to see the city and the tower, which the children of men built. 
-The LORD said, "Behold, they are one people, and they all have one language, and this is what they begin to do. Now nothing will be withheld from them, which they intend to do. 
+God came down to see the city and the tower, which the children of men built. 
+God said, "Behold, they are one people, and they all have one language, and this is what they begin to do. Now nothing will be withheld from them, which they intend to do. 
 Come, let's go down, and there confuse their language, that they may not understand one another's speech." 
-So the LORD scattered them abroad from there on the surface of all the earth. They stopped building the city. 
-Therefore its name was called Babel, because there the LORD confused the language of all the earth. From there, the LORD scattered them abroad on the surface of all the earth. 
+So God scattered them abroad from there on the surface of all the earth. They stopped building the city. 
+Therefore its name was called Babel, because there God confused the language of all the earth. From there, God scattered them abroad on the surface of all the earth. 
 This is the history of the generations of Shem: Shem was one hundred years old when he became the father of Arpachshad two years after the flood. 
 Shem lived five hundred years after he became the father of Arpachshad, and became the father of more sons and daughters. 
 Arpachshad lived thirty-five years and became the father of Shelah. 

@@ -2,8 +2,8 @@
 so as to turn your ear to wisdom, and apply your heart to understanding; 
 yes, if you call out for discernment, and lift up your voice for understanding; 
 if you seek her as silver, and search for her as for hidden treasures; 
-then you will understand the fear of the LORD, and find the knowledge of God. 
-For the LORD gives wisdom. Out of his mouth comes knowledge and understanding. 
+then you will understand the fear of God, and find the knowledge of God. 
+For God gives wisdom. Out of his mouth comes knowledge and understanding. 
 He lays up sound wisdom for the upright. He is a shield to those who walk in integrity, 
 that he may guard the paths of justice, and preserve the way of his saints. 
 Then you will understand righteousness and justice, equity and every good path. 

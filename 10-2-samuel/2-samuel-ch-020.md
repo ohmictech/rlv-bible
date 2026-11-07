@@ -16,7 +16,7 @@ They came and besieged him in Abel of Beth Maacah, and they cast up a mound agai
 Then a wise woman cried out of the city, "Hear, hear! Please say to Joab, 'Come near here, that I may speak with you.'" 
 He came near to her; and the woman said, "Are you Joab?" He answered, "I am." Then she said to him, "Hear the words of your servant." He answered, "I'm listening." 
 Then she spoke, saying, "They used to say in old times, 'They shall surely ask counsel at Abel,' and so they settled a matter. 
-I am among those who are peaceable and faithful in Israel. You seek to destroy a city and a mother in Israel. Why will you swallow up the LORD's inheritance?" 
+I am among those who are peaceable and faithful in Israel. You seek to destroy a city and a mother in Israel. Why will you swallow up God's inheritance?" 
 Joab answered, "Far be it, far be it from me, that I should swallow up or destroy. 
 The matter is not so. But a man of the hill country of Ephraim, Sheba the son of Bichri by name, has lifted up his hand against the king, even against David. Just deliver him, and I will depart from the city." The woman said to Joab, "Behold, his head will be thrown to you over the wall." 
 Then the woman went to all the people in her wisdom. They cut off the head of Sheba the son of Bichri, and threw it out to Joab. He blew the trumpet, and they were dispersed from the city, every man to his tent. Then Joab returned to Jerusalem to the king. 

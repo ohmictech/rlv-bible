@@ -12,9 +12,9 @@ As they went up the ascent to the city, they found young maidens going out to dr
 They answered them and said, "He is. Behold, he is before you. Hurry now, for he has come today into the city; for the people have a sacrifice today in the high place. 
 As soon as you have come into the city, you will immediately find him before he goes up to the high place to eat; for the people will not eat until he comes, because he blesses the sacrifice. Afterwards those who are invited eat. Now therefore go up; for at this time you will find him." 
 They went up to the city. As they came within the city, behold, Samuel came out toward them to go up to the high place. 
-Now the LORD had revealed to Samuel a day before Saul came, saying, 
+Now God had revealed to Samuel a day before Saul came, saying, 
 "Tomorrow about this time I will send you a man out of the land of Benjamin, and you shall anoint him to be prince over my people Israel. He will save my people out of the hand of the Philistines; for I have looked upon my people, because their cry has come to me." 
-When Samuel saw Saul, the LORD said to him, "Behold, the man of whom I spoke to you! He will have authority over my people." 
+When Samuel saw Saul, God said to him, "Behold, the man of whom I spoke to you! He will have authority over my people." 
 Then Saul approached Samuel in the gateway, and said, "Please tell me where the seer's house is." 
 Samuel answered Saul and said, "I am the seer. Go up before me to the high place, for you are to eat with me today. In the morning I will let you go and will tell you all that is in your heart. 
 As for your donkeys who were lost three days ago, don't set your mind on them, for they have been found. For whom does all Israel desire? Is it not you and all your father's house?" 

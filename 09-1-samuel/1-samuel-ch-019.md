@@ -2,11 +2,11 @@
 Jonathan told David, saying, "Saul my father seeks to kill you. Now therefore, please take care of yourself in the morning, live in a secret place, and hide yourself. 
 I will go out and stand beside my father in the field where you are, and I will talk with my father about you; and if I see anything, I will tell you." 
 Jonathan spoke good of David to Saul his father, and said to him, "Don't let the king sin against his servant, against David; because he has not sinned against you, and because his works have been very good toward you; 
-for he put his life in his hand and struck the Philistine, and the LORD worked a great victory for all Israel. You saw it and rejoiced. Why then will you sin against innocent blood, to kill David without a cause?" 
-Saul listened to the voice of Jonathan; and Saul swore, "As the LORD lives, he shall not be put to death." 
+for he put his life in his hand and struck the Philistine, and God worked a great victory for all Israel. You saw it and rejoiced. Why then will you sin against innocent blood, to kill David without a cause?" 
+Saul listened to the voice of Jonathan; and Saul swore, "As God lives, he shall not be put to death." 
 Jonathan called David, and Jonathan showed him all those things. Then Jonathan brought David to Saul, and he was in his presence as before. 
 There was war again. David went out and fought with the Philistines, and killed them with a great slaughter; and they fled before him. 
-An evil spirit from the LORD was on Saul as he sat in his house with his spear in his hand; and David was playing music with his hand. 
+An evil spirit from God was on Saul as he sat in his house with his spear in his hand; and David was playing music with his hand. 
 Saul sought to pin David to the wall with the spear, but he slipped away out of Saul's presence; and he stuck the spear into the wall. David fled and escaped that night. 
 Saul sent messengers to David's house to watch him and to kill him in the morning. Michal, David's wife, told him, saying, "If you don't save your life tonight, tomorrow you will be killed." 
 So Michal let David down through the window. He went away, fled, and escaped. 

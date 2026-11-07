@@ -1,9 +1,9 @@
-﻿Moreover the LORD answered Job, 
+﻿Moreover God answered Job, 
 "Shall he who argues contend with the Almighty? He who argues with God, let him answer it." 
-Then Job answered the LORD, 
+Then Job answered God, 
 "Behold, I am of small account. What will I answer you? I lay my hand on my mouth. 
 I have spoken once, and I will not answer; Yes, twice, but I will proceed no further." 
-Then the LORD answered Job out of the whirlwind: 
+Then God answered Job out of the whirlwind: 
 "Now brace yourself like a man. I will question you, and you will answer me. 
 Will you even annul my judgment? Will you condemn me, that you may be justified? 
 Or do you have an arm like God? Can you thunder with a voice like him? 

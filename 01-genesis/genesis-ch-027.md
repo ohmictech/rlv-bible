@@ -4,7 +4,7 @@ Now therefore, please take your weapons, your quiver and your bow, and go out to
 Make me savory food, such as I love, and bring it to me, that I may eat, and that my soul may bless you before I die." 
 Rebekah heard when Isaac spoke to Esau his son. Esau went to the field to hunt for venison, and to bring it. 
 Rebekah spoke to Jacob her son, saying, "Behold, I heard your father speak to Esau your brother, saying, 
-'Bring me venison, and make me savory food, that I may eat, and bless you before the LORD before my death.' 
+'Bring me venison, and make me savory food, that I may eat, and bless you before God before my death.' 
 Now therefore, my son, obey my voice according to that which I command you. 
 Go now to the flock and get me two good young goats from there. I will make them savory food for your father, such as he loves. 
 You shall bring it to your father, that he may eat, so that he may bless you before his death." 
@@ -17,14 +17,14 @@ She put the skins of the young goats on his hands, and on the smooth of his neck
 She gave the savory food and the bread, which she had prepared, into the hand of her son Jacob. 
 He came to his father, and said, "My father?" He said, "Here I am. Who are you, my son?" 
 Jacob said to his father, "I am Esau your firstborn. I have done what you asked me to do. Please arise, sit and eat of my venison, that your soul may bless me." 
-Isaac said to his son, "How is it that you have found it so quickly, my son?" He said, "Because the LORD your God gave me success." 
+Isaac said to his son, "How is it that you have found it so quickly, my son?" He said, "Because your God gave me success." 
 Isaac said to Jacob, "Please come near, that I may feel you, my son, whether you are really my son Esau or not." 
 Jacob went near to Isaac his father. He felt him, and said, "The voice is Jacob's voice, but the hands are the hands of Esau." 
 He didn't recognize him, because his hands were hairy, like his brother Esau's hands. So he blessed him. 
 He said, "Are you really my son Esau?" He said, "I am." 
 He said, "Bring it near to me, and I will eat of my son's venison, that my soul may bless you." He brought it near to him, and he ate. He brought him wine, and he drank. 
 His father Isaac said to him, "Come near now, and kiss me, my son." 
-He came near, and kissed him. He smelled the smell of his clothing, and blessed him, and said, "Behold, the smell of my son is as the smell of a field which the LORD has blessed. 
+He came near, and kissed him. He smelled the smell of his clothing, and blessed him, and said, "Behold, the smell of my son is as the smell of a field which God has blessed. 
 God give you of the dew of the sky, of the fatness of the earth, and plenty of grain and new wine. 
 Let peoples serve you, and nations bow down to you. Be lord over your brothers. Let your mother's sons bow down to you. Cursed be everyone who curses you. Blessed be everyone who blesses you." 
 As soon as Isaac had finished blessing Jacob, and Jacob had just gone out from the presence of Isaac his father, Esau his brother came in from his hunting. 

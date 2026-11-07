@@ -10,7 +10,7 @@ Their houses are safe from fear, neither is the rod of God upon them.
 Their bulls breed without fail. Their cows calve, and don't miscarry. 
 They send out their little ones like a flock. Their children dance. 
 They sing to the tambourine and harp, and rejoice at the sound of the pipe. 
-They spend their days in prosperity. In an instant they go down to Sheol. 
+They spend their days in prosperity. In an instant they go down to Hades. 
 They tell God, 'Depart from us, for we don't want to know about your ways. 
 What is the Almighty, that we should serve him? What profit should we have, if we pray to him?' 
 Behold, their prosperity is not in their hand. The counsel of the wicked is far from me. 

@@ -3,17 +3,17 @@ I sink in deep mire, where there is no foothold. I have come into deep waters, w
 I am weary with my crying. My throat is dry. My eyes fail looking for my God. 
 Those who hate me without a cause are more than the hairs of my head. Those who want to cut me off, being my enemies wrongfully, are mighty. I have to restore what I didn't take away. 
 God, you know my foolishness. My sins aren't hidden from you. 
-Don't let those who wait for you be shamed through me, Lord GOD of Armies. Don't let those who seek you be brought to dishonor through me, God of Israel. 
+Don't let those who wait for you be shamed through me, God of Armies. Don't let those who seek you be brought to dishonor through me, God of Israel. 
 Because for your sake, I have borne reproach. Shame has covered my face. 
 I have become a stranger to my brothers, an alien to my mother's children. 
 For the zeal of your house consumes me. The reproaches of those who reproach you have fallen on me. 
 When I wept and I fasted, that was to my reproach. 
 When I made sackcloth my clothing, I became a byword to them. 
 Those who sit in the gate talk about me. I am the song of the drunkards. 
-But as for me, my prayer is to you, LORD, in an acceptable time. God, in the abundance of your loving kindness, answer me in the truth of your salvation. 
+But as for me, my prayer is to you, God, in an acceptable time. God, in the abundance of your loving kindness, answer me in the truth of your salvation. 
 Deliver me out of the mire, and don't let me sink. Let me be delivered from those who hate me, and out of the deep waters. 
 Don't let the flood waters overwhelm me, neither let the deep swallow me up. Don't let the pit shut its mouth on me. 
-Answer me, LORD, for your loving kindness is good. According to the multitude of your tender mercies, turn to me. 
+Answer me, God, for your loving kindness is good. According to the multitude of your tender mercies, turn to me. 
 Don't hide your face from your servant, for I am in distress. Answer me speedily! 
 Draw near to my soul and redeem it. Ransom me because of my enemies. 
 You know my reproach, my shame, and my dishonor. My adversaries are all before you. 
@@ -28,9 +28,9 @@ Charge them with crime upon crime. Don't let them come into your righteousness.
 Let them be blotted out of the book of life, and not be written with the righteous. 
 But I am in pain and distress. Let your salvation, God, protect me. 
 I will praise the name of God with a song, and will magnify him with thanksgiving. 
-It will please the LORD better than an ox, or a bull that has horns and hoofs. 
+It will please God better than an ox, or a bull that has horns and hoofs. 
 The humble have seen it, and are glad. You who seek after God, let your heart live. 
-For the LORD hears the needy, and doesn't despise his captive people. 
+For God hears the needy, and doesn't despise his captive people. 
 Let heaven and earth praise him; the seas, and everything that moves therein! 
 For God will save Zion, and build the cities of Judah. They shall settle there, and own it. 
 The children also of his servants shall inherit it. Those who love his name shall dwell therein. 

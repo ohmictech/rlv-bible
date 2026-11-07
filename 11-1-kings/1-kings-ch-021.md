@@ -1,6 +1,6 @@
 ﻿After these things, Naboth the Jezreelite had a vineyard which was in Jezreel, next to the palace of Ahab king of Samaria. 
 Ahab spoke to Naboth, saying, "Give me your vineyard, that I may have it for a garden of herbs, because it is near my house; and I will give you for it a better vineyard than it. Or, if it seems good to you, I will give you its worth in money." 
-Naboth said to Ahab, "May the LORD forbid me, that I should give the inheritance of my fathers to you!" 
+Naboth said to Ahab, "May God forbid me, that I should give the inheritance of my fathers to you!" 
 Ahab came into his house sullen and angry because of the word which Naboth the Jezreelite had spoken to him, for he had said, "I will not give you the inheritance of my fathers." He laid himself down on his bed, and turned away his face, and would eat no bread. 
 But Jezebel his wife came to him, and said to him, "Why is your spirit so sad that you eat no bread?" 
 He said to her, "Because I spoke to Naboth the Jezreelite, and said to him, 'Give me your vineyard for money; or else, if it pleases you, I will give you another vineyard for it.' He answered, 'I will not give you my vineyard.'" 
@@ -14,16 +14,16 @@ The two men, the wicked fellows, came in and sat before him. The wicked fellows 
 Then they sent to Jezebel, saying, "Naboth has been stoned and is dead." 
 When Jezebel heard that Naboth had been stoned and was dead, Jezebel said to Ahab, "Arise, take possession of the vineyard of Naboth the Jezreelite, which he refused to give you for money; for Naboth is not alive, but dead." 
 When Ahab heard that Naboth was dead, Ahab rose up to go down to the vineyard of Naboth the Jezreelite, to take possession of it. 
-The LORD's word came to Elijah the Tishbite, saying, 
+God's word came to Elijah the Tishbite, saying, 
 "Arise, go down to meet Ahab king of Israel, who dwells in Samaria. Behold, he is in the vineyard of Naboth, where he has gone down to take possession of it. 
-You shall speak to him, saying, 'The LORD says, "Have you killed and also taken possession?"' You shall speak to him, saying, 'The LORD says, "In the place where dogs licked the blood of Naboth, dogs will lick your blood, even yours."'" 
-Ahab said to Elijah, "Have you found me, my enemy?" He answered, "I have found you, because you have sold yourself to do that which is evil in the LORD's sight. 
+You shall speak to him, saying, 'God says, "Have you killed and also taken possession?"' You shall speak to him, saying, 'God says, "In the place where dogs licked the blood of Naboth, dogs will lick your blood, even yours."'" 
+Ahab said to Elijah, "Have you found me, my enemy?" He answered, "I have found you, because you have sold yourself to do that which is evil in God's sight. 
 Behold, I will bring evil on you, and will utterly sweep you away and will cut off from Ahab everyone who urinates against a wall, and him who is shut up and him who is left at large in Israel. 
 I will make your house like the house of Jeroboam the son of Nebat, and like the house of Baasha the son of Ahijah, for the provocation with which you have provoked me to anger, and have made Israel to sin." 
-The LORD also spoke of Jezebel, saying, "The dogs will eat Jezebel by the rampart of Jezreel. 
+God also spoke of Jezebel, saying, "The dogs will eat Jezebel by the rampart of Jezreel. 
 The dogs will eat whoever dies of Ahab in the city; and the birds of the sky will eat whoever dies in the field." 
-But there was no one like Ahab, who sold himself to do that which was evil in the LORD's sight, whom Jezebel his wife stirred up. 
-He did very abominably in following idols, according to all that the Amorites did, whom the LORD cast out before the children of Israel. 
+But there was no one like Ahab, who sold himself to do that which was evil in God's sight, whom Jezebel his wife stirred up. 
+He did very abominably in following idols, according to all that the Amorites did, whom God cast out before the children of Israel. 
 When Ahab heard those words, he tore his clothes, put sackcloth on his body, fasted, lay in sackcloth, and went about despondently. 
-The LORD's word came to Elijah the Tishbite, saying, 
+God's word came to Elijah the Tishbite, saying, 
 "See how Ahab humbles himself before me? Because he humbles himself before me, I will not bring the evil in his days; but I will bring the evil on his house in his son's day." 

@@ -1,14 +1,14 @@
 ﻿On the day that Moses had finished setting up the tabernacle, and had anointed it and sanctified it with all its furniture, and the altar with all its vessels, and had anointed and sanctified them; 
 the princes of Israel, the heads of their fathers' houses, gave offerings. These were the princes of the tribes. These are they who were over those who were counted; 
-and they brought their offering before the LORD, six covered wagons and twelve oxen; a wagon for every two of the princes, and for each one an ox. They presented them before the tabernacle. 
-The LORD spoke to Moses, saying, 
+and they brought their offering before God, six covered wagons and twelve oxen; a wagon for every two of the princes, and for each one an ox. They presented them before the tabernacle. 
+God spoke to Moses, saying, 
 "Accept these from them, that they may be used in doing the service of the Tent of Meeting; and you shall give them to the Levites, to every man according to his service." 
 Moses took the wagons and the oxen, and gave them to the Levites. 
 He gave two wagons and four oxen to the sons of Gershon, according to their service. 
 He gave four wagons and eight oxen to the sons of Merari, according to their service, under the direction of Ithamar the son of Aaron the priest. 
 But to the sons of Kohath he gave none, because the service of the sanctuary belonged to them; they carried it on their shoulders. 
 The princes gave offerings for the dedication of the altar in the day that it was anointed. The princes gave their offerings before the altar. 
-The LORD said to Moses, "They shall offer their offering, each prince on his day, for the dedication of the altar." 
+God said to Moses, "They shall offer their offering, each prince on his day, for the dedication of the altar." 
 He who offered his offering the first day was Nahshon the son of Amminadab, of the tribe of Judah, 
 and his offering was: one silver platter, the weight of which was one hundred thirty shekels, one silver bowl of seventy shekels, according to the shekel of the sanctuary, both of them full of fine flour mixed with oil for a meal offering; 
 one golden ladle of ten shekels, full of incense; 
@@ -86,4 +86,4 @@ each silver platter weighing one hundred thirty shekels, and each bowl seventy; 
 the twelve golden ladles, full of incense, weighing ten shekels apiece, according to the shekel of the sanctuary; all the gold of the ladles weighed one hundred twenty shekels; 
 all the cattle for the burnt offering twelve bulls, the rams twelve, the male lambs a year old twelve, and their meal offering; and twelve male goats for a sin offering; 
 and all the cattle for the sacrifice of peace offerings: twenty-four bulls, sixty rams, sixty male goats, and sixty male lambs a year old. This was the dedication offering of the altar, after it was anointed. 
-When Moses went into the Tent of Meeting to speak with the LORD, he heard his voice speaking to him from above the mercy seat that was on the ark of the Testimony, from between the two cherubim; and he spoke to him. 
+When Moses went into the Tent of Meeting to speak with God, he heard his voice speaking to him from above the mercy seat that was on the ark of the Testimony, from between the two cherubim; and he spoke to him. 

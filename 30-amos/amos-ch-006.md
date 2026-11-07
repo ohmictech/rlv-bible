@@ -5,10 +5,10 @@ who lie on beds of ivory, and stretch themselves on their couches, and eat the l
 who strum on the strings of a harp, who invent for themselves instruments of music, like David; 
 who drink wine in bowls, and anoint themselves with the best oils, but they are not grieved for the affliction of Joseph. 
 Therefore they will now go captive with the first who go captive. The feasting and lounging will end. 
-"The Lord GOD has sworn by himself," says the LORD, the God of Armies: "I abhor the pride of Jacob, and detest his fortresses. Therefore I will deliver up the city with all that is in it. 
+"The God has sworn by himself," says the God of Armies: "I abhor the pride of Jacob, and detest his fortresses. Therefore I will deliver up the city with all that is in it. 
 It will happen that if ten men remain in one house, they will die. 
-"When a man's relative carries him, even he who burns him, to bring bodies out of the house, and asks him who is in the innermost parts of the house, 'Is there yet any with you?' And he says, 'No;' then he will say, 'Hush! Indeed we must not mention the LORD's name.' 
-"For, behold, the LORD commands, and the great house will be smashed to pieces, and the little house into bits. 
+"When a man's relative carries him, even he who burns him, to bring bodies out of the house, and asks him who is in the innermost parts of the house, 'Is there yet any with you?' And he says, 'No;' then he will say, 'Hush! Indeed we must not mention God's name.' 
+"For, behold, God commands, and the great house will be smashed to pieces, and the little house into bits. 
 Do horses run on the rocky crags? Does one plow there with oxen? But you have turned justice into poison, and the fruit of righteousness into bitterness, 
 you who rejoice in a thing of nothing, who say, 'Haven't we taken for ourselves horns by our own strength?' 
-For, behold, I will raise up against you a nation, house of Israel," says the LORD, the God of Armies; "and they will afflict you from the entrance of Hamath to the brook of the Arabah." 
+For, behold, I will raise up against you a nation, house of Israel," says the God of Armies; "and they will afflict you from the entrance of Hamath to the brook of the Arabah." 

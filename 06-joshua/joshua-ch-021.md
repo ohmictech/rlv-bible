@@ -1,11 +1,11 @@
 ﻿Then the heads of fathers' houses of the Levites came near to Eleazar the priest, and to Joshua the son of Nun, and to the heads of fathers' houses of the tribes of the children of Israel. 
-They spoke to them at Shiloh in the land of Canaan, saying, "The LORD commanded through Moses to give us cities to dwell in, with their pasture lands for our livestock." 
-The children of Israel gave to the Levites out of their inheritance, according to the commandment of the LORD, these cities with their pasture lands. 
+They spoke to them at Shiloh in the land of Canaan, saying, "God commanded through Moses to give us cities to dwell in, with their pasture lands for our livestock." 
+The children of Israel gave to the Levites out of their inheritance, according to the commandment of God, these cities with their pasture lands. 
 The lot came out for the families of the Kohathites. The children of Aaron the priest, who were of the Levites, had thirteen cities by lot out of the tribe of Judah, out of the tribe of the Simeonites, and out of the tribe of Benjamin. 
 The rest of the children of Kohath had ten cities by lot out of the families of the tribe of Ephraim, out of the tribe of Dan, and out of the half-tribe of Manasseh. 
 The children of Gershon had thirteen cities by lot out of the families of the tribe of Issachar, out of the tribe of Asher, out of the tribe of Naphtali, and out of the half-tribe of Manasseh in Bashan. 
 The children of Merari according to their families had twelve cities out of the tribe of Reuben, out of the tribe of Gad, and out of the tribe of Zebulun. 
-The children of Israel gave these cities with their pasture lands by lot to the Levites, as the LORD commanded by Moses. 
+The children of Israel gave these cities with their pasture lands by lot to the Levites, as God commanded by Moses. 
 They gave out of the tribe of the children of Judah, and out of the tribe of the children of Simeon, these cities which are mentioned by name: 
 and they were for the children of Aaron, of the families of the Kohathites, who were of the children of Levi; for theirs was the first lot. 
 They gave them Kiriath Arba, named after the father of Anak (also called Hebron), in the hill country of Judah, with its pasture lands around it. 
@@ -40,6 +40,6 @@ Heshbon with its pasture lands, Jazer with its pasture lands: four cities in all
 All these were the cities of the children of Merari according to their families, even the rest of the families of the Levites. Their lot was twelve cities. 
 All the cities of the Levites among the possessions of the children of Israel were forty-eight cities with their pasture lands. 
 Each of these cities included their pasture lands around them. It was this way with all these cities. 
-So the LORD gave to Israel all the land which he swore to give to their fathers. They possessed it, and lived in it. 
-The LORD gave them rest all around, according to all that he swore to their fathers. Not a man of all their enemies stood before them. The LORD delivered all their enemies into their hand. 
-Nothing failed of any good thing which the LORD had spoken to the house of Israel. All came to pass. 
+So God gave to Israel all the land which he swore to give to their fathers. They possessed it, and lived in it. 
+God gave them rest all around, according to all that he swore to their fathers. Not a man of all their enemies stood before them. God delivered all their enemies into their hand. 
+Nothing failed of any good thing which God had spoken to the house of Israel. All came to pass. 

@@ -4,8 +4,8 @@ though its waters roar and are troubled, though the mountains tremble with their
 There is a river, the streams of which make the city of God glad, the holy place of the tents of the Most High. 
 God is within her. She shall not be moved. God will help her at dawn. 
 The nations raged. The kingdoms were moved. He lifted his voice and the earth melted. 
-The LORD of Armies is with us. The God of Jacob is our refuge. Selah. 
-Come, see the LORD's works, what desolations he has made on the earth. 
+The God of Armies is with us. The God of Jacob is our refuge. Selah. 
+Come, see God's works, what desolations he has made on the earth. 
 He makes wars cease to the end of the earth. He breaks the bow, and shatters the spear. He burns the chariots in the fire. 
 "Be still, and know that I am God. I will be exalted among the nations. I will be exalted on the earth." 
-The LORD of Armies is with us. The God of Jacob is our refuge. Selah. 
+The God of Armies is with us. The God of Jacob is our refuge. Selah. 

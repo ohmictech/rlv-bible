@@ -14,15 +14,15 @@ but the seventh year you shall let it rest and lie fallow, that the poor of your
 "You shall observe a feast to me three times a year. 
 You shall observe the feast of unleavened bread. Seven days you shall eat unleavened bread, as I commanded you, at the time appointed in the month Abib (for in it you came out of Egypt), and no one shall appear before me empty. 
 And the feast of harvest, the first fruits of your labors, which you sow in the field; and the feast of ingathering, at the end of the year, when you gather in your labors out of the field. 
-Three times in the year all your males shall appear before the Lord GOD. 
+Three times in the year all your males shall appear before God. 
 "You shall not offer the blood of my sacrifice with leavened bread. The fat of my feast shall not remain all night until the morning. 
-You shall bring the first of the first fruits of your ground into the house of the LORD your God. "You shall not boil a young goat in its mother's milk. 
+You shall bring the first of the first fruits of your ground into the house of your God. "You shall not boil a young goat in its mother's milk. 
 "Behold, I send an angel before you, to keep you by the way, and to bring you into the place which I have prepared. 
 Pay attention to him, and listen to his voice. Don't provoke him, for he will not pardon your disobedience, for my name is in him. 
 But if you indeed listen to his voice, and do all that I speak, then I will be an enemy to your enemies, and an adversary to your adversaries. 
 For my angel shall go before you, and bring you in to the Amorite, the Hittite, the Perizzite, the Canaanite, the Hivite, and the Jebusite; and I will cut them off. 
 You shall not bow down to their gods, nor serve them, nor follow their practices, but you shall utterly overthrow them and demolish their pillars. 
-You shall serve the LORD your God, and he will bless your bread and your water, and I will take sickness away from among you. 
+You shall serve your God, and he will bless your bread and your water, and I will take sickness away from among you. 
 No one will miscarry or be barren in your land. I will fulfill the number of your days. 
 I will send my terror before you, and will confuse all the people to whom you come, and I will make all your enemies turn their backs to you. 
 I will send the hornet before you, which will drive out the Hivite, the Canaanite, and the Hittite, from before you. 

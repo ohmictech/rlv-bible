@@ -1,9 +1,9 @@
-﻿Praise the LORD! Praise, you servants of the LORD, praise the LORD's name. 
-Blessed be the LORD's name, from this time forward and forever more. 
-From the rising of the sun to its going down, the LORD's name is to be praised. 
-The LORD is high above all nations, his glory above the heavens. 
-Who is like the LORD, our God, who has his seat on high, 
+﻿Praise God! Praise, you servants of God, praise God's name. 
+Blessed be God's name, from this time forward and for the eras more. 
+From the rising of the sun to its going down, God's name is to be praised. 
+God is high above all nations, his glory above the heavens. 
+Who is like God, our God, who has his seat on high, 
 who stoops down to see in heaven and on the earth? 
 He raises up the poor out of the dust, and lifts up the needy from the ash heap, 
 that he may set him with princes, even with the princes of his people. 
-He settles the barren woman in her home as a joyful mother of children. Praise the LORD! 
+He settles the barren woman in her home as a joyful mother of children. Praise God! 

@@ -8,13 +8,13 @@ Behold, the whole family has risen against your servant, and they say, 'Deliver 
 The king said to the woman, "Go to your house, and I will give a command concerning you." 
 The woman of Tekoa said to the king, "My lord, O king, may the iniquity be on me, and on my father's house; and may the king and his throne be guiltless." 
 The king said, "Whoever says anything to you, bring him to me, and he will not bother you any more." 
-Then she said, "Please let the king remember the LORD your God, that the avenger of blood destroy not any more, lest they destroy my son." He said, "As the LORD lives, not one hair of your son shall fall to the earth." 
+Then she said, "Please let the king remember your God, that the avenger of blood destroy not any more, lest they destroy my son." He said, "As God lives, not one hair of your son shall fall to the earth." 
 Then the woman said, "Please let your servant speak a word to my lord the king." He said, "Say on." 
 The woman said, "Why then have you devised such a thing against the people of God? For in speaking this word the king is as one who is guilty, in that the king does not bring home again his banished one. 
 For we must die, and are like water spilled on the ground, which can't be gathered up again; neither does God take away life, but devises means, that he who is banished not be an outcast from him. 
 Now therefore, seeing that I have come to speak this word to my lord the king, it is because the people have made me afraid. Your servant said, 'I will now speak to the king; it may be that the king will perform the request of his servant.' 
 For the king will hear, to deliver his servant out of the hand of the man who would destroy me and my son together out of the inheritance of God. 
-Then your servant said, 'Please let the word of my lord the king bring rest; for as an angel of God, so is my lord the king to discern good and bad. May the LORD, your God, be with you.'" 
+Then your servant said, 'Please let the word of my lord the king bring rest; for as an angel of God, so is my lord the king to discern good and bad. May God, your God, be with you.'" 
 Then the king answered the woman, "Please don't hide anything from me that I ask you." The woman said, "Let my lord the king now speak." 
 The king said, "Is the hand of Joab with you in all this?" The woman answered, "As your soul lives, my lord the king, no one can turn to the right hand or to the left from anything that my lord the king has spoken; for your servant Joab urged me, and he put all these words in the mouth of your servant. 
 Your servant Joab has done this thing to change the face of the matter. My lord is wise, according to the wisdom of an angel of God, to know all things that are on the earth." 

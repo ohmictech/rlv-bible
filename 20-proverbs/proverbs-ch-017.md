@@ -1,6 +1,6 @@
 ﻿Better is a dry morsel with quietness, than a house full of feasting with strife. 
 A servant who deals wisely will rule over a son who causes shame, and shall have a part in the inheritance among the brothers. 
-The refining pot is for silver, and the furnace for gold, but the LORD tests the hearts. 
+The refining pot is for silver, and the furnace for gold, but God tests the hearts. 
 An evildoer heeds wicked lips. A liar gives ear to a mischievous tongue. 
 Whoever mocks the poor reproaches his Maker. He who is glad at calamity shall not be unpunished. 
 Children's children are the crown of old men; the glory of children is their parents. 
@@ -12,7 +12,7 @@ An evil man seeks only rebellion; therefore a cruel messenger shall be sent agai
 Let a bear robbed of her cubs meet a man, rather than a fool in his folly. 
 Whoever rewards evil for good, evil shall not depart from his house. 
 The beginning of strife is like breaching a dam, therefore stop contention before quarreling breaks out. 
-He who justifies the wicked, and he who condemns the righteous, both of them alike are an abomination to the LORD. 
+He who justifies the wicked, and he who condemns the righteous, both of them alike are an abomination to God. 
 Why is there money in the hand of a fool to buy wisdom, since he has no understanding? 
 A friend loves at all times; and a brother is born for adversity. 
 A man void of understanding strikes hands, and becomes collateral in the presence of his neighbor. 

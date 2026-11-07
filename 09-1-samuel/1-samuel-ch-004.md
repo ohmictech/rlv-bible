@@ -1,9 +1,9 @@
 ﻿The word of Samuel came to all Israel. Now Israel went out against the Philistines to battle, and encamped beside Ebenezer; and the Philistines encamped in Aphek. 
 The Philistines put themselves in array against Israel. When they joined battle, Israel was defeated by the Philistines, who killed about four thousand men of the army in the field. 
-When the people had come into the camp, the elders of Israel said, "Why has the LORD defeated us today before the Philistines? Let's get the ark of the LORD's covenant out of Shiloh and bring it to us, that it may come among us and save us out of the hand of our enemies." 
-So the people sent to Shiloh, and they brought from there the ark of the covenant of the LORD of Armies, who sits above the cherubim; and the two sons of Eli, Hophni and Phinehas, were there with the ark of the covenant of God. 
-When the ark of the LORD's covenant came into the camp, all Israel shouted with a great shout, so that the earth resounded. 
-When the Philistines heard the noise of the shout, they said, "What does the noise of this great shout in the camp of the Hebrews mean?" They understood that the LORD's ark had come into the camp. 
+When the people had come into the camp, the elders of Israel said, "Why has God defeated us today before the Philistines? Let's get the ark of God's covenant out of Shiloh and bring it to us, that it may come among us and save us out of the hand of our enemies." 
+So the people sent to Shiloh, and they brought from there the ark of the covenant of the God of Armies, who sits above the cherubim; and the two sons of Eli, Hophni and Phinehas, were there with the ark of the covenant of God. 
+When the ark of God's covenant came into the camp, all Israel shouted with a great shout, so that the earth resounded. 
+When the Philistines heard the noise of the shout, they said, "What does the noise of this great shout in the camp of the Hebrews mean?" They understood that God's ark had come into the camp. 
 The Philistines were afraid, for they said, "God has come into the camp." They said, "Woe to us! For there has not been such a thing before. 
 Woe to us! Who shall deliver us out of the hand of these mighty gods? These are the gods that struck the Egyptians with all kinds of plagues in the wilderness. 
 Be strong and behave like men, O you Philistines, that you not be servants to the Hebrews, as they have been to you. Strengthen yourselves like men, and fight!" 

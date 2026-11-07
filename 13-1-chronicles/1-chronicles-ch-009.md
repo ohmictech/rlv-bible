@@ -16,11 +16,11 @@ and Bakbakkar, Heresh, Galal, and Mattaniah the son of Mica, the son of Zichri, 
 and Obadiah the son of Shemaiah, the son of Galal, the son of Jeduthun; and Berechiah the son of Asa, the son of Elkanah, who lived in the villages of the Netophathites. 
 The gatekeepers: Shallum, Akkub, Talmon, Ahiman, and their brothers (Shallum was the chief), 
 who previously served in the king's gate eastward. They were the gatekeepers for the camp of the children of Levi. 
-Shallum was the son of Kore, the son of Ebiasaph, the son of Korah, and his brothers, of his father's house, the Korahites, were over the work of the service, keepers of the thresholds of the tent. Their fathers had been over the LORD's camp, keepers of the entry. 
-Phinehas the son of Eleazar was ruler over them in time past, and the LORD was with him. 
+Shallum was the son of Kore, the son of Ebiasaph, the son of Korah, and his brothers, of his father's house, the Korahites, were over the work of the service, keepers of the thresholds of the tent. Their fathers had been over God's camp, keepers of the entry. 
+Phinehas the son of Eleazar was ruler over them in time past, and God was with him. 
 Zechariah the son of Meshelemiah was gatekeeper of the door of the Tent of Meeting. 
 All these who were chosen to be gatekeepers in the thresholds were two hundred twelve. These were listed by genealogy in their villages, whom David and Samuel the seer ordained in their office of trust. 
-So they and their children had the oversight of the gates of the LORD's house, even the house of the tent, as guards. 
+So they and their children had the oversight of the gates of God's house, even the house of the tent, as guards. 
 On the four sides were the gatekeepers, toward the east, west, north, and south. 
 Their brothers, in their villages, were to come in every seven days from time to time to be with them, 
 for the four chief gatekeepers, who were Levites, were in an office of trust, and were over the rooms and over the treasuries in God's house. 

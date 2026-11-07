@@ -7,7 +7,7 @@ For they have prepared their heart like an oven, while they lie in wait. Their a
 They are all hot as an oven, and devour their judges. All their kings have fallen. There is no one among them who calls to me. 
 Ephraim mixes himself among the nations. Ephraim is a pancake not turned over. 
 Strangers have devoured his strength, and he doesn't realize it. Indeed, gray hairs are here and there on him, and he doesn't realize it. 
-The pride of Israel testifies to his face; yet they haven't returned to the LORD their God, nor sought him, for all this. 
+The pride of Israel testifies to his face; yet they haven't returned to their God, nor sought him, for all this. 
 "Ephraim is like an easily deceived dove, without understanding. They call to Egypt. They go to Assyria. 
 When they go, I will spread my net on them. I will bring them down like the birds of the sky. I will chastise them, as their congregation has heard. 
 Woe to them! For they have wandered from me. Destruction to them! For they have trespassed against me. Though I would redeem them, yet they have spoken lies against me. 

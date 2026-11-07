@@ -1,7 +1,7 @@
 ﻿In the second year of the reign of Nebuchadnezzar, Nebuchadnezzar dreamed dreams; and his spirit was troubled, and his sleep went from him. 
 Then the king commanded that the magicians, the enchanters, the sorcerers, and the Chaldeans be called to tell the king his dreams. So they came in and stood before the king. 
 The king said to them, "I have dreamed a dream, and my spirit is troubled to know the dream." 
-Then the Chaldeans spoke to the king in the Syrian language, "O king, live forever! Tell your servants the dream, and we will show the interpretation." 
+Then the Chaldeans spoke to the king in the Syrian language, "O king, live for the eras! Tell your servants the dream, and we will show the interpretation." 
 The king answered the Chaldeans, "The thing has gone from me. If you don't make known to me the dream and its interpretation, you will be cut in pieces, and your houses will be made a dunghill. 
 But if you show the dream and its interpretation, you will receive from me gifts, rewards, and great honor. Therefore show me the dream and its interpretation." 
 They answered the second time and said, "Let the king tell his servants the dream, and we will show the interpretation." 
@@ -17,7 +17,7 @@ Daniel went in, and desired of the king that he would appoint him a time, and he
 Then Daniel went to his house and made the thing known to Hananiah, Mishael, and Azariah, his companions: 
 that they would desire mercies of the God of heaven concerning this secret, that Daniel and his companions would not perish with the rest of the wise men of Babylon. 
 Then the secret was revealed to Daniel in a vision of the night. Then Daniel blessed the God of heaven. 
-Daniel answered, "Blessed be the name of God forever and ever; for wisdom and might are his. 
+Daniel answered, "Blessed be the name of God for all the eras; for wisdom and might are his. 
 He changes the times and the seasons. He removes kings and sets up kings. He gives wisdom to the wise, and knowledge to those who have understanding. 
 He reveals the deep and secret things. He knows what is in the darkness, and the light dwells with him. 
 I thank you and praise you, O God of my fathers, who have given me wisdom and might, and have now made known to me what we desired of you; for you have made known to us the king's matter." 
@@ -41,7 +41,7 @@ The fourth kingdom will be strong as iron, because iron breaks in pieces and sub
 Whereas you saw the feet and toes, part of potters' clay and part of iron, it will be a divided kingdom; but there will be in it of the strength of the iron, because you saw the iron mixed with miry clay. 
 As the toes of the feet were part of iron, and part of clay, so the kingdom will be partly strong and partly brittle. 
 Whereas you saw the iron mixed with miry clay, they will mingle themselves with the seed of men; but they won't cling to one another, even as iron does not mix with clay. 
-"In the days of those kings the God of heaven will set up a kingdom which will never be destroyed, nor will its sovereignty be left to another people; but it will break in pieces and consume all these kingdoms, and it will stand forever. 
+"In the days of those kings the God of heaven will set up a kingdom which will never be destroyed, nor will its sovereignty be left to another people; but it will break in pieces and consume all these kingdoms, and it will stand for the eras. 
 Because you saw that a stone was cut out of the mountain without hands, and that it broke in pieces the iron, the bronze, the clay, the silver, and the gold, the great God has made known to the king what will happen hereafter. The dream is certain, and its interpretation sure." 
 Then King Nebuchadnezzar fell on his face, worshiped Daniel, and commanded that they should offer an offering and sweet odors to him. 
 The king answered to Daniel, and said, "Of a truth your God is the God of gods, and the Lord of kings, and a revealer of secrets, since you have been able to reveal this secret." 

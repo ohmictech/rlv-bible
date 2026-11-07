@@ -1,16 +1,16 @@
 ﻿"Comfort, comfort my people," says your God. 
-"Speak comfortably to Jerusalem, and call out to her that her warfare is accomplished, that her iniquity is pardoned, that she has received of the LORD's hand double for all her sins." 
-The voice of one who calls out, "Prepare the way of the LORD in the wilderness! Make a level highway in the desert for our God. 
+"Speak comfortably to Jerusalem, and call out to her that her warfare is accomplished, that her iniquity is pardoned, that she has received of God's hand double for all her sins." 
+The voice of one who calls out, "Prepare the way of God in the wilderness! Make a level highway in the desert for our God. 
 Every valley shall be exalted, and every mountain and hill shall be made low. The uneven shall be made level, and the rough places a plain. 
-The LORD's glory shall be revealed, and all flesh shall see it together; for the mouth of the LORD has spoken it." 
+God's glory shall be revealed, and all flesh shall see it together; for the mouth of God has spoken it." 
 The voice of one saying, "Cry out!" One said, "What shall I cry?" "All flesh is like grass, and all its glory is like the flower of the field. 
-The grass withers, the flower fades, because the LORD's breath blows on it. Surely the people are like grass. 
-The grass withers, the flower fades; but the word of our God stands forever." 
+The grass withers, the flower fades, because God's breath blows on it. Surely the people are like grass. 
+The grass withers, the flower fades; but the word of our God stands for the eras." 
 You who tell good news to Zion, go up on a high mountain. You who tell good news to Jerusalem, lift up your voice with strength! Lift it up! Don't be afraid! Say to the cities of Judah, "Behold, your God!" 
-Behold, the Lord GOD will come as a mighty one, and his arm will rule for him. Behold, his reward is with him, and his recompense before him. 
+Behold, God will come as a mighty one, and his arm will rule for him. Behold, his reward is with him, and his recompense before him. 
 He will feed his flock like a shepherd. He will gather the lambs in his arm, and carry them in his bosom. He will gently lead those who have their young. 
 Who has measured the waters in the hollow of his hand, and marked off the sky with his span, and calculated the dust of the earth in a measuring basket, and weighed the mountains in scales, and the hills in a balance? 
-Who has directed the LORD's Spirit, or has taught him as his counselor? 
+Who has directed God's Spirit, or has taught him as his counselor? 
 Who did he take counsel with, and who instructed him, and taught him in the path of justice, and taught him knowledge, and showed him the way of understanding? 
 Behold, the nations are like a drop in a bucket, and are regarded as a speck of dust on a balance. Behold, he lifts up the islands like a very little thing. 
 Lebanon is not sufficient to burn, nor its animals sufficient for a burnt offering. 
@@ -24,8 +24,8 @@ who brings princes to nothing, who makes the judges of the earth meaningless.
 They are planted scarcely. They are sown scarcely. Their stock has scarcely taken root in the ground. He merely blows on them, and they wither, and the whirlwind takes them away as stubble. 
 "To whom then will you liken me? Who is my equal?" says the Holy One. 
 Lift up your eyes on high, and see who has created these, who brings out their army by number. He calls them all by name. By the greatness of his might, and because he is strong in power, not one is lacking. 
-Why do you say, Jacob, and speak, Israel, "My way is hidden from the LORD, and the justice due me is disregarded by my God"? 
-Haven't you known? Haven't you heard? The everlasting God, the LORD, the Creator of the ends of the earth, doesn't faint. He isn't weary. His understanding is unsearchable. 
+Why do you say, Jacob, and speak, Israel, "My way is hidden from God, and the justice due me is disregarded by my God"? 
+Haven't you known? Haven't you heard? The everlasting God, God, the Creator of the ends of the earth, doesn't faint. He isn't weary. His understanding is unsearchable. 
 He gives power to the weak. He increases the strength of him who has no might. 
 Even the youths faint and get weary, and the young men utterly fall; 
-but those who wait for the LORD will renew their strength. They will mount up with wings like eagles. They will run, and not be weary. They will walk, and not faint. 
+but those who wait for God will renew their strength. They will mount up with wings like eagles. They will run, and not be weary. They will walk, and not faint. 

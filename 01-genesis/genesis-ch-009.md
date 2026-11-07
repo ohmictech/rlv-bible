@@ -23,7 +23,7 @@ Ham, the father of Canaan, saw the nakedness of his father, and told his two bro
 Shem and Japheth took a garment, and laid it on both their shoulders, went in backwards, and covered the nakedness of their father. Their faces were backwards, and they didn't see their father's nakedness. 
 Noah awoke from his wine, and knew what his youngest son had done to him. 
 He said, "Canaan is cursed. He will be a servant of servants to his brothers." 
-He said, "Blessed be the LORD, the God of Shem. Let Canaan be his servant. 
+He said, "Blessed be the God of Shem. Let Canaan be his servant. 
 May God enlarge Japheth. Let him dwell in the tents of Shem. Let Canaan be his servant." 
 Noah lived three hundred fifty years after the flood. 
 All the days of Noah were nine hundred fifty years, and then he died. 

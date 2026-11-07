@@ -32,5 +32,5 @@ They took Joseph's tunic, and killed a male goat, and dipped the tunic in the bl
 They took the tunic of many colors, and they brought it to their father, and said, "We have found this. Examine it, now, and see if it is your son's tunic or not." 
 He recognized it, and said, "It is my son's tunic. An evil animal has devoured him. Joseph is without doubt torn in pieces." 
 Jacob tore his clothes, and put sackcloth on his waist, and mourned for his son many days. 
-All his sons and all his daughters rose up to comfort him, but he refused to be comforted. He said, "For I will go down to Sheol to my son, mourning." His father wept for him. 
+All his sons and all his daughters rose up to comfort him, but he refused to be comforted. He said, "For I will go down to Hades to my son, mourning." His father wept for him. 
 The Midianites sold him into Egypt to Potiphar, an officer of Pharaoh's, the captain of the guard. 

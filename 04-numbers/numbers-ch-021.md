@@ -1,19 +1,19 @@
 ﻿The Canaanite, the king of Arad, who lived in the South, heard that Israel came by the way of Atharim. He fought against Israel, and took some of them captive. 
-Israel vowed a vow to the LORD, and said, "If you will indeed deliver this people into my hand, then I will utterly destroy their cities." 
-The LORD listened to the voice of Israel, and delivered up the Canaanites; and they utterly destroyed them and their cities. The name of the place was called Hormah. 
+Israel vowed a vow to God, and said, "If you will indeed deliver this people into my hand, then I will utterly destroy their cities." 
+God listened to the voice of Israel, and delivered up the Canaanites; and they utterly destroyed them and their cities. The name of the place was called Hormah. 
 They traveled from Mount Hor by the way to the Red Sea, to go around the land of Edom. The soul of the people was very discouraged because of the journey. 
 The people spoke against God and against Moses: "Why have you brought us up out of Egypt to die in the wilderness? For there is no bread, there is no water, and our soul loathes this disgusting food!" 
-The LORD sent venomous snakes among the people, and they bit the people. Many people of Israel died. 
-The people came to Moses, and said, "We have sinned, because we have spoken against the LORD and against you. Pray to the LORD, that he take away the serpents from us." Moses prayed for the people. 
-The LORD said to Moses, "Make a venomous snake, and set it on a pole. It shall happen that everyone who is bitten, when he sees it, shall live." 
+God sent venomous snakes among the people, and they bit the people. Many people of Israel died. 
+The people came to Moses, and said, "We have sinned, because we have spoken against God and against you. Pray to God, that he take away the serpents from us." Moses prayed for the people. 
+God said to Moses, "Make a venomous snake, and set it on a pole. It shall happen that everyone who is bitten, when he sees it, shall live." 
 Moses made a serpent of bronze, and set it on the pole. If a serpent had bitten any man, when he looked at the serpent of bronze, he lived. 
 The children of Israel traveled, and encamped in Oboth. 
 They traveled from Oboth, and encamped at Iyeabarim, in the wilderness which is before Moab, toward the sunrise. 
 From there they traveled, and encamped in the valley of Zered. 
 From there they traveled, and encamped on the other side of the Arnon, which is in the wilderness that comes out of the border of the Amorites; for the Arnon is the border of Moab, between Moab and the Amorites. 
-Therefore it is said in The Book of the Wars of the LORD, "Vaheb in Suphah, the valleys of the Arnon, 
+Therefore it is said in The Book of the Wars of God, "Vaheb in Suphah, the valleys of the Arnon, 
 the slope of the valleys that incline toward the dwelling of Ar, leans on the border of Moab." 
-From there they traveled to Beer; that is the well of which the LORD said to Moses, "Gather the people together, and I will give them water." 
+From there they traveled to Beer; that is the well of which God said to Moses, "Gather the people together, and I will give them water." 
 Then Israel sang this song: "Spring up, well! Sing to it, 
 the well, which the princes dug, which the nobles of the people dug, with the scepter, and with their poles." From the wilderness they traveled to Mattanah; 
 and from Mattanah to Nahaliel; and from Nahaliel to Bamoth; 
@@ -31,5 +31,5 @@ We have shot at them. Heshbon has perished even to Dibon. We have laid waste eve
 Thus Israel lived in the land of the Amorites. 
 Moses sent to spy out Jazer. They took its villages, and drove out the Amorites who were there. 
 They turned and went up by the way of Bashan. Og the king of Bashan went out against them, he and all his people, to battle at Edrei. 
-The LORD said to Moses, "Don't fear him, for I have delivered him into your hand, with all his people, and his land. You shall do to him as you did to Sihon king of the Amorites, who lived at Heshbon." 
+God said to Moses, "Don't fear him, for I have delivered him into your hand, with all his people, and his land. You shall do to him as you did to Sihon king of the Amorites, who lived at Heshbon." 
 So they struck him, with his sons and all his people, until there were no survivors; and they possessed his land. 

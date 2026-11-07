@@ -1,11 +1,11 @@
 ﻿For the Chief Musician. A Psalm by David. A song. Let God arise! Let his enemies be scattered! Let them who hate him also flee before him. 
 As smoke is driven away, so drive them away. As wax melts before the fire, so let the wicked perish at the presence of God. 
 But let the righteous be glad. Let them rejoice before God. Yes, let them rejoice with gladness. 
-Sing to God! Sing praises to his name! Extol him who rides on the clouds: to the LORD, his name! Rejoice before him! 
+Sing to God! Sing praises to his name! Extol him who rides on the clouds: to God, his name! Rejoice before him! 
 A father of the fatherless, and a defender of the widows, is God in his holy habitation. 
 God sets the lonely in families. He brings out the prisoners with singing, but the rebellious dwell in a sun-scorched land. 
 God, when you went out before your people, when you marched through the wilderness... Selah. 
-The earth trembled. The sky also poured down rain at the presence of the God of Sinai, at the presence of God, the God of Israel. 
+The earth trembled. The sky also poured down rain at the presence of the God of Sinai, at the presence of the God of Israel. 
 You, God, sent a plentiful rain. You confirmed your inheritance when it was weary. 
 Your congregation lived therein. You, God, prepared your goodness for the poor. 
 The Lord announced the word. The ones who proclaim it are a great company. 
@@ -13,9 +13,9 @@ The Lord announced the word. The ones who proclaim it are a great company.
 while you sleep among the camp fires, the wings of a dove sheathed with silver, her feathers with shining gold. 
 When the Almighty scattered kings in her, it snowed on Zalmon. 
 The mountains of Bashan are majestic mountains. The mountains of Bashan are rugged. 
-Why do you look in envy, you rugged mountains, at the mountain where God chooses to reign? Yes, the LORD will dwell there forever. 
+Why do you look in envy, you rugged mountains, at the mountain where God chooses to reign? Yes, God will dwell there for the eras. 
 The chariots of God are tens of thousands and thousands of thousands. The Lord is among them, from Sinai, into the sanctuary. 
-You have ascended on high. You have led away captives. You have received gifts among people, yes, among the rebellious also, that the LORD God might dwell there. 
+You have ascended on high. You have led away captives. You have received gifts among people, yes, among the rebellious also, that God might dwell there. 
 Blessed be the Lord, who daily bears our burdens, even the God who is our salvation. Selah. 
 God is to us a God of deliverance. To GOD, the Lord, belongs escape from death. 
 But God will strike through the head of his enemies, the hairy scalp of such a one as still continues in his guiltiness. 

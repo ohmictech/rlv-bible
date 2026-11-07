@@ -1,4 +1,4 @@
-﻿The LORD spoke to Moses and to Aaron, saying, 
+﻿God spoke to Moses and to Aaron, saying, 
 "When a man shall have a swelling in his body's skin, or a scab, or a bright spot, and it becomes in the skin of his body the plague of leprosy, then he shall be brought to Aaron the priest or to one of his sons, the priests. 
 The priest shall examine the plague in the skin of the body. If the hair in the plague has turned white, and the appearance of the plague is deeper than the body's skin, it is the plague of leprosy; so the priest shall examine him and pronounce him unclean. 
 If the bright spot is white in the skin of his body, and its appearance isn't deeper than the skin, and its hair hasn't turned white, then the priest shall isolate the infected person for seven days. 

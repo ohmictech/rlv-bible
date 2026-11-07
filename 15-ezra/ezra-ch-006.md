@@ -18,5 +18,5 @@ They offered at the dedication of this house of God one hundred bulls, two hundr
 They set the priests in their divisions and the Levites in their courses, for the service of God which is at Jerusalem, as it is written in the book of Moses. 
 The children of the captivity kept the Passover on the fourteenth day of the first month. 
 Because the priests and the Levites had purified themselves together, all of them were pure. They killed the Passover for all the children of the captivity, for their brothers the priests, and for themselves. 
-The children of Israel who had returned out of the captivity, and all who had separated themselves to them from the filthiness of the nations of the land to seek the LORD, the God of Israel, ate, 
-and kept the feast of unleavened bread seven days with joy; because the LORD had made them joyful, and had turned the heart of the king of Assyria to them, to strengthen their hands in the work of God, the God of Israel's house. 
+The children of Israel who had returned out of the captivity, and all who had separated themselves to them from the filthiness of the nations of the land to seek the God of Israel, ate, 
+and kept the feast of unleavened bread seven days with joy; because God had made them joyful, and had turned the heart of the king of Assyria to them, to strengthen their hands in the work of the God of Israel's house. 

@@ -3,7 +3,7 @@ No, in your heart you plot injustice. You measure out the violence of your hands
 The wicked go astray from the womb. They are wayward as soon as they are born, speaking lies. 
 Their poison is like the poison of a snake, like a deaf cobra that stops its ear, 
 which doesn't listen to the voice of charmers, no matter how skillful the charmer may be. 
-Break their teeth, God, in their mouth. Break out the great teeth of the young lions, LORD. 
+Break their teeth, God, in their mouth. Break out the great teeth of the young lions, God. 
 Let them vanish like water that flows away. When they draw the bow, let their arrows be made blunt. 
 Let them be like a snail which melts and passes away, like the stillborn child, who has not seen the sun. 
 Before your pots can feel the heat of the thorns, he will sweep away the green and the burning alike. 

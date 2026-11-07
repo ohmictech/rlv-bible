@@ -24,4 +24,4 @@ The messenger said to David, "The men prevailed against us, and came out to us i
 The shooters shot at your servants from off the wall; and some of the king's servants are dead, and your servant Uriah the Hittite is also dead." 
 Then David said to the messenger, "Tell Joab, 'Don't let this thing displease you, for the sword devours one as well as another. Make your battle stronger against the city, and overthrow it.' Encourage him." 
 When Uriah's wife heard that Uriah her husband was dead, she mourned for her husband. 
-When the mourning was past, David sent and took her home to his house, and she became his wife and bore him a son. But the thing that David had done displeased the LORD. 
+When the mourning was past, David sent and took her home to his house, and she became his wife and bore him a son. But the thing that David had done displeased God. 

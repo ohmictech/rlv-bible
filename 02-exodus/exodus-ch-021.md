@@ -3,7 +3,7 @@
 If he comes in by himself, he shall go out by himself. If he is married, then his wife shall go out with him. 
 If his master gives him a wife and she bears him sons or daughters, the wife and her children shall be her master's, and he shall go out by himself. 
 But if the servant shall plainly say, 'I love my master, my wife, and my children. I will not go out free;' 
-then his master shall bring him to God, and shall bring him to the door or to the doorpost, and his master shall bore his ear through with an awl, and he shall serve him forever. 
+then his master shall bring him to God, and shall bring him to the door or to the doorpost, and his master shall bore his ear through with an awl, and he shall serve him for the eras. 
 "If a man sells his daughter to be a female servant, she shall not go out as the male servants do. 
 If she doesn't please her master, who has married her to himself, then he shall let her be redeemed. He shall have no right to sell her to a foreign people, since he has dealt deceitfully with her. 
 If he marries her to his son, he shall deal with her as a daughter. 

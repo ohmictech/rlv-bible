@@ -1,11 +1,11 @@
-﻿Give thanks to the LORD! Call on his name! Make his doings known among the peoples. 
+﻿Give thanks to God! Call on his name! Make his doings known among the peoples. 
 Sing to him, sing praises to him! Tell of all his marvelous works. 
-Glory in his holy name. Let the heart of those who seek the LORD rejoice. 
-Seek the LORD and his strength. Seek his face forever more. 
+Glory in his holy name. Let the heart of those who seek God rejoice. 
+Seek God and his strength. Seek his face for the eras more. 
 Remember his marvelous works that he has done: his wonders, and the judgments of his mouth, 
 you offspring of Abraham, his servant, you children of Jacob, his chosen ones. 
-He is the LORD, our God. His judgments are in all the earth. 
-He has remembered his covenant forever, the word which he commanded to a thousand generations, 
+He is God, our God. His judgments are in all the earth. 
+He has remembered his covenant for the eras, the word which he commanded to a thousand generations, 
 the covenant which he made with Abraham, his oath to Isaac, 
 and confirmed it to Jacob for a statute; to Israel for an everlasting covenant, 
 saying, "To you I will give the land of Canaan, the lot of your inheritance," 
@@ -16,7 +16,7 @@ He allowed no one to do them wrong. Yes, he reproved kings for their sakes,
 He called for a famine on the land. He destroyed the food supplies. 
 He sent a man before them. Joseph was sold for a slave. 
 They bruised his feet with shackles. His neck was locked in irons, 
-until the time that his word happened, and the LORD's word proved him true. 
+until the time that his word happened, and God's word proved him true. 
 The king sent and freed him, even the ruler of peoples, and let him go free. 
 He made him lord of his house, and ruler of all of his possessions, 
 to discipline his princes at his pleasure, and to teach his elders wisdom. 
@@ -42,4 +42,4 @@ He opened the rock, and waters gushed out. They ran as a river in the dry places
 For he remembered his holy word, and Abraham, his servant. 
 He brought his people out with joy, his chosen with singing. 
 He gave them the lands of the nations. They took the labor of the peoples in possession, 
-that they might keep his statutes, and observe his laws. Praise the LORD! 
+that they might keep his statutes, and observe his laws. Praise God! 

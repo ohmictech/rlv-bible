@@ -1,8 +1,8 @@
-﻿The LORD said to Noah, "Come with all of your household into the ship, for I have seen your righteousness before me in this generation. 
+﻿God said to Noah, "Come with all of your household into the ship, for I have seen your righteousness before me in this generation. 
 You shall take seven pairs of every clean animal with you, the male and his female. Of the animals that are not clean, take two, the male and his female. 
 Also of the birds of the sky, seven and seven, male and female, to keep seed alive on the surface of all the earth. 
 In seven days, I will cause it to rain on the earth for forty days and forty nights. I will destroy every living thing that I have made from the surface of the ground." 
-Noah did everything that the LORD commanded him. 
+Noah did everything that God commanded him. 
 Noah was six hundred years old when the flood of waters came on the earth. 
 Noah went into the ship with his sons, his wife, and his sons' wives, because of the floodwaters. 
 Clean animals, unclean animals, birds, and everything that creeps on the ground 
@@ -13,7 +13,7 @@ It rained on the earth forty days and forty nights.
 In the same day Noah, and Shem, Ham, and Japheth, the sons of Noah, and Noah's wife and the three wives of his sons with them, entered into the ship 
 they, and every animal after its kind, all the livestock after their kind, every creeping thing that creeps on the earth after its kind, and every bird after its kind, every bird of every sort. 
 Pairs from all flesh with the breath of life in them went into the ship to Noah. 
-Those who went in, went in male and female of all flesh, as God commanded him; then the LORD shut him in. 
+Those who went in, went in male and female of all flesh, as God commanded him; then God shut him in. 
 The flood was forty days on the earth. The waters increased, and lifted up the ship, and it was lifted up above the earth. 
 The waters rose, and increased greatly on the earth; and the ship floated on the surface of the waters. 
 The waters rose very high on the earth. All the high mountains that were under the whole sky were covered. 

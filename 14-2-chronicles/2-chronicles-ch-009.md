@@ -1,14 +1,14 @@
 ﻿When the queen of Sheba heard of the fame of Solomon, she came to test Solomon with hard questions at Jerusalem, with a very great caravan, including camels that bore spices, gold in abundance, and precious stones. When she had come to Solomon, she talked with him about all that was in her heart. 
 Solomon answered all her questions. There wasn't anything hidden from Solomon which he didn't tell her. 
 When the queen of Sheba had seen the wisdom of Solomon, the house that he had built, 
-the food of his table, the seating of his servants, the attendance of his ministers, their clothing, his cup bearers and their clothing, and his ascent by which he went up to the LORD's house, there was no more spirit in her. 
+the food of his table, the seating of his servants, the attendance of his ministers, their clothing, his cup bearers and their clothing, and his ascent by which he went up to God's house, there was no more spirit in her. 
 She said to the king, "It was a true report that I heard in my own land of your acts and of your wisdom. 
 However I didn't believe their words until I came, and my eyes had seen it; and behold half of the greatness of your wisdom wasn't told me. You exceed the fame that I heard! 
 Happy are your men, and happy are these your servants, who stand continually before you and hear your wisdom. 
-Blessed be the LORD your God, who delighted in you and set you on his throne to be king for the LORD your God, because your God loved Israel, to establish them forever. Therefore he made you king over them, to do justice and righteousness." 
+Blessed be your God, who delighted in you and set you on his throne to be king for your God, because your God loved Israel, to establish them for the eras. Therefore he made you king over them, to do justice and righteousness." 
 She gave the king one hundred and twenty talents of gold, spices in great abundance, and precious stones. There was never before such spice as the queen of Sheba gave to King Solomon. 
 The servants of Huram and the servants of Solomon, who brought gold from Ophir, also brought algum trees and precious stones. 
-The king used algum tree wood to make terraces for the LORD's house and for the king's house, and harps and stringed instruments for the singers. There were none like these seen before in the land of Judah. 
+The king used algum tree wood to make terraces for God's house and for the king's house, and harps and stringed instruments for the singers. There were none like these seen before in the land of Judah. 
 King Solomon gave to the queen of Sheba all her desire, whatever she asked, more than that which she had brought to the king. So she turned and went to her own land, she and her servants. 
 Now the weight of gold that came to Solomon in one year was six hundred sixty-six talents of gold, 
 in addition to that which the traders and merchants brought. All the kings of Arabia and the governors of the country brought gold and silver to Solomon. 

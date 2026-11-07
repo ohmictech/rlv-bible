@@ -7,4 +7,4 @@ They plot injustice, saying, "We have made a perfect plan!" Surely man's mind an
 But God will shoot at them. They will be suddenly struck down with an arrow. 
 Their own tongues shall ruin them. All who see them will shake their heads. 
 All mankind shall be afraid. They shall declare the work of God, and shall wisely ponder what he has done. 
-The righteous shall be glad in the LORD, and shall take refuge in him. All the upright in heart shall praise him! 
+The righteous shall be glad in God, and shall take refuge in him. All the upright in heart shall praise him! 

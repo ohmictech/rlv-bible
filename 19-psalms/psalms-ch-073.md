@@ -23,6 +23,6 @@ I was so senseless and ignorant. I was a brute beast before you.
 Nevertheless, I am continually with you. You have held my right hand. 
 You will guide me with your counsel, and afterward receive me to glory. 
 Whom do I have in heaven? There is no one on earth whom I desire besides you. 
-My flesh and my heart fails, but God is the strength of my heart and my portion forever. 
+My flesh and my heart fails, but God is the strength of my heart and my portion for the eras. 
 For, behold, those who are far from you shall perish. You have destroyed all those who are unfaithful to you. 
-But it is good for me to come close to God. I have made the Lord GOD my refuge, that I may tell of all your works. 
+But it is good for me to come close to God. I have made God my refuge, that I may tell of all your works. 

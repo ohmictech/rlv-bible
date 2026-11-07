@@ -1,4 +1,4 @@
-﻿The LORD spoke to Moses, saying, 
+﻿God spoke to Moses, saying, 
 "This shall be the law of the leper in the day of his cleansing: He shall be brought to the priest, 
 and the priest shall go out of the camp. The priest shall examine him. Behold, if the plague of leprosy is healed in the leper, 
 then the priest shall command them to take for him who is to be cleansed two living clean birds, cedar wood, scarlet, and hyssop. 
@@ -8,29 +8,29 @@ He shall sprinkle on him who is to be cleansed from the leprosy seven times, and
 "He who is to be cleansed shall wash his clothes, and shave off all his hair, and bathe himself in water; and he shall be clean. After that he shall come into the camp, but shall dwell outside his tent seven days. 
 It shall be on the seventh day, that he shall shave all his hair off his head and his beard and his eyebrows. He shall shave off all his hair. He shall wash his clothes, and he shall bathe his body in water. Then he shall be clean. 
 "On the eighth day he shall take two male lambs without defect, one ewe lamb a year old without defect, three tenths of an ephah of fine flour for a meal offering, mixed with oil, and one log of oil. 
-The priest who cleanses him shall set the man who is to be cleansed, and those things, before the LORD, at the door of the Tent of Meeting. 
-"The priest shall take one of the male lambs, and offer him for a trespass offering, with the log of oil, and wave them for a wave offering before the LORD. 
+The priest who cleanses him shall set the man who is to be cleansed, and those things, before God, at the door of the Tent of Meeting. 
+"The priest shall take one of the male lambs, and offer him for a trespass offering, with the log of oil, and wave them for a wave offering before God. 
 He shall kill the male lamb in the place where they kill the sin offering and the burnt offering, in the place of the sanctuary; for as the sin offering is the priest's, so is the trespass offering. It is most holy. 
 The priest shall take some of the blood of the trespass offering, and the priest shall put it on the tip of the right ear of him who is to be cleansed, and on the thumb of his right hand, and on the big toe of his right foot. 
 The priest shall take some of the log of oil, and pour it into the palm of his own left hand. 
-The priest shall dip his right finger in the oil that is in his left hand, and shall sprinkle some of the oil with his finger seven times before the LORD. 
+The priest shall dip his right finger in the oil that is in his left hand, and shall sprinkle some of the oil with his finger seven times before God. 
 The priest shall put some of the rest of the oil that is in his hand on the tip of the right ear of him who is to be cleansed, and on the thumb of his right hand, and on the big toe of his right foot, upon the blood of the trespass offering. 
-The rest of the oil that is in the priest's hand he shall put on the head of him who is to be cleansed, and the priest shall make atonement for him before the LORD. 
+The rest of the oil that is in the priest's hand he shall put on the head of him who is to be cleansed, and the priest shall make atonement for him before God. 
 "The priest shall offer the sin offering, and make atonement for him who is to be cleansed because of his uncleanness. Afterward he shall kill the burnt offering; 
 then the priest shall offer the burnt offering and the meal offering on the altar. The priest shall make atonement for him, and he shall be clean. 
 "If he is poor, and can't afford so much, then he shall take one male lamb for a trespass offering to be waved, to make atonement for him, and one tenth of an ephah of fine flour mixed with oil for a meal offering, and a log of oil; 
 and two turtledoves, or two young pigeons, such as he is able to afford; and the one shall be a sin offering, and the other a burnt offering. 
-"On the eighth day he shall bring them for his cleansing to the priest, to the door of the Tent of Meeting, before the LORD. 
-The priest shall take the lamb of the trespass offering, and the log of oil, and the priest shall wave them for a wave offering before the LORD. 
+"On the eighth day he shall bring them for his cleansing to the priest, to the door of the Tent of Meeting, before God. 
+The priest shall take the lamb of the trespass offering, and the log of oil, and the priest shall wave them for a wave offering before God. 
 He shall kill the lamb of the trespass offering. The priest shall take some of the blood of the trespass offering and put it on the tip of the right ear of him who is to be cleansed, and on the thumb of his right hand, and on the big toe of his right foot. 
 The priest shall pour some of the oil into the palm of his own left hand; 
-and the priest shall sprinkle with his right finger some of the oil that is in his left hand seven times before the LORD. 
+and the priest shall sprinkle with his right finger some of the oil that is in his left hand seven times before God. 
 Then the priest shall put some of the oil that is in his hand on the tip of the right ear of him who is to be cleansed, and on the thumb of his right hand, and on the big toe of his right foot, on the place of the blood of the trespass offering. 
-The rest of the oil that is in the priest's hand he shall put on the head of him who is to be cleansed, to make atonement for him before the LORD. 
+The rest of the oil that is in the priest's hand he shall put on the head of him who is to be cleansed, to make atonement for him before God. 
 He shall offer one of the turtledoves, or of the young pigeons, which ever he is able to afford, 
-of the kind he is able to afford, the one for a sin offering, and the other for a burnt offering, with the meal offering. The priest shall make atonement for him who is to be cleansed before the LORD." 
+of the kind he is able to afford, the one for a sin offering, and the other for a burnt offering, with the meal offering. The priest shall make atonement for him who is to be cleansed before God." 
 This is the law for him in whom is the plague of leprosy, who is not able to afford the sacrifice for his cleansing. 
-The LORD spoke to Moses and to Aaron, saying, 
+God spoke to Moses and to Aaron, saying, 
 "When you have come into the land of Canaan, which I give to you for a possession, and I put a spreading mildew in a house in the land of your possession, 
 then he who owns the house shall come and tell the priest, saying, 'There seems to me to be some sort of plague in the house.' 
 The priest shall command that they empty the house, before the priest goes in to examine the plague, that all that is in the house not be made unclean. Afterward the priest shall go in to inspect the house. 

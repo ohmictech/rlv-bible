@@ -2,7 +2,7 @@
 Then Ishmael the son of Nethaniah arose, and the ten men who were with him, and struck Gedaliah the son of Ahikam the son of Shaphan with the sword and killed him, whom the king of Babylon had made governor over the land. 
 Ishmael also killed all the Jews who were with Gedaliah at Mizpah, and the Chaldean men of war who were found there. 
 The second day after he had killed Gedaliah, and no man knew it, 
-men came from Shechem, from Shiloh, and from Samaria, even eighty men, having their beards shaved and their clothes torn, and having cut themselves, with meal offerings and frankincense in their hand, to bring them to the LORD's house. 
+men came from Shechem, from Shiloh, and from Samaria, even eighty men, having their beards shaved and their clothes torn, and having cut themselves, with meal offerings and frankincense in their hand, to bring them to God's house. 
 Ishmael the son of Nethaniah went out from Mizpah to meet them, weeping all along as he went, and as he met them, he said to them, "Come to Gedaliah the son of Ahikam." 
 It was so, when they came into the middle of the city, that Ishmael the son of Nethaniah killed them, and cast them into the middle of the pit, he, and the men who were with him. 
 But ten men were found among those who said to Ishmael, "Don't kill us; for we have stores hidden in the field, of wheat, and of barley, and of oil, and of honey." So he stopped, and didn't kill them among their brothers. 

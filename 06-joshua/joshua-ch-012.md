@@ -3,7 +3,7 @@ Sihon king of the Amorites, who lived in Heshbon, and ruled from Aroer, which is
 and the Arabah to the sea of Chinneroth, eastward, and to the sea of the Arabah, even the Salt Sea, eastward, the way to Beth Jeshimoth; and on the south, under the slopes of Pisgah: 
 and the border of Og king of Bashan, of the remnant of the Rephaim, who lived at Ashtaroth and at Edrei, 
 and ruled in Mount Hermon, and in Salecah, and in all Bashan, to the border of the Geshurites and the Maacathites, and half Gilead, the border of Sihon king of Heshbon. 
-Moses the servant of the LORD and the children of Israel struck them. Moses the servant of the LORD gave it for a possession to the Reubenites, and the Gadites, and the half-tribe of Manasseh. 
+Moses the servant of God and the children of Israel struck them. Moses the servant of God gave it for a possession to the Reubenites, and the Gadites, and the half-tribe of Manasseh. 
 These are the kings of the land whom Joshua and the children of Israel struck beyond the Jordan westward, from Baal Gad in the valley of Lebanon even to Mount Halak, that goes up to Seir. Joshua gave it to the tribes of Israel for a possession according to their divisions; 
 in the hill country, and in the lowland, and in the Arabah, and in the slopes, and in the wilderness, and in the South; the Hittite, the Amorite, and the Canaanite, the Perizzite, the Hivite, and the Jebusite: 
 the king of Jericho, one; the king of Ai, which is beside Bethel, one; 

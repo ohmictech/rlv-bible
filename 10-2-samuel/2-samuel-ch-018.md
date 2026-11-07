@@ -16,7 +16,7 @@ Ten young men who bore Joab's armor surrounded and struck Absalom, and killed hi
 Joab blew the trumpet, and the people returned from pursuing after Israel; for Joab held the people back. 
 They took Absalom and cast him into a great pit in the forest, and raised over him a very great heap of stones. Then all Israel fled, each to his own tent. 
 Now Absalom in his lifetime had taken and reared up for himself the pillar which is in the king's valley, for he said, "I have no son to keep my name in memory." He called the pillar after his own name. It is called Absalom's monument, to this day. 
-Then Ahimaaz the son of Zadok said, "Let me now run and carry the king news, how the LORD has avenged him of his enemies." 
+Then Ahimaaz the son of Zadok said, "Let me now run and carry the king news, how God has avenged him of his enemies." 
 Joab said to him, "You must not be the bearer of news today, but you must carry news another day. But today you must carry no news, because the king's son is dead." 
 Then Joab said to the Cushite, "Go, tell the king what you have seen!" The Cushite bowed himself to Joab, and ran. 
 Then Ahimaaz the son of Zadok said yet again to Joab, "But come what may, please let me also run after the Cushite." Joab said, "Why do you want to run, my son, since you will have no reward for the news?" 
@@ -25,9 +25,9 @@ Now David was sitting between the two gates; and the watchman went up to the roo
 The watchman shouted and told the king. The king said, "If he is alone, there is news in his mouth." He came closer and closer. 
 The watchman saw another man running; and the watchman called to the gatekeeper and said, "Behold, a man running alone!" The king said, "He also brings news." 
 The watchman said, "I think the running of the first one is like the running of Ahimaaz the son of Zadok." The king said, "He is a good man, and comes with good news." 
-Ahimaaz called, and said to the king, "All is well." He bowed himself before the king with his face to the earth, and said, "Blessed is the LORD your God, who has delivered up the men who lifted up their hand against my lord the king!" 
+Ahimaaz called, and said to the king, "All is well." He bowed himself before the king with his face to the earth, and said, "Blessed is your God, who has delivered up the men who lifted up their hand against my lord the king!" 
 The king said, "Is it well with the young man Absalom?" Ahimaaz answered, "When Joab sent the king's servant, even me your servant, I saw a great tumult, but I don't know what it was." 
 The king said, "Come and stand here." He came and stood still. 
-Behold, the Cushite came. The Cushite said, "Good news for my lord the king, for the LORD has avenged you today of all those who rose up against you." 
+Behold, the Cushite came. The Cushite said, "Good news for my lord the king, for God has avenged you today of all those who rose up against you." 
 The king said to the Cushite, "Is it well with the young man Absalom?" The Cushite answered, "May the enemies of my lord the king, and all who rise up against you to do you harm, be as that young man is." 
 The king was much moved, and went up to the room over the gate and wept. As he went, he said, "My son Absalom! My son, my son Absalom! I wish I had died instead of you, Absalom, my son, my son!" 

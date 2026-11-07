@@ -6,7 +6,7 @@ Of these were the islands of the nations divided in their lands, everyone after 
 The sons of Ham were: Cush, Mizraim, Put, and Canaan. 
 The sons of Cush were: Seba, Havilah, Sabtah, Raamah, and Sabteca. The sons of Raamah were: Sheba and Dedan. 
 Cush became the father of Nimrod. He began to be a mighty one on the earth. 
-He was a mighty hunter before the LORD. Therefore it is said, "like Nimrod, a mighty hunter before the LORD". 
+He was a mighty hunter before God. Therefore it is said, "like Nimrod, a mighty hunter before God". 
 The beginning of his kingdom was Babel, Erech, Accad, and Calneh, in the land of Shinar. 
 Out of that land he went into Assyria, and built Nineveh, Rehoboth Ir, Calah, 
 and Resen between Nineveh and the great city Calah. 

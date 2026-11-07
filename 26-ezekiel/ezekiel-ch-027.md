@@ -1,6 +1,6 @@
-﻿The LORD's word came again to me, saying, 
+﻿God's word came again to me, saying, 
 "You, son of man, take up a lamentation over Tyre; 
-and tell Tyre, 'You who dwell at the entry of the sea, who are the merchant of the peoples to many islands, the Lord GOD says: "You, Tyre, have said, 'I am perfect in beauty.' 
+and tell Tyre, 'You who dwell at the entry of the sea, who are the merchant of the peoples to many islands, God says: "You, Tyre, have said, 'I am perfect in beauty.' 
 Your borders are in the heart of the seas. Your builders have perfected your beauty. 
 They have made all your planks of cypress trees from Senir. They have taken a cedar from Lebanon to make a mast for you. 
 They have made your oars of the oaks of Bashan. They have made your benches of ivory inlaid in cypress wood from the islands of Kittim. 

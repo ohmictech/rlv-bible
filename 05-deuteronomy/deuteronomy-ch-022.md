@@ -2,7 +2,7 @@
 If your brother isn't near to you, or if you don't know him, then you shall bring it home to your house, and it shall be with you until your brother comes looking for it, and you shall restore it to him. 
 So you shall do with his donkey. So you shall do with his garment. So you shall do with every lost thing of your brother's, which he has lost and you have found. You may not hide yourself. 
 You shall not see your brother's donkey or his ox fallen down by the way, and hide yourself from them. You shall surely help him to lift them up again. 
-A woman shall not wear men's clothing, neither shall a man put on women's clothing; for whoever does these things is an abomination to the LORD your God. 
+A woman shall not wear men's clothing, neither shall a man put on women's clothing; for whoever does these things is an abomination to your God. 
 If you come across a bird's nest on the way, in any tree or on the ground, with young ones or eggs, and the hen sitting on the young, or on the eggs, you shall not take the hen with the young. 
 You shall surely let the hen go, but the young you may take for yourself, that it may be well with you, and that you may prolong your days. 
 When you build a new house, then you shall make a railing around your roof, so that you don't bring blood on your house if anyone falls from there. 

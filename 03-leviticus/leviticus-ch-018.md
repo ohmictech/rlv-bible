@@ -1,9 +1,9 @@
-﻿The LORD said to Moses, 
-"Speak to the children of Israel, and say to them, 'I am the LORD your God. 
+﻿God said to Moses, 
+"Speak to the children of Israel, and say to them, 'I am your God. 
 You shall not do as they do in the land of Egypt, where you lived. You shall not do as they do in the land of Canaan, where I am bringing you. You shall not follow their statutes. 
-You shall do my ordinances. You shall keep my statutes and walk in them. I am the LORD your God. 
-You shall therefore keep my statutes and my ordinances, which if a man does, he shall live in them. I am the LORD. 
-"'None of you shall approach any close relatives, to uncover their nakedness: I am the LORD. 
+You shall do my ordinances. You shall keep my statutes and walk in them. I am your God. 
+You shall therefore keep my statutes and my ordinances, which if a man does, he shall live in them. I am God. 
+"'None of you shall approach any close relatives, to uncover their nakedness: I am God. 
 "'You shall not uncover the nakedness of your father, nor the nakedness of your mother: she is your mother. You shall not uncover her nakedness. 
 "'You shall not uncover the nakedness of your father's wife. It is your father's nakedness. 
 "'You shall not uncover the nakedness of your sister, the daughter of your father, or the daughter of your mother, whether born at home or born abroad. 
@@ -18,7 +18,7 @@ You shall therefore keep my statutes and my ordinances, which if a man does, he 
 "'You shall not take a wife in addition to her sister, to be a rival, to uncover her nakedness, while her sister is still alive. 
 "'You shall not approach a woman to uncover her nakedness, as long as she is impure by her uncleanness. 
 "'You shall not lie carnally with your neighbor's wife, and defile yourself with her. 
-"'You shall not give any of your children as a sacrifice to Molech. You shall not profane the name of your God. I am the LORD. 
+"'You shall not give any of your children as a sacrifice to Molech. You shall not profane the name of your God. I am God. 
 "'You shall not lie with a man as with a woman. That is detestable. 
 "'You shall not lie with any animal to defile yourself with it. No woman may give herself to an animal, to lie down with it: it is a perversion. 
 "'Don't defile yourselves in any of these things; for in all these the nations which I am casting out before you were defiled. 
@@ -27,4 +27,4 @@ You therefore shall keep my statutes and my ordinances, and shall not do any of 
 (for the men of the land that were before you had done all these abominations, and the land became defiled), 
 that the land not vomit you out also, when you defile it, as it vomited out the nation that was before you. 
 "'For whoever shall do any of these abominations, even the souls that do them shall be cut off from among their people. 
-Therefore you shall keep my requirements, that you do not practice any of these abominable customs which were practiced before you, and that you do not defile yourselves with them. I am the LORD your God.'" 
+Therefore you shall keep my requirements, that you do not practice any of these abominable customs which were practiced before you, and that you do not defile yourselves with them. I am your God.'" 

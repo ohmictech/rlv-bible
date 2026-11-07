@@ -8,10 +8,10 @@ Now this was the custom in former time in Israel concerning redeeming and concer
 So the near kinsman said to Boaz, "Buy it for yourself," then he took off his sandal. 
 Boaz said to the elders and to all the people, "You are witnesses today, that I have bought all that was Elimelech's, and all that was Chilion's and Mahlon's, from the hand of Naomi. 
 Moreover, Ruth the Moabitess, the wife of Mahlon, I have purchased to be my wife, to raise up the name of the dead on his inheritance, that the name of the dead may not be cut off from among his brothers and from the gate of his place. You are witnesses today." 
-All the people who were in the gate, and the elders, said, "We are witnesses. May the LORD make the woman who has come into your house like Rachel and like Leah, which both built the house of Israel; and treat you worthily in Ephrathah, and be famous in Bethlehem. 
-Let your house be like the house of Perez, whom Tamar bore to Judah, of the offspring which the LORD will give you by this young woman." 
-So Boaz took Ruth and she became his wife; and he went in to her, and the LORD enabled her to conceive, and she bore a son. 
-The women said to Naomi, "Blessed be the LORD, who has not left you today without a near kinsman. Let his name be famous in Israel. 
+All the people who were in the gate, and the elders, said, "We are witnesses. May God make the woman who has come into your house like Rachel and like Leah, which both built the house of Israel; and treat you worthily in Ephrathah, and be famous in Bethlehem. 
+Let your house be like the house of Perez, whom Tamar bore to Judah, of the offspring which God will give you by this young woman." 
+So Boaz took Ruth and she became his wife; and he went in to her, and God enabled her to conceive, and she bore a son. 
+The women said to Naomi, "Blessed be God, who has not left you today without a near kinsman. Let his name be famous in Israel. 
 He shall be to you a restorer of life and sustain you in your old age; for your daughter-in-law, who loves you, who is better to you than seven sons, has given birth to him." 
 Naomi took the child, laid him in her bosom, and became nurse to him. 
 The women, her neighbors, gave him a name, saying, "A son is born to Naomi". They named him Obed. He is the father of Jesse, the father of David. 

@@ -1,7 +1,7 @@
 ﻿These are the journeys of the children of Israel, when they went out of the land of Egypt by their armies under the hand of Moses and Aaron. 
-Moses wrote the starting points of their journeys by the commandment of the LORD. These are their journeys according to their starting points. 
+Moses wrote the starting points of their journeys by the commandment of God. These are their journeys according to their starting points. 
 They traveled from Rameses in the first month, on the fifteenth day of the first month; on the next day after the Passover, the children of Israel went out with a high hand in the sight of all the Egyptians, 
-while the Egyptians were burying all their firstborn, whom the LORD had struck among them. The LORD also executed judgments on their gods. 
+while the Egyptians were burying all their firstborn, whom God had struck among them. God also executed judgments on their gods. 
 The children of Israel traveled from Rameses, and encamped in Succoth. 
 They traveled from Succoth, and encamped in Etham, which is in the edge of the wilderness. 
 They traveled from Etham, and turned back to Pihahiroth, which is before Baal Zephon, and they encamped before Migdol. 
@@ -35,7 +35,7 @@ They traveled from Jotbathah, and encamped in Abronah.
 They traveled from Abronah, and encamped in Ezion Geber. 
 They traveled from Ezion Geber, and encamped at Kadesh in the wilderness of Zin. 
 They traveled from Kadesh, and encamped in Mount Hor, in the edge of the land of Edom. 
-Aaron the priest went up into Mount Hor at the commandment of the LORD and died there, in the fortieth year after the children of Israel had come out of the land of Egypt, in the fifth month, on the first day of the month. 
+Aaron the priest went up into Mount Hor at the commandment of God and died there, in the fortieth year after the children of Israel had come out of the land of Egypt, in the fifth month, on the first day of the month. 
 Aaron was one hundred twenty-three years old when he died in Mount Hor. 
 The Canaanite king of Arad, who lived in the South in the land of Canaan, heard of the coming of the children of Israel. 
 They traveled from Mount Hor, and encamped in Zalmonah. 
@@ -47,7 +47,7 @@ They traveled from Dibon Gad, and encamped in Almon Diblathaim.
 They traveled from Almon Diblathaim, and encamped in the mountains of Abarim, before Nebo. 
 They traveled from the mountains of Abarim, and encamped in the plains of Moab by the Jordan at Jericho. 
 They encamped by the Jordan, from Beth Jeshimoth even to Abel Shittim in the plains of Moab. 
-The LORD spoke to Moses in the plains of Moab by the Jordan at Jericho, saying, 
+God spoke to Moses in the plains of Moab by the Jordan at Jericho, saying, 
 Speak to the children of Israel, and tell them, "When you pass over the Jordan into the land of Canaan, 
 then you shall drive out all the inhabitants of the land from before you, destroy all their stone idols, destroy all their molten images, and demolish all their high places. 
 You shall take possession of the land, and dwell therein; for I have given the land to you to possess it. 

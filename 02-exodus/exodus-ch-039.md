@@ -1,10 +1,10 @@
-﻿Of the blue, purple, and scarlet, they made finely worked garments for ministering in the holy place, and made the holy garments for Aaron, as the LORD commanded Moses. 
+﻿Of the blue, purple, and scarlet, they made finely worked garments for ministering in the holy place, and made the holy garments for Aaron, as God commanded Moses. 
 He made the ephod of gold, blue, purple, scarlet, and fine twined linen. 
 They beat the gold into thin plates, and cut it into wires, to work it in with the blue, the purple, the scarlet, and the fine linen, the work of the skillful workman. 
 They made shoulder straps for it, joined together. It was joined together at the two ends. 
-The skillfully woven band that was on it, with which to fasten it on, was of the same piece, like its work: of gold, of blue, purple, scarlet, and fine twined linen, as the LORD commanded Moses. 
+The skillfully woven band that was on it, with which to fasten it on, was of the same piece, like its work: of gold, of blue, purple, scarlet, and fine twined linen, as God commanded Moses. 
 They worked the onyx stones, enclosed in settings of gold, engraved with the engravings of a signet, according to the names of the children of Israel. 
-He put them on the shoulder straps of the ephod, to be stones of memorial for the children of Israel, as the LORD commanded Moses. 
+He put them on the shoulder straps of the ephod, to be stones of memorial for the children of Israel, as God commanded Moses. 
 He made the breastplate, the work of a skillful workman, like the work of the ephod: of gold, of blue, purple, scarlet, and fine twined linen. 
 It was square. They made the breastplate double. Its length was a span, and its width a span, being double. 
 They set in it four rows of stones. A row of ruby, topaz, and beryl was the first row; 
@@ -18,18 +18,18 @@ They put the two braided chains of gold in the two rings at the ends of the brea
 The other two ends of the two braided chains they put on the two settings, and put them on the shoulder straps of the ephod, in its front. 
 They made two rings of gold, and put them on the two ends of the breastplate, on its edge, which was toward the side of the ephod inward. 
 They made two more rings of gold, and put them on the two shoulder straps of the ephod underneath, in its front, close by its coupling, above the skillfully woven band of the ephod. 
-They bound the breastplate by its rings to the rings of the ephod with a lace of blue, that it might be on the skillfully woven band of the ephod, and that the breastplate might not come loose from the ephod, as the LORD commanded Moses. 
+They bound the breastplate by its rings to the rings of the ephod with a lace of blue, that it might be on the skillfully woven band of the ephod, and that the breastplate might not come loose from the ephod, as God commanded Moses. 
 He made the robe of the ephod of woven work, all of blue. 
 The opening of the robe in the middle of it was like the opening of a coat of mail, with a binding around its opening, that it should not be torn. 
 They made on the skirts of the robe pomegranates of blue, purple, scarlet, and twined linen. 
 They made bells of pure gold, and put the bells between the pomegranates around the skirts of the robe, between the pomegranates; 
-a bell and a pomegranate, a bell and a pomegranate, around the skirts of the robe, to minister in, as the LORD commanded Moses. 
+a bell and a pomegranate, a bell and a pomegranate, around the skirts of the robe, to minister in, as God commanded Moses. 
 They made the tunics of fine linen of woven work for Aaron and for his sons, 
 the turban of fine linen, the linen headbands of fine linen, the linen trousers of fine twined linen, 
-the sash of fine twined linen, blue, purple, and scarlet, the work of the embroiderer, as the LORD commanded Moses. 
-They made the plate of the holy crown of pure gold, and wrote on it an inscription, like the engravings of a signet: "HOLY TO THE LORD". 
-They tied to it a lace of blue, to fasten it on the turban above, as the LORD commanded Moses. 
-Thus all the work of the tabernacle of the Tent of Meeting was finished. The children of Israel did according to all that the LORD commanded Moses; so they did. 
+the sash of fine twined linen, blue, purple, and scarlet, the work of the embroiderer, as God commanded Moses. 
+They made the plate of the holy crown of pure gold, and wrote on it an inscription, like the engravings of a signet: "HOLY TO THE God". 
+They tied to it a lace of blue, to fasten it on the turban above, as God commanded Moses. 
+Thus all the work of the tabernacle of the Tent of Meeting was finished. The children of Israel did according to all that God commanded Moses; so they did. 
 They brought the tabernacle to Moses: the tent, with all its furniture, its clasps, its boards, its bars, its pillars, its sockets, 
 the covering of rams' skins dyed red, the covering of sea cow hides, the veil of the screen, 
 the ark of the covenant with its poles, the mercy seat, 
@@ -39,5 +39,5 @@ the golden altar, the anointing oil, the sweet incense, the screen for the door 
 the bronze altar, its grating of bronze, its poles, all of its vessels, the basin and its base, 
 the hangings of the court, its pillars, its sockets, the screen for the gate of the court, its cords, its pins, and all the instruments of the service of the tabernacle, for the Tent of Meeting, 
 the finely worked garments for ministering in the holy place, the holy garments for Aaron the priest, and the garments of his sons, to minister in the priest's office. 
-According to all that the LORD commanded Moses, so the children of Israel did all the work. 
-Moses saw all the work, and behold, they had done it as the LORD had commanded. They had done so; and Moses blessed them. 
+According to all that God commanded Moses, so the children of Israel did all the work. 
+Moses saw all the work, and behold, they had done it as God had commanded. They had done so; and Moses blessed them. 

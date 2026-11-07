@@ -1,18 +1,18 @@
-﻿By David. To you, LORD, I lift up my soul. 
+﻿By David. To you, God, I lift up my soul. 
 My God, I have trusted in you. Don't let me be shamed. Don't let my enemies triumph over me. 
 Yes, no one who waits for you will be shamed. They will be shamed who deal treacherously without cause. 
-Show me your ways, LORD. Teach me your paths. 
+Show me your ways, God. Teach me your paths. 
 Guide me in your truth, and teach me, for you are the God of my salvation. I wait for you all day long. 
-LORD, remember your tender mercies and your loving kindness, for they are from old times. 
-Don't remember the sins of my youth, nor my transgressions. Remember me according to your loving kindness, for your goodness' sake, LORD. 
-Good and upright is the LORD, therefore he will instruct sinners in the way. 
+God, remember your tender mercies and your loving kindness, for they are from old times. 
+Don't remember the sins of my youth, nor my transgressions. Remember me according to your loving kindness, for your goodness' sake, God. 
+Good and upright is God, therefore he will instruct sinners in the way. 
 He will guide the humble in justice. He will teach the humble his way. 
-All the paths of the LORD are loving kindness and truth to such as keep his covenant and his testimonies. 
-For your name's sake, LORD, pardon my iniquity, for it is great. 
-What man is he who fears the LORD? He shall instruct him in the way that he shall choose. 
+All the paths of God are loving kindness and truth to such as keep his covenant and his testimonies. 
+For your name's sake, God, pardon my iniquity, for it is great. 
+What man is he who fears God? He shall instruct him in the way that he shall choose. 
 His soul will dwell at ease. His offspring will inherit the land. 
-The friendship of the LORD is with those who fear him. He will show them his covenant. 
-My eyes are ever on the LORD, for he will pluck my feet out of the net. 
+The friendship of God is with those who fear him. He will show them his covenant. 
+My eyes are ever on God, for he will pluck my feet out of the net. 
 Turn to me, and have mercy on me, for I am desolate and afflicted. 
 The troubles of my heart are enlarged. Oh bring me out of my distresses. 
 Consider my affliction and my travail. Forgive all my sins. 

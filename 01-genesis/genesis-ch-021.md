@@ -1,4 +1,4 @@
-﻿The LORD visited Sarah as he had said, and the LORD did to Sarah as he had spoken. 
+﻿God visited Sarah as he had said, and God did to Sarah as he had spoken. 
 Sarah conceived, and bore Abraham a son in his old age, at the set time of which God had spoken to him. 
 Abraham called his son who was born to him, whom Sarah bore to him, Isaac. 
 Abraham circumcised his son, Isaac, when he was eight days old, as God had commanded him. 
@@ -30,5 +30,5 @@ Abimelech said to Abraham, "What do these seven ewe lambs, which you have set by
 He said, "You shall take these seven ewe lambs from my hand, that it may be a witness to me, that I have dug this well." 
 Therefore he called that place Beersheba, because they both swore an oath there. 
 So they made a covenant at Beersheba. Abimelech rose up with Phicol, the captain of his army, and they returned into the land of the Philistines. 
-Abraham planted a tamarisk tree in Beersheba, and there he called on the name of the LORD, the Everlasting God. 
+Abraham planted a tamarisk tree in Beersheba, and there he called on the name of the Everlasting God. 
 Abraham lived as a foreigner in the land of the Philistines many days. 

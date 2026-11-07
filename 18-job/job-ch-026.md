@@ -3,7 +3,7 @@
 How have you counseled him who has no wisdom, and plentifully declared sound knowledge! 
 To whom have you uttered words? Whose spirit came out of you? 
 "The departed spirits tremble, those beneath the waters and all that live in them. 
-Sheol is naked before God, and Abaddon has no covering. 
+Hades is naked before God, and Abaddon has no covering. 
 He stretches out the north over empty space, and hangs the earth on nothing. 
 He binds up the waters in his thick clouds, and the cloud is not burst under them. 
 He encloses the face of his throne, and spreads his cloud on it. 

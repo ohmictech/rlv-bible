@@ -1,6 +1,6 @@
 ﻿Better is the poor who walks in his integrity than he who is perverse in his lips and is a fool. 
 It isn't good to have zeal without knowledge, nor to be hasty with one's feet and miss the way. 
-The foolishness of man subverts his way; his heart rages against the LORD. 
+The foolishness of man subverts his way; his heart rages against God. 
 Wealth adds many friends, but the poor is separated from his friend. 
 A false witness shall not be unpunished. He who pours out lies shall not go free. 
 Many will entreat the favor of a ruler, and everyone is a friend to a man who gives gifts. 
@@ -11,16 +11,16 @@ Delicate living is not appropriate for a fool, much less for a servant to have r
 The discretion of a man makes him slow to anger. It is his glory to overlook an offense. 
 The king's wrath is like the roaring of a lion, but his favor is like dew on the grass. 
 A foolish son is the calamity of his father. A wife's quarrels are a continual dripping. 
-House and riches are an inheritance from fathers, but a prudent wife is from the LORD. 
+House and riches are an inheritance from fathers, but a prudent wife is from God. 
 Slothfulness casts into a deep sleep. The idle soul shall suffer hunger. 
 He who keeps the commandment keeps his soul, but he who is contemptuous in his ways shall die. 
-He who has pity on the poor lends to the LORD; he will reward him. 
+He who has pity on the poor lends to God; he will reward him. 
 Discipline your son, for there is hope; don't be a willing party to his death. 
 A hot-tempered man must pay the penalty, for if you rescue him, you must do it again. 
 Listen to counsel and receive instruction, that you may be wise in your latter end. 
-There are many plans in a man's heart, but the LORD's counsel will prevail. 
+There are many plans in a man's heart, but God's counsel will prevail. 
 That which makes a man to be desired is his kindness. A poor man is better than a liar. 
-The fear of the LORD leads to life, then contentment; he rests and will not be touched by trouble. 
+The fear of God leads to life, then contentment; he rests and will not be touched by trouble. 
 The sluggard buries his hand in the dish; he will not so much as bring it to his mouth again. 
 Flog a scoffer, and the simple will learn prudence; rebuke one who has understanding, and he will gain knowledge. 
 He who robs his father and drives away his mother is a son who causes shame and brings reproach. 

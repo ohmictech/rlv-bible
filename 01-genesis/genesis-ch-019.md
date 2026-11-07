@@ -10,10 +10,10 @@ They said, "Stand back!" Then they said, "This one fellow came in to live as a f
 But the men reached out their hand, and brought Lot into the house to them, and shut the door. 
 They struck the men who were at the door of the house with blindness, both small and great, so that they wearied themselves to find the door. 
 The men said to Lot, "Do you have anybody else here? Sons-in-law, your sons, your daughters, and whomever you have in the city, bring them out of the place: 
-for we will destroy this place, because the outcry against them has grown so great before the LORD that the LORD has sent us to destroy it." 
-Lot went out, and spoke to his sons-in-law, who were pledged to marry his daughters, and said, "Get up! Get out of this place, for the LORD will destroy the city!" But he seemed to his sons-in-law to be joking. 
+for we will destroy this place, because the outcry against them has grown so great before God that God has sent us to destroy it." 
+Lot went out, and spoke to his sons-in-law, who were pledged to marry his daughters, and said, "Get up! Get out of this place, for God will destroy the city!" But he seemed to his sons-in-law to be joking. 
 When the morning came, then the angels hurried Lot, saying, "Get up! Take your wife and your two daughters who are here, lest you be consumed in the iniquity of the city." 
-But he lingered; and the men grabbed his hand, his wife's hand, and his two daughters' hands, the LORD being merciful to him; and they took him out, and set him outside of the city. 
+But he lingered; and the men grabbed his hand, his wife's hand, and his two daughters' hands, God being merciful to him; and they took him out, and set him outside of the city. 
 It came to pass, when they had taken them out, that he said, "Escape for your life! Don't look behind you, and don't stay anywhere in the plain. Escape to the mountains, lest you be consumed!" 
 Lot said to them, "Oh, not so, my lord. 
 See now, your servant has found favor in your sight, and you have magnified your loving kindness, which you have shown to me in saving my life. I can't escape to the mountain, lest evil overtake me, and I die. 
@@ -21,10 +21,10 @@ See now, this city is near to flee to, and it is a little one. Oh let me escape 
 He said to him, "Behold, I have granted your request concerning this thing also, that I will not overthrow the city of which you have spoken. 
 Hurry, escape there, for I can't do anything until you get there." Therefore the name of the city was called Zoar. 
 The sun had risen on the earth when Lot came to Zoar. 
-Then the LORD rained on Sodom and on Gomorrah sulfur and fire from the LORD out of the sky. 
+Then God rained on Sodom and on Gomorrah sulfur and fire from God out of the sky. 
 He overthrew those cities, all the plain, all the inhabitants of the cities, and that which grew on the ground. 
 But Lot's wife looked back from behind him, and she became a pillar of salt. 
-Abraham went up early in the morning to the place where he had stood before the LORD. 
+Abraham went up early in the morning to the place where he had stood before God. 
 He looked toward Sodom and Gomorrah, and toward all the land of the plain, and saw that the smoke of the land went up as the smoke of a furnace. 
 When God destroyed the cities of the plain, God remembered Abraham, and sent Lot out of the middle of the overthrow, when he overthrew the cities in which Lot lived. 
 Lot went up out of Zoar, and lived in the mountain, and his two daughters with him; for he was afraid to live in Zoar. He lived in a cave with his two daughters. 

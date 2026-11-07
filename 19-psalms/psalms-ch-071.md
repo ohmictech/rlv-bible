@@ -1,8 +1,8 @@
-﻿In you, LORD, I take refuge. Never let me be disappointed. 
+﻿In you, God, I take refuge. Never let me be disappointed. 
 Deliver me in your righteousness, and rescue me. Turn your ear to me, and save me. 
 Be to me a rock of refuge to which I may always go. Give the command to save me, for you are my rock and my fortress. 
 Rescue me, my God, from the hand of the wicked, from the hand of the unrighteous and cruel man. 
-For you are my hope, Lord GOD, my confidence from my youth. 
+For you are my hope, God, my confidence from my youth. 
 I have relied on you from the womb. You are he who took me out of my mother's womb. I will always praise you. 
 I am a marvel to many, but you are my strong refuge. 
 My mouth shall be filled with your praise, with your honor all day long. 
@@ -13,7 +13,7 @@ God, don't be far from me. My God, hurry to help me.
 Let my accusers be disappointed and consumed. Let them be covered with disgrace and scorn who want to harm me. 
 But I will always hope, and will add to all of your praise. 
 My mouth will tell about your righteousness, and of your salvation all day, though I don't know its full measure. 
-I will come with the mighty acts of the Lord GOD. I will make mention of your righteousness, even of yours alone. 
+I will come with the mighty acts of God. I will make mention of your righteousness, even of yours alone. 
 God, you have taught me from my youth. Until now, I have declared your wondrous works. 
 Yes, even when I am old and gray-haired, God, don't forsake me, until I have declared your strength to the next generation, your might to everyone who is to come. 
 God, your righteousness also reaches to the heavens. You have done great things. God, who is like you? 

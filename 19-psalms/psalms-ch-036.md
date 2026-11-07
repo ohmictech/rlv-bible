@@ -1,9 +1,9 @@
-﻿For the Chief Musician. By David, the servant of the LORD. A revelation is within my heart about the disobedience of the wicked: There is no fear of God before his eyes. 
+﻿For the Chief Musician. By David, the servant of God. A revelation is within my heart about the disobedience of the wicked: There is no fear of God before his eyes. 
 For he flatters himself in his own eyes, too much to detect and hate his sin. 
 The words of his mouth are iniquity and deceit. He has ceased to be wise and to do good. 
 He plots iniquity on his bed. He sets himself in a way that is not good. He doesn't abhor evil. 
-Your loving kindness, LORD, is in the heavens. Your faithfulness reaches to the skies. 
-Your righteousness is like the mountains of God. Your judgments are like a great deep. LORD, you preserve man and animal. 
+Your loving kindness, God, is in the heavens. Your faithfulness reaches to the skies. 
+Your righteousness is like the mountains of God. Your judgments are like a great deep. God, you preserve man and animal. 
 How precious is your loving kindness, God! The children of men take refuge under the shadow of your wings. 
 They shall be abundantly satisfied with the abundance of your house. You will make them drink of the river of your pleasures. 
 For with you is the spring of life. In your light we will see light. 

@@ -15,7 +15,7 @@ His eyes will be red with wine, his teeth white with milk.
 He saw a resting place, that it was good, the land, that it was pleasant. He bows his shoulder to the burden, and becomes a servant doing forced labor. 
 "Dan will judge his people, as one of the tribes of Israel. 
 Dan will be a serpent on the trail, an adder in the path, that bites the horse's heels, so that his rider falls backward. 
-I have waited for your salvation, LORD. 
+I have waited for your salvation, God. 
 "A troop will press on Gad, but he will press on their heel. 
 "Asher's food will be rich. He will produce royal dainties. 
 "Naphtali is a doe set free, who bears beautiful fawns. 

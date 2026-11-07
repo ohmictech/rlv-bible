@@ -1,12 +1,12 @@
-﻿There was a famine in the days of David for three years, year after year; and David sought the face of the LORD. The LORD said, "It is for Saul, and for his bloody house, because he put the Gibeonites to death." 
+﻿There was a famine in the days of David for three years, year after year; and David sought the face of God. God said, "It is for Saul, and for his bloody house, because he put the Gibeonites to death." 
 The king called the Gibeonites and said to them (now the Gibeonites were not of the children of Israel, but of the remnant of the Amorites, and the children of Israel had sworn to them; and Saul sought to kill them in his zeal for the children of Israel and Judah); 
-and David said to the Gibeonites, "What should I do for you? And with what should I make atonement, that you may bless the LORD's inheritance?" 
+and David said to the Gibeonites, "What should I do for you? And with what should I make atonement, that you may bless God's inheritance?" 
 The Gibeonites said to him, "It is no matter of silver or gold between us and Saul or his house; neither is it for us to put any man to death in Israel." He said, "I will do for you whatever you say." 
 They said to the king, "The man who consumed us and who plotted against us, that we should be destroyed from remaining in any of the borders of Israel, 
-let seven men of his sons be delivered to us, and we will hang them up to the LORD in Gibeah of Saul, the chosen of the LORD." The king said, "I will give them." 
-But the king spared Mephibosheth the son of Jonathan the son of Saul, because of the LORD's oath that was between them, between David and Jonathan the son of Saul. 
+let seven men of his sons be delivered to us, and we will hang them up to God in Gibeah of Saul, the chosen of God." The king said, "I will give them." 
+But the king spared Mephibosheth the son of Jonathan the son of Saul, because of God's oath that was between them, between David and Jonathan the son of Saul. 
 But the king took the two sons of Rizpah the daughter of Aiah, whom she bore to Saul, Armoni and Mephibosheth; and the five sons of Merab the daughter of Saul, whom she bore to Adriel the son of Barzillai the Meholathite. 
-He delivered them into the hands of the Gibeonites; and they hanged them on the mountain before the LORD, and all seven of them fell together. They were put to death in the days of harvest, in the first days, at the beginning of barley harvest. 
+He delivered them into the hands of the Gibeonites; and they hanged them on the mountain before God, and all seven of them fell together. They were put to death in the days of harvest, in the first days, at the beginning of barley harvest. 
 Rizpah the daughter of Aiah took sackcloth and spread it for herself on the rock, from the beginning of harvest until water poured on them from the sky. She allowed neither the birds of the sky to rest on them by day, nor the animals of the field by night. 
 David was told what Rizpah the daughter of Aiah, the concubine of Saul, had done. 
 So David went and took the bones of Saul and the bones of Jonathan his son from the men of Jabesh Gilead, who had stolen them from the street of Beth Shan, where the Philistines had hanged them in the day that the Philistines killed Saul in Gilboa; 

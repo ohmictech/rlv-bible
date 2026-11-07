@@ -5,7 +5,7 @@ Our fathers trusted in you. They trusted, and you delivered them.
 They cried to you, and were delivered. They trusted in you, and were not disappointed. 
 But I am a worm, and no man; a reproach of men, and despised by the people. 
 All those who see me mock me. They insult me with their lips. They shake their heads, saying, 
-"He trusts in the LORD. Let him deliver him. Let him rescue him, since he delights in him." 
+"He trusts in God. Let him deliver him. Let him rescue him, since he delights in him." 
 But you brought me out of the womb. You made me trust while at my mother's breasts. 
 I was thrown on you from my mother's womb. You are my God since my mother bore me. 
 Don't be far from me, for trouble is near. For there is no one to help. 
@@ -16,16 +16,16 @@ My strength is dried up like a potsherd. My tongue sticks to the roof of my mout
 For dogs have surrounded me. A company of evildoers have enclosed me. They have pierced my hands and feet. 
 I can count all of my bones. They look and stare at me. 
 They divide my garments among them. They cast lots for my clothing. 
-But don't be far off, LORD. You are my help. Hurry to help me! 
+But don't be far off, God. You are my help. Hurry to help me! 
 Deliver my soul from the sword, my precious life from the power of the dog. 
 Save me from the lion's mouth! Yes, you have rescued me from the horns of the wild oxen. 
 I will declare your name to my brothers. Among the assembly, I will praise you. 
-You who fear the LORD, praise him! All you descendants of Jacob, glorify him! Stand in awe of him, all you descendants of Israel! 
+You who fear God, praise him! All you descendants of Jacob, glorify him! Stand in awe of him, all you descendants of Israel! 
 For he has not despised nor abhorred the affliction of the afflicted, neither has he hidden his face from him; but when he cried to him, he heard. 
 My praise of you comes in the great assembly. I will pay my vows before those who fear him. 
-The humble shall eat and be satisfied. They shall praise the LORD who seek after him. Let your hearts live forever. 
-All the ends of the earth shall remember and turn to the LORD. All the relatives of the nations shall worship before you. 
-For the kingdom is the LORD's. He is the ruler over the nations. 
+The humble shall eat and be satisfied. They shall praise God who seek after him. Let your hearts live for the eras. 
+All the ends of the earth shall remember and turn to God. All the relatives of the nations shall worship before you. 
+For the kingdom is God's. He is the ruler over the nations. 
 All the rich ones of the earth shall eat and worship. All those who go down to the dust shall bow before him, even he who can't keep his soul alive. 
 Posterity shall serve him. Future generations shall be told about the Lord. 
 They shall come and shall declare his righteousness to a people that shall be born, for he has done it. 

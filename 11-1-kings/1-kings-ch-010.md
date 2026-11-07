@@ -1,15 +1,15 @@
-﻿When the queen of Sheba heard of the fame of Solomon concerning the LORD's name, she came to test him with hard questions. 
+﻿When the queen of Sheba heard of the fame of Solomon concerning God's name, she came to test him with hard questions. 
 She came to Jerusalem with a very great caravan, with camels that bore spices, very much gold, and precious stones; and when she had come to Solomon, she talked with him about all that was in her heart. 
 Solomon answered all her questions. There wasn't anything hidden from the king which he didn't tell her. 
 When the queen of Sheba had seen all the wisdom of Solomon, the house that he had built, 
-the food of his table, the sitting of his servants, the attendance of his officials, their clothing, his cup bearers, and his ascent by which he went up to the LORD's house, there was no more spirit in her. 
+the food of his table, the sitting of his servants, the attendance of his officials, their clothing, his cup bearers, and his ascent by which he went up to God's house, there was no more spirit in her. 
 She said to the king, "It was a true report that I heard in my own land of your acts and of your wisdom. 
 However, I didn't believe the words until I came and my eyes had seen it. Behold, not even half was told me! Your wisdom and prosperity exceed the fame which I heard. 
 Happy are your men, happy are these your servants who stand continually before you, who hear your wisdom. 
-Blessed is the LORD your God, who delighted in you, to set you on the throne of Israel. Because the LORD loved Israel forever, therefore he made you king, to do justice and righteousness." 
+Blessed is your God, who delighted in you, to set you on the throne of Israel. Because God loved Israel for the eras, therefore he made you king, to do justice and righteousness." 
 She gave the king one hundred twenty talents of gold, and a very great quantity of spices, and precious stones. Never again was there such an abundance of spices as these which the queen of Sheba gave to King Solomon. 
 The fleet of Hiram that brought gold from Ophir also brought in from Ophir great quantities of almug trees and precious stones. 
-The king made of the almug trees pillars for the LORD's house and for the king's house, harps also and stringed instruments for the singers; no such almug trees came or were seen to this day. 
+The king made of the almug trees pillars for God's house and for the king's house, harps also and stringed instruments for the singers; no such almug trees came or were seen to this day. 
 King Solomon gave to the queen of Sheba all her desire, whatever she asked, in addition to that which Solomon gave her of his royal bounty. So she turned and went to her own land, she and her servants. 
 Now the weight of gold that came to Solomon in one year was six hundred sixty-six talents of gold, 
 in addition to that which the traders brought, and the traffic of the merchants, and of all the kings of the mixed people, and of the governors of the country. 

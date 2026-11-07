@@ -1,10 +1,10 @@
 ﻿"Come down and sit in the dust, virgin daughter of Babylon. Sit on the ground without a throne, daughter of the Chaldeans. For you will no longer be called tender and delicate. 
 Take the millstones and grind flour. Remove your veil, lift up your skirt, uncover your legs, and wade through the rivers. 
 Your nakedness will be uncovered. Yes, your shame will be seen. I will take vengeance, and will spare no one." 
-Our Redeemer, the LORD of Armies is his name, is the Holy One of Israel. 
+Our Redeemer, the God of Armies is his name, is the Holy One of Israel. 
 "Sit in silence, and go into darkness, daughter of the Chaldeans. For you shall no longer be called the mistress of kingdoms. 
 I was angry with my people. I profaned my inheritance and gave them into your hand. You showed them no mercy. You laid a very heavy yoke on the aged. 
-You said, 'I will be a princess forever,' so that you didn't lay these things to your heart, nor did you remember the results. 
+You said, 'I will be a princess for the eras,' so that you didn't lay these things to your heart, nor did you remember the results. 
 "Now therefore hear this, you who are given to pleasures, who sit securely, who say in your heart, 'I am, and there is no one else besides me. I won't sit as a widow, neither will I know the loss of children.' 
 But these two things will come to you in a moment in one day: the loss of children and widowhood. They will come on you in their full measure, in the multitude of your sorceries, and the great abundance of your enchantments. 
 For you have trusted in your wickedness. You have said, 'No one sees me.' Your wisdom and your knowledge has perverted you. You have said in your heart, 'I am, and there is no one else besides me.' 

@@ -17,5 +17,5 @@ It stood still, but I couldn't discern its appearance. A form was before my eyes
 'Shall mortal man be more just than God? Shall a man be more pure than his Maker? 
 Behold, he puts no trust in his servants. He charges his angels with error. 
 How much more those who dwell in houses of clay, whose foundation is in the dust, who are crushed before the moth! 
-Between morning and evening they are destroyed. They perish forever without any regarding it. 
+Between morning and evening they are destroyed. They perish for the eras without any regarding it. 
 Isn't their tent cord plucked up within them? They die, and that without wisdom.' 

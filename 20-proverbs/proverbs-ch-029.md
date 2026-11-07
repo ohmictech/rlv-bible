@@ -10,8 +10,8 @@ If a wise man goes to court with a foolish man, the fool rages or scoffs, and th
 The bloodthirsty hate a man of integrity; and they seek the life of the upright. 
 A fool vents all of his anger, but a wise man brings himself under control. 
 If a ruler listens to lies, all of his officials are wicked. 
-The poor man and the oppressor have this in common: The LORD gives sight to the eyes of both. 
-The king who fairly judges the poor, his throne shall be established forever. 
+The poor man and the oppressor have this in common: God gives sight to the eyes of both. 
+The king who fairly judges the poor, his throne shall be established for the eras. 
 The rod of correction gives wisdom, but a child left to himself causes shame to his mother. 
 When the wicked increase, sin increases; but the righteous will see their downfall. 
 Correct your son, and he will give you peace; yes, he will bring delight to your soul. 
@@ -22,6 +22,6 @@ He who pampers his servant from youth will have him become a son in the end.
 An angry man stirs up strife, and a wrathful man abounds in sin. 
 A man's pride brings him low, but one of lowly spirit gains honor. 
 Whoever is an accomplice of a thief is an enemy of his own soul. He takes an oath, but dares not testify. 
-The fear of man proves to be a snare, but whoever puts his trust in the LORD is kept safe. 
-Many seek the ruler's favor, but a man's justice comes from the LORD. 
+The fear of man proves to be a snare, but whoever puts his trust in God is kept safe. 
+Many seek the ruler's favor, but a man's justice comes from God. 
 A dishonest man detests the righteous, and the upright in their ways detest the wicked. 

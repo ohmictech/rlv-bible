@@ -13,7 +13,7 @@ the two pillars, the bowls, the two capitals which were on the top of the pillar
 and the four hundred pomegranates for the two networks, two rows of pomegranates for each network, to cover the two bowls of the capitals that were on the pillars. 
 He also made the bases, and he made the basins on the bases 
 one sea, and the twelve oxen under it. 
-Huram-abi also made the pots, the shovels, the forks, and all its vessels for King Solomon, for the LORD's house, of bright bronze. 
+Huram-abi also made the pots, the shovels, the forks, and all its vessels for King Solomon, for God's house, of bright bronze. 
 The king cast them in the plain of the Jordan, in the clay ground between Succoth and Zeredah. 
 Thus Solomon made all these vessels in great abundance, so that the weight of the bronze could not be determined. 
 Solomon made all the vessels that were in God's house: the golden altar, the tables with the show bread on them, 

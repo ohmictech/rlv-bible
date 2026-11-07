@@ -13,7 +13,7 @@ I turned myself to consider wisdom, madness, and folly; for what can the king's 
 Then I saw that wisdom excels folly, as far as light excels darkness. 
 The wise man's eyes are in his head, and the fool walks in darkness, and yet I perceived that one event happens to them all. 
 Then I said in my heart, "As it happens to the fool, so will it happen even to me; and why was I then more wise?" Then I said in my heart that this also is vanity. 
-For of the wise man, even as of the fool, there is no memory forever, since in the days to come all will have been long forgotten. Indeed, the wise man must die just like the fool! 
+For of the wise man, even as of the fool, there is no memory for the eras, since in the days to come all will have been long forgotten. Indeed, the wise man must die just like the fool! 
 So I hated life, because the work that is worked under the sun was grievous to me; for all is vanity and a chasing after wind. 
 I hated all my labor in which I labored under the sun, because I must leave it to the man who comes after me. 
 Who knows whether he will be a wise man or a fool? Yet he will have rule over all of my labor in which I have labored, and in which I have shown myself wise under the sun. This also is vanity. 

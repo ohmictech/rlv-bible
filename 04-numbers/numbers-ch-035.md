@@ -1,4 +1,4 @@
-﻿The LORD spoke to Moses in the plains of Moab by the Jordan at Jericho, saying, 
+﻿God spoke to Moses in the plains of Moab by the Jordan at Jericho, saying, 
 "Command the children of Israel to give to the Levites cities to dwell in out of their inheritance. You shall give pasture lands for the cities around them to the Levites. 
 They shall have the cities to dwell in. Their pasture lands shall be for their livestock, and for their possessions, and for all their animals. 
 "The pasture lands of the cities, which you shall give to the Levites, shall be from the wall of the city and outward one thousand cubits around it. 
@@ -6,7 +6,7 @@ You shall measure outside of the city for the east side two thousand cubits, and
 "The cities which you shall give to the Levites, they shall be the six cities of refuge, which you shall give for the man slayer to flee to. Besides them you shall give forty-two cities. 
 All the cities which you shall give to the Levites shall be forty-eight cities together with their pasture lands. 
 Concerning the cities which you shall give of the possession of the children of Israel, from the many you shall take many, and from the few you shall take few. Everyone according to his inheritance which he inherits shall give some of his cities to the Levites." 
-The LORD spoke to Moses, saying, 
+God spoke to Moses, saying, 
 "Speak to the children of Israel, and tell them, 'When you pass over the Jordan into the land of Canaan, 
 then you shall appoint for yourselves cities to be cities of refuge for you, that the man slayer who kills any person unwittingly may flee there. 
 The cities shall be for your refuge from the avenger, that the man slayer not die until he stands before the congregation for judgment. 
@@ -31,4 +31,4 @@ because he should have remained in his city of refuge until the death of the hig
 "'Moreover you shall take no ransom for the life of a murderer who is guilty of death. He shall surely be put to death. 
 "'You shall take no ransom for him who has fled to his city of refuge, that he may come again to dwell in the land before the death of the priest. 
 "'So you shall not pollute the land where you live; for blood pollutes the land. No atonement can be made for the land for the blood that is shed in it, but by the blood of him who shed it. 
-You shall not defile the land which you inhabit, where I dwell; for I, the LORD, dwell among the children of Israel.'" 
+You shall not defile the land which you inhabit, where I dwell; for I, God, dwell among the children of Israel.'" 

@@ -15,10 +15,10 @@ so you shall know wisdom to be to your soul. If you have found it, then there wi
 Don't lay in wait, wicked man, against the habitation of the righteous. Don't destroy his resting place; 
 for a righteous man falls seven times and rises up again, but the wicked are overthrown by calamity. 
 Don't rejoice when your enemy falls. Don't let your heart be glad when he is overthrown, 
-lest the LORD see it, and it displease him, and he turn away his wrath from him. 
+lest God see it, and it displease him, and he turn away his wrath from him. 
 Don't fret yourself because of evildoers, neither be envious of the wicked; 
 for there will be no reward to the evil man. The lamp of the wicked will be snuffed out. 
-My son, fear the LORD and the king. Don't join those who are rebellious, 
+My son, fear God and the king. Don't join those who are rebellious, 
 for their calamity will rise suddenly. Who knows what destruction may come from them both? 
 These also are sayings of the wise: To show partiality in judgment is not good. 
 He who says to the wicked, "You are righteous," peoples will curse him, and nations will abhor him 

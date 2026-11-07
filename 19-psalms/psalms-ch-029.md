@@ -1,11 +1,11 @@
-﻿A Psalm by David. Ascribe to the LORD, you sons of the mighty, ascribe to the LORD glory and strength. 
-Ascribe to the LORD the glory due to his name. Worship the LORD in holy array. 
-The LORD's voice is on the waters. The God of glory thunders, even the LORD on many waters. 
-The LORD's voice is powerful. The LORD's voice is full of majesty. 
-The LORD's voice breaks the cedars. Yes, the LORD breaks in pieces the cedars of Lebanon. 
+﻿A Psalm by David. Ascribe to God, you sons of the mighty, ascribe to God glory and strength. 
+Ascribe to God the glory due to his name. Worship God in holy array. 
+God's voice is on the waters. The God of glory thunders, even God on many waters. 
+God's voice is powerful. God's voice is full of majesty. 
+God's voice breaks the cedars. Yes, God breaks in pieces the cedars of Lebanon. 
 He makes them also to skip like a calf; Lebanon and Sirion like a young, wild ox. 
-The LORD's voice strikes with flashes of lightning. 
-The LORD's voice shakes the wilderness. The LORD shakes the wilderness of Kadesh. 
-The LORD's voice makes the deer calve, and strips the forests bare. In his temple everything says, "Glory!" 
-The LORD sat enthroned at the Flood. Yes, the LORD sits as King forever. 
-The LORD will give strength to his people. The LORD will bless his people with peace. 
+God's voice strikes with flashes of lightning. 
+God's voice shakes the wilderness. God shakes the wilderness of Kadesh. 
+God's voice makes the deer calve, and strips the forests bare. In his temple everything says, "Glory!" 
+God sat enthroned at the Flood. Yes, God sits as King for the eras. 
+God will give strength to his people. God will bless his people with peace. 

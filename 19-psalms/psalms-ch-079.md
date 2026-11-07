@@ -2,7 +2,7 @@
 They have given the dead bodies of your servants to be food for the birds of the sky, the flesh of your saints to the animals of the earth. 
 They have shed their blood like water around Jerusalem. There was no one to bury them. 
 We have become a reproach to our neighbors, a scoffing and derision to those who are around us. 
-How long, LORD? Will you be angry forever? Will your jealousy burn like fire? 
+How long, God? Will you be angry for the eras? Will your jealousy burn like fire? 
 Pour out your wrath on the nations that don't know you, on the kingdoms that don't call on your name, 
 for they have devoured Jacob, and destroyed his homeland. 
 Don't hold the iniquities of our forefathers against us. Let your tender mercies speedily meet us, for we are in desperate need. 
@@ -10,4 +10,4 @@ Help us, God of our salvation, for the glory of your name. Deliver us, and forgi
 Why should the nations say, "Where is their God?" Let it be known among the nations, before our eyes, that vengeance for your servants' blood is being poured out. 
 Let the sighing of the prisoner come before you. According to the greatness of your power, preserve those who are sentenced to death. 
 Pay back to our neighbors seven times into their bosom their reproach with which they have reproached you, Lord. 
-So we, your people and sheep of your pasture, will give you thanks forever. We will praise you forever, to all generations. 
+So we, your people and sheep of your pasture, will give you thanks for the eras. We will praise you for the eras, to all generations. 

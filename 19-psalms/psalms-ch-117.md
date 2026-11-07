@@ -1,2 +1,2 @@
-﻿Praise the LORD, all you nations! Extol him, all you peoples! 
-For his loving kindness is great toward us. The LORD's faithfulness endures forever. Praise the LORD! 
+﻿Praise God, all you nations! Extol him, all you peoples! 
+For his loving kindness is great toward us. God's faithfulness endures for the eras. Praise God! 

@@ -1,12 +1,12 @@
-﻿After the plague, the LORD spoke to Moses and to Eleazar the son of Aaron the priest, saying, 
+﻿After the plague, God spoke to Moses and to Eleazar the son of Aaron the priest, saying, 
 "Take a census of all the congregation of the children of Israel, from twenty years old and upward, by their fathers' houses, all who are able to go out to war in Israel." 
 Moses and Eleazar the priest spoke with them in the plains of Moab by the Jordan at Jericho, saying, 
-"Take a census, from twenty years old and upward, as the LORD commanded Moses and the children of Israel." These are those who came out of the land of Egypt. 
+"Take a census, from twenty years old and upward, as God commanded Moses and the children of Israel." These are those who came out of the land of Egypt. 
 Reuben, the firstborn of Israel; the sons of Reuben: of Hanoch, the family of the Hanochites; of Pallu, the family of the Palluites; 
 of Hezron, the family of the Hezronites; of Carmi, the family of the Carmites. 
 These are the families of the Reubenites; and those who were counted of them were forty-three thousand seven hundred thirty. 
 The son of Pallu: Eliab. 
-The sons of Eliab: Nemuel, Dathan, and Abiram. These are that Dathan and Abiram who were called by the congregation, who rebelled against Moses and against Aaron in the company of Korah when they rebelled against the LORD; 
+The sons of Eliab: Nemuel, Dathan, and Abiram. These are that Dathan and Abiram who were called by the congregation, who rebelled against Moses and against Aaron in the company of Korah when they rebelled against God; 
 and the earth opened its mouth, and swallowed them up together with Korah when that company died; at the time the fire devoured two hundred fifty men, and they became a sign. 
 Notwithstanding, the sons of Korah didn't die. 
 The sons of Simeon after their families: of Nemuel, the family of the Nemuelites; of Jamin, the family of the Jaminites; of Jachin, the family of the Jachinites; 
@@ -49,7 +49,7 @@ The sons of Naphtali after their families: of Jahzeel, the family of the Jahzeel
 of Jezer, the family of the Jezerites; of Shillem, the family of the Shillemites. 
 These are the families of Naphtali according to their families; and those who were counted of them were forty-five thousand four hundred. 
 These are those who were counted of the children of Israel, six hundred one thousand seven hundred thirty. 
-The LORD spoke to Moses, saying, 
+God spoke to Moses, saying, 
 "To these the land shall be divided for an inheritance according to the number of names. 
 To the more you shall give the more inheritance, and to the fewer you shall give the less inheritance. To everyone according to those who were counted of him shall his inheritance be given. 
 Notwithstanding, the land shall be divided by lot. According to the names of the tribes of their fathers they shall inherit. 
@@ -58,8 +58,8 @@ These are those who were counted of the Levites after their families: of Gershon
 These are the families of Levi: the family of the Libnites, the family of the Hebronites, the family of the Mahlites, the family of the Mushites, and the family of the Korahites. Kohath became the father of Amram. 
 The name of Amram's wife was Jochebed, the daughter of Levi, who was born to Levi in Egypt. She bore to Amram Aaron and Moses, and Miriam their sister. 
 To Aaron were born Nadab and Abihu, Eleazar and Ithamar. 
-Nadab and Abihu died when they offered strange fire before the LORD. 
+Nadab and Abihu died when they offered strange fire before God. 
 Those who were counted of them were twenty-three thousand, every male from a month old and upward; for they were not counted among the children of Israel, because there was no inheritance given them among the children of Israel. 
 These are those who were counted by Moses and Eleazar the priest, who counted the children of Israel in the plains of Moab by the Jordan at Jericho. 
 But among these there was not a man of them who were counted by Moses and Aaron the priest, who counted the children of Israel in the wilderness of Sinai. 
-For the LORD had said of them, "They shall surely die in the wilderness." There was not a man left of them, except Caleb the son of Jephunneh, and Joshua the son of Nun. 
+For God had said of them, "They shall surely die in the wilderness." There was not a man left of them, except Caleb the son of Jephunneh, and Joshua the son of Nun. 

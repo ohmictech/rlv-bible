@@ -6,14 +6,14 @@ My flesh is clothed with worms and clods of dust. My skin closes up, and breaks 
 My days are swifter than a weaver's shuttle, and are spent without hope. 
 Oh remember that my life is a breath. My eye will no more see good. 
 The eye of him who sees me will see me no more. Your eyes will be on me, but I will not be. 
-As the cloud is consumed and vanishes away, so he who goes down to Sheol will come up no more. 
+As the cloud is consumed and vanishes away, so he who goes down to Hades will come up no more. 
 He will return no more to his house, neither will his place know him any more. 
 "Therefore I will not keep silent. I will speak in the anguish of my spirit. I will complain in the bitterness of my soul. 
 Am I a sea, or a sea monster, that you put a guard over me? 
 When I say, 'My bed will comfort me. My couch will ease my complaint,' 
 then you scare me with dreams and terrify me through visions, 
 so that my soul chooses strangling, death rather than my bones. 
-I loathe my life. I don't want to live forever. Leave me alone, for my days are but a breath. 
+I loathe my life. I don't want to live for the eras. Leave me alone, for my days are but a breath. 
 What is man, that you should magnify him, that you should set your mind on him, 
 that you should visit him every morning, and test him every moment? 
 How long will you not look away from me, nor leave me alone until I swallow down my spittle? 

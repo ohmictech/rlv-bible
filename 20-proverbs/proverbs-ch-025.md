@@ -19,7 +19,7 @@ A man who gives false testimony against his neighbor is like a club, a sword, or
 Confidence in someone unfaithful in time of trouble is like a bad tooth or a lame foot. 
 As one who takes away a garment in cold weather, or vinegar on soda, so is one who sings songs to a heavy heart. 
 If your enemy is hungry, give him food to eat. If he is thirsty, give him water to drink; 
-for you will heap coals of fire on his head, and the LORD will reward you. 
+for you will heap coals of fire on his head, and God will reward you. 
 The north wind produces rain; so a backbiting tongue brings an angry face. 
 It is better to dwell in the corner of the housetop than to share a house with a contentious woman. 
 Like cold water to a thirsty soul, so is good news from a far country. 

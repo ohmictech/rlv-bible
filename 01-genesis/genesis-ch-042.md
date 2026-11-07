@@ -35,4 +35,4 @@ Bring your youngest brother to me. Then I will know that you are not spies, but 
 As they emptied their sacks, behold, each man's bundle of money was in his sack. When they and their father saw their bundles of money, they were afraid. 
 Jacob, their father, said to them, "You have bereaved me of my children! Joseph is no more, Simeon is no more, and you want to take Benjamin away. All these things are against me." 
 Reuben spoke to his father, saying, "Kill my two sons, if I don't bring him to you. Entrust him to my care, and I will bring him to you again." 
-He said, "My son shall not go down with you; for his brother is dead, and he only is left. If harm happens to him along the way in which you go, then you will bring down my gray hairs with sorrow to Sheol." 
+He said, "My son shall not go down with you; for his brother is dead, and he only is left. If harm happens to him along the way in which you go, then you will bring down my gray hairs with sorrow to Hades." 

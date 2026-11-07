@@ -15,4 +15,4 @@ Abimelech took sheep and cattle, male servants and female servants, and gave the
 Abimelech said, "Behold, my land is before you. Dwell where it pleases you." 
 To Sarah he said, "Behold, I have given your brother a thousand pieces of silver. Behold, it is for you a covering of the eyes to all that are with you. In front of all you are vindicated." 
 Abraham prayed to God. So God healed Abimelech, his wife, and his female servants, and they bore children. 
-For the LORD had closed up tight all the wombs of the house of Abimelech, because of Sarah, Abraham's wife. 
+For God had closed up tight all the wombs of the house of Abimelech, because of Sarah, Abraham's wife. 

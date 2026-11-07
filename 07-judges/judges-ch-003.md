@@ -1,18 +1,18 @@
-﻿Now these are the nations which the LORD left, to test Israel by them, even as many as had not known all the wars of Canaan; 
+﻿Now these are the nations which God left, to test Israel by them, even as many as had not known all the wars of Canaan; 
 only that the generations of the children of Israel might know, to teach them war, at least those who knew nothing of it before: 
 the five lords of the Philistines, all the Canaanites, the Sidonians, and the Hivites who lived on Mount Lebanon, from Mount Baal Hermon to the entrance of Hamath. 
-They were left to test Israel by them, to know whether they would listen to the LORD's commandments, which he commanded their fathers by Moses. 
+They were left to test Israel by them, to know whether they would listen to God's commandments, which he commanded their fathers by Moses. 
 The children of Israel lived among the Canaanites, the Hittites, the Amorites, the Perizzites, the Hivites, and the Jebusites. 
 They took their daughters to be their wives, and gave their own daughters to their sons and served their gods. 
-The children of Israel did that which was evil in the LORD's sight, and forgot the LORD their God, and served the Baals and the Asheroth. 
-Therefore the LORD's anger burned against Israel, and he sold them into the hand of Cushan Rishathaim king of Mesopotamia; and the children of Israel served Cushan Rishathaim eight years. 
-When the children of Israel cried to the LORD, the LORD raised up a savior to the children of Israel, who saved them, even Othniel the son of Kenaz, Caleb's younger brother. 
-The LORD's Spirit came on him, and he judged Israel; and he went out to war, and the LORD delivered Cushan Rishathaim king of Mesopotamia into his hand. His hand prevailed against Cushan Rishathaim. 
+The children of Israel did that which was evil in God's sight, and forgot their God, and served the Baals and the Asheroth. 
+Therefore God's anger burned against Israel, and he sold them into the hand of Cushan Rishathaim king of Mesopotamia; and the children of Israel served Cushan Rishathaim eight years. 
+When the children of Israel cried to God, God raised up a savior to the children of Israel, who saved them, even Othniel the son of Kenaz, Caleb's younger brother. 
+God's Spirit came on him, and he judged Israel; and he went out to war, and God delivered Cushan Rishathaim king of Mesopotamia into his hand. His hand prevailed against Cushan Rishathaim. 
 The land had rest forty years, then Othniel the son of Kenaz died. 
-The children of Israel again did that which was evil in the LORD's sight, and the LORD strengthened Eglon the king of Moab against Israel, because they had done that which was evil in the LORD's sight. 
+The children of Israel again did that which was evil in God's sight, and God strengthened Eglon the king of Moab against Israel, because they had done that which was evil in God's sight. 
 He gathered the children of Ammon and Amalek to himself; and he went and struck Israel, and they possessed the city of palm trees. 
 The children of Israel served Eglon the king of Moab eighteen years. 
-But when the children of Israel cried to the LORD, the LORD raised up a savior for them: Ehud the son of Gera, the Benjamite, a left-handed man. The children of Israel sent tribute by him to Eglon the king of Moab. 
+But when the children of Israel cried to God, God raised up a savior for them: Ehud the son of Gera, the Benjamite, a left-handed man. The children of Israel sent tribute by him to Eglon the king of Moab. 
 Ehud made himself a sword which had two edges, a cubit in length; and he wore it under his clothing on his right thigh. 
 He offered the tribute to Eglon king of Moab. Now Eglon was a very fat man. 
 When Ehud had finished offering the tribute, he sent away the people who carried the tribute. 
@@ -25,7 +25,7 @@ After he had gone, his servants came and saw that the doors of the upper room we
 They waited until they were ashamed; and behold, he didn't open the doors of the upper room. Therefore they took the key and opened them, and behold, their lord had fallen down dead on the floor. 
 Ehud escaped while they waited, passed beyond the stone idols, and escaped to Seirah. 
 When he had come, he blew a trumpet in the hill country of Ephraim; and the children of Israel went down with him from the hill country, and he led them. 
-He said to them, "Follow me; for the LORD has delivered your enemies the Moabites into your hand." They followed him, and took the fords of the Jordan against the Moabites, and didn't allow any man to pass over. 
+He said to them, "Follow me; for God has delivered your enemies the Moabites into your hand." They followed him, and took the fords of the Jordan against the Moabites, and didn't allow any man to pass over. 
 They struck at that time about ten thousand men of Moab, every strong man and every man of valor. No man escaped. 
 So Moab was subdued that day under the hand of Israel. Then the land had rest eighty years. 
 After him was Shamgar the son of Anath, who struck six hundred men of the Philistines with an ox goad. He also saved Israel. 

@@ -1,7 +1,7 @@
-﻿After the death of Joshua, the children of Israel asked of the LORD, saying, "Who should go up for us first against the Canaanites, to fight against them?" 
-The LORD said, "Judah shall go up. Behold, I have delivered the land into his hand." 
+﻿After the death of Joshua, the children of Israel asked of God, saying, "Who should go up for us first against the Canaanites, to fight against them?" 
+God said, "Judah shall go up. Behold, I have delivered the land into his hand." 
 Judah said to Simeon his brother, "Come up with me into my lot, that we may fight against the Canaanites; and I likewise will go with you into your lot." So Simeon went with him. 
-Judah went up, and the LORD delivered the Canaanites and the Perizzites into their hand. They struck ten thousand men in Bezek. 
+Judah went up, and God delivered the Canaanites and the Perizzites into their hand. They struck ten thousand men in Bezek. 
 They found Adoni-Bezek in Bezek, and they fought against him. They struck the Canaanites and the Perizzites. 
 But Adoni-Bezek fled. They pursued him, caught him, and cut off his thumbs and his big toes. 
 Adoni-Bezek said, "Seventy kings, having their thumbs and their big toes cut off, scavenged under my table. As I have done, so God has done to me." They brought him to Jerusalem, and he died there. 
@@ -16,10 +16,10 @@ She said to him, "Give me a blessing; because you have set me in the land of the
 The children of the Kenite, Moses' brother-in-law, went up out of the city of palm trees with the children of Judah into the wilderness of Judah, which is in the south of Arad; and they went and lived with the people. 
 Judah went with Simeon his brother, and they struck the Canaanites who inhabited Zephath, and utterly destroyed it. The name of the city was called Hormah. 
 Also Judah took Gaza with its border, and Ashkelon with its border, and Ekron with its border. 
-The LORD was with Judah, and drove out the inhabitants of the hill country; for he could not drive out the inhabitants of the valley, because they had chariots of iron. 
+God was with Judah, and drove out the inhabitants of the hill country; for he could not drive out the inhabitants of the valley, because they had chariots of iron. 
 They gave Hebron to Caleb, as Moses had said, and he drove the three sons of Anak out of there. 
 The children of Benjamin didn't drive out the Jebusites who inhabited Jerusalem, but the Jebusites dwell with the children of Benjamin in Jerusalem to this day. 
-The house of Joseph also went up against Bethel, and the LORD was with them. 
+The house of Joseph also went up against Bethel, and God was with them. 
 The house of Joseph sent to spy out Bethel. (The name of the city before that was Luz.) 
 The watchers saw a man come out of the city, and they said to him, "Please show us the entrance into the city, and we will deal kindly with you." 
 He showed them the entrance into the city, and they struck the city with the edge of the sword; but they let the man and all his family go. 

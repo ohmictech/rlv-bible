@@ -4,11 +4,11 @@ I remember God, and I groan. I complain, and my spirit is overwhelmed. Selah.
 You hold my eyelids open. I am so troubled that I can't speak. 
 I have considered the days of old, the years of ancient times. 
 I remember my song in the night. I consider in my own heart; my spirit diligently inquires: 
-"Will the Lord reject us forever? Will he be favorable no more? 
-Has his loving kindness vanished forever? Does his promise fail for generations? 
+"Will the Lord reject us for the eras? Will he be favorable no more? 
+Has his loving kindness vanished for the eras? Does his promise fail for generations? 
 Has God forgotten to be gracious? Has he, in anger, withheld his compassion?" Selah. 
 Then I thought, "I will appeal to this: the years of the right hand of the Most High." 
-I will remember the LORD's deeds; for I will remember your wonders of old. 
+I will remember God's deeds; for I will remember your wonders of old. 
 I will also meditate on all your work, and consider your doings. 
 Your way, God, is in the sanctuary. What god is great like God? 
 You are the God who does wonders. You have made your strength known among the peoples. 

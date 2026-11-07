@@ -1,4 +1,4 @@
-﻿"Put the trumpet to your lips! Something like an eagle is over the LORD's house, because they have broken my covenant and rebelled against my law. 
+﻿"Put the trumpet to your lips! Something like an eagle is over God's house, because they have broken my covenant and rebelled against my law. 
 They cry to me, 'My God, we, Israel, acknowledge you!' 
 Israel has cast off that which is good. The enemy will pursue him. 
 They have set up kings, but not by me. They have made princes, and I didn't approve. Of their silver and their gold they have made themselves idols, that they may be cut off. 
@@ -10,5 +10,5 @@ For they have gone up to Assyria, like a wild donkey wandering alone. Ephraim ha
 But although they sold themselves among the nations, I will now gather them; and they begin to waste away because of the oppression of the king of mighty ones. 
 Because Ephraim has multiplied altars for sinning, they became for him altars for sinning. 
 I wrote for him the many things of my law, but they were regarded as a strange thing. 
-As for the sacrifices of my offerings, they sacrifice meat and eat it, but the LORD doesn't accept them. Now he will remember their iniquity, and punish their sins. They will return to Egypt. 
+As for the sacrifices of my offerings, they sacrifice meat and eat it, but God doesn't accept them. Now he will remember their iniquity, and punish their sins. They will return to Egypt. 
 For Israel has forgotten his Maker and built palaces; and Judah has multiplied fortified cities; but I will send a fire on his cities, and it will devour its fortresses." 

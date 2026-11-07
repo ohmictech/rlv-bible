@@ -34,7 +34,7 @@ Saul said to David, "You are not able to go against this Philistine to fight wit
 David said to Saul, "Your servant was keeping his father's sheep; and when a lion or a bear came and took a lamb out of the flock, 
 I went out after him, struck him, and rescued it out of his mouth. When he arose against me, I caught him by his beard, struck him, and killed him. 
 Your servant struck both the lion and the bear. This uncircumcised Philistine shall be as one of them, since he has defied the armies of the living God." 
-David said, "The LORD, who delivered me out of the paw of the lion and out of the paw of the bear, will deliver me out of the hand of this Philistine." Saul said to David, "Go! The LORD will be with you." 
+David said, "God, who delivered me out of the paw of the lion and out of the paw of the bear, will deliver me out of the hand of this Philistine." Saul said to David, "Go! God will be with you." 
 Saul dressed David with his clothing. He put a helmet of bronze on his head, and he clad him with a coat of mail. 
 David strapped his sword on his clothing and he tried to move, for he had not tested it. David said to Saul, "I can't go with these, for I have not tested them." Then David took them off. 
 He took his staff in his hand, and chose for himself five smooth stones out of the brook, and put them in the pouch of his shepherd's bag which he had. His sling was in his hand; and he came near to the Philistine. 
@@ -42,9 +42,9 @@ The Philistine walked and came near to David; and the man who bore the shield we
 When the Philistine looked around and saw David, he disdained him; for he was but a youth, and ruddy, and had a good looking face. 
 The Philistine said to David, "Am I a dog, that you come to me with sticks?" The Philistine cursed David by his gods. 
 The Philistine said to David, "Come to me, and I will give your flesh to the birds of the sky and to the animals of the field." 
-Then David said to the Philistine, "You come to me with a sword, with a spear, and with a javelin; but I come to you in the name of the LORD of Armies, the God of the armies of Israel, whom you have defied. 
-Today, the LORD will deliver you into my hand. I will strike you and take your head from off you. I will give the dead bodies of the army of the Philistines today to the birds of the sky and to the wild animals of the earth, that all the earth may know that there is a God in Israel, 
-and that all this assembly may know that the LORD doesn't save with sword and spear; for the battle is the LORD's, and he will give you into our hand." 
+Then David said to the Philistine, "You come to me with a sword, with a spear, and with a javelin; but I come to you in the name of the God of Armies, the God of the armies of Israel, whom you have defied. 
+Today, God will deliver you into my hand. I will strike you and take your head from off you. I will give the dead bodies of the army of the Philistines today to the birds of the sky and to the wild animals of the earth, that all the earth may know that there is a God in Israel, 
+and that all this assembly may know that God doesn't save with sword and spear; for the battle is God's, and he will give you into our hand." 
 When the Philistine arose, and walked and came near to meet David, David hurried and ran toward the army to meet the Philistine. 
 David put his hand in his bag, took a stone and slung it, and struck the Philistine in his forehead. The stone sank into his forehead, and he fell on his face to the earth. 
 So David prevailed over the Philistine with a sling and with a stone, and struck the Philistine and killed him; but there was no sword in David's hand. 

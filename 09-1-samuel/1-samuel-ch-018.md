@@ -9,12 +9,12 @@ Saul was very angry, and this saying displeased him. He said, "They have credite
 Saul watched David from that day and forward. 
 On the next day, an evil spirit from God came mightily on Saul, and he prophesied in the middle of the house. David played with his hand, as he did day by day. Saul had his spear in his hand; 
 and Saul threw the spear, for he said, "I will pin David to the wall!" David escaped from his presence twice. 
-Saul was afraid of David, because the LORD was with him, and had departed from Saul. 
+Saul was afraid of David, because God was with him, and had departed from Saul. 
 Therefore Saul removed him from his presence, and made him his captain over a thousand; and he went out and came in before the people. 
-David behaved himself wisely in all his ways; and the LORD was with him. 
+David behaved himself wisely in all his ways; and God was with him. 
 When Saul saw that he behaved himself very wisely, he stood in awe of him. 
 But all Israel and Judah loved David; for he went out and came in before them. 
-Saul said to David, "Behold, my elder daughter Merab. I will give her to you as wife. Only be valiant for me, and fight the LORD's battles." For Saul said, "Don't let my hand be on him, but let the hand of the Philistines be on him." 
+Saul said to David, "Behold, my elder daughter Merab. I will give her to you as wife. Only be valiant for me, and fight God's battles." For Saul said, "Don't let my hand be on him, but let the hand of the Philistines be on him." 
 David said to Saul, "Who am I, and what is my life, or my father's family in Israel, that I should be son-in-law to the king?" 
 But at the time when Merab, Saul's daughter, should have been given to David, she was given to Adriel the Meholathite as wife. 
 Michal, Saul's daughter, loved David; and they told Saul, and the thing pleased him. 
@@ -25,6 +25,6 @@ The servants of Saul told him, saying, "David spoke like this."
 Saul said, "Tell David, 'The king desires no dowry except one hundred foreskins of the Philistines, to be avenged of the king's enemies.'" Now Saul thought he would make David fall by the hand of the Philistines. 
 When his servants told David these words, it pleased David well to be the king's son-in-law. Before the deadline, 
 David arose and went, he and his men, and killed two hundred men of the Philistines. Then David brought their foreskins, and they gave them in full number to the king, that he might be the king's son-in-law. Then Saul gave him Michal his daughter as wife. 
-Saul saw and knew that the LORD was with David; and Michal, Saul's daughter, loved him. 
+Saul saw and knew that God was with David; and Michal, Saul's daughter, loved him. 
 Saul was even more afraid of David; and Saul was David's enemy continually. 
 Then the princes of the Philistines went out; and as often as they went out, David behaved himself more wisely than all the servants of Saul, so that his name was highly esteemed. 

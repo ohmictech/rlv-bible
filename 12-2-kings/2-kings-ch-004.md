@@ -1,4 +1,4 @@
-﻿Now a certain woman of the wives of the sons of the prophets cried out to Elisha, saying, "Your servant my husband is dead. You know that your servant feared the LORD. Now the creditor has come to take for himself my two children to be slaves." 
+﻿Now a certain woman of the wives of the sons of the prophets cried out to Elisha, saying, "Your servant my husband is dead. You know that your servant feared God. Now the creditor has come to take for himself my two children to be slaves." 
 Elisha said to her, "What should I do for you? Tell me, what do you have in the house?" She said, "Your servant has nothing in the house, except a pot of oil." 
 Then he said, "Go, borrow empty containers from all your neighbors. Don't borrow just a few containers. 
 Go in and shut the door on you and on your sons, and pour oil into all those containers; and set aside those which are full." 
@@ -24,13 +24,13 @@ He said, "Why would you want to go to him today? It is not a new moon or a Sabba
 Then she saddled a donkey, and said to her servant, "Drive, and go forward! Don't slow down for me, unless I ask you to." 
 So she went, and came to the man of God to Mount Carmel. When the man of God saw her afar off, he said to Gehazi his servant, "Behold, there is the Shunammite. 
 Please run now to meet her, and ask her, 'Is it well with you? Is it well with your husband? Is it well with your child?'" She answered, "It is well." 
-When she came to the man of God to the hill, she caught hold of his feet. Gehazi came near to thrust her away; but the man of God said, "Leave her alone, for her soul is troubled within her; and the LORD has hidden it from me, and has not told me." 
+When she came to the man of God to the hill, she caught hold of his feet. Gehazi came near to thrust her away; but the man of God said, "Leave her alone, for her soul is troubled within her; and God has hidden it from me, and has not told me." 
 Then she said, "Did I ask you for a son, my lord? Didn't I say, 'Do not deceive me'?" 
 Then he said to Gehazi, "Tuck your cloak into your belt, take my staff in your hand, and go your way. If you meet any man, don't greet him; and if anyone greets you, don't answer him again. Then lay my staff on the child's face." 
-The child's mother said, "As the LORD lives, and as your soul lives, I will not leave you." So he arose, and followed her. 
+The child's mother said, "As God lives, and as your soul lives, I will not leave you." So he arose, and followed her. 
 Gehazi went ahead of them, and laid the staff on the child's face; but there was no voice and no hearing. Therefore he returned to meet him, and told him, "The child has not awakened." 
 When Elisha had come into the house, behold, the child was dead, and lying on his bed. 
-He went in therefore, and shut the door on them both, and prayed to the LORD. 
+He went in therefore, and shut the door on them both, and prayed to God. 
 He went up and lay on the child, and put his mouth on his mouth, and his eyes on his eyes, and his hands on his hands. He stretched himself on him; and the child's flesh grew warm. 
 Then he returned, and walked in the house once back and forth, then went up and stretched himself out on him. Then the child sneezed seven times, and the child opened his eyes. 
 He called Gehazi, and said, "Call this Shunammite!" So he called her. When she had come in to him, he said, "Take up your son." 
@@ -40,5 +40,5 @@ One went out into the field to gather herbs, and found a wild vine, and gathered
 So they poured out for the men to eat. As they were eating some of the stew, they cried out and said, "Man of God, there is death in the pot!" And they could not eat it. 
 But he said, "Then bring meal." He threw it into the pot; and he said, "Serve it to the people, that they may eat." And there was nothing harmful in the pot. 
 A man from Baal Shalishah came, and brought the man of God some bread of the first fruits: twenty loaves of barley and fresh ears of grain in his sack. Elisha said, "Give to the people, that they may eat." 
-His servant said, "What, should I set this before a hundred men?" But he said, "Give it to the people, that they may eat; for the LORD says, 'They will eat, and will have some left over.'" 
-So he set it before them and they ate and had some left over, according to the LORD's word. 
+His servant said, "What, should I set this before a hundred men?" But he said, "Give it to the people, that they may eat; for God says, 'They will eat, and will have some left over.'" 
+So he set it before them and they ate and had some left over, according to God's word. 

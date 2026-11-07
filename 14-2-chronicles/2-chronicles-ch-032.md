@@ -5,25 +5,25 @@ Then many people gathered together and they stopped all the springs and the broo
 He took courage, built up all the wall that was broken down, and raised it up to the towers, with the other wall outside, and strengthened Millo in David's city, and made weapons and shields in abundance. 
 He set captains of war over the people, gathered them together to him in the wide place at the gate of the city, and spoke encouragingly to them, saying, 
 "Be strong and courageous. Don't be afraid or dismayed because of the king of Assyria, nor for all the multitude who is with him; for there is a greater one with us than with him. 
-An arm of flesh is with him, but the LORD our God is with us to help us and to fight our battles." The people rested themselves on the words of Hezekiah king of Judah. 
+An arm of flesh is with him, but our God is with us to help us and to fight our battles." The people rested themselves on the words of Hezekiah king of Judah. 
 After this, Sennacherib king of Assyria sent his servants to Jerusalem, (now he was attacking Lachish, and all his forces were with him), to Hezekiah king of Judah, and to all Judah who were at Jerusalem, saying, 
 Sennacherib king of Assyria says, "In whom do you trust, that you remain under siege in Jerusalem? 
-Doesn't Hezekiah persuade you to give you over to die by famine and by thirst, saying, 'The LORD our God will deliver us out of the hand of the king of Assyria'? 
+Doesn't Hezekiah persuade you to give you over to die by famine and by thirst, saying, 'Our God will deliver us out of the hand of the king of Assyria'? 
 Hasn't the same Hezekiah taken away his high places and his altars, and commanded Judah and Jerusalem, saying, 'You shall worship before one altar, and you shall burn incense on it'? 
 Don't you know what I and my fathers have done to all the peoples of the lands? Were the gods of the nations of those lands in any way able to deliver their land out of my hand? 
 Who was there among all the gods of those nations which my fathers utterly destroyed that could deliver his people out of my hand, that your God should be able to deliver you out of my hand? 
 Now therefore don't let Hezekiah deceive you nor persuade you in this way. Don't believe him, for no god of any nation or kingdom was able to deliver his people out of my hand, and out of the hand of my fathers. How much less will your God deliver you out of my hand?" 
-His servants spoke yet more against the LORD God and against his servant Hezekiah. 
-He also wrote letters insulting the LORD, the God of Israel, and speaking against him, saying, "As the gods of the nations of the lands, which have not delivered their people out of my hand, so shall the God of Hezekiah not deliver his people out of my hand." 
+His servants spoke yet more against God and against his servant Hezekiah. 
+He also wrote letters insulting the God of Israel, and speaking against him, saying, "As the gods of the nations of the lands, which have not delivered their people out of my hand, so shall the God of Hezekiah not deliver his people out of my hand." 
 They called out with a loud voice in the Jews' language to the people of Jerusalem who were on the wall, to frighten them and to trouble them, that they might take the city. 
 They spoke of the God of Jerusalem as of the gods of the peoples of the earth, which are the work of men's hands. 
 Hezekiah the king and Isaiah the prophet, the son of Amoz, prayed because of this, and cried to heaven. 
-The LORD sent an angel, who cut off all the mighty men of valor, the leaders, and captains in the camp of the king of Assyria. So he returned with shame of face to his own land. When he had come into the house of his god, those who came out of his own body killed him there with the sword. 
-Thus the LORD saved Hezekiah and the inhabitants of Jerusalem from the hand of Sennacherib the king of Assyria and from the hand of all others, and guided them on every side. 
-Many brought gifts to the LORD to Jerusalem, and precious things to Hezekiah king of Judah, so that he was exalted in the sight of all nations from then on. 
-In those days Hezekiah was terminally ill, and he prayed to the LORD; and he spoke to him, and gave him a sign. 
+God sent an angel, who cut off all the mighty men of valor, the leaders, and captains in the camp of the king of Assyria. So he returned with shame of face to his own land. When he had come into the house of his god, those who came out of his own body killed him there with the sword. 
+Thus God saved Hezekiah and the inhabitants of Jerusalem from the hand of Sennacherib the king of Assyria and from the hand of all others, and guided them on every side. 
+Many brought gifts to God to Jerusalem, and precious things to Hezekiah king of Judah, so that he was exalted in the sight of all nations from then on. 
+In those days Hezekiah was terminally ill, and he prayed to God; and he spoke to him, and gave him a sign. 
 But Hezekiah didn't reciprocate appropriate to the benefit done for him, because his heart was lifted up. Therefore there was wrath on him, Judah, and Jerusalem. 
-However, Hezekiah humbled himself for the pride of his heart, both he and the inhabitants of Jerusalem, so that the LORD's wrath didn't come on them in the days of Hezekiah. 
+However, Hezekiah humbled himself for the pride of his heart, both he and the inhabitants of Jerusalem, so that God's wrath didn't come on them in the days of Hezekiah. 
 Hezekiah had exceedingly great riches and honor. He provided himself with treasuries for silver, for gold, for precious stones, for spices, for shields, and for all kinds of valuable vessels; 
 also storehouses for the increase of grain, new wine, and oil; and stalls for all kinds of animals, and flocks in folds. 
 Moreover he provided for himself cities, and possessions of flocks and herds in abundance; for God had given him abundant possessions. 

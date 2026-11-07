@@ -1,13 +1,13 @@
 ﻿The whole congregation of the children of Israel assembled themselves together at Shiloh, and set up the Tent of Meeting there. The land was subdued before them. 
 Seven tribes remained among the children of Israel, which had not yet divided their inheritance. 
-Joshua said to the children of Israel, "How long will you neglect to go in to possess the land, which the LORD, the God of your fathers, has given you? 
+Joshua said to the children of Israel, "How long will you neglect to go in to possess the land, which the God of your fathers, has given you? 
 Appoint for yourselves three men from each tribe. I will send them, and they shall arise, walk through the land, and describe it according to their inheritance; then they shall come to me. 
 They shall divide it into seven portions. Judah shall live in his borders on the south, and the house of Joseph shall live in their borders on the north. 
-You shall survey the land into seven parts, and bring the description here to me; and I will cast lots for you here before the LORD our God. 
-However, the Levites have no portion among you; for the priesthood of the LORD is their inheritance. Gad, Reuben, and the half-tribe of Manasseh have received their inheritance east of the Jordan, which Moses the servant of the LORD gave them." 
-The men arose and went. Joshua commanded those who went to survey the land, saying, "Go walk through the land, survey it, and come again to me. I will cast lots for you here before the LORD in Shiloh." 
+You shall survey the land into seven parts, and bring the description here to me; and I will cast lots for you here before our God. 
+However, the Levites have no portion among you; for the priesthood of God is their inheritance. Gad, Reuben, and the half-tribe of Manasseh have received their inheritance east of the Jordan, which Moses the servant of God gave them." 
+The men arose and went. Joshua commanded those who went to survey the land, saying, "Go walk through the land, survey it, and come again to me. I will cast lots for you here before God in Shiloh." 
 The men went and passed through the land, and surveyed it by cities into seven portions in a book. They came to Joshua to the camp at Shiloh. 
-Joshua cast lots for them in Shiloh before the LORD. There Joshua divided the land to the children of Israel according to their divisions. 
+Joshua cast lots for them in Shiloh before God. There Joshua divided the land to the children of Israel according to their divisions. 
 The lot of the tribe of the children of Benjamin came up according to their families. The border of their lot went out between the children of Judah and the children of Joseph. 
 Their border on the north quarter was from the Jordan. The border went up to the side of Jericho on the north, and went up through the hill country westward. It ended at the wilderness of Beth Aven. 
 The border passed along from there to Luz, to the side of Luz (also called Bethel), southward. The border went down to Ataroth Addar, by the mountain that lies on the south of Beth Horon the lower. 

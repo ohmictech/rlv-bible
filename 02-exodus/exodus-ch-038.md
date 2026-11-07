@@ -19,7 +19,7 @@ The screen for the gate of the court was the work of the embroiderer, of blue, p
 Their pillars were four, and their sockets four, of bronze; their hooks of silver, and the overlaying of their capitals, and their fillets, of silver. 
 All the pins of the tabernacle, and around the court, were of bronze. 
 These are the amounts of materials used for the tabernacle, even the Tabernacle of the Testimony, as they were counted, according to the commandment of Moses, for the service of the Levites, by the hand of Ithamar, the son of Aaron the priest. 
-Bezalel the son of Uri, the son of Hur, of the tribe of Judah, made all that the LORD commanded Moses. 
+Bezalel the son of Uri, the son of Hur, of the tribe of Judah, made all that God commanded Moses. 
 With him was Oholiab, the son of Ahisamach, of the tribe of Dan, an engraver, and a skillful workman, and an embroiderer in blue, in purple, in scarlet, and in fine linen. 
 All the gold that was used for the work in all the work of the sanctuary, even the gold of the offering, was twenty-nine talents and seven hundred thirty shekels, according to the shekel of the sanctuary. 
 The silver of those who were counted of the congregation was one hundred talents and one thousand seven hundred seventy-five shekels, according to the shekel of the sanctuary: 

@@ -9,11 +9,11 @@ He said to me, 'Who are you?' I answered him, 'I am an Amalekite.'
 He said to me, 'Please stand beside me, and kill me, for anguish has taken hold of me because my life lingers in me.' 
 So I stood beside him and killed him, because I was sure that he could not live after he had fallen. I took the crown that was on his head and the bracelet that was on his arm, and have brought them here to my lord." 
 Then David took hold of his clothes and tore them; and all the men who were with him did likewise. 
-They mourned, wept, and fasted until evening for Saul and for Jonathan his son, and for the people of the LORD, and for the house of Israel, because they had fallen by the sword. 
+They mourned, wept, and fasted until evening for Saul and for Jonathan his son, and for the people of God, and for the house of Israel, because they had fallen by the sword. 
 David said to the young man who told him, "Where are you from?" He answered, "I am the son of a foreigner, an Amalekite." 
-David said to him, "Why were you not afraid to stretch out your hand to destroy the LORD's anointed?" 
+David said to him, "Why were you not afraid to stretch out your hand to destroy God's anointed?" 
 David called one of the young men and said, "Go near, and cut him down!" He struck him so that he died. 
-David said to him, "Your blood be on your head, for your mouth has testified against you, saying, 'I have slain the LORD's anointed.'" 
+David said to him, "Your blood be on your head, for your mouth has testified against you, saying, 'I have slain God's anointed.'" 
 David lamented with this lamentation over Saul and over Jonathan his son 
 (and he commanded them to teach the children of Judah the song of the bow; behold, it is written in the book of Jashar): 
 "Your glory, Israel, was slain on your high places! How the mighty have fallen! 

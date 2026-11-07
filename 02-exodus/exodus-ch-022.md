@@ -8,7 +8,7 @@ If the stolen property is found in his hand alive, whether it is ox, donkey, or 
 If the thief isn't found, then the master of the house shall come near to God, to find out whether or not he has put his hand on his neighbor's goods. 
 For every matter of trespass, whether it is for ox, for donkey, for sheep, for clothing, or for any kind of lost thing, about which one says, 'This is mine,' the cause of both parties shall come before God. He whom God condemns shall pay double to his neighbor. 
 "If a man delivers to his neighbor a donkey, an ox, a sheep, or any animal to keep, and it dies or is injured, or driven away, no man seeing it; 
-the oath of the LORD shall be between them both, he has not put his hand on his neighbor's goods; and its owner shall accept it, and he shall not make restitution. 
+the oath of God shall be between them both, he has not put his hand on his neighbor's goods; and its owner shall accept it, and he shall not make restitution. 
 But if it is stolen from him, the one who stole shall make restitution to its owner. 
 If it is torn in pieces, let him bring it for evidence. He shall not make good that which was torn. 
 "If a man borrows anything of his neighbor's, and it is injured, or dies, its owner not being with it, he shall surely make restitution. 
@@ -17,7 +17,7 @@ If its owner is with it, he shall not make it good. If it is a leased thing, it 
 If her father utterly refuses to give her to him, he shall pay money according to the dowry of virgins. 
 "You shall not allow a sorceress to live. 
 "Whoever has sex with an animal shall surely be put to death. 
-"He who sacrifices to any god, except to the LORD only, shall be utterly destroyed. 
+"He who sacrifices to any god, except to God only, shall be utterly destroyed. 
 "You shall not wrong an alien or oppress him, for you were aliens in the land of Egypt. 
 "You shall not take advantage of any widow or fatherless child. 
 If you take advantage of them at all, and they cry at all to me, I will surely hear their cry; 

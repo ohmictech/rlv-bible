@@ -1,10 +1,10 @@
-﻿Again, on the day when God's sons came to present themselves before the LORD, Satan came also among them to present himself before the LORD. 
-The LORD said to Satan, "Where have you come from?" Satan answered the LORD, and said, "From going back and forth on the earth, and from walking up and down in it." 
-The LORD said to Satan, "Have you considered my servant Job? For there is no one like him on the earth, a blameless and an upright man, one who fears God, and turns away from evil. He still maintains his integrity, although you incited me against him, to ruin him without cause." 
-Satan answered the LORD, and said, "Skin for skin. Yes, all that a man has he will give for his life. 
+﻿Again, on the day when God's sons came to present themselves before God, Satan came also among them to present himself before God. 
+God said to Satan, "Where have you come from?" Satan answered God, and said, "From going back and forth on the earth, and from walking up and down in it." 
+God said to Satan, "Have you considered my servant Job? For there is no one like him on the earth, a blameless and an upright man, one who fears God, and turns away from evil. He still maintains his integrity, although you incited me against him, to ruin him without cause." 
+Satan answered God, and said, "Skin for skin. Yes, all that a man has he will give for his life. 
 But stretch out your hand now, and touch his bone and his flesh, and he will renounce you to your face." 
-The LORD said to Satan, "Behold, he is in your hand. Only spare his life." 
-So Satan went out from the presence of the LORD, and struck Job with painful sores from the sole of his foot to his head. 
+God said to Satan, "Behold, he is in your hand. Only spare his life." 
+So Satan went out from the presence of God, and struck Job with painful sores from the sole of his foot to his head. 
 He took for himself a potsherd to scrape himself with, and he sat among the ashes. 
 Then his wife said to him, "Do you still maintain your integrity? Renounce God, and die." 
 But he said to her, "You speak as one of the foolish women would speak. What? Shall we receive good at the hand of God, and shall we not receive evil?" In all this Job didn't sin with his lips. 

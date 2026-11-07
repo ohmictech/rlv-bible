@@ -1,4 +1,4 @@
-﻿A revelation. The LORD's word is against the land of Hadrach, and will rest upon Damascus, for the eye of man and of all the tribes of Israel is toward the LORD 
+﻿A revelation. God's word is against the land of Hadrach, and will rest upon Damascus, for the eye of man and of all the tribes of Israel is toward God 
 and Hamath, also, which borders on it, Tyre and Sidon, because they are very wise. 
 Tyre built herself a stronghold, and heaped up silver like the dust, and fine gold like the mire of the streets. 
 Behold, the Lord will dispossess her, and he will strike her power in the sea; and she will be devoured with fire. 
@@ -11,7 +11,7 @@ I will cut off the chariot from Ephraim and the horse from Jerusalem. The battle
 As for you also, because of the blood of your covenant, I have set free your prisoners from the pit in which is no water. 
 Turn to the stronghold, you prisoners of hope! Even today I declare that I will restore double to you. 
 For indeed I bend Judah as a bow for me. I have loaded the bow with Ephraim. I will stir up your sons, Zion, against your sons, Greece, and will make you like the sword of a mighty man. 
-The LORD will be seen over them. His arrow will flash like lightning. The Lord GOD will blow the trumpet, and will go with whirlwinds of the south. 
-The LORD of Armies will defend them. They will destroy and overcome with sling stones. They will drink, and roar as through wine. They will be filled like bowls, like the corners of the altar. 
-The LORD their God will save them in that day as the flock of his people; for they are like the jewels of a crown, lifted on high over his land. 
+God will be seen over them. His arrow will flash like lightning. The God will blow the trumpet, and will go with whirlwinds of the south. 
+The God of Armies will defend them. They will destroy and overcome with sling stones. They will drink, and roar as through wine. They will be filled like bowls, like the corners of the altar. 
+Their God will save them in that day as the flock of his people; for they are like the jewels of a crown, lifted on high over his land. 
 For how great is his goodness, and how great is his beauty! Grain will make the young men flourish, and new wine the virgins. 

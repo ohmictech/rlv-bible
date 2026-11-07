@@ -12,12 +12,12 @@ Destructive forces are within her. Threats and lies don't depart from her street
 For it was not an enemy who insulted me, then I could have endured it. Neither was it he who hated me who raised himself up against me, then I would have hidden myself from him. 
 But it was you, a man like me, my companion, and my familiar friend. 
 We took sweet fellowship together. We walked in God's house with company. 
-Let death come suddenly on them. Let them go down alive into Sheol. For wickedness is among them, in their dwelling. 
-As for me, I will call on God. The LORD will save me. 
+Let death come suddenly on them. Let them go down alive into Hades. For wickedness is among them, in their dwelling. 
+As for me, I will call on God. God will save me. 
 Evening, morning, and at noon, I will cry out in distress. He will hear my voice. 
 He has redeemed my soul in peace from the battle that was against me, although there are many who oppose me. 
-God, who is enthroned forever, will hear and answer them. Selah. They never change and don't fear God. 
+God, who is enthroned for the eras, will hear and answer them. Selah. They never change and don't fear God. 
 He raises his hands against his friends. He has violated his covenant. 
 His mouth was smooth as butter, but his heart was war. His words were softer than oil, yet they were drawn swords. 
-Cast your burden on the LORD and he will sustain you. He will never allow the righteous to be moved. 
+Cast your burden on God and he will sustain you. He will never allow the righteous to be moved. 
 But you, God, will bring them down into the pit of destruction. Bloodthirsty and deceitful men shall not live out half their days, but I will trust in you. 

@@ -1,4 +1,4 @@
-﻿Behold, the LORD's hand is not shortened, that it can't save; nor his ear dull, that it can't hear. 
+﻿Behold, God's hand is not shortened, that it can't save; nor his ear dull, that it can't hear. 
 But your iniquities have separated you and your God, and your sins have hidden his face from you, so that he will not hear. 
 For your hands are defiled with blood, and your fingers with iniquity. Your lips have spoken lies. Your tongue mutters wickedness. 
 No one sues in righteousness, and no one pleads in truth. They trust in vanity and speak lies. They conceive mischief and give birth to iniquity. 
@@ -10,12 +10,12 @@ Therefore justice is far from us, and righteousness doesn't overtake us. We look
 We grope for the wall like the blind. Yes, we grope as those who have no eyes. We stumble at noon as if it were twilight. Among those who are strong, we are like dead men. 
 We all roar like bears and moan sadly like doves. We look for justice, but there is none, for salvation, but it is far off from us. 
 For our transgressions are multiplied before you, and our sins testify against us; for our transgressions are with us, and as for our iniquities, we know them: 
-transgressing and denying the LORD, and turning away from following our God, speaking oppression and revolt, conceiving and uttering from the heart words of falsehood. 
+transgressing and denying God, and turning away from following our God, speaking oppression and revolt, conceiving and uttering from the heart words of falsehood. 
 Justice is turned away backward, and righteousness stands far away; for truth has fallen in the street, and uprightness can't enter. 
-Yes, truth is lacking; and he who departs from evil makes himself a prey. The LORD saw it, and it displeased him that there was no justice. 
+Yes, truth is lacking; and he who departs from evil makes himself a prey. God saw it, and it displeased him that there was no justice. 
 He saw that there was no man, and wondered that there was no intercessor. Therefore his own arm brought salvation to him; and his righteousness sustained him. 
 He put on righteousness as a breastplate, and a helmet of salvation on his head. He put on garments of vengeance for clothing, and was clad with zeal as a mantle. 
 According to their deeds, he will repay as appropriate: wrath to his adversaries, recompense to his enemies. He will repay the islands their due. 
-So they will fear the LORD's name from the west, and his glory from the rising of the sun; for he will come as a rushing stream, which the LORD's breath drives. 
-"A Redeemer will come to Zion, and to those who turn from disobedience in Jacob," says the LORD. 
-"As for me, this is my covenant with them," says the LORD. "My Spirit who is on you, and my words which I have put in your mouth shall not depart out of your mouth, nor out of the mouth of your offspring, nor out of the mouth of your offspring's offspring," says the LORD, "from now on and forever." 
+So they will fear God's name from the west, and his glory from the rising of the sun; for he will come as a rushing stream, which God's breath drives. 
+"A Redeemer will come to Zion, and to those who turn from disobedience in Jacob," says God. 
+"As for me, this is my covenant with them," says God. "My Spirit who is on you, and my words which I have put in your mouth shall not depart out of your mouth, nor out of the mouth of your offspring, nor out of the mouth of your offspring's offspring," says God, "from now on and for the eras." 

@@ -1,14 +1,14 @@
-﻿Now Jethro, the priest of Midian, Moses' father-in-law, heard of all that God had done for Moses and for Israel his people, how the LORD had brought Israel out of Egypt. 
+﻿Now Jethro, the priest of Midian, Moses' father-in-law, heard of all that God had done for Moses and for Israel his people, how God had brought Israel out of Egypt. 
 Jethro, Moses' father-in-law, received Zipporah, Moses' wife, after he had sent her away, 
 and her two sons. The name of one son was Gershom, for Moses said, "I have lived as a foreigner in a foreign land". 
 The name of the other was Eliezer, for he said, "My father's God was my help and delivered me from Pharaoh's sword." 
 Jethro, Moses' father-in-law, came with Moses' sons and his wife to Moses into the wilderness where he was encamped, at the Mountain of God. 
 He said to Moses, "I, your father-in-law Jethro, have come to you with your wife, and her two sons with her." 
 Moses went out to meet his father-in-law, and bowed and kissed him. They asked each other of their welfare, and they came into the tent. 
-Moses told his father-in-law all that the LORD had done to Pharaoh and to the Egyptians for Israel's sake, all the hardships that had come on them on the way, and how the LORD delivered them. 
-Jethro rejoiced for all the goodness which the LORD had done to Israel, in that he had delivered them out of the hand of the Egyptians. 
-Jethro said, "Blessed be the LORD, who has delivered you out of the hand of the Egyptians, and out of the hand of Pharaoh; who has delivered the people from under the hand of the Egyptians. 
-Now I know that the LORD is greater than all gods because of the way that they treated people arrogantly." 
+Moses told his father-in-law all that God had done to Pharaoh and to the Egyptians for Israel's sake, all the hardships that had come on them on the way, and how God delivered them. 
+Jethro rejoiced for all the goodness which God had done to Israel, in that he had delivered them out of the hand of the Egyptians. 
+Jethro said, "Blessed be God, who has delivered you out of the hand of the Egyptians, and out of the hand of Pharaoh; who has delivered the people from under the hand of the Egyptians. 
+Now I know that God is greater than all gods because of the way that they treated people arrogantly." 
 Jethro, Moses' father-in-law, took a burnt offering and sacrifices for God. Aaron came with all the elders of Israel, to eat bread with Moses' father-in-law before God. 
 On the next day, Moses sat to judge the people, and the people stood around Moses from the morning to the evening. 
 When Moses' father-in-law saw all that he did to the people, he said, "What is this thing that you do for the people? Why do you sit alone, and all the people stand around you from morning to evening?" 

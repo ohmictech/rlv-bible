@@ -1,7 +1,7 @@
 ﻿I must boast, though it does no good. I will come to visions and unveilings from the Lord. 
 I know a man in Christ who was caught up to the third sky fourteen years ago, whether in the body, I don't know, or out of the body, I don't know; God knows. 
 I know such a man (whether in the body, or outside of the body, I don't know; God knows), 
-how he was caught up into the garden park and heard words that can't be put into speech, which no one is allowed to say. 
+how he was caught up into paradise and heard words that can't be put into speech, which no one is allowed to say. 
 On behalf of such a person I will take pride, but on my own behalf I will not take pride, except in my weaknesses. 
 For if I wanted to take pride, I would not be foolish, because I would be speaking the truth. But I refrain, so that no man may think more of me than that which he sees in me or hears from me. 
 Because of the greatness of the unveilings, so that I wouldn't be lifted up too high, a thorn was given me in the flesh: a messenger of the Adversary to test me, so that I wouldn't be lifted up too high. 

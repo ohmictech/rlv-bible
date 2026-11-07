@@ -1,4 +1,4 @@
-﻿Then the LORD answered Job out of the whirlwind, 
+﻿Then God answered Job out of the whirlwind, 
 "Who is this who darkens counsel by words without knowledge? 
 Brace yourself like a man, for I will question you, then you answer me! 
 "Where were you when I laid the foundations of the earth? Declare, if you have understanding. 

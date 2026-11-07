@@ -10,7 +10,7 @@ The border extended from the top of the mountain to the spring of the waters of 
 and the border turned about from Baalah westward to Mount Seir, and passed along to the side of Mount Jearim (also called Chesalon) on the north, and went down to Beth Shemesh, and passed along by Timnah; 
 and the border went out to the side of Ekron northward; and the border extended to Shikkeron, and passed along to Mount Baalah, and went out at Jabneel; and the goings out of the border were at the sea. 
 The west border was to the shore of the great sea. This is the border of the children of Judah according to their families. 
-He gave to Caleb the son of Jephunneh a portion among the children of Judah, according to the commandment of the LORD to Joshua, even Kiriath Arba, named after the father of Anak (also called Hebron). 
+He gave to Caleb the son of Jephunneh a portion among the children of Judah, according to the commandment of God to Joshua, even Kiriath Arba, named after the father of Anak (also called Hebron). 
 Caleb drove out the three sons of Anak: Sheshai, and Ahiman, and Talmai, the children of Anak. 
 He went up against the inhabitants of Debir: now the name of Debir before was Kiriath Sepher. 
 Caleb said, "He who strikes Kiriath Sepher, and takes it, to him I will give Achsah my daughter as wife." 

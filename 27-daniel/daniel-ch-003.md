@@ -6,7 +6,7 @@ that whenever you hear the sound of the horn, flute, zither, lyre, harp, pipe, a
 Whoever doesn't fall down and worship shall be cast into the middle of a burning fiery furnace the same hour." 
 Therefore at that time, when all the peoples heard the sound of the horn, flute, zither, lyre, harp, pipe, and all kinds of music, all the peoples, the nations, and the languages fell down and worshiped the golden image that Nebuchadnezzar the king had set up. 
 Therefore at that time certain Chaldeans came near and brought accusation against the Jews. 
-They answered Nebuchadnezzar the king, "O king, live for ever! 
+They answered Nebuchadnezzar the king, "O king, live for the eras! 
 You, O king, have made a decree that every man who hears the sound of the horn, flute, zither, lyre, harp, pipe, and all kinds of music shall fall down and worship the golden image; 
 and whoever doesn't fall down and worship shall be cast into the middle of a burning fiery furnace. 
 There are certain Jews whom you have appointed over the affairs of the province of Babylon: Shadrach, Meshach, and Abednego. These men, O king, have not respected you. They don't serve your gods, and don't worship the golden image which you have set up." 

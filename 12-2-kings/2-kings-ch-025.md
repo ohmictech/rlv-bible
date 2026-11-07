@@ -6,14 +6,14 @@ But the Chaldean army pursued the king, and overtook him in the plains of Jerich
 Then they captured the king and carried him up to the king of Babylon to Riblah; and they passed judgment on him. 
 They killed Zedekiah's sons before his eyes, then put out Zedekiah's eyes, bound him in fetters, and carried him to Babylon. 
 Now in the fifth month, on the seventh day of the month, which was the nineteenth year of King Nebuchadnezzar king of Babylon, Nebuzaradan the captain of the guard, a servant of the king of Babylon, came to Jerusalem. 
-He burned the LORD's house, the king's house, and all the houses of Jerusalem. He burned every great house with fire. 
+He burned God's house, the king's house, and all the houses of Jerusalem. He burned every great house with fire. 
 All the army of the Chaldeans, who were with the captain of the guard, broke down the walls around Jerusalem. 
 Nebuzaradan the captain of the guard carried away captive the rest of the people who were left in the city and those who had deserted to the king of Babylon, all the rest of the multitude. 
 But the captain of the guard left some of the poorest of the land to work the vineyards and fields. 
-The Chaldeans broke up the pillars of bronze that were in the LORD's house and the bases and the bronze sea that were in the LORD's house, and carried the bronze pieces to Babylon. 
+The Chaldeans broke up the pillars of bronze that were in God's house and the bases and the bronze sea that were in God's house, and carried the bronze pieces to Babylon. 
 They took away the pots, the shovels, the snuffers, the spoons, and all the vessels of bronze with which they ministered. 
 The captain of the guard took away the fire pans, the basins, that which was of gold, for gold, and that which was of silver, for silver. 
-The two pillars, the one sea, and the bases, which Solomon had made for the LORD's house, the bronze of all these vessels was not weighed. 
+The two pillars, the one sea, and the bases, which Solomon had made for God's house, the bronze of all these vessels was not weighed. 
 The height of the one pillar was eighteen cubits, and a capital of bronze was on it. The height of the capital was three cubits, with network and pomegranates on the capital around it, all of bronze; and the second pillar with its network was like these. 
 The captain of the guard took Seraiah the chief priest, Zephaniah the second priest, and the three keepers of the threshold; 
 and out of the city he took an officer who was set over the men of war; and five men of those who saw the king's face, who were found in the city; and the scribe, the captain of the army, who mustered the people of the land, and sixty men of the people of the land who were found in the city. 

@@ -10,14 +10,14 @@ Therefore I will take back my grain in its time, and my new wine in its season, 
 Now I will uncover her lewdness in the sight of her lovers, and no one will deliver her out of my hand. 
 I will also cause all her celebrations to cease: her feasts, her new moons, her Sabbaths, and all her solemn assemblies. 
 I will lay waste her vines and her fig trees, about which she has said, 'These are my wages that my lovers have given me,' and I will make them a forest, and the animals of the field shall eat them. 
-I will visit on her the days of the Baals, to which she burned incense when she decked herself with her earrings and her jewels, and went after her lovers and forgot me," says the LORD. 
+I will visit on her the days of the Baals, to which she burned incense when she decked herself with her earrings and her jewels, and went after her lovers and forgot me," says God. 
 "Therefore behold, I will allure her, and bring her into the wilderness, and speak tenderly to her. 
 I will give her vineyards from there, and the valley of Achor for a door of hope; and she will respond there as in the days of her youth, and as in the day when she came up out of the land of Egypt. 
-It will be in that day," says the LORD, "that you will call me 'my husband,' and no longer call me 'my master.' 
+It will be in that day," says God, "that you will call me 'my husband,' and no longer call me 'my master.' 
 For I will take away the names of the Baals out of her mouth, and they will no longer be mentioned by name. 
 In that day I will make a covenant for them with the animals of the field, and with the birds of the sky, and with the creeping things of the ground. I will break the bow, the sword, and the battle out of the land, and will make them lie down safely. 
-I will betroth you to me forever. Yes, I will betroth you to me in righteousness, in justice, in loving kindness, and in compassion. 
-I will even betroth you to me in faithfulness; and you shall know the LORD. 
-It will happen in that day, that I will respond," says the LORD. "I will respond to the heavens, and they will respond to the earth; 
+I will betroth you to me for the eras. Yes, I will betroth you to me in righteousness, in justice, in loving kindness, and in compassion. 
+I will even betroth you to me in faithfulness; and you shall know God. 
+It will happen in that day, that I will respond," says God. "I will respond to the heavens, and they will respond to the earth; 
 and the earth will respond to the grain, and the new wine, and the oil; and they will respond to Jezreel. 
 I will sow her to me in the earth; and I will have mercy on her who had not obtained mercy; and I will tell those who were not my people, 'You are my people;' and they will say, 'You are My God!'" 

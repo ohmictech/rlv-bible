@@ -5,8 +5,8 @@ For from of old men have not heard, nor perceived by the ear, nor has the eye se
 You meet him who rejoices and does righteousness, those who remember you in your ways. Behold, you were angry, and we sinned. We have been in sin for a long time. Shall we be saved? 
 For we have all become like one who is unclean, and all our righteousness is like a polluted garment. We all fade like a leaf; and our iniquities, like the wind, take us away. 
 There is no one who calls on your name, who stirs himself up to take hold of you; for you have hidden your face from us, and have consumed us by means of our iniquities. 
-But now, LORD, you are our Father. We are the clay and you our potter. We all are the work of your hand. 
-Don't be furious, LORD. Don't remember iniquity forever. Look and see, we beg you, we are all your people. 
+But now, God, you are our Father. We are the clay and you our potter. We all are the work of your hand. 
+Don't be furious, God. Don't remember iniquity for the eras. Look and see, we beg you, we are all your people. 
 Your holy cities have become a wilderness. Zion has become a wilderness, Jerusalem a desolation. 
 Our holy and our beautiful house where our fathers praised you is burned with fire. All our pleasant places are laid waste. 
-Will you hold yourself back for these things, LORD? Will you keep silent and punish us very severely? 
+Will you hold yourself back for these things, God? Will you keep silent and punish us very severely? 

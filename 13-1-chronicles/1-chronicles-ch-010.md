@@ -10,5 +10,5 @@ They stripped him and took his head and his armor, then sent into the land of th
 They put his armor in the house of their gods, and fastened his head in the house of Dagon. 
 When all Jabesh Gilead heard all that the Philistines had done to Saul, 
 all the valiant men arose and took away the body of Saul and the bodies of his sons, and brought them to Jabesh, and buried their bones under the oak in Jabesh, and fasted seven days. 
-So Saul died for his trespass which he committed against the LORD, because of the LORD's word, which he didn't keep, and also because he asked counsel of one who had a familiar spirit, to inquire, 
-and didn't inquire of the LORD. Therefore he killed him, and turned the kingdom over to David the son of Jesse. 
+So Saul died for his trespass which he committed against God, because of God's word, which he didn't keep, and also because he asked counsel of one who had a familiar spirit, to inquire, 
+and didn't inquire of God. Therefore he killed him, and turned the kingdom over to David the son of Jesse. 

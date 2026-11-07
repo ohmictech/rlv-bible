@@ -4,7 +4,7 @@ Tell God, "How awesome are your deeds! Through the greatness of your power, your
 All the earth will worship you, and will sing to you; they will sing to your name." Selah. 
 Come, and see God's deeds, awesome work on behalf of the children of men. 
 He turned the sea into dry land. They went through the river on foot. There, we rejoiced in him. 
-He rules by his might forever. His eyes watch the nations. Don't let the rebellious rise up against him. Selah. 
+He rules by his might for the eras. His eyes watch the nations. Don't let the rebellious rise up against him. Selah. 
 Praise our God, you peoples! Make the sound of his praise heard, 
 who preserves our life among the living, and doesn't allow our feet to be moved. 
 For you, God, have tested us. You have refined us, as silver is refined. 

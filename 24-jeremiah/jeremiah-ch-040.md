@@ -1,6 +1,6 @@
-﻿The word which came to Jeremiah from the LORD, after Nebuzaradan the captain of the guard had let him go from Ramah, when he had taken him being bound in chains among all the captives of Jerusalem and Judah who were carried away captive to Babylon. 
-The captain of the guard took Jeremiah and said to him, "The LORD your God pronounced this evil on this place; 
-and the LORD has brought it, and done according as he spoke. Because you have sinned against the LORD, and have not obeyed his voice, therefore this thing has come on you. 
+﻿The word which came to Jeremiah from God, after Nebuzaradan the captain of the guard had let him go from Ramah, when he had taken him being bound in chains among all the captives of Jerusalem and Judah who were carried away captive to Babylon. 
+The captain of the guard took Jeremiah and said to him, "Your God pronounced this evil on this place; 
+and God has brought it, and done according as he spoke. Because you have sinned against God, and have not obeyed his voice, therefore this thing has come on you. 
 Now, behold, I release you today from the chains which are on your hand. If it seems good to you to come with me into Babylon, come, and I will take care of you; but if it seems bad to you to come with me into Babylon, don't. Behold, all the land is before you. Where it seems good and right to you to go, go there." 
 Now while he had not yet gone back, "Go back then," he said, "to Gedaliah the son of Ahikam, the son of Shaphan, whom the king of Babylon has made governor over the cities of Judah, and dwell with him among the people; or go wherever it seems right to you to go." So the captain of the guard gave him food and a present, and let him go. 
 Then Jeremiah went to Gedaliah the son of Ahikam to Mizpah, and lived with him among the people who were left in the land. 

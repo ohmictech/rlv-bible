@@ -8,5 +8,5 @@ You, even you, are to be feared. Who can stand in your sight when you are angry?
 You pronounced judgment from heaven. The earth feared, and was silent, 
 when God arose to judgment, to save all the afflicted ones of the earth. Selah. 
 Surely the wrath of man praises you. The survivors of your wrath are restrained. 
-Make vows to the LORD your God, and fulfill them! Let all of his neighbors bring presents to him who is to be feared. 
+Make vows to your God, and fulfill them! Let all of his neighbors bring presents to him who is to be feared. 
 He will cut off the spirit of princes. He is feared by the kings of the earth. 

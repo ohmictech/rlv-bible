@@ -17,7 +17,7 @@ When she pressed him daily with her words and urged him, his soul was troubled t
 He told her all his heart and said to her, "No razor has ever come on my head; for I have been a Nazirite to God from my mother's womb. If I am shaved, then my strength will go from me and I will become weak, and be like any other man." 
 When Delilah saw that he had told her all his heart, she sent and called for the lords of the Philistines, saying, "Come up this once, for he has told me all his heart." Then the lords of the Philistines came up to her and brought the money in their hand. 
 She made him sleep on her knees; and she called for a man and shaved off the seven locks of his head; and she began to afflict him, and his strength went from him. 
-She said, "The Philistines are upon you, Samson!" He awoke out of his sleep, and said, "I will go out as at other times, and shake myself free." But he didn't know that the LORD had departed from him. 
+She said, "The Philistines are upon you, Samson!" He awoke out of his sleep, and said, "I will go out as at other times, and shake myself free." But he didn't know that God had departed from him. 
 The Philistines laid hold on him and put out his eyes; and they brought him down to Gaza and bound him with fetters of bronze; and he ground at the mill in the prison. 
 However, the hair of his head began to grow again after he was shaved. 
 The lords of the Philistines gathered together to offer a great sacrifice to Dagon their god, and to rejoice; for they said, "Our god has delivered Samson our enemy into our hand." 
@@ -25,7 +25,7 @@ When the people saw him, they praised their god; for they said, "Our god has del
 When their hearts were merry, they said, "Call for Samson, that he may entertain us." They called for Samson out of the prison; and he performed before them. They set him between the pillars; 
 and Samson said to the boy who held him by the hand, "Allow me to feel the pillars on which the house rests, that I may lean on them." 
 Now the house was full of men and women; and all the lords of the Philistines were there; and there were on the roof about three thousand men and women, who saw while Samson performed. 
-Samson called to the LORD, and said, "Lord GOD, remember me, please, and strengthen me, please, only this once, God, that I may be at once avenged of the Philistines for my two eyes." 
+Samson called to God, and said, "God, remember me, please, and strengthen me, please, only this once, God, that I may be at once avenged of the Philistines for my two eyes." 
 Samson took hold of the two middle pillars on which the house rested and leaned on them, the one with his right hand and the other with his left. 
 Samson said, "Let me die with the Philistines!" He bowed himself with all his might; and the house fell on the lords, and on all the people who were in it. So the dead that he killed at his death were more than those who he killed in his life. 
 Then his brothers and all the house of his father came down and took him, and brought him up and buried him between Zorah and Eshtaol in the burial site of Manoah his father. He judged Israel twenty years. 

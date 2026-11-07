@@ -2,7 +2,7 @@
 The noise of the whip, the noise of the rattling of wheels, prancing horses, and bounding chariots, 
 the horseman charging, and the flashing sword, the glittering spear, and a multitude of slain, and a great heap of corpses, and there is no end of the bodies. They stumble on their bodies 
 because of the multitude of the prostitution of the alluring prostitute, the mistress of witchcraft, who sells nations through her prostitution, and families through her witchcraft. 
-"Behold, I am against you," says the LORD of Armies, "and I will lift your skirts over your face. I will show the nations your nakedness, and the kingdoms your shame. 
+"Behold, I am against you," says the God of Armies, "and I will lift your skirts over your face. I will show the nations your nakedness, and the kingdoms your shame. 
 I will throw abominable filth on you and make you vile, and will make you a spectacle. 
 It will happen that all those who look at you will flee from you, and say, 'Nineveh is laid waste! Who will mourn for her?' Where will I seek comforters for you?" 
 Are you better than No-Amon, who was situated among the rivers, who had the waters around her, whose rampart was the sea, and her wall was of the sea? 

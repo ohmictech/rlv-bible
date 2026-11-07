@@ -9,7 +9,7 @@ The children of Ammon came out, and put the battle in array at the entrance of t
 Now when Joab saw that the battle was set against him before and behind, he chose of all the choice men of Israel and put them in array against the Syrians. 
 The rest of the people he committed into the hand of Abishai his brother; and he put them in array against the children of Ammon. 
 He said, "If the Syrians are too strong for me, then you shall help me; but if the children of Ammon are too strong for you, then I will come and help you. 
-Be courageous, and let's be strong for our people and for the cities of our God; and may the LORD do what seems good to him." 
+Be courageous, and let's be strong for our people and for the cities of our God; and may God do what seems good to him." 
 So Joab and the people who were with him came near to the battle against the Syrians, and they fled before him. 
 When the children of Ammon saw that the Syrians had fled, they likewise fled before Abishai, and entered into the city. Then Joab returned from the children of Ammon and came to Jerusalem. 
 When the Syrians saw that they were defeated by Israel, they gathered themselves together. 

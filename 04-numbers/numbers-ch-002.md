@@ -1,4 +1,4 @@
-﻿The LORD spoke to Moses and to Aaron, saying, 
+﻿God spoke to Moses and to Aaron, saying, 
 "The children of Israel shall encamp every man by his own standard, with the banners of their fathers' houses. They shall encamp around the Tent of Meeting at a distance from it. 
 "Those who encamp on the east side toward the sunrise shall be of the standard of the camp of Judah, according to their divisions. The prince of the children of Judah shall be Nahshon the son of Amminadab. 
 His division, and those who were counted of them, were seventy-four thousand six hundred. 
@@ -30,5 +30,5 @@ His division, and those who were counted of them, were forty-one thousand five h
 His division, and those who were counted of them, were fifty-three thousand four hundred. 
 "All who were counted of the camp of Dan were one hundred fifty-seven thousand six hundred. They shall set out last by their standards." 
 These are those who were counted of the children of Israel by their fathers' houses. All who were counted of the camps according to their armies were six hundred three thousand five hundred fifty. 
-But the Levites were not counted among the children of Israel, as the LORD commanded Moses. 
-Thus the children of Israel did. According to all that the LORD commanded Moses, so they encamped by their standards, and so they set out, everyone by their families, according to their fathers' houses. 
+But the Levites were not counted among the children of Israel, as God commanded Moses. 
+Thus the children of Israel did. According to all that God commanded Moses, so they encamped by their standards, and so they set out, everyone by their families, according to their fathers' houses. 

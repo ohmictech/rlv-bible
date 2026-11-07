@@ -1,6 +1,6 @@
-﻿The king's heart is in the LORD's hand like the watercourses. He turns it wherever he desires. 
-Every way of a man is right in his own eyes, but the LORD weighs the hearts. 
-To do righteousness and justice is more acceptable to the LORD than sacrifice. 
+﻿The king's heart is in God's hand like the watercourses. He turns it wherever he desires. 
+Every way of a man is right in his own eyes, but God weighs the hearts. 
+To do righteousness and justice is more acceptable to God than sacrifice. 
 A high look and a proud heart, the lamp of the wicked, is sin. 
 The plans of the diligent surely lead to profit; and everyone who is hasty surely rushes to poverty. 
 Getting treasures by a lying tongue is a fleeting vapor for those who seek death. 
@@ -27,5 +27,5 @@ There are those who covet greedily all day long; but the righteous give and don'
 The sacrifice of the wicked is an abomination, how much more, when he brings it with a wicked mind! 
 A false witness will perish. A man who listens speaks to eternity. 
 A wicked man hardens his face; but as for the upright, he establishes his ways. 
-There is no wisdom nor understanding nor counsel against the LORD. 
-The horse is prepared for the day of battle; but victory is with the LORD. 
+There is no wisdom nor understanding nor counsel against God. 
+The horse is prepared for the day of battle; but victory is with God. 

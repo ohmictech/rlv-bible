@@ -5,21 +5,21 @@ You shall make two golden rings for it under its molding; on its two ribs, on it
 You shall make the poles of acacia wood, and overlay them with gold. 
 You shall put it before the veil that is by the ark of the covenant, before the mercy seat that is over the covenant, where I will meet with you. 
 Aaron shall burn incense of sweet spices on it every morning. When he tends the lamps, he shall burn it. 
-When Aaron lights the lamps at evening, he shall burn it, a perpetual incense before the LORD throughout your generations. 
+When Aaron lights the lamps at evening, he shall burn it, a perpetual incense before God throughout your generations. 
 You shall offer no strange incense on it, nor burnt offering, nor meal offering; and you shall pour no drink offering on it. 
-Aaron shall make atonement on its horns once in the year; with the blood of the sin offering of atonement once in the year he shall make atonement for it throughout your generations. It is most holy to the LORD." 
-The LORD spoke to Moses, saying, 
-"When you take a census of the children of Israel, according to those who are counted among them, then each man shall give a ransom for his soul to the LORD when you count them, that there be no plague among them when you count them. 
-They shall give this, everyone who passes over to those who are counted, half a shekel according to the shekel of the sanctuary (the shekel is twenty gerahs); half a shekel for an offering to the LORD. 
-Everyone who passes over to those who are counted, from twenty years old and upward, shall give the offering to the LORD. 
-The rich shall not give more, and the poor shall not give less, than the half shekel, when they give the offering of the LORD, to make atonement for your souls. 
-You shall take the atonement money from the children of Israel, and shall appoint it for the service of the Tent of Meeting; that it may be a memorial for the children of Israel before the LORD, to make atonement for your souls." 
-The LORD spoke to Moses, saying, 
+Aaron shall make atonement on its horns once in the year; with the blood of the sin offering of atonement once in the year he shall make atonement for it throughout your generations. It is most holy to God." 
+God spoke to Moses, saying, 
+"When you take a census of the children of Israel, according to those who are counted among them, then each man shall give a ransom for his soul to God when you count them, that there be no plague among them when you count them. 
+They shall give this, everyone who passes over to those who are counted, half a shekel according to the shekel of the sanctuary (the shekel is twenty gerahs); half a shekel for an offering to God. 
+Everyone who passes over to those who are counted, from twenty years old and upward, shall give the offering to God. 
+The rich shall not give more, and the poor shall not give less, than the half shekel, when they give the offering of God, to make atonement for your souls. 
+You shall take the atonement money from the children of Israel, and shall appoint it for the service of the Tent of Meeting; that it may be a memorial for the children of Israel before God, to make atonement for your souls." 
+God spoke to Moses, saying, 
 "You shall also make a basin of bronze, and its base of bronze, in which to wash. You shall put it between the Tent of Meeting and the altar, and you shall put water in it. 
 Aaron and his sons shall wash their hands and their feet in it. 
-When they go into the Tent of Meeting, they shall wash with water, that they don't die; or when they come near to the altar to minister, to burn an offering made by fire to the LORD. 
-So they shall wash their hands and their feet, that they not die. This shall be a statute forever to them, even to him and to his descendants throughout their generations." 
-Moreover the LORD spoke to Moses, saying, 
+When they go into the Tent of Meeting, they shall wash with water, that they don't die; or when they come near to the altar to minister, to burn an offering made by fire to God. 
+So they shall wash their hands and their feet, that they not die. This shall be a statute for the eras to them, even to him and to his descendants throughout their generations." 
+Moreover God spoke to Moses, saying, 
 "Also take fine spices: of liquid myrrh, five hundred shekels; and of fragrant cinnamon half as much, even two hundred and fifty; and of fragrant cane, two hundred and fifty; 
 and of cassia five hundred, according to the shekel of the sanctuary; and a hin of olive oil. 
 You shall make it into a holy anointing oil, a perfume compounded after the art of the perfumer: it shall be a holy anointing oil. 
@@ -31,8 +31,8 @@ You shall anoint Aaron and his sons, and sanctify them, that they may minister t
 You shall speak to the children of Israel, saying, 'This shall be a holy anointing oil to me throughout your generations. 
 It shall not be poured on man's flesh, and do not make any like it, according to its composition. It is holy. It shall be holy to you. 
 Whoever compounds any like it, or whoever puts any of it on a stranger, he shall be cut off from his people.'" 
-The LORD said to Moses, "Take to yourself sweet spices, gum resin, onycha, and galbanum: sweet spices with pure frankincense. There shall be an equal weight of each. 
+God said to Moses, "Take to yourself sweet spices, gum resin, onycha, and galbanum: sweet spices with pure frankincense. There shall be an equal weight of each. 
 You shall make incense of it, a perfume after the art of the perfumer, seasoned with salt, pure and holy. 
 You shall beat some of it very small, and put some of it before the covenant in the Tent of Meeting, where I will meet with you. It shall be to you most holy. 
-You shall not make this incense, according to its composition, for yourselves: it shall be to you holy for the LORD. 
+You shall not make this incense, according to its composition, for yourselves: it shall be to you holy for God. 
 Whoever shall make any like that, to smell of it, he shall be cut off from his people." 

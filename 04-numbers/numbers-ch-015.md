@@ -27,7 +27,7 @@ All the congregation of the children of Israel shall be forgiven, as well as the
 "'If a a person drifts unwittingly, then he shall offer a female goat a year old for an offering for wrongdoing. 
 The priest shall make things right for the soul who errs when he drifts unwittingly before God. He shall make things right for him; and he shall be forgiven. 
 You shall have one law for him who does anything unwittingly, for him who is native-born among the children of Israel, and for the stranger who lives as a foreigner among them. 
-"'But the soul who does anything with a high hand, whether he is native-born or a foreigner, blasphemes God. That soul shall be cut off from among his people. 
+"'But the soul who does anything defiantly, whether he is native-born or a foreigner, blasphemes God. That soul shall be cut off from among his people. 
 Because he has despised God's word, and has broken his commandment, that soul shall be utterly cut off. His guilt shall be on him.'" 
 While the children of Israel were in the wilderness, they found a man gathering sticks on the Sabbath day. 
 Those who found him gathering sticks brought him to Moses and Aaron, and to all the congregation. 

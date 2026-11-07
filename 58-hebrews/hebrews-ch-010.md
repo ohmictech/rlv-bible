@@ -23,7 +23,7 @@ So let us come near with a sincere heart, in the full assurance that comes from 
 Let us hold tightly to the expectation we declare, without wavering, because the one who promised is trustworthy. 
 Let us think about how to stir one another up to love and good deeds, 
 not staying away from meeting together, as some have gotten into the habit of doing, but encouraging one another, and all the more as you see the Day coming closer. 
-For if we keep on drifting on purpose after we have received the knowledge of the truth, there is no longer any sacrifice for wrongdoing, 
+For if we keep on drifting, knowing what we are doing, after we have received the knowledge of the truth, there is no longer any sacrifice for wrongdoing, 
 only a terrifying expectation of the verdict, and a raging fire that will consume those who are against God. 
 Anyone who set aside Moses' law died without mercy on the word of two or three witnesses. 
 How much worse a penalty do you think that person deserves, who has trampled the Son of God underfoot, who has treated the blood of the arrangement as something ordinary even though it set them apart, and who has insulted the Spirit of favor? 

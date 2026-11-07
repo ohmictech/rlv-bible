@@ -1,6 +1,6 @@
 ﻿Then what advantage does the Jew have? Or what is the profit of circumcision? 
 Much in every way! Because first of all, they were entrusted with the revelations of God. 
-For what if some were without trust? Will their lack of trust nullify the faithfulness of God? 
+For what if some were without trust? Will their lack of trust make useless the faithfulness of God? 
 May it never be! Yes, let God be found true, but every man a liar. As it is written, "that you might be made right in your words, and might prevail when you come into the verdict." 
 But if our wrong commends the rightness of God, what will we say? Is God wrong who inflicts heat? I speak like men do. 
 May it never be! For then how will God judge the world? 

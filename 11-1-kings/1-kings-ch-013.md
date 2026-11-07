@@ -11,7 +11,7 @@ So he went another way, and didn't return by the way that he came to Bethel.
 Now an old spokesman lived in Bethel, and one of his sons came and told him all the works that the man of God had done that day in Bethel. They also told their father the words which he had spoken to the king. 
 Their father said to them, "Which way did he go?" Now his sons had seen which way the man of God went, who came from Judah. 
 He said to his sons, "Saddle the donkey for me." So they saddled the donkey for him; and he rode on it. 
-He went after the man of God, and found him sitting under an oak. He said to him, "Are you the man of God who came from Judah?" He said, "I'm." 
+He went after the man of God, and found him sitting under an oak. He said to him, "Are you the man of God who came from Judah?" He said, "I am." 
 Then he said to him, "Come home with me and eat bread." 
 He said, "I can't return with you, nor go in with you. I won't eat bread or drink water with you in this place. 
 It was said to me by God's word, 'You will eat no bread or drink water there, and don't turn again to go by the way that you came.'" 

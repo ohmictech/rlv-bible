@@ -1,6 +1,6 @@
 ﻿This is why I, Paul, am a prisoner of Christ Jesus on behalf of you nations, 
 if indeed you have heard of the household plan of God's gift that was given to me for you, 
-that's, how the secret was made known to me by an unveiling, just as I wrote before in a few words, 
+that is, how the secret was made known to me by an unveiling, just as I wrote before in a few words, 
 so that when you read it you can see how well I understand the secret of Christ. 
 In other generations it wasn't made known to people as it has now been unveiled by the Spirit to his set-apart sent ones and spokesmen, 
 that the nations are given the charge together with us, are parts of the same body, and share together in the promise in Christ Jesus through the Good News, 

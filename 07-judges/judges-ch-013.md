@@ -8,7 +8,7 @@ but he said to me, 'Look, you will conceive and bear a son; and now drink no win
 Then Manoah entreated God, and said, "Oh, Lord, please let the man of God whom you sent come again to us, and teach us what we should do to the child who will be born." 
 God listened to the voice of Manoah, and the messenger of God came again to the woman as she sat in the field; but Manoah, her husband, wasn't with her. 
 The woman hurried and ran, and told her husband, saying to him, "Look, the man who came to me that day has appeared to me." 
-Manoah arose and followed his wife, and came to the man, and said to him, "Are you the man who spoke to my wife?" He said, "I'm." 
+Manoah arose and followed his wife, and came to the man, and said to him, "Are you the man who spoke to my wife?" He said, "I am." 
 Manoah said, "Now let your words happen. What will the child's way of life and mission be?" 
 God's messenger said to Manoah, "Of all that I said to the woman let her beware. 
 She can't eat of anything that comes of the vine, neither let her drink wine or strong drink, nor eat any unclean thing. Let her observe all that I commanded her." 

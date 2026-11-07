@@ -59,7 +59,7 @@ Some stood up and gave false witness against him, saying,
 Even so, their witness didn't agree. 
 The high priest stood up in the middle and asked Jesus, "Have you no answer? What's this they're testifying against you?" 
 But he stayed quiet and answered nothing. Again the high priest asked him, "Are you the Christ, the Son of the One who's praised?" 
-Jesus said, "I'm. And you'll see the Human One sitting at the right hand of Power and coming with the clouds of the sky." 
+Jesus said, "I am. And you'll see the Human One sitting at the right hand of Power and coming with the clouds of the sky." 
 The high priest tore his clothes and said, "Why do we need any more witnesses? 
 You have heard the slander! What do you think?" And they all sentenced him as deserving death. 
 Some began to spit on him, to cover his face, and to beat him with their fists, saying to him, "Speak for God!" And the officers struck him with the palms of their hands. 

@@ -1,22 +1,22 @@
-﻿Isaac called Jacob, blessed him, and commanded him, "You won't take a wife of the daughters of Canaan. 
-Arise, go to Paddan Aram, to the house of Bethuel your mother's father. Take a wife from there from the daughters of Laban, your mother's brother. 
-May God Almighty bless you, and make you fruitful, and multiply you, that you can be a company of peoples, 
-and give you the blessing of Abraham, to you and to your offspring with you, that you can inherit the land where you travel, which God gave to Abraham." 
-Isaac sent Jacob away. He went to Paddan Aram to Laban, son of Bethuel the Syrian, the brother of Rebekah, Jacob's and Esau's mother. 
-Now Esau saw that Isaac had blessed Jacob and sent him away to Paddan Aram, to take him a wife from there, and that as he blessed him he gave him a command, saying, "You won't take a wife of the daughters of Canaan;" 
-and that Jacob obeyed his father and his mother, and was gone to Paddan Aram. 
-Esau saw that the daughters of Canaan didn't please Isaac, his father. 
-So Esau went to Ishmael, and took, in addition to the wives that he had, Mahalath the daughter of Ishmael, Abraham's son, the sister of Nebaioth, to be his wife. 
-Jacob went out from Beersheba, and went toward Haran. 
-He came to a certain place, and stayed there all night, because the sun had set. He took one of the stones of the place, and put it under his head, and lay down in that place to sleep. 
-He dreamed and saw a stairway set upon the earth, and its top reached to the sky. Look, the messengers of God were ascending and descending on it. 
-Look, God stood above it, and said, "I'm the God of Abraham your father, and the God of Isaac. I'll give the land you lie on to you and to your offspring. 
-Your offspring will be as the dust of the earth, and you'll spread abroad to the west, and to the east, and to the north, and to the south. In you and in your offspring, all the families of the earth will be blessed. 
-Look, I'm with you, and will keep you, wherever you go, and will bring you again into this land. I won't leave you until I have done that which I have spoken of to you." 
-Jacob awakened out of his sleep, and he said, "Surely God is in this place, and I didn't know it." 
-He was afraid, and said, "How awesome this place is! This is none other than God's house, and this is the gate of the sky." 
-Jacob rose up early in the morning, and took the stone that he had put under his head, and set it up for a pillar, and poured oil on its top. 
-He called the name of that place Bethel, but the name of the city was Luz at the first. 
-Jacob vowed a vow, saying, "If God will be with me, and will keep me in this way that I go, and will give me bread to eat, and clothing to put on, 
-so that I come again to my father's house in peace, and God will be my God, 
-then this stone, which I have set up for a pillar, will be God's house. Of all that you'll give me I'll surely give a tenth to you." 
+﻿So Isaac called for Jacob, blessed him, and told him, "Don't marry a Canaanite woman. 
+Get up and go to Paddan Aram, to the household of your mother's father Bethuel. Marry one of the daughters of your uncle Laban. 
+May God Almighty bless you, make you fruitful, and give you many descendants, until you become a whole assembly of peoples. 
+May he give you and your offspring the blessing he gave Abraham, so that you can take possession of the land where you're now living as a foreigner, the land God gave to Abraham." 
+Then Isaac sent Jacob on his way, and Jacob went to Paddan Aram, to Laban son of Bethuel the Aramean, the brother of Rebekah, who was the mother of Jacob and Esau. 
+Esau learned that Isaac had blessed Jacob and sent him to Paddan Aram to find a wife there, and that in blessing him he had told him, "Don't marry a Canaanite woman," 
+and that Jacob had obeyed his father and mother and gone to Paddan Aram. 
+Esau also saw that his father Isaac didn't like the Canaanite women. 
+So Esau went to Ishmael and married Mahalath, Ishmael's daughter and Nebaioth's sister, Abraham's granddaughter, in addition to the wives he already had. 
+Jacob left Beersheba and set out for Haran. 
+He came to a certain place and stopped for the night, because the sun had gone down. He took one of the stones there, put it under his head, and lay down to sleep. 
+He dreamed of a stairway standing on the earth with its top reaching into the sky, and the messengers of God were going up and down on it. 
+And God stood above it and said, "I'm the God of your father Abraham and the God of Isaac. I'll give you and your offspring the land you're lying on. 
+Your offspring will be like the dust of the earth, and you'll spread out to the west and east, to the north and south. All the families of the earth will be blessed through you and your offspring. 
+Look, I'm with you. I'll watch over you wherever you go, and I'll bring you back to this land. I won't leave you until I've done what I promised you." 
+Jacob woke up and said, "God is here in this place, and I didn't know it." 
+He was afraid and said, "How awe-inspiring this place is! This is nothing less than God's house, and this is the gateway to the sky." 
+Jacob got up early in the morning, took the stone he had used as a pillow, and stood it up as a pillar, pouring oil over the top of it. 
+He named that place Bethel, though the town had been called Luz before. 
+Then Jacob made a promise: "If God stays with me and watches over me on this journey, and gives me food to eat and clothes to wear, 
+so that I come back safely to my father's house, and if God is my God, 
+then this stone I've set up as a pillar will be God's house, and of everything you give me I'll give you a tenth." 

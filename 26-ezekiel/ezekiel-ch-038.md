@@ -16,7 +16,7 @@ You will come from your place out of the uttermost parts of the north, you, and 
 You will come up against my people Israel as a cloud to cover the land. It will happen in the latter days that I will bring you against my land, that the nations may know me when I am sanctified in you, Gog, before their eyes." 
 "'The God says: "Are you he of whom I spoke in old time by my servants the spokesmen of Israel, who prophesied in those days for years that I would bring you against them? 
 It will happen in that day, when Gog comes against the land of Israel," says God, "that my wrath will come up into my nostrils. 
-For in my jealousy and in the fire of my wrath I have spoken. Surely in that day there will be a great shaking in the land of Israel, 
+In my jealousy and in the fire of my wrath I have spoken. Surely in that day there will be a great shaking in the land of Israel, 
 so that the fish of the sea, the birds of the sky, the animals of the field, all creeping things who creep on the earth, and all the men who are on the surface of the earth will shake at my presence. Then the mountains will be thrown down, the steep places will fall, and every wall will fall to the ground. 
 I will call for a sword against him to all my mountains," says God. "Every man's sword will be against his brother. 
 I will enter into judgment with him with pestilence and with blood. I will rain on him, on his hordes, and on the many peoples who are with him, torrential rains with great hailstones, fire, and sulfur. 

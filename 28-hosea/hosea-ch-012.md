@@ -9,6 +9,6 @@ Ephraim said, "Surely I have become rich. I have found myself wealth. In all my 
 "But I am your God from the land of Egypt. I will yet again make you dwell in tents, as in the days of the solemn feast. 
 I have also spoken to the spokesmen, and I have multiplied visions; and by the ministry of the spokesmen I have used parables. 
 If Gilead is guilty, surely they are worthless. In Gilgal they sacrifice bulls. Indeed, their altars are like heaps in the furrows of the field. 
-Jacob fled into the country of Aram. Israel served to get a wife. For a wife he tended flocks and herds. 
+Jacob fled into the country of Aram. Israel served to get a wife. A wife he tended flocks and herds. 
 By a spokesman God brought Israel up out of Egypt, and by a spokesman he was preserved. 
 Ephraim has bitterly provoked anger. So his blood will be left on him, and his Lord will repay his contempt. 

@@ -1,7 +1,7 @@
 ﻿God says to his anointed, to Cyrus, whose right hand I have held to subdue nations before him and strip kings of their armor, to open the doors before him, and the gates shall not be shut: 
 "I will go before you and make the rough places smooth. I will break the doors of bronze in pieces and cut apart the bars of iron. 
 I will give you the treasures of darkness and hidden riches of secret places, that you may know that it is I, God, who calls you by your name, even the God of Israel. 
-For Jacob my servant's sake, and Israel my chosen, I have called you by your name. I have given you a title, though you have not known me. 
+Jacob my servant's sake, and Israel my chosen, I have called you by your name. I have given you a title, though you have not known me. 
 I am God, and there is no one else. Besides me, there is no God. I will strengthen you, though you have not known me, 
 that they may know from the rising of the sun, and from the west, that there is no one besides me. I am God, and there is no one else. 
 I form the light and create darkness. I make peace and create calamity. I am God, who does all these things. 
@@ -15,7 +15,7 @@ God says: "The labor of Egypt, and the merchandise of Ethiopia, and the Sabeans,
 Most certainly you are a God who has hidden yourself, God of Israel, the Savior.'" 
 They will be disappointed, yes, confounded, everyone. Those who are makers of idols will go into confusion together. 
 Israel will be saved by God with an perpetual salvation. You will not be disappointed nor confounded to ages perpetual. 
-For God who created the sky, the God who formed the earth and made it, who established it and didn't create it a waste, who formed it to be inhabited says: "I am God. There is no other. 
+God who created the sky, the God who formed the earth and made it, who established it and didn't create it a waste, who formed it to be inhabited says: "I am God. There is no other. 
 I have not spoken in secret, in a place of the land of darkness. I didn't say to the offspring of Jacob, 'Seek me in vain.' I, God, speak righteousness. I declare things that are right. 
 "Assemble yourselves and come. Draw near together, you who have escaped from the nations. Those have no knowledge who carry the wood of their engraved image, and pray to a god that can't save. 
 Declare and present it. Yes, let them take counsel together. Who has shown this from ancient time? Who has declared it of old? Haven't I, God? There is no other God besides me, a just God and a Savior. There is no one besides me. 

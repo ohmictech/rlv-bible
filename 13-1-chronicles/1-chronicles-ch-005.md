@@ -1,5 +1,5 @@
 ﻿The sons of Reuben the firstborn of Israel (for he was the firstborn, but because he defiled his father's couch, his birthright was given to the sons of Joseph the son of Israel; and the genealogy is not to be listed according to the birthright. 
-For Judah prevailed above his brothers, and from him came the prince; but the birthright was Joseph's) 
+Judah prevailed above his brothers, and from him came the prince; but the birthright was Joseph's) 
 the sons of Reuben the firstborn of Israel: Hanoch, Pallu, Hezron, and Carmi. 
 The sons of Joel: Shemaiah his son, Gog his son, Shimei his son, 
 Micah his son, Reaiah his son, Baal his son, 
@@ -19,7 +19,7 @@ The sons of Reuben, the Gadites, and the half-tribe of Manasseh, of valiant men,
 They made war with the Hagrites, with Jetur, and Naphish, and Nodab. 
 They were helped against them, and the Hagrites were delivered into their hand, and everyone who was with them; for they cried to God in the battle, and he answered them because they put their trust in him. 
 They took away their livestock: of their camels fifty thousand, and of sheep two hundred fifty thousand, and of donkeys two thousand, and of men one hundred thousand. 
-For many fell slain, because the war was of God. They lived in their place until the captivity. 
+Many fell slain, because the war was of God. They lived in their place until the captivity. 
 The children of the half-tribe of Manasseh lived in the land. They increased from Bashan to Baal Hermon, Senir, and Mount Hermon. 
 These were the heads of their fathers' houses: Epher, Ishi, Eliel, Azriel, Jeremiah, Hodaviah, and Jahdiel, mighty men of valor, famous men, heads of their fathers' houses. 
 They trespassed against the God of their fathers, and played the prostitute after the gods of the peoples of the land whom God destroyed before them. 

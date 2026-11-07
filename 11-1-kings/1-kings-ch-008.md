@@ -4,7 +4,7 @@ All the elders of Israel came, and the priests picked up the ark.
 They brought up God's ark, the Tent of Meeting, and all the holy vessels that were in the Tent. The priests and the Levites brought these up. 
 King Solomon and all the congregation of Israel, who were assembled to him, were with him before the ark, sacrificing sheep and cattle that could not be counted or numbered for multitude. 
 The priests brought in the ark of God's covenant to its place, into the inner sanctuary of the house, to the most holy place, even under the cherubim's wings. 
-For the cherubim spread their wings out over the place of the ark, and the cherubim covered the ark and its poles above. 
+The cherubim spread their wings out over the place of the ark, and the cherubim covered the ark and its poles above. 
 The poles were so long that the ends of the poles were seen from the holy place before the inner sanctuary, but they were not seen outside. They are there to this day. 
 There was nothing in the ark except the two stone tablets which Moses put there at Horeb, when God made a covenant with the children of Israel, when they came out of the land of Egypt. 
 It came to pass, when the priests had come out of the holy place, that the cloud filled God's house, 
@@ -50,7 +50,7 @@ then hear their prayer and their supplication in the sky, your dwelling place, a
 and forgive your people who have wronged you, and all their rebellion in which they have transgressed against you; and give them compassion before those who carried them captive, that they may have compassion on them 
 (for they are your people and your inheritance, which you brought out of Egypt, from the middle of the iron furnace); 
 that your eyes may be open to the supplication of your servant and to the supplication of your people Israel, to listen to them whenever they cry to you. 
-For you separated them from among everyones of the earth to be your inheritance, as you spoke by Moses your servant, when you brought our fathers out of Egypt, God." 
+You separated them from among everyones of the earth to be your inheritance, as you spoke by Moses your servant, when you brought our fathers out of Egypt, God." 
 It was so, that when Solomon had finished praying all this prayer and supplication to God, he arose from before God's altar, from kneeling on his knees with his hands spread out toward the sky. 
 He stood and blessed all the assembly of Israel with a loud voice, saying, 
 "Blessed be God, who has given rest to his people Israel, according to all that he promised. There has not failed one word of all his good promise, which he promised by Moses his servant. 

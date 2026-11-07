@@ -5,7 +5,7 @@ The priest answered David, and said, "I have no common bread, but there is holy 
 David answered the priest, and said to him, "Truly, women have been kept from us as usual these three days. When I came out, the vessels of the young men were holy, though it was only a common journey. How much more then today shall their vessels be holy?" 
 So the priest gave him holy bread; for there was no bread there but the show bread that was taken from before God, to be replaced with hot bread in the day when it was taken away. 
 Now a certain man of the servants of Saul was there that day, detained before God; and his name was Doeg the Edomite, the best of the herdsmen who belonged to Saul. 
-David said to Ahimelech, "Isn't there here under your hand spear or sword? For I haven't brought my sword or my weapons with me, because the king's business required haste." 
+David said to Ahimelech, "Isn't there here under your hand spear or sword? I haven't brought my sword or my weapons with me, because the king's business required haste." 
 The priest said, "Behold, the sword of Goliath the Philistine, whom you killed in the valley of Elah, is here wrapped in a cloth behind the ephod. If you would like to take that, take it, for there is no other except that here." David said, "There is none like that. Give it to me." 
 David arose and fled that day for fear of Saul, and went to Achish the king of Gath. 
 The servants of Achish said to him, "Isn't this David the king of the land? Didn't they driftg to one another about him in dances, saying, 'Saul has slain his thousands, and David his ten thousands'?" 

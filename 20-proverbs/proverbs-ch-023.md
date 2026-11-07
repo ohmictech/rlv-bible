@@ -2,7 +2,7 @@
 put a knife to your throat if you are a man given to appetite. 
 Don't be desirous of his dainties, since they are deceitful food. 
 Don't weary yourself to be rich. In your wisdom, show restraint. 
-Why do you set your eyes on that which is not? For it certainly sprouts wings like an eagle and flies in the sky. 
+Why do you set your eyes on that which is not? It certainly sprouts wings like an eagle and flies in the sky. 
 Don't eat the food of him who has a stingy eye, and don't crave his delicacies, 
 for as he thinks about the cost, so he is. "Eat and drink!" he says to you, but his heart is not with you. 
 You will vomit up the morsel which you have eaten and waste your pleasant words. 
@@ -24,7 +24,7 @@ Buy the truth, and don't sell it. Get wisdom, discipline, and understanding.
 The father of the righteous has great joy. Whoever fathers a wise child delights in him. 
 Let your father and your mother be glad! Let her who bore you rejoice! 
 My son, give me your heart; and let your eyes keep in my ways. 
-For a prostitute is a deep pit; and a wayward wife is a narrow well. 
+A prostitute is a deep pit; and a wayward wife is a narrow well. 
 Yes, she lies in wait like a robber, and increases the unfaithful among men. 
 Who has woe? Who has sorrow? Who has strife? Who has complaints? Who has needless bruises? Who has bloodshot eyes? 
 Those who stay long at the wine; those who go to seek out mixed wine. 

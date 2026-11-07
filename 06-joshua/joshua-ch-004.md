@@ -7,7 +7,7 @@ that this may be a sign among you, that when your children ask in the future, sa
 then you shall tell them, 'Because the waters of the Jordan were cut off before the ark of God's covenant. When it crossed over the Jordan, the waters of the Jordan were cut off. These stones shall be for a memorial to the children of Israel for the eras.'" 
 The children of Israel did as Joshua commanded, and took up twelve stones out of the middle of the Jordan, as God spoke to Joshua, according to the number of the tribes of the children of Israel. They carried them over with them to the place where they camped, and laid them down there. 
 Joshua set up twelve stones in the middle of the Jordan, in the place where the feet of the priests who bore the ark of the covenant stood; and they are there to this day. 
-For the priests who bore the ark stood in the middle of the Jordan until everything was finished that God commanded Joshua to speak to the people, according to all that Moses commanded Joshua; and the people hurried and passed over. 
+The priests who bore the ark stood in the middle of the Jordan until everything was finished that God commanded Joshua to speak to the people, according to all that Moses commanded Joshua; and the people hurried and passed over. 
 When everyone had completely crossed over, God's ark crossed over with the priests in the presence of the people. 
 The children of Reuben, and the children of Gad, and the half-tribe of Manasseh crossed over armed before the children of Israel, as Moses spoke to them. 
 About forty thousand men, ready and armed for war, passed over before God to battle, to the plains of Jericho. 
@@ -20,5 +20,5 @@ The people came up out of the Jordan on the tenth day of the first month, and en
 Joshua set up those twelve stones, which they took out of the Jordan, in Gilgal. 
 He spoke to the children of Israel, saying, "When your children ask their fathers in time to come, saying, 'What do these stones mean?' 
 Then you shall let your children know, saying, 'Israel came over this Jordan on dry land. 
-For your God dried up the waters of the Jordan from before you until you had crossed over, as your God did to the Red Sea, which he dried up from before us, until we had crossed over, 
+Your God dried up the waters of the Jordan from before you until you had crossed over, as your God did to the Red Sea, which he dried up from before us, until we had crossed over, 
 that everyones of the earth may know that God's hand is mighty, and that you may fear your God for the eras.'" 

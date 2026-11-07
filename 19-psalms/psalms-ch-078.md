@@ -2,7 +2,7 @@
 I will open my mouth in a parable. I will utter dark sayings of old, 
 which we have heard and known, and our fathers have told us. 
 We will not hide them from their children, telling to the generation to come the praises of God, his strength, and his wondrous deeds that he has done. 
-For he established a covenant in Jacob, and appointed a teaching in Israel, which he commanded our fathers, that they should make them known to their children; 
+He established a covenant in Jacob, and appointed a teaching in Israel, which he commanded our fathers, that they should make them known to their children; 
 that the generation to come might know, even the children who should be born; who should arise and tell their children, 
 that they might set their hope in God, and not forget God's deeds, but keep his commandments, 
 and might not be as their fathers, a stubborn and rebellious generation, a generation that didn't make their hearts loyal, whose spirit was not steadfast with God. 
@@ -29,12 +29,12 @@ He let them fall in the middle of their camp, around their habitations.
 So they ate, and were well filled. He gave them their own desire. 
 They didn't turn from their cravings. Their food was yet in their mouths, 
 when the anger of God went up against them, killed some of their strongest, and struck down the young men of Israel. 
-For all this they still drifted, and didn't believe in his wondrous works. 
+All this they still drifted, and didn't believe in his wondrous works. 
 So he consumed their days in vanity, and their years in terror. 
 When he killed them, then they inquired after him. They returned and sought God earnestly. 
 They remembered that God was their rock, the Most High God, the one who buys them back. 
 But they flattered him with their mouth, and lied to him with their tongue. 
-For their heart was not right with him, neither were they faithful in his covenant. 
+Their heart was not right with him, neither were they faithful in his covenant. 
 But he, being merciful, forgave guilt, and didn't destroy them. Yes, many times he turned his anger away, and didn't stir up all his wrath. 
 He remembered that they were but flesh, a wind that passes away, and doesn't come again. 
 How often they rebelled against him in the wilderness, and grieved him in the desert! 
@@ -55,7 +55,7 @@ He brought them to the border of his sanctuary, to this mountain, which his righ
 He also drove out the nations before them, allotted them for an inheritance by line, and made the tribes of Israel to dwell in their tents. 
 Yet they tempted and rebelled against the Most High God, and didn't keep his testimonies, 
 but turned back, and dealt treacherously like their fathers. They were twisted like a deceitful bow. 
-For they provoked him to anger with their high places, and moved him to jealousy with their engraved images. 
+They provoked him to anger with their high places, and moved him to jealousy with their engraved images. 
 When God heard this, he was angry, and greatly abhorred Israel, 
 so that he abandoned the tent of Shiloh, the tent which he placed among men, 
 and delivered his strength into captivity, his glory into the adversary's hand. 

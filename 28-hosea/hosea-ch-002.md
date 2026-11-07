@@ -2,7 +2,7 @@
 Contend with your mother! Contend, for she is not my wife, neither am I her husband; and let her put away her prostitution from her face, and her adulteries from between her breasts; 
 lest I strip her naked, and make her bare as in the day that she was born, and make her like a wilderness, and set her like a dry land, and kill her with thirst. 
 Indeed, on her children I will have no mercy, for they are children of unfaithfulness. 
-For their mother has played the prostitute. She who conceived them has done shamefully; for she said, 'I will go after my lovers, who give me my bread and my water, my wool and my flax, my oil and my drink.' 
+Their mother has played the prostitute. She who conceived them has done shamefully; for she said, 'I will go after my lovers, who give me my bread and my water, my wool and my flax, my oil and my drink.' 
 Therefore behold, I will hedge up your way with thorns, and I will build a wall against her, that she can't find her way. 
 She will follow after her lovers, but she won't overtake them; and she will seek them, but won't find them. Then she will say, 'I will go and return to my first husband, for then it was better with me than now.' 
 For she didn't know that I gave her the grain, the new wine, and the oil, and multiplied to her silver and gold, which they used for Baal. 

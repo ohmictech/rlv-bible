@@ -2,12 +2,12 @@
 Deliver me in your righteousness, and rescue me. Turn your ear to me, and save me. 
 Be to me a rock of refuge to which I may always go. Give the command to save me, for you are my rock and my fortress. 
 Rescue me, my God, from the hand of the guilty, from the hand of the unrighteous and cruel man. 
-For you are my hope, God, my confidence from my youth. 
+You are my hope, God, my confidence from my youth. 
 I have relied on you from the womb. You are he who took me out of my mother's womb. I will always praise you. 
 I am a marvel to many, but you are my strong refuge. 
 My mouth shall be filled with your praise, with your honor all day long. 
 Don't reject me in my old age. Don't forsake me when my strength fails. 
-For my enemies talk about me. Those who watch for my soul conspire together, 
+My enemies talk about me. Those who watch for my soul conspire together, 
 saying, "God has forsaken him. Pursue and take him, for no one will rescue him." 
 God, don't be far from me. My God, hurry to help me. 
 Let my accusers be disappointed and consumed. Let them be covered with disgrace and scorn who want to harm me. 

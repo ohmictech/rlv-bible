@@ -2,7 +2,7 @@
 God my God, I cried to you, and you have healed me. 
 God, you have brought up my soul from Hades. You have kept me alive, that I should not go down to the pit. 
 Sing praise to God, you saints of his. Give thanks to his holy name. 
-For his anger is but for a moment. His favor is for a lifetime. Weeping may stay for the night, but joy comes in the morning. 
+His anger is but for a moment. His favor is for a lifetime. Weeping may stay for the night, but joy comes in the morning. 
 As for me, I said in my prosperity, "I shall never be moved." 
 You, God, when you favored me, made my mountain stand strong; but when you hid your face, I was troubled. 
 I cried to you, God. I made supplication to the Lord: 

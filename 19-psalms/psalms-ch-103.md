@@ -8,12 +8,12 @@ He made known his ways to Moses, his deeds to the children of Israel.
 God is merciful and gracious, slow to anger, and abundant in loving kindness. 
 He will not always accuse; neither will he stay angry for the eras. 
 He has not dealt with us according to our mistakes, nor repaid us for our guilt. 
-For as the sky are high above the earth, so great is his loving kindness toward those who fear him. 
+As the sky are high above the earth, so great is his loving kindness toward those who fear him. 
 As far as the east is from the west, so far has he removed our rebellion from us. 
 Like a father has compassion on his children, so God has compassion on those who fear him. 
-For he knows how we are made. He remembers that we are dust. 
+He knows how we are made. He remembers that we are dust. 
 As for man, his days are like grass. As a flower of the field, so he flourishes. 
-For the wind passes over it, and it is gone. Its place remembers it no more. 
+The wind passes over it, and it is gone. Its place remembers it no more. 
 But God's loving kindness is from perpetual to perpetual with those who fear him, his righteousness to children's children, 
 to those who keep his covenant, to those who remember to obey his precepts. 
 God has established his throne in the sky. His kingdom rules over all. 

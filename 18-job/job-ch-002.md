@@ -1,6 +1,6 @@
 ﻿Again, on the day when God's sons came to present themselves before God, Satan came also among them to present himself before God. 
 God said to Satan, "Where have you come from?" Satan answered God, and said, "From going back and forth on the earth, and from walking up and down in it." 
-God said to Satan, "Have you considered my servant Job? For there is no one like him on the earth, a blameless and an upright man, one who fears God, and turns away from what is bad. He still maintains his integrity, although you incited me against him, to ruin him without cause." 
+God said to Satan, "Have you considered my servant Job? There is no one like him on the earth, a blameless and an upright man, one who fears God, and turns away from what is bad. He still maintains his integrity, although you incited me against him, to ruin him without cause." 
 Satan answered God, and said, "Skin for skin. Yes, all that a man has he will give for his life. 
 But stretch out your hand now, and touch his bone and his flesh, and he will renounce you to your face." 
 God said to Satan, "Behold, he is in your hand. Only spare his life." 

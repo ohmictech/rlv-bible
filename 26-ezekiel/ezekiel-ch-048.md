@@ -7,7 +7,7 @@
 "By the border of Reuben, from the east side to the west side, Judah, one portion. 
 "By the border of Judah, from the east side to the west side, shall be the offering which you shall offer, twenty-five thousand reeds in width, and in length as one of the portions, from the east side to the west side; and the sanctuary shall be in the middle of it. 
 "The offering that you shall offer to God shall be twenty-five thousand reeds in length, and ten thousand in width. 
-For these, even for the priests, shall be the holy offering: toward the north twenty-five thousand in length, and toward the west ten thousand in width, and toward the east ten thousand in width, and toward the south twenty-five thousand in length; and the sanctuary of God shall be in the middle of it. 
+These, even for the priests, shall be the holy offering: toward the north twenty-five thousand in length, and toward the west ten thousand in width, and toward the east ten thousand in width, and toward the south twenty-five thousand in length; and the sanctuary of God shall be in the middle of it. 
 It shall be for the priests who are sanctified of the sons of Zadok, who have kept my instruction, who didn't go astray when the children of Israel went astray, as the Levites went astray. 
 It shall be to them an offering from the offering of the land, a most holy thing, by the border of the Levites. 
 "Alongside the border of the priests, the Levites shall have twenty-five thousand cubits in length and ten thousand in width. All the length shall be twenty-five thousand, and the width ten thousand. 

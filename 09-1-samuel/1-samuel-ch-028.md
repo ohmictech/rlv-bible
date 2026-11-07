@@ -9,7 +9,7 @@ Saul disguised himself and put on other clothing, and went, he and two men with 
 The woman said to him, "Behold, you know what Saul has done, how he has cut off those who have familiar spirits and the wizards out of the land. Why then do you lay a snare for my life, to cause me to die?" 
 Saul swore to her by God, saying, "As God lives, no punishment will happen to you for this thing." 
 Then the woman said, "Whom shall I bring up to you?" He said, "Bring Samuel up for me." 
-When the woman saw Samuel, she cried with a loud voice; and the woman spoke to Saul, saying, "Why have you deceived me? For you are Saul!" 
+When the woman saw Samuel, she cried with a loud voice; and the woman spoke to Saul, saying, "Why have you deceived me? You are Saul!" 
 The king said to her, "Don't be afraid! What do you see?" The woman said to Saul, "I see a god coming up out of the earth." 
 He said to her, "What does he look like?" She said, "An old man comes up. He is covered with a robe." Saul perceived that it was Samuel, and he bowed with his face to the ground, and showed respect. 
 Samuel said to Saul, "Why have you disturbed me, to bring me up?" Saul answered, "I am very distressed; for the Philistines make war against me, and God has departed from me, and answers me no more, by spokesmen, or by dreams. So I have called you, that you may make known to me what I shall do." 

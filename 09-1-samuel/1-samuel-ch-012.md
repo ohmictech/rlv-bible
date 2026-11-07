@@ -19,7 +19,7 @@ So Samuel called to God, and God sent thunder and rain that day. Then everyone g
 Everyone said to Samuel, "Pray for your servants to your God, that we not die; for we have added to all our mistakes this bad, to ask for a king." 
 Samuel said to the people, "Don't be afraid. You have indeed done all this bad; yet don't turn away from following God, but serve God with all your heart. 
 Don't turn away to go after vain things which can't profit or deliver, for they are vain. 
-For God will not forsake his people for his great name's sake, because it has pleased God to make you a people for himself. 
+God will not forsake his people for his great name's sake, because it has pleased God to make you a people for himself. 
 Moreover, as for me, far be it from me that I should wrong God in ceasing to pray for you; but I will instruct you in the good and the right way. 
 Only fear God, and serve him in truth with all your heart; for consider what great things he has done for you. 
 But if you keep doing bad, you will be consumed, both you and your king." 

@@ -5,7 +5,7 @@ All the elders of Israel came. The Levites took up the ark.
 They brought up the ark, the Tent of Meeting, and all the holy vessels that were in the Tent. The Levitical priests brought these up. 
 King Solomon and all the congregation of Israel who were assembled to him were before the ark, sacrificing sheep and cattle that could not be counted or numbered for multitude. 
 The priests brought in the ark of God's covenant to its place, into the inner sanctuary of the house, to the most holy place, even under the wings of the cherubim. 
-For the cherubim spread out their wings over the place of the ark, and the cherubim covered the ark and its poles above. 
+The cherubim spread out their wings over the place of the ark, and the cherubim covered the ark and its poles above. 
 The poles were so long that the ends of the poles were seen from the ark in front of the inner sanctuary, but they were not seen outside; and it is there to this day. 
 There was nothing in the ark except the two tablets which Moses put there at Horeb, when God made a covenant with the children of Israel, when they came out of Egypt. 
 When the priests had come out of the holy place (for all the priests who were present had sanctified themselves, and didn't keep their divisions; 

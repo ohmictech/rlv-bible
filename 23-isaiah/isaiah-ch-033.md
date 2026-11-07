@@ -19,6 +19,6 @@ Your heart will meditate on the terror. Where is he who counted? Where is he who
 You will no longer see the fierce people, a people of a deep speech that you can't comprehend, with a strange language that you can't understand. 
 Look at Zion, the city of our appointed festivals. Your eyes will see Jerusalem, a quiet habitation, a tent that won't be removed. Its stakes will never be plucked up, nor will any of its cords be broken. 
 But there God will be with us in majesty, a place of wide rivers and streams, in which no galley with oars will go, neither will any gallant ship pass by there. 
-For God is our judge. God is our lawgiver. God is our king. He will save us. 
+God is our judge. God is our lawgiver. God is our king. He will save us. 
 Your rigging is untied. They couldn't strengthen the foot of their mast. They couldn't spread the sail. Then the prey of a great plunder was divided. The lame took the prey. 
 The inhabitant won't say, "I am sick." The people who dwell therein will be forgiven their guilt. 

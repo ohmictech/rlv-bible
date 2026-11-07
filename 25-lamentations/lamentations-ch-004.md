@@ -3,7 +3,7 @@ The precious sons of Zion, comparable to fine gold, how they are esteemed as ear
 Even the jackals offer their breast. They nurse their young ones. But the daughter of my people has become cruel, like the ostriches in the wilderness. 
 The tongue of the nursing child clings to the roof of his mouth for thirst. The young children ask for bread, and no one breaks it for them. 
 Those who ate delicacies are desolate in the streets. Those who were brought up in purple embrace dunghills. 
-For the guilt of the daughter of my people is greater than the wrongdoing of Sodom, which was overthrown as in a moment. No hands were laid on her. 
+The guilt of the daughter of my people is greater than the wrongdoing of Sodom, which was overthrown as in a moment. No hands were laid on her. 
 Her nobles were purer than snow. They were whiter than milk. They were more ruddy in body than rubies. Their polishing was like sapphire. 
 Their appearance is blacker than a coal. They are not known in the streets. Their skin clings to their bones. It is withered. It has become like wood. 
 Those who are killed with the sword are better than those who are killed with hunger; for these pine away, stricken through, for lack of the fruits of the field. 

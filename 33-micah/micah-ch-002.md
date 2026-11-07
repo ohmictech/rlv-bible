@@ -7,7 +7,7 @@ So you will have no one who divides the land by lot in God's assembly.
 Shall it be said, O house of Jacob, "Is God's Spirit angry? Are these his doings? Don't my words do good to him who walks blamelessly?" 
 But lately my people have risen up as an enemy. You strip the robe and clothing from those who pass by without a care, returning from battle. 
 You drive the women of my people out from their pleasant houses; from their young children you take away my blessing for the eras. 
-Arise, and depart! For this is not your resting place, because of uncleanness that destroys, even with a grievous destruction. 
+Arise, and depart! This is not your resting place, because of uncleanness that destroys, even with a grievous destruction. 
 If a man walking in a spirit of falsehood lies, saying, "I will prophesy to you of wine and of strong drink," he would be the spokesman of this people. 
 I will surely assemble all of you, Jacob. I will surely gather the remnant of Israel. I will put them together as the sheep of Bozrah, as a flock in the middle of their pasture. They will swarm with people. 
 He who breaks open the way goes up before them. They break through the gate, and go out. Their king passes on before them, with God at their head. 

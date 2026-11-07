@@ -22,7 +22,7 @@ Otherwise it will happen, when my lord the king sleeps with his fathers, that I 
 Behold, while she was still talking with the king, Nathan the spokesman came in. 
 They told the king, saying, "Behold, Nathan the spokesman!" When he had come in before the king, he bowed himself before the king with his face to the ground. 
 Nathan said, "My lord, King, have you said, 'Adonijah shall reign after me, and he shall sit on my throne'? 
-For he has gone down today, and has slain cattle, fatlings, and sheep in abundance, and has called all the king's sons, the captains of the army, and Abiathar the priest. Behold, they are eating and drinking before him, and saying, 'Long live King Adonijah!' 
+He has gone down today, and has slain cattle, fatlings, and sheep in abundance, and has called all the king's sons, the captains of the army, and Abiathar the priest. Behold, they are eating and drinking before him, and saying, 'Long live King Adonijah!' 
 But he hasn't called me, even me your servant, Zadok the priest, Benaiah the son of Jehoiada, and your servant Solomon. 
 Was this thing done by my lord the king, and you haven't shown to your servants who should sit on the throne of my lord the king after him?" 
 Then King David answered, "Call Bathsheba in to me." She came into the king's presence and stood before the king. 

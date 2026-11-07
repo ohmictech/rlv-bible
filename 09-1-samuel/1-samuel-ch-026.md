@@ -12,10 +12,10 @@ God forbid that I should stretch out my hand against God's anointed; but now ple
 So David took the spear and the jar of water from Saul's head, and they went away. No man saw it, or knew it, nor did any awake; for they were all asleep, because a deep sleep from God had fallen on them. 
 Then David went over to the other side, and stood on the top of the mountain far away, a great space being between them; 
 and David cried to the people, and to Abner the son of Ner, saying, "Don't you answer, Abner?" Then Abner answered, "Who are you who calls to the king?" 
-David said to Abner, "Aren't you a man? Who is like you in Israel? Why then have you not kept watch over your lord the king? For one of the people came in to destroy your lord the king. 
+David said to Abner, "Aren't you a man? Who is like you in Israel? Why then have you not kept watch over your lord the king? One of the people came in to destroy your lord the king. 
 This thing isn't good that you have done. As God lives, you are worthy to die, because you have not kept watch over your lord, God's anointed. Now see where the king's spear is, and the jar of water that was at his head." 
 Saul recognized David's voice, and said, "Is this your voice, my son David?" David said, "It is my voice, my lord, O king." 
-He said, "Why does my lord pursue his servant? For what have I done? What bad is in my hand? 
+He said, "Why does my lord pursue his servant? What have I done? What bad is in my hand? 
 Now, please let my lord the king hear the words of his servant. If it is so that God has stirred you up against me, let him accept an offering. But if it is the children of men, they are cursed before God; for they have driven me out today that I shouldn't cling to God's inheritance, saying, 'Go, serve other gods!' 
 Now, don't let my blood fall to the earth away from the presence of God; for the king of Israel has come out to seek a flea, as when one hunts a partridge in the mountains." 
 Then Saul said, "I have drifted. Return, my son David; for I will no more do you harm, because my life was precious in your eyes today. Behold, I have played the fool, and have erred exceedingly." 

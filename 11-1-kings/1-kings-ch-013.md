@@ -14,7 +14,7 @@ He said to his sons, "Saddle the donkey for me." So they saddled the donkey for 
 He went after the man of God, and found him sitting under an oak. He said to him, "Are you the man of God who came from Judah?" He said, "I am." 
 Then he said to him, "Come home with me and eat bread." 
 He said, "I may not return with you, nor go in with you. I will not eat bread or drink water with you in this place. 
-For it was said to me by God's word, 'You shall eat no bread or drink water there, and don't turn again to go by the way that you came.'" 
+It was said to me by God's word, 'You shall eat no bread or drink water there, and don't turn again to go by the way that you came.'" 
 He said to him, "I also am a spokesman as you are; and an messenger spoke to me by God's word, saying, 'Bring him back with you into your house, that he may eat bread and drink water.'" He lied to him. 
 So he went back with him, ate bread in his house, and drank water. 
 As they sat at the table, God's word came to the spokesman who brought him back; 
@@ -29,6 +29,6 @@ He went and found his body thrown on the path, and the donkey and the lion stand
 The spokesman took up the body of the man of God, and laid it on the donkey, and brought it back. He came to the city of the old spokesman to mourn, and to bury him. 
 He laid his body in his own grave; and they mourned over him, saying, "Alas, my brother!" 
 After he had buried him, he spoke to his sons, saying, "When I am dead, bury me in the tomb in which the man of God is buried. Lay my bones beside his bones. 
-For the saying which he cried by God's word against the altar in Bethel, and against all the houses of the high places which are in the cities of Samaria, will surely happen." 
+The saying which he cried by God's word against the altar in Bethel, and against all the houses of the high places which are in the cities of Samaria, will surely happen." 
 After this thing, Jeroboam didn't turn from his bad way, but again made priests of the high places from among everyone. Whoever wanted to, he consecrated him, that there might be priests of the high places. 
 This thing became wrongdoing to the house of Jeroboam, even to cut it off and to destroy it from off the surface of the earth. 

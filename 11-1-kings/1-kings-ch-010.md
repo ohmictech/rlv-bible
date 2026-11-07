@@ -19,7 +19,7 @@ Moreover the king made a great throne of ivory, and overlaid it with the finest 
 There were six steps to the throne, and the top of the throne was round behind; and there were armrests on either side by the place of the seat, and two lions standing beside the armrests. 
 Twelve lions stood there on the one side and on the other on the six steps. Nothing like it was made in any kingdom. 
 All King Solomon's drinking vessels were of gold, and all the vessels of the House of the Forest of Lebanon were of pure gold. None were of silver, because it was considered of little value in the days of Solomon. 
-For the king had a fleet of ships of Tarshish at sea with Hiram's fleet. Once every three years the fleet of Tarshish came bringing gold, silver, ivory, apes, and peacocks. 
+The king had a fleet of ships of Tarshish at sea with Hiram's fleet. Once every three years the fleet of Tarshish came bringing gold, silver, ivory, apes, and peacocks. 
 So King Solomon exceeded all the kings of the earth in riches and in wisdom. 
 All the earth sought the presence of Solomon to hear his wisdom which God had put in his heart. 
 Year after year, every man brought his tribute, vessels of silver, vessels of gold, clothing, armor, spices, horses, and mules. 

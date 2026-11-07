@@ -34,16 +34,16 @@ You will be filled with drunkenness and sorrow, with the cup of astonishment and
 You will even drink it and drain it out. You will gnaw the broken pieces of it, and will tear your breasts; for I have spoken it,' says God. 
 "So God says: 'Because you have forgotten me and cast me behind your back, you also bear your lewdness and your prostitution.'" 
 God said moreover to me: "Son of man, will you judge Oholah and Oholibah? Then declare to them their abominations. 
-For they have committed adultery, and blood is in their hands. They have committed adultery with their idols. They have also caused their sons, whom they bore to me, to pass through the fire to them to be devoured. 
+They have committed adultery, and blood is in their hands. They have committed adultery with their idols. They have also caused their sons, whom they bore to me, to pass through the fire to them to be devoured. 
 Moreover this they have done to me: they have defiled my sanctuary in the same day, and have profaned my Sabbaths. 
-For when they had slain their children to their idols, then they came the same day into my sanctuary to profane it; and behold, they have done this in the middle of my house. 
+When they had slain their children to their idols, then they came the same day into my sanctuary to profane it; and behold, they have done this in the middle of my house. 
 "Furthermore you sisters have sent for men who come from far away, to whom a messenger was sent, and behold, they came; for whom you washed yourself, painted your eyes, decorated yourself with ornaments, 
 and sat on a stately bed, with a table prepared before it, whereupon you set my incense and my oil. 
 "The voice of a multitude being at ease was with her. With men of the common sort were brought drunkards from the wilderness; and they put bracelets on their hands, and beautiful crowns on their heads. 
 Then I said of her who was old in adulteries, 'Now they will play the prostitute with her, and she with them.' 
 They went in to her, as they go in to a prostitute. So they went in to Oholah and to Oholibah, the lewd women. 
 Righteous men will judge them with the judgment of adulteresses and with the judgment of women who shed blood, because they are adulteresses, and blood is in their hands. 
-"For God says: 'I will bring up a mob against them, and will give them to be tossed back and forth and robbed. 
+"God says: 'I will bring up a mob against them, and will give them to be tossed back and forth and robbed. 
 The company will stone them with stones and dispatch them with their swords. They will kill their sons and their daughters, and burn up their houses with fire. 
 "'Thus I will cause lewdness to cease out of the land, that all women may be taught not to be lewd like you. 
 They will recompense your lewdness on you, and you will bear the drifts of your idols. Then you will know that I am God.'" 

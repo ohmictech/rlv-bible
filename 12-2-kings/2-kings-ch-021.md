@@ -1,6 +1,6 @@
 ﻿Manasseh was twelve years old when he began to reign, and he reigned fifty-five years in Jerusalem. His mother's name was Hephzibah. 
 He did that which was bad in God's sight, after the abominations of the nations whom God cast out before the children of Israel. 
-For he built again the high places which Hezekiah his father had destroyed; and he raised up altars for Baal, and made an Asherah, as Ahab king of Israel did, and worshiped all the army of the sky, and served them. 
+He built again the high places which Hezekiah his father had destroyed; and he raised up altars for Baal, and made an Asherah, as Ahab king of Israel did, and worshiped all the army of the sky, and served them. 
 He built altars in God's house, of which God said, "I will put my name in Jerusalem." 
 He built altars for all the army of the sky in the two courts of God's house. 
 He made his son to pass through the fire, practiced sorcery, used enchantments, and dealt with those who had familiar spirits and with wizards. He did much bad in God's sight, to provoke him to anger. 

@@ -1,14 +1,14 @@
 ﻿God said, "Go down to the house of the king of Judah, and speak this word there: 
 'Hear God's word, king of Judah, who sits on David's throne, you, your servants, and your people who enter in by these gates. 
 God says: "Execute justice and righteousness, and deliver him who is robbed out of the hand of the oppressor. Do no wrong. Do no violence to the foreigner, the fatherless, or the widow. Don't shed innocent blood in this place. 
-For if you do this thing indeed, then kings sitting on David's throne will enter in by the gates of this house, riding in chariots and on horses, they, their servants, and their people. 
+If you do this thing indeed, then kings sitting on David's throne will enter in by the gates of this house, riding in chariots and on horses, they, their servants, and their people. 
 But if you will not hear these words, I swear by myself," says God, "that this house will become a desolation."'" 
-For God says concerning the house of the king of Judah: "You are Gilead to me, the head of Lebanon. Yet surely I will make you a wilderness, cities which are not inhabited. 
+God says concerning the house of the king of Judah: "You are Gilead to me, the head of Lebanon. Yet surely I will make you a wilderness, cities which are not inhabited. 
 I will prepare destroyers against you, everyone with his weapons, and they will cut down your choice cedars, and cast them into the fire. 
 "Many nations will pass by this city, and they will each ask his neighbor, 'Why has God done this to this great city?' 
 Then they will answer, 'Because they abandoned the covenant of their God, worshiped other gods, and served them.'" 
 Don't weep for the dead. Don't bemoan him; but weep bitterly for him who goes away, for he will return no more, and not see his native country. 
-For God says touching Shallum the son of Josiah, king of Judah, who reigned instead of Josiah his father, and who went out of this place: "He won't return there any more. 
+God says touching Shallum the son of Josiah, king of Judah, who reigned instead of Josiah his father, and who went out of this place: "He won't return there any more. 
 But he will die in the place where they have led him captive. He will see this land no more." 
 "Woe to him who builds his house by unrighteousness, and his rooms by injustice; who uses his neighbor's service without wages, and doesn't give him his hire; 
 who says, 'I will build myself a wide house and spacious rooms,' and cuts out windows for himself, with a cedar ceiling, and painted with red. 

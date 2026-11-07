@@ -2,7 +2,7 @@
 So I opened my mouth, and he caused me to eat the scroll. 
 He said to me, "Son of man, eat this scroll that I give you and fill your belly and your bowels with it." Then I ate it. It was as sweet as honey in my mouth. 
 He said to me, "Son of man, go to the house of Israel, and speak my words to them. 
-For you are not sent to a people of a strange speech and of a hard language, but to the house of Israel 
+You are not sent to a people of a strange speech and of a hard language, but to the house of Israel 
 not to many peoples of a strange speech and of a hard language, whose words you can't understand. Surely, if I sent you to them, they would listen to you. 
 But the house of Israel will not listen to you, for they will not listen to me; for all the house of Israel are obstinate and hard-hearted. 
 Behold, I have made your face hard against their faces, and your forehead hard against their foreheads. 

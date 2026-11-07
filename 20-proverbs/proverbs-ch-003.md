@@ -11,7 +11,7 @@ so your barns will be filled with plenty, and your vats will overflow with new w
 My son, don't despise God's discipline, neither be weary of his correction; 
 for whom God loves, he corrects, even as a father reproves the son in whom he delights. 
 Happy is the man who finds wisdom, the man who gets understanding. 
-For her good profit is better than getting silver, and her return is better than fine gold. 
+Her good profit is better than getting silver, and her return is better than fine gold. 
 She is more precious than rubies. None of the things you can desire are to be compared to her. 
 Length of days is in her right hand. In her left hand are riches and honor. 
 Her ways are ways of pleasantness. All her paths are peace. 
@@ -29,7 +29,7 @@ Don't say to your neighbor, "Go, and come again; tomorrow I will give it to you,
 Don't devise bad against your neighbor, since he dwells securely by you. 
 Don't strive with a man without cause, if he has done you no harm. 
 Don't envy the man of violence. Choose none of his ways. 
-For the perverse is an abomination to God, but his friendship is with the upright. 
+The perverse is an abomination to God, but his friendship is with the upright. 
 God's curse is in the house of the guilty, but he blesses the habitation of the righteous. 
 Surely he mocks the mockers, but he gives grace to the humble. 
 The wise will inherit glory, but shame will be the promotion of fools. 

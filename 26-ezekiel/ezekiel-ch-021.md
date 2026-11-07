@@ -10,7 +10,7 @@ God's word came to me, saying,
 It is sharpened that it may make a slaughter. It is polished that it may be as lightning. Should we then make mirth? The rod of my son condemns every tree. 
 It is given to be polished, that it may be handled. The sword is sharpened. Yes, it is polished to give it into the hand of the killer."' 
 Cry and wail, son of man; for it is on my people. It is on all the princes of Israel. They are delivered over to the sword with my people. So beat your thigh. 
-"For there is a trial. What if even the rod that condemns will be no more?" says God. 
+"There is a trial. What if even the rod that condemns will be no more?" says God. 
 "You, son of man, prophesy, and strike your hands together. Let the sword be doubled the third time, the sword of the fatally wounded. It is the sword of the great one who is fatally wounded, which enters into their rooms. 
 I have set the threatening sword against all their gates, that their heart may melt, and their stumblings be multiplied. Ah! It is made as lightning. It is pointed for slaughter. 
 Gather yourselves together. Go to the right. Set yourselves in array. Go to the left, wherever your face is set. 
@@ -18,7 +18,7 @@ I will also strike my hands together, and I will cause my wrath to rest. I, God,
 God's word came to me again, saying, 
 "Also, you son of man, appoint two ways, that the sword of the king of Babylon may come. They both will come out of one land, and mark out a place. Mark it out at the head of the way to the city. 
 You shall appoint a way for the sword to come to Rabbah of the children of Ammon, and to Judah in Jerusalem the fortified. 
-For the king of Babylon stood at the parting of the way, at the head of the two ways, to use divination. He shook the arrows back and forth. He consulted the teraphim. He looked in the liver. 
+The king of Babylon stood at the parting of the way, at the head of the two ways, to use divination. He shook the arrows back and forth. He consulted the teraphim. He looked in the liver. 
 In his right hand was the lot for Jerusalem, to set battering rams, to open the mouth in the slaughter, to lift up the voice with shouting, to set battering rams against the gates, to cast up mounds, and to build forts. 
 It will be to them as a false divination in their sight, who have sworn oaths to them; but he brings guilt to memory, that they may be taken. 
 "So God says: 'Because you have caused your guilt to be remembered, in that your rebellion are uncovered, so that in all your doings your mistakes appear; because you have come to memory, you will be taken with the hand. 

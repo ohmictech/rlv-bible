@@ -14,7 +14,7 @@ We'll find all valuable wealth. We'll fill our houses with plunder.
 You shall cast your lot among us. We'll all have one purse" 
 my son, don't walk on the path with them. Keep your foot from their path, 
 for their feet run to bad. They hurry to shed blood. 
-For the net is spread in vain in the sight of any bird; 
+The net is spread in vain in the sight of any bird; 
 but these lay in wait for their own blood. They lurk secretly for their own lives. 
 So are the ways of everyone who is greedy for gain. It takes away the life of its owners. 
 Wisdom calls aloud in the street. She utters her voice in the public squares. 
@@ -29,5 +29,5 @@ Then they will call on me, but I will not answer. They will seek me diligently, 
 because they hated knowledge, and didn't choose the fear of God. 
 They wanted none of my counsel. They despised all my reproof. 
 So they will eat of the fruit of their own way, and be filled with their own schemes. 
-For the backsliding of the simple will kill them. The careless ease of fools will destroy them. 
+The backsliding of the simple will kill them. The careless ease of fools will destroy them. 
 But whoever listens to me will dwell securely, and will be at ease, without fear of harm." 

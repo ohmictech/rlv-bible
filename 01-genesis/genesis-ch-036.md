@@ -4,7 +4,7 @@ and Basemath, Ishmael's daughter, sister of Nebaioth.
 Adah bore to Esau Eliphaz. Basemath bore Reuel. 
 Oholibamah bore Jeush, Jalam, and Korah. These are the sons of Esau, who were born to him in the land of Canaan. 
 Esau took his wives, his sons, his daughters, and all the members of his household, with his livestock, all his animals, and all his possessions, which he had gathered in the land of Canaan, and went into a land away from his brother Jacob. 
-For their substance was too great for them to dwell together, and the land of their travels couldn't bear them because of their livestock. 
+Their substance was too great for them to dwell together, and the land of their travels couldn't bear them because of their livestock. 
 Esau lived in the hill country of Seir. Esau is Edom. 
 This is the history of the generations of Esau the father of the Edomites in the hill country of Seir: 
 these are the names of Esau's sons: Eliphaz, the son of Adah, the wife of Esau; and Reuel, the son of Basemath, the wife of Esau. 

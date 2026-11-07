@@ -7,13 +7,13 @@ How Esau will be ransacked! How his hidden treasures are sought out!
 All the men of your alliance have brought you on your way, even to the border. The men who were at peace with you have deceived you, and prevailed against you. Friends who eat your bread lay a snare under you. There is no understanding in him." 
 "Won't I in that day", says God, "destroy the wise men out of Edom, and understanding out of the mountain of Esau? 
 Your mighty men, Teman, will be dismayed, to the end that everyone may be cut off from the mountain of Esau by slaughter. 
-For the violence done to your brother Jacob, shame will cover you, and you will be cut off for the eras. 
+The violence done to your brother Jacob, shame will cover you, and you will be cut off for the eras. 
 In the day that you stood on the other side, in the day that strangers carried away his substance and foreigners entered into his gates and cast lots for Jerusalem, even you were like one of them. 
 But don't look down on your brother in the day of his disaster, and don't rejoice over the children of Judah in the day of their destruction. Don't speak proudly in the day of distress. 
 Don't enter into the gate of my people in the day of their calamity. Don't look down on their affliction in the day of their calamity, neither seize their wealth on the day of their calamity. 
 Don't stand in the crossroads to cut off those of his who escape. Don't deliver up those of his who remain in the day of distress. 
-For the day of God is near all the nations! As you have done, it will be done to you. Your deeds will return upon your own head. 
-For as you have drunk on my holy mountain, so all the nations will drink continually. Yes, they will drink, swallow down, and will be as though they had not been. 
+The day of God is near all the nations! As you have done, it will be done to you. Your deeds will return upon your own head. 
+As you have drunk on my holy mountain, so all the nations will drink continually. Yes, they will drink, swallow down, and will be as though they had not been. 
 But in Mount Zion, there will be those who escape, and it will be holy. The house of Jacob will possess their possessions. 
 The house of Jacob will be a fire, the house of Joseph a flame, and the house of Esau for stubble. They will burn among them and devour them. There will not be any remaining to the house of Esau." Indeed, God has spoken. 
 Those of the South will possess the mountain of Esau, and those of the lowland, the Philistines. They will possess the field of Ephraim, and the field of Samaria. Benjamin will possess Gilead. 

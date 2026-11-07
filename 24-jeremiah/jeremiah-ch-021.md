@@ -7,7 +7,7 @@ I will strike the inhabitants of this city, both man and animal. They will die o
 Afterward," says God, "I will deliver Zedekiah king of Judah, his servants, and the people, even those who are left in this city from the pestilence, from the sword, and from the famine, into the hand of Nebuchadnezzar king of Babylon, and into the hand of their enemies, and into the hand of those who seek their life. He will strike them with the edge of the sword. He will not spare them, have pity, or have mercy."' 
 "You shall say to this people, 'God says: "Behold, I set before you the way of life and the way of death. 
 He who remains in this city will die by the sword, by the famine, and by the pestilence, but he who goes out and passes over to the Chaldeans who besiege you, he will live, and he will escape with his life. 
-For I have set my face on this city for bad, and not for good," says God. "It will be given into the hand of the king of Babylon, and he will burn it with fire."' 
+I have set my face on this city for bad, and not for good," says God. "It will be given into the hand of the king of Babylon, and he will burn it with fire."' 
 "Concerning the house of the king of Judah, hear God's word: 
 House of David, God says, 'Execute justice in the morning, and deliver him who is robbed out of the hand of the oppressor, lest my wrath go out like fire, and burn so that no one can quench it, because of the bad of your doings. 
 Behold, I am against you, O inhabitant of the valley, and of the rock of the plain,' says God. 'You that say, "Who would come down against us?" or, "Who would enter into our homes?" 

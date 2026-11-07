@@ -16,7 +16,7 @@ Then the chiefs of Edom were dismayed. Trembling takes hold of the mighty men of
 Terror and dread falls on them. By the greatness of your arm they are as still as a stone, until your people pass over, God, until the people you have purchased pass over. 
 You will bring them in, and plant them in the mountain of your inheritance, the place, God, which you have made for yourself to dwell in: the sanctuary, Lord, which your hands have established. 
 God will reign for all the eras." 
-For the horses of Pharaoh went in with his chariots and with his horsemen into the sea, and God brought back the waters of the sea on them; but the children of Israel walked on dry land in the middle of the sea. 
+The horses of Pharaoh went in with his chariots and with his horsemen into the sea, and God brought back the waters of the sea on them; but the children of Israel walked on dry land in the middle of the sea. 
 Miriam the prophetess, the sister of Aaron, took a tambourine in her hand; and all the women went out after her with tambourines and with dances. 
 Miriam answered them, "Sing to God, for he has triumphed gloriously. He has thrown the horse and his rider into the sea." 
 Moses led Israel onward from the Red Sea, and they went out into the wilderness of Shur; and they went three days in the wilderness, and found no water. 

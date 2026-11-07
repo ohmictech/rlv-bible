@@ -15,7 +15,7 @@ that the kingdom might be brought low, that it might not lift itself up, but tha
 But he rebelled against him in sending his ambassadors into Egypt, that they might give him horses and many people. Will he prosper? Will he who does such things escape? Will he break the covenant, and still escape? 
 "'As I live,' says God, 'surely in the place where the king dwells who made him king, whose oath he despised, and whose covenant he broke, even with him in the middle of Babylon he will die. 
 Pharaoh with his mighty army and great company won't help him in the war, when they cast up mounds and build forts to cut off many persons. 
-For he has despised the oath by breaking the covenant; and behold, he had given his hand, and yet has done all these things. He won't escape. 
+He has despised the oath by breaking the covenant; and behold, he had given his hand, and yet has done all these things. He won't escape. 
 "So God says: 'As I live, I will surely bring on his own head my oath that he has despised and my covenant that he has broken. 
 I will spread my net on him, and he will be taken in my snare. I will bring him to Babylon, and will enter into judgment with him there for his trespass that he has trespassed against me. 
 All his fugitives in all his bands will fall by the sword, and those who remain will be scattered toward every wind. Then you will know that I, God, have spoken it.' 

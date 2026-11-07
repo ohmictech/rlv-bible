@@ -1,13 +1,13 @@
-﻿"Sing, barren, you who didn't give birth! Break out into driftging, and cry aloud, you who didn't travail with child! For more are the children of the desolate than the children of the married wife," says God. 
+﻿"Sing, barren, you who didn't give birth! Break out into driftging, and cry aloud, you who didn't travail with child! More are the children of the desolate than the children of the married wife," says God. 
 "Enlarge the place of your tent, and let them stretch out the curtains of your habitations; don't spare; lengthen your cords, and strengthen your stakes. 
-For you will spread out on the right hand and on the left; and your offspring will possess the nations and settle in desolate cities. 
-"Don't be afraid, for you will not be ashamed. Don't be confounded, for you will not be disappointed. For you will forget the shame of your youth. You will remember the reproach of your widowhood no more. 
-For your Maker is your husband; the God of Armies is his name. The Holy One of Israel is the one who buys you back. He will be called the God of the whole earth. 
-For God has called you as a wife forsaken and grieved in spirit, even a wife of youth, when she is cast off," says your God. 
-"For a small moment I have forsaken you, but I will gather you with great mercies. 
+You will spread out on the right hand and on the left; and your offspring will possess the nations and settle in desolate cities. 
+"Don't be afraid, for you will not be ashamed. Don't be confounded, for you will not be disappointed. You will forget the shame of your youth. You will remember the reproach of your widowhood no more. 
+Your Maker is your husband; the God of Armies is his name. The Holy One of Israel is the one who buys you back. He will be called the God of the whole earth. 
+God has called you as a wife forsaken and grieved in spirit, even a wife of youth, when she is cast off," says your God. 
+"A small moment I have forsaken you, but I will gather you with great mercies. 
 In overflowing wrath I hid my face from you for a moment, but with perpetual loving kindness I will have mercy on you," says God the one who buys you back. 
-"For this is like the waters of Noah to me; for as I have sworn that the waters of Noah will no more go over the earth, so I have sworn that I will not be angry with you, nor rebuke you. 
-For the mountains may depart, and the hills be removed, but my loving kindness will not depart from you, and my covenant of peace will not be removed," says God who has mercy on you. 
+"This is like the waters of Noah to me; for as I have sworn that the waters of Noah will no more go over the earth, so I have sworn that I will not be angry with you, nor rebuke you. 
+The mountains may depart, and the hills be removed, but my loving kindness will not depart from you, and my covenant of peace will not be removed," says God who has mercy on you. 
 "You afflicted, tossed with storms, and not comforted, behold, I will set your stones in beautiful colors, and lay your foundations with sapphires. 
 I will make your pinnacles of rubies, your gates of sparkling jewels, and all your walls of precious stones. 
 All your children will be taught by God, and your children's peace will be great. 

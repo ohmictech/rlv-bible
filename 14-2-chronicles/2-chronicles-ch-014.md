@@ -4,7 +4,7 @@ for he took away the foreign altars and the high places, broke down the pillars,
 and commanded Judah to seek the God of their fathers, and to obey his law and command. 
 Also he took away out of all the cities of Judah the high places and the sun images; and the kingdom was quiet before him. 
 He built fortified cities in Judah; for the land was quiet, and he had no war in those years, because God had given him rest. 
-For he said to Judah, "Let's build these cities and make walls around them, with towers, gates, and bars. The land is yet before us, because we have sought our God. We have sought him, and he has given us rest on every side." So they built and prospered. 
+He said to Judah, "Let's build these cities and make walls around them, with towers, gates, and bars. The land is yet before us, because we have sought our God. We have sought him, and he has given us rest on every side." So they built and prospered. 
 Asa had an army of three hundred thousand out of Judah who bore bucklers and spears, and two hundred eighty thousand out of Benjamin who bore shields and drew bows. All these were mighty men of valor. 
 Zerah the Ethiopian came out against them with an army of a million troops and three hundred chariots, and he came to Mareshah. 
 Then Asa went out to meet him, and they set the battle in array in the valley of Zephathah at Mareshah. 

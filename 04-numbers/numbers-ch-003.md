@@ -43,7 +43,7 @@ Moses counted, as God commanded him, all the firstborn among the children of Isr
 All the firstborn males according to the number of names from a month old and upward, of those who were counted of them, were twenty-two thousand two hundred seventy-three. 
 God spoke to Moses, saying, 
 "Take the Levites instead of all the firstborn among the children of Israel, and the livestock of the Levites instead of their livestock; and the Levites shall be mine. I am God. 
-For the buying back of the two hundred seventy-three of the firstborn of the children of Israel who exceed the number of the Levites, 
+The buying back of the two hundred seventy-three of the firstborn of the children of Israel who exceed the number of the Levites, 
 you shall take five shekels apiece for each one; according to the shekel of the sanctuary you shall take them (the shekel is twenty gerahs); 
 and you shall give the money, with which their remainder is bought back, to Aaron and to his sons." 
 Moses took the buying back money from those who exceeded the number of those who were bought back by the Levites; 

@@ -2,7 +2,7 @@
 Please let us go to the Jordan, and each man take a beam from there, and let's make us a place there, where we may live." He answered, "Go!" 
 One said, "Please be pleased to go with your servants." He answered, "I will go." 
 So he went with them. When they came to the Jordan, they cut down wood. 
-But as one was cutting down a tree, the ax head fell into the water. Then he cried out and said, "Alas, my master! For it was borrowed." 
+But as one was cutting down a tree, the ax head fell into the water. Then he cried out and said, "Alas, my master! It was borrowed." 
 The man of God asked, "Where did it fall?" He showed him the place. He cut down a stick, threw it in there, and made the iron float. 
 He said, "Take it." So he put out his hand and took it. 
 Now the king of Syria was at war against Israel; and he took counsel with his servants, saying, "My camp will be in such and such a place." 

@@ -5,7 +5,7 @@ There is no one as holy as God, for there is no one besides you, nor is there an
 Those who were full have hired themselves out for bread. Those who were hungry are satisfied. Yes, the barren has borne seven. She who has many children languishes. 
 "God kills and makes alive. He brings down to Hades and brings up. 
 God makes poor and makes rich. He brings low, he also lifts up. 
-He raises up the poor out of the dust. He lifts up the needy from the dunghill to make them sit with princes and inherit the throne of glory. For the pillars of the earth are God's. He has set the world on them. 
+He raises up the poor out of the dust. He lifts up the needy from the dunghill to make them sit with princes and inherit the throne of glory. The pillars of the earth are God's. He has set the world on them. 
 He will keep the feet of his holy ones, but the guilty will be put to silence in darkness; for no man will prevail by strength. 
 Those who strive with God shall be broken to pieces. He will thunder against them in the sky. "God will judge the ends of the earth. He will give strength to his king, and exalt the horn of his anointed." 
 Elkanah went to Ramah to his house. The child served God before Eli the priest. 
@@ -20,7 +20,7 @@ Moreover his mother made him a little robe, and brought it to him from year to y
 Eli blessed Elkanah and his wife, and said, "May God give you offspring from this woman for the petition which was asked of God." Then they went to their own home. 
 God visited Hannah, and she conceived and bore three sons and two daughters. The child Samuel grew before God. 
 Now Eli was very old; and he heard all that his sons did to all Israel, and how that they slept with the women who served at the door of the Tent of Meeting. 
-He said to them, "Why do you do such things? For I hear of your bad dealings from all these people. 
+He said to them, "Why do you do such things? I hear of your bad dealings from all these people. 
 No, my sons; for it is not a good report that I hear! You make God's people disobey. 
 If one man wrongs another, God will judge him; but if a man wrongs God, who will intercede for him?" Notwithstanding, they didn't listen to the voice of their father, because God intended to kill them. 
 The child Samuel grew on, and increased in favor both with God and also with men. 

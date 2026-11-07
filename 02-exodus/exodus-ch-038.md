@@ -8,9 +8,9 @@ He put the poles into the rings on the sides of the altar, with which to carry i
 He made the bamistake of bronze, and its base of bronze, out of the mirrors of the ministering women who ministered at the door of the Tent of Meeting. 
 He made the court: for the south side southward the hangings of the court were of fine twined linen, one hundred cubits; 
 their pillars were twenty, and their sockets twenty, of bronze; the hooks of the pillars and their fillets were of silver. 
-For the north side one hundred cubits, their pillars twenty, and their sockets twenty, of bronze; the hooks of the pillars, and their fillets, of silver. 
-For the west side were hangings of fifty cubits, their pillars ten, and their sockets ten; the hooks of the pillars, and their fillets, of silver. 
-For the east side eastward fifty cubits, 
+The north side one hundred cubits, their pillars twenty, and their sockets twenty, of bronze; the hooks of the pillars, and their fillets, of silver. 
+The west side were hangings of fifty cubits, their pillars ten, and their sockets ten; the hooks of the pillars, and their fillets, of silver. 
+The east side eastward fifty cubits, 
 the hangings for the one side were fifteen cubits; their pillars three, and their sockets three; 
 and so for the other side: on this hand and that hand by the gate of the court were hangings of fifteen cubits; their pillars three, and their sockets three. 
 All the hangings around the court were of fine twined linen. 

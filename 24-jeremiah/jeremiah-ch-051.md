@@ -2,7 +2,7 @@
 I will send to Babylon strangers, who will winnow her. They will empty her land; for in the day of trouble they will be against her all around. 
 Against him who bends, let the archer bend his bow, also against him who lifts himself up in his coat of mail. Don't spare her young men! Utterly destroy all her army! 
 They will fall down slain in the land of the Chaldeans, and thrust through in her streets. 
-For Israel is not forsaken, nor Judah, by his God, by the God of Armies; though their land is full of guilt against the Holy One of Israel. 
+Israel is not forsaken, nor Judah, by his God, by the God of Armies; though their land is full of guilt against the Holy One of Israel. 
 "Flee out of the middle of Babylon! Everyone save his own life! Don't be cut off in her guilt, for it is the time of God's vengeance. He will give to her a recompense. 
 Babylon has been a golden cup in God's hand, who made all the earth drunk. The nations have drunk of her wine; the nations have gone mad. 
 Babylon has suddenly fallen and been destroyed! Wail for her! Take balm for her pain. Perhaps she may be healed. 
@@ -30,7 +30,7 @@ The land trembles and is in pain; for the purposes of God against Babylon stand,
 The mighty men of Babylon have stopped fighting, they remain in their strongholds. Their might has failed. They have become as women. Her dwelling places are set on fire. Her bars are broken. 
 One runner will run to meet another, and one messenger to meet another, to show the king of Babylon that his city is taken on every quarter. 
 So the passages are seized. They have burned the reeds with fire. The men of war are frightened." 
-For the God of Armies, the God of Israel says: "The daughter of Babylon is like a threshing floor at the time when it is trodden. Yet a little while, and the time of harvest comes for her." 
+The God of Armies, the God of Israel says: "The daughter of Babylon is like a threshing floor at the time when it is trodden. Yet a little while, and the time of harvest comes for her." 
 "Nebuchadnezzar the king of Babylon has devoured me. He has crushed me. He has made me an empty vessel. He has, like a monster, swallowed me up. He has filled his mouth with my delicacies. He has cast me out. 
 May the violence done to me and to my flesh be on Babylon!" the inhabitant of Zion will say; and, "May my blood be on the inhabitants of Chaldea!" will Jerusalem say. 
 So God says: "Behold, I will plead your cause, and take vengeance for you. I will dry up her sea, and make her fountain dry. 
@@ -43,7 +43,7 @@ The sea has come up on Babylon. She is covered with the multitude of its waves.
 Her cities have become a desolation, a dry land, and a desert, a land in which no man dwells. No son of man passes by it. 
 I will execute judgment on Bel in Babylon, and I will bring out of his mouth that which he has swallowed up. The nations will not flow any more to him. Yes, the wall of Babylon will fall. 
 "My people, go away from the middle of her, and each of you save yourselves from God's fierce anger. 
-Don't let your heart faint. Don't fear for the news that will be heard in the land. For news will come one year, and after that in another year news will come, and violence in the land, ruler against ruler. 
+Don't let your heart faint. Don't fear for the news that will be heard in the land. News will come one year, and after that in another year news will come, and violence in the land, ruler against ruler. 
 So behold, the days come that I will execute judgment on the engraved images of Babylon; and her whole land will be confounded. All her slain will fall in the middle of her. 
 Then the sky and the earth, and all that is therein, will sing for joy over Babylon; for the destroyers will come to her from the north," says God. 
 "As Babylon has caused the slain of Israel to fall, so the slain of all the land will fall at Babylon. 
@@ -52,8 +52,8 @@ You who have escaped the sword, go! Don't stand still! Remember God from afar, a
 "So behold, the days come," says God, "that I will execute judgment on her engraved images; and through all her land the wounded will groan. 
 Though Babylon should mount up to the sky, and though she should fortify the height of her strength, yet destroyers will come to her from me," says God. 
 "The sound of a cry comes from Babylon, and of great destruction from the land of the Chaldeans! 
-For God lays Babylon waste, and destroys out of her the great voice! Their waves roar like many waters. The noise of their voice is uttered. 
-For the destroyer has come on her, even on Babylon. Her mighty men are taken. Their bows are broken in pieces, for God is a God of retribution. He will surely repay. 
+God lays Babylon waste, and destroys out of her the great voice! Their waves roar like many waters. The noise of their voice is uttered. 
+The destroyer has come on her, even on Babylon. Her mighty men are taken. Their bows are broken in pieces, for God is a God of retribution. He will surely repay. 
 I will make her princes, her wise men, her governors, her deputies, and her mighty men drunk. They will sleep a perpetual sleep, and not wake up," says the King, whose name is the God of Armies. 
 The God of Armies says: "The wide walls of Babylon will be utterly overthrown. Her high gates will be burned with fire. The peoples will labor for vanity, and the nations for the fire; and they will be weary." 
 The word which Jeremiah the spokesman commanded Seraiah the son of Neriah, the son of Mahseiah, when he went with Zedekiah the king of Judah to Babylon in the fourth year of his reign. Now Seraiah was chief quartermaster. 

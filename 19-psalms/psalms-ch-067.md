@@ -1,4 +1,4 @@
-﻿For the Chief Musician. With stringed instruments. A Psalm. A song. May God be merciful to us, bless us, and cause his face to shine on us. Selah. 
+﻿The Chief Musician. With stringed instruments. A Psalm. A song. May God be merciful to us, bless us, and cause his face to shine on us. Selah. 
 That your way may be known on earth, and your salvation among all nations, 
 let the peoples praise you, God. Let everyones praise you. 
 Oh let the nations be glad and driftsg for joy, for you will judge the peoples with equity, and govern the nations on earth. Selah. 

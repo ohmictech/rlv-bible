@@ -6,7 +6,7 @@ God put a word in Balaam's mouth, and said, "Return to Balak, and thus you shall
 He returned to him, and behold, he was standing by his burnt offering, he, and all the princes of Moab. 
 He took up his parable, and said, "From Aram has Balak brought me, the king of Moab from the mountains of the East. Come, curse Jacob for me. Come, defy Israel. 
 How shall I curse whom God has not cursed? How shall I defy whom God has not defied? 
-For from the top of the rocks I see him. From the hills I see him. Behold, it is a people that dwells alone, and shall not be listed among the nations. 
+From the top of the rocks I see him. From the hills I see him. Behold, it is a people that dwells alone, and shall not be listed among the nations. 
 Who can count the dust of Jacob, or count the fourth part of Israel? Let me die the death of the righteous! Let my last end be like his!" 
 Balak said to Balaam, "What have you done to me? I took you to curse my enemies, and behold, you have blessed them altogether." 
 He answered and said, "Must I not take heed to speak that which God puts in my mouth?" 

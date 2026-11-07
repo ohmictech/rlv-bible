@@ -2,7 +2,7 @@
 and he said: "God is my rock, my fortress, and my deliverer, even mine; 
 God is my rock in whom I take refuge; my shield, and the horn of my salvation, my high tower, and my refuge. My savior, you save me from violence. 
 I call on God, who is worthy to be praised; So shall I be saved from my enemies. 
-For the waves of death surrounded me. The floods of ungodliness made me afraid. 
+The waves of death surrounded me. The floods of ungodliness made me afraid. 
 The cords of Hades were around me. The snares of death caught me. 
 In my distress, I called on God. Yes, I called to my God. He heard my voice out of his temple. My cry came into his ears. 
 Then the earth shook and trembled. The foundations of the sky quaked and were shaken, because he was angry. 
@@ -19,17 +19,17 @@ He delivered me from my strong enemy, from those who hated me, for they were too
 They came on me in the day of my calamity, but God was my support. 
 He also brought me out into a large place. He delivered me, because he delighted in me. 
 God rewarded me according to my righteousness. He rewarded me according to the cleanness of my hands. 
-For I have kept God's ways, and have not guiltily departed from my God. 
-For all his ordinances were before me. As for his statutes, I didn't depart from them. 
+I have kept God's ways, and have not guiltily departed from my God. 
+All his ordinances were before me. As for his statutes, I didn't depart from them. 
 I was also perfect toward him. I kept myself from my guilt. 
 So God has rewarded me according to my righteousness, According to my cleanness in his eyesight. 
 With the merciful you will show yourself merciful. With the perfect man you will show yourself perfect. 
 With the pure you will show yourself pure. With the crooked you will show yourself shrewd. 
 You will save the afflicted people, but your eyes are on the arrogant, that you may bring them down. 
-For you are my lamp, God. God will light up my darkness. 
-For by you, I run against a troop. By my God, I leap over a wall. 
+You are my lamp, God. God will light up my darkness. 
+By you, I run against a troop. By my God, I leap over a wall. 
 As for God, his way is perfect. God's word is tested. He is a shield to everyone who takes refuge in him. 
-For who is God, besides God? Who is a rock, besides our God? 
+Who is God, besides God? Who is a rock, besides our God? 
 God is my strong fortress. He makes my way perfect. 
 He makes his feet like hinds' feet, and sets me on my high places. 
 He teaches my hands to war, so that my arms bend a bow of bronze. 
@@ -37,7 +37,7 @@ You have also given me the shield of your salvation. Your gentleness has made me
 You have enlarged my steps under me. My feet have not slipped. 
 I have pursued my enemies and destroyed them. I didn't turn again until they were consumed. 
 I have consumed them, and struck them through, so that they can't arise. Yes, they have fallen under my feet. 
-For you have armed me with strength for the battle. You have subdued under me those who rose up against me. 
+You have armed me with strength for the battle. You have subdued under me those who rose up against me. 
 You have also made my enemies turn their backs to me, that I might cut off those who hate me. 
 They looked, but there was no one to save; even to God, but he didn't answer them. 
 Then I beat them as small as the dust of the earth. I crushed them as the mire of the streets, and spread them abroad. 

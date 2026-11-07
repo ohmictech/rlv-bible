@@ -1,4 +1,4 @@
-﻿For God will have compassion on Jacob, and will yet choose Israel, and set them in their own land. The foreigner will join himself with them, and they will unite with the house of Jacob. 
+﻿God will have compassion on Jacob, and will yet choose Israel, and set them in their own land. The foreigner will join himself with them, and they will unite with the house of Jacob. 
 The peoples will take them, and bring them to their place. The house of Israel will possess them in God's land for servants and for handmaids. They will take as captives those whose captives they were; and they shall rule over their oppressors. 
 It will happen in the day that God will give you rest from your sorrow, from your trouble, and from the hard service in which you were made to serve, 
 that you will take up this parable against the king of Babylon, and say, "How the oppressor has ceased! The golden city has ceased!" 
@@ -24,7 +24,7 @@ Prepare for slaughter of his children because of the guilt of their fathers, tha
 The God of Armies has sworn, saying, "Surely, as I have thought, so shall it happen; and as I have purposed, so shall it stand: 
 that I will break the Assyrian in my land, and tread him under foot on my mountains. Then his yoke will leave them, and his burden leave their shoulders. 
 This is the plan that is determined for the whole earth. This is the hand that is stretched out over all the nations. 
-For the God of Armies has planned, and who can stop it? His hand is stretched out, and who can turn it back?" 
+The God of Armies has planned, and who can stop it? His hand is stretched out, and who can turn it back?" 
 This burden was in the year that King Ahaz died. 
 Don't rejoice, O Philistia, all of you, because the rod that struck you is broken; for out of the serpent's root an adder will emerge, and his fruit will be a fiery flying serpent. 
 The firstborn of the poor will eat, and the needy will lie down in safety; and I will kill your root with famine, and your remnant will be killed. 

@@ -2,7 +2,7 @@
 Israel vowed a vow to God, and said, "If you will indeed deliver this people into my hand, then I will utterly destroy their cities." 
 God listened to the voice of Israel, and delivered up the Canaanites; and they utterly destroyed them and their cities. The name of the place was called Hormah. 
 They traveled from Mount Hor by the way to the Red Sea, to go around the land of Edom. The soul of the people was very discouraged because of the journey. 
-The people spoke against God and against Moses: "Why have you brought us up out of Egypt to die in the wilderness? For there is no bread, there is no water, and our soul loathes this disgusting food!" 
+The people spoke against God and against Moses: "Why have you brought us up out of Egypt to die in the wilderness? There is no bread, there is no water, and our soul loathes this disgusting food!" 
 God sent venomous snakes among the people, and they bit the people. Many people of Israel died. 
 The people came to Moses, and said, "We have drifted, because we have spoken against God and against you. Pray to God, that he take away the serpents from us." Moses prayed for the people. 
 God said to Moses, "Make a venomous snake, and set it on a pole. It shall happen that everyone who is bitten, when he sees it, shall live." 
@@ -23,7 +23,7 @@ Israel sent messengers to Sihon king of the Amorites, saying,
 Sihon would not allow Israel to pass through his border, but Sihon gathered all his people together, and went out against Israel into the wilderness, and came to Jahaz. He fought against Israel. 
 Israel struck him with the edge of the sword, and possessed his land from the Arnon to the Jabbok, even to the children of Ammon; for the border of the children of Ammon was fortified. 
 Israel took all these cities. Israel lived in all the cities of the Amorites, in Heshbon, and in all its villages. 
-For Heshbon was the city of Sihon the king of the Amorites, who had fought against the former king of Moab, and taken all his land out of his hand, even to the Arnon. 
+Heshbon was the city of Sihon the king of the Amorites, who had fought against the former king of Moab, and taken all his land out of his hand, even to the Arnon. 
 So those who speak in proverbs say, "Come to Heshbon. Let the city of Sihon be built and established; 
 for a fire has gone out of Heshbon, a flame from the city of Sihon. It has devoured Ar of Moab, The lords of the high places of the Arnon. 
 Woe to you, Moab! You are undone, people of Chemosh! He has given his sons as fugitives, and his daughters into captivity, to Sihon king of the Amorites. 

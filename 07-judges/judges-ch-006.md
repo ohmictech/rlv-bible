@@ -2,7 +2,7 @@
 The hand of Midian prevailed against Israel; and because of Midian the children of Israel made themselves the dens which are in the mountains, the caves, and the strongholds. 
 So it was, when Israel had sown, that the Midianites, the Amalekites, and the children of the east came up against them. 
 They encamped against them, and destroyed the increase of the earth, until you come to Gaza. They left no sustenance in Israel, and no sheep, ox, or donkey. 
-For they came up with their livestock and their tents. They came in as locusts for multitude. Both they and their camels were without number; and they came into the land to destroy it. 
+They came up with their livestock and their tents. They came in as locusts for multitude. Both they and their camels were without number; and they came into the land to destroy it. 
 Israel was brought very low because of Midian; and the children of Israel cried to God. 
 When the children of Israel cried to God because of Midian, 
 God sent a spokesman to the children of Israel; and he said to them, "The God of Israel says, 'I brought you up from Egypt, and brought you out of the house of bondage. 

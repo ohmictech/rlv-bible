@@ -4,7 +4,7 @@ Your eyes have seen what God did because of Baal Peor; for your God has destroye
 But you who were faithful to your God are all alive today. 
 Behold, I have taught you statutes and ordinances, even as my God commanded me, that you should do so in the middle of the land where you go in to possess it. 
 Keep and do them; for this is your wisdom and your understanding in the sight of the peoples who shall hear all these statutes and say, "Surely this great nation is a wise and understanding people." 
-For what great nation is there that has a god so near to them as our God is whenever we call on him? 
+What great nation is there that has a god so near to them as our God is whenever we call on him? 
 What great nation is there that has statutes and ordinances so righteous as all this law which I set before you today? 
 Only be careful, and keep your soul diligently, lest you forget the things which your eyes saw, and lest they depart from your heart all the days of your life; but make them known to your children and your children's children 
 the day that you stood before your God in Horeb, when God said to me, "Assemble the people to me, and I will make them hear my words, that they may learn to fear me all the days that they live on the earth, and that they may teach their children." 
@@ -21,15 +21,15 @@ But God has taken you, and brought you out of the iron furnace, out of Egypt, to
 Furthermore God was angry with me for your sakes, and swore that I should not go over the Jordan, and that I should not go in to that good land which your God gives you for an inheritance; 
 but I must die in this land. I must not go over the Jordan, but you shall go over and possess that good land. 
 Be careful, lest you forget the covenant of your God, which he made with you, and make yourselves a carved image in the form of anything which your God has forbidden you. 
-For your God is a devouring fire, a jealous God. 
+Your God is a devouring fire, a jealous God. 
 When you father children and children's children, and you have been long in the land, and then corrupt yourselves, and make a carved image in the form of anything, and do that which is bad in your God's sight to provoke him to anger, 
 I call the sky and earth to witness against you today, that you will soon utterly perish from off the land which you go over the Jordan to possess it. You will not prolong your days on it, but will utterly be destroyed. 
 God will scatter you among the peoples, and you will be left few in number among the nations where God will lead you away. 
 There you will serve gods, the work of men's hands, wood and stone, which neither see, nor hear, nor eat, nor smell. 
 But from there you shall seek your God, and you will find him when you search after him with all your heart and with all your soul. 
 When you are in oppression, and all these things have come on you, in the latter days you shall return to your God and listen to his voice. 
-For your God is a merciful God. He will not fail you nor destroy you, nor forget the covenant of your fathers which he swore to them. 
-For ask now of the days that are past, which were before you, since the day that God created man on the earth, and from the one end of the sky to the other, whether there has been anything as great as this thing is, or has been heard like it? 
+Your God is a merciful God. He will not fail you nor destroy you, nor forget the covenant of your fathers which he swore to them. 
+Ask now of the days that are past, which were before you, since the day that God created man on the earth, and from the one end of the sky to the other, whether there has been anything as great as this thing is, or has been heard like it? 
 Did a people ever hear the voice of God speaking out of the middle of the fire, as you have heard, and live? 
 Or has God tried to go and take a nation for himself from among another nation, by trials, by signs, by wonders, by war, by a mighty hand, by an outstretched arm, and by great terrors, according to all that your God did for you in Egypt before your eyes? 
 It was shown to you so that you might know that he is God. There is no one else besides him. 

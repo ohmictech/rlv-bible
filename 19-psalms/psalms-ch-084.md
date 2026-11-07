@@ -1,4 +1,4 @@
-﻿For the Chief Musician. On an instrument of Gath. A Psalm by the sons of Korah. How lovely are your dwellings, God of Armies! 
+﻿The Chief Musician. On an instrument of Gath. A Psalm by the sons of Korah. How lovely are your dwellings, God of Armies! 
 My soul longs, and even faints for the courts of God. My heart and my flesh cry out for the living God. 
 Yes, the sparrow has found a home, and the swallow a nest for herself, where she may have her young, near your altars, God of Armies, my King, and my God. 
 Blessed are those who dwell in your house. They are always praising you. Selah. 
@@ -7,6 +7,6 @@ Passing through the valley of Weeping, they make it a place of springs. Yes, the
 They go from strength to strength. Every one of them appears before God in Zion. 
 God, God of Armies, hear my prayer. Listen, God of Jacob. Selah. 
 Behold, God our shield, look at the face of your anointed. 
-For a day in your courts is better than a thousand. I would rather be a doorkeeper in the house of my God, than to dwell in the tents of guilt. 
-For God is a sun and a shield. God will give grace and glory. He withholds no good thing from those who walk blamelessly. 
+A day in your courts is better than a thousand. I would rather be a doorkeeper in the house of my God, than to dwell in the tents of guilt. 
+God is a sun and a shield. God will give grace and glory. He withholds no good thing from those who walk blamelessly. 
 God of Armies blessed is the man who trusts in you. 

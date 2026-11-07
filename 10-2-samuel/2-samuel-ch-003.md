@@ -15,7 +15,7 @@ David sent messengers to Ishbosheth, Saul's son, saying, "Deliver me my wife Mic
 Ishbosheth sent and took her from her husband, Paltiel the son of Laish. 
 Her husband went with her, weeping as he went, and followed her to Bahurim. Then Abner said to him, "Go! Return!" and he returned. 
 Abner had communication with the elders of Israel, saying, "In times past, you sought for David to be king over you. 
-Now then do it! For God has spoken of David, saying, 'By the hand of my servant David, I will save my people Israel out of the hand of the Philistines, and out of the hand of all their enemies.'" 
+Now then do it! God has spoken of David, saying, 'By the hand of my servant David, I will save my people Israel out of the hand of the Philistines, and out of the hand of all their enemies.'" 
 Abner also spoke in the ears of Benjamin; and Abner went also to speak in the ears of David in Hebron all that seemed good to Israel and to the whole house of Benjamin. 
 So Abner came to David to Hebron, and twenty men with him. David made Abner and the men who were with him a feast. 
 Abner said to David, "I will arise and go, and will gather all Israel to my lord the king, that they may make a covenant with you, and that you may reign over all that your soul desires." David sent Abner away; and he went in peace. 

@@ -2,7 +2,7 @@
 It will happen when they ask you, 'Where shall we go out?' then you shall tell them, 'God says: "Such as are for death, to death; such as are for the sword, to the sword; such as are for the famine, to the famine; and such as are for captivity, to captivity."' 
 "I will appoint over them four kinds," says God: "the sword to kill, the dogs to tear, the birds of the sky, and the animals of the earth, to devour and to destroy. 
 I will cause them to be tossed back and forth among all the kingdoms of the earth, because of Manasseh, the son of Hezekiah, king of Judah, for that which he did in Jerusalem. 
-For who will have pity on you, Jerusalem? Who will mourn you? Who will come to ask of your welfare? 
+Who will have pity on you, Jerusalem? Who will mourn you? Who will come to ask of your welfare? 
 You have rejected me," says God. "You have gone backward. So I have stretched out my hand against you and destroyed you. I am weary of showing compassion. 
 I have winnowed them with a fan in the gates of the land. I have bereaved them of children. I have destroyed my people. They didn't return from their ways. 
 Their widows are increased more than the sand of the seas. I have brought on them against the mother of the young men a destroyer at noonday. I have caused anguish and terrors to fall on her suddenly. 

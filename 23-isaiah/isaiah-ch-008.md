@@ -8,10 +8,10 @@ now, behold, the Lord brings upon them the mighty flood waters of the River: the
 It will sweep onward into Judah. It will overflow and pass through. It will reach even to the neck. The stretching out of its wings will fill the width of your land, O Immanuel. 
 Make an uproar, you peoples, and be broken in pieces! Listen, all you from far countries: dress for battle, and be shattered! Dress for battle, and be shattered! 
 Take counsel together, and it will be brought to nothing; speak the word, and it will not stand, for God is with us." 
-For God spoke this to me with a strong hand, and instructed me not to walk in the way of this people, saying, 
+God spoke this to me with a strong hand, and instructed me not to walk in the way of this people, saying, 
 "Don't call a conspiracy all that this people call a conspiracy. Don't fear their threats or be terrorized. 
 The God of Armies is who you must respect as holy. He is the one you must fear. He is the one you must dread. 
-He will be a sanctuary, but for both houses of Israel, he will be a stumbling stone and a rock that makes them fall. For the people of Jerusalem, he will be a trap and a snare. 
+He will be a sanctuary, but for both houses of Israel, he will be a stumbling stone and a rock that makes them fall. The people of Jerusalem, he will be a trap and a snare. 
 Many will stumble over it, fall, be broken, be snared, and be captured." 
 Wrap up the covenant. Seal the law among my disciples. 
 I will wait for God, who hides his face from the house of Jacob, and I will look for him. 

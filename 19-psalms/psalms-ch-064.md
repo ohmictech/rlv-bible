@@ -1,4 +1,4 @@
-﻿For the Chief Musician. A Psalm by David. Hear my voice, God, in my complaint. Preserve my life from fear of the enemy. 
+﻿The Chief Musician. A Psalm by David. Hear my voice, God, in my complaint. Preserve my life from fear of the enemy. 
 Hide me from the conspiracy of the guilty, from the noisy crowd of the ones doing bad; 
 who sharpen their tongue like a sword, and aim their arrows, deadly words, 
 to shoot innocent men from ambushes. They shoot at him suddenly and fearlessly. 

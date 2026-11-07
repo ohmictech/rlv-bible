@@ -40,6 +40,6 @@ Moses told these words to all the children of Israel, and the people mourned gre
 They rose up early in the morning and went up to the top of the mountain, saying, "Behold, we are here, and will go up to the place which God has promised; for we have drifted." 
 Moses said, "Why now do you disobey the commandment of God, since it shall not prosper? 
 Don't go up, for God isn't among you; that way you won't be struck down before your enemies. 
-For there the Amalekite and the Canaanite are before you, and you will fall by the sword because you turned back from following God; God will not be with you." 
+There the Amalekite and the Canaanite are before you, and you will fall by the sword because you turned back from following God; God will not be with you." 
 But they presumed to go up to the top of the mountain. Nevertheless, the ark of God's covenant and Moses didn't depart out of the camp. 
 Then the Amalekites came down, and the Canaanites who lived in that mountain, and struck them and beat them down even to Hormah. 

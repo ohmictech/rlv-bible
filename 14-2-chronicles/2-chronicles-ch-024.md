@@ -4,7 +4,7 @@ Jehoiada took for him two wives, and he became the father of sons and daughters.
 After this, Joash intended to restore God's house. 
 He gathered together the priests and the Levites, and said to them, "Go out to the cities of Judah, and gather money to repair the house of your God from all Israel from year to year. See that you expedite this matter." However the Levites didn't do it right away. 
 The king called for Jehoiada the chief, and said to him, "Why haven't you required of the Levites to bring in the tax of Moses the servant of God, and of the assembly of Israel, out of Judah and out of Jerusalem, for the Tent of the Testimony?" 
-For the sons of Athaliah, that guilty woman, had broken up God's house; and they also gave all the dedicated things of God's house to the Baals. 
+The sons of Athaliah, that guilty woman, had broken up God's house; and they also gave all the dedicated things of God's house to the Baals. 
 So the king commanded, and they made a chest, and set it outside at the gate of God's house. 
 They made a proclamation through Judah and Jerusalem, to bring in for God the tax that Moses the servant of God laid on Israel in the wilderness. 
 All the princes and everyone rejoiced, and brought in, and cast into the chest, until they had filled it. 
@@ -21,7 +21,7 @@ The Spirit of God came on Zechariah the son of Jehoiada the priest; and he stood
 They conspired against him, and stoned him with stones at the commandment of the king in the court of God's house. 
 Thus Joash the king didn't remember the kindness which Jehoiada his father had done to him, but killed his son. When he died, he said, "May God look at it, and repay it." 
 At the end of the year, the army of the Syrians came up against him. They came to Judah and Jerusalem, and destroyed all the princes of the people from among the people, and sent all their plunder to the king of Damascus. 
-For the army of the Syrians came with a small company of men; and God delivered a very great army into their hand, because they had forsaken the God of their fathers. So they executed judgment on Joash. 
+The army of the Syrians came with a small company of men; and God delivered a very great army into their hand, because they had forsaken the God of their fathers. So they executed judgment on Joash. 
 When they had departed from him (for they left him seriously wounded), his own servants conspired against him for the blood of the sons of Jehoiada the priest, and killed him on his bed, and he died. They buried him in David's city, but they didn't bury him in the tombs of the kings. 
 These are those who conspired against him: Zabad the son of Shimeath the Ammonitess and Jehozabad the son of Shimrith the Moabitess. 
 Now concerning his sons, the greatness of the burdens laid on him, and the rebuilding of God's house, behold, they are written in the commentary of the book of the kings. Amaziah his son reigned in his place. 

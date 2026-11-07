@@ -1,5 +1,5 @@
 ﻿He who dashes in pieces has come up against you. Keep the fortress! Watch the way! Strengthen your waist! Fortify your power mightily! 
-For God restores the excellency of Jacob as the excellency of Israel, for the destroyers have destroyed them and ruined their vine branches. 
+God restores the excellency of Jacob as the excellency of Israel, for the destroyers have destroyed them and ruined their vine branches. 
 The shield of his mighty men is made red. The valiant men are in scarlet. The chariots flash with steel in the day of his preparation, and the pine spears are brandished. 
 The chariots rage in the streets. They rush back and forth in the wide ways. Their appearance is like torches. They run like the lightnings. 
 He summons his picked troops. They stumble on their way. They dash to its wall, and the protective shield is put in place. 

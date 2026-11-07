@@ -4,7 +4,7 @@ Because your loving kindness is better than life, my lips shall praise you.
 So I will bless you while I live. I will lift up my hands in your name. 
 My soul shall be satisfied as with the richest food. My mouth shall praise you with joyful lips, 
 when I remember you on my bed, and think about you in the night watches. 
-For you have been my help. I will rejoice in the shadow of your wings. 
+You have been my help. I will rejoice in the shadow of your wings. 
 My soul stays close to you. Your right hand holds me up. 
 But those who seek my soul to destroy it shall go into the lower parts of the earth. 
 They shall be given over to the power of the sword. They shall be jackal food. 

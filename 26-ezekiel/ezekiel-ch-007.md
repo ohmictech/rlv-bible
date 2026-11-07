@@ -10,7 +10,7 @@ My eye won't spare, neither will I have pity. I will punish you according to you
 "'Behold, the day! Behold, it comes! Your doom has gone out. The rod has blossomed. Pride has budded. 
 Violence has risen up into a rod of guilt. None of them will remain, nor of their multitude, nor of their wealth. There will be nothing of value among them. 
 The time has come! The day draws near. Don't let the buyer rejoice, nor the seller mourn; for wrath is on all its multitude. 
-For the seller won't return to that which is sold, although they are still alive; for the vision concerns the whole multitude of it. None will return. None will strengthen himself in the guilt of his life. 
+The seller won't return to that which is sold, although they are still alive; for the vision concerns the whole multitude of it. None will return. None will strengthen himself in the guilt of his life. 
 They have blown the trumpet, and have made all ready; but no one goes to the battle, for my wrath is on all its multitude. 
 "'The sword is outside, and the pestilence and the famine within. He who is in the field will die by the sword. He who is in the city will be devoured by famine and pestilence. 
 But of those who escape, they will escape and will be on the mountains like doves of the valleys, everyone moaning, everyone in his guilt. 

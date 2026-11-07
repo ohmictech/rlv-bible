@@ -16,13 +16,13 @@ Behold, he will kill me. I have no hope. Nevertheless, I will maintain my ways b
 This also will be my salvation, that a godless man will not come before him. 
 Listen carefully to my speech. Let my declaration be in your ears. 
 See now, I have set my cause in order. I know that I am righteous. 
-Who is he who will contend with me? For then I would hold my peace and give up the spirit. 
+Who is he who will contend with me? Then I would hold my peace and give up the spirit. 
 "Only don't do two things to me, then I will not hide myself from your face: 
 withdraw your hand far from me, and don't let your terror make me afraid. 
 Then call, and I will answer, or let me speak, and you answer me. 
 How many are my wrongdoings and my drift? Make me know my disobedience and my wrongdoing. 
 Why do you hide your face, and consider me your enemy? 
 Will you harass a driven leaf? Will you pursue the dry stubble? 
-For you write bitter things against me, and make me inherit the guilt of my youth. 
+You write bitter things against me, and make me inherit the guilt of my youth. 
 You also put my feet in the stocks, and mark all my paths. You set a bound to the soles of my feet, 
 though I am decaying like a rotten thing, like a garment that is moth-eaten. 

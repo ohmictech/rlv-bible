@@ -1,8 +1,8 @@
 ﻿Praise God! Praise God's name! Praise him, you servants of God, 
 you who stand in God's house, in the courts of our God's house. 
 Praise God, for God is good. Sing praises to his name, for that is pleasant. 
-For God has chosen Jacob for himself, Israel for his own possession. 
-For I know that God is great, that our Lord is above all gods. 
+God has chosen Jacob for himself, Israel for his own possession. 
+I know that God is great, that our Lord is above all gods. 
 Whatever God pleased, that he has done, in the sky and in earth, in the seas and in all deeps. 
 He causes the clouds to rise from the ends of the earth. He makes lightnings with the rain. He brings the wind out of his treasuries. 
 He struck the firstborn of Egypt, both of man and animal. 
@@ -11,7 +11,7 @@ He struck many nations, and killed mighty kings
 Sihon king of the Amorites, Og king of Bashan, and all the kingdoms of Canaan 
 and gave their land for a heritage, a heritage to Israel, his people. 
 Your name, God, endures for the eras; your renown, God, throughout all generations. 
-For God will judge his people and have compassion on his servants. 
+God will judge his people and have compassion on his servants. 
 The idols of the nations are silver and gold, the work of men's hands. 
 They have mouths, but they can't speak. They have eyes, but they can't see. 
 They have ears, but they can't hear, neither is there any breath in their mouths. 

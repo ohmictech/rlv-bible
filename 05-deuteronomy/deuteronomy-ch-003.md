@@ -21,7 +21,7 @@ until God gives rest to your brothers, as to you, and they also possess the land
 I commanded Joshua at that time, saying, "Your eyes have seen all that your God has done to these two kings. So shall God do to all the kingdoms where you go over. 
 You shall not fear them; for your God himself fights for you." 
 I begged GOD at that time, saying, 
-"God, you have begun to show your servant your greatness, and your strong hand. For what god is there in the sky or in earth that can do works like yours, and mighty acts like yours? 
+"God, you have begun to show your servant your greatness, and your strong hand. What god is there in the sky or in earth that can do works like yours, and mighty acts like yours? 
 Please let me go over and see the good land that is beyond the Jordan, that fine mountain, and Lebanon." 
 But God was angry with me because of you, and didn't listen to me. God said to me, "That is enough! Speak no more to me of this matter. 
 Go up to the top of Pisgah, and lift up your eyes westward, and northward, and southward, and eastward, and see with your eyes; for you shall not go over this Jordan. 

@@ -6,17 +6,17 @@ They said, "If we have found favor in your sight, let this land be given to your
 Moses said to the children of Gad, and to the children of Reuben, "Shall your brothers go to war while you sit here? 
 Why do you discourage the heart of the children of Israel from going over into the land which God has given them? 
 Your fathers did so when I sent them from Kadesh Barnea to see the land. 
-For when they went up to the valley of Eshcol, and saw the land, they discouraged the heart of the children of Israel, that they should not go into the land which God had given them. 
+When they went up to the valley of Eshcol, and saw the land, they discouraged the heart of the children of Israel, that they should not go into the land which God had given them. 
 God's anger burned in that day, and he swore, saying, 
 'Surely none of the men who came up out of Egypt, from twenty years old and upward, shall see the land which I swore to Abraham, to Isaac, and to Jacob; because they have not wholly followed me, 
 except Caleb the son of Jephunneh the Kenizzite, and Joshua the son of Nun, because they have followed God completely.' 
 God's anger burned against Israel, and he made them wander back and forth in the wilderness forty years, until all the generation who had done bad in God's sight was consumed. 
 "Behold, you have risen up in your fathers' place, an increase of sinful men, to increase the fierce anger of God toward Israel. 
-For if you turn away from after him, he will yet again leave them in the wilderness; and you will destroy all these people." 
+If you turn away from after him, he will yet again leave them in the wilderness; and you will destroy all these people." 
 They came near to him, and said, "We will build sheepfolds here for our livestock, and cities for our little ones; 
 but we ourselves will be ready armed to go before the children of Israel, until we have brought them to their place. Our little ones shall dwell in the fortified cities because of the inhabitants of the land. 
 We will not return to our houses until the children of Israel have all received their inheritance. 
-For we will not inherit with them on the other side of the Jordan and beyond, because our inheritance has come to us on this side of the Jordan eastward." 
+We will not inherit with them on the other side of the Jordan and beyond, because our inheritance has come to us on this side of the Jordan eastward." 
 Moses said to them: "If you will do this thing, if you will arm yourselves to go before God to the war, 
 and every one of your armed men will pass over the Jordan before God until he has driven out his enemies from before him, 
 and the land is subdued before God; then afterward you shall return, and be clear of obligation to God and to Israel. Then this land shall be your possession before God. 

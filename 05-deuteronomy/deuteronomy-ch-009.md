@@ -16,7 +16,7 @@ So I turned and came down from the mountain, and the mountain was burning with f
 I looked, and behold, you had wronged your God. You had made yourselves a molded calf. You had quickly turned away from the way which God had commanded you. 
 I took hold of the two tablets, and threw them out of my two hands, and broke them before your eyes. 
 I fell down before God, as at the first, forty days and forty nights. I neither ate bread nor drank water, because of all your wrong you did, in doing that which was bad in God's sight, to provoke him to anger. 
-For I was afraid of the anger and hot displeasure with which God was angry against you to destroy you. But God listened to me that time also. 
+I was afraid of the anger and hot displeasure with which God was angry against you to destroy you. But God listened to me that time also. 
 God was angry enough with Aaron to destroy him. I prayed for Aaron also at the same time. 
 I took that wrongdoing of yours, the calf which you had made, and burned it with fire, and crushed it, grinding it very small, until it was as fine as dust. I threw its dust into the brook that descended out of the mountain. 
 At Taberah, at Massah, and at Kibroth Hattaavah you provoked God to wrath. 

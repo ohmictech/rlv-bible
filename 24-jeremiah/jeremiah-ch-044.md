@@ -10,7 +10,7 @@ Have you forgotten the guilt of your fathers, the guilt of the kings of Judah, t
 They are not humbled even to this day, neither have they feared, nor walked in my law, nor in my statutes, that I set before you and before your fathers.' 
 "Therefore the God of Armies, the God of Israel says: 'Behold, I will set my face against you for bad, even to cut off all Judah. 
 I will take the remnant of Judah that have set their faces to go into the land of Egypt to live there, and they will all be consumed. They will fall in the land of Egypt. They will be consumed by the sword and by the famine. They will die, from the least even to the greatest, by the sword and by the famine. They will be an object of horror, an astonishment, a curse, and a reproach. 
-For I will punish those who dwell in the land of Egypt, as I have punished Jerusalem, by the sword, by the famine, and by the pestilence; 
+I will punish those who dwell in the land of Egypt, as I have punished Jerusalem, by the sword, by the famine, and by the pestilence; 
 so that none of the remnant of Judah, who have gone into the land of Egypt to live there, will escape or be left to return into the land of Judah, to which they have a desire to return to dwell there; for no one will return except those who will escape.'" 
 Then all the men who knew that their wives burned incense to other gods, and all the women who stood by, a great assembly, even everyone who lived in the land of Egypt, in Pathros, answered Jeremiah, saying, 
 "As for the word that you have spoken to us in God's name, we will not listen to you. 

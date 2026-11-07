@@ -17,7 +17,7 @@ So Joshua captured all that land, the hill country, all the South, all the land 
 from Mount Halak, that goes up to Seir, even to Baal Gad in the valley of Lebanon under Mount Hermon. He took all their kings, struck them, and put them to death. 
 Joshua made war a long time with all those kings. 
 There was not a city that made peace with the children of Israel, except the Hivites, the inhabitants of Gibeon. They took all in battle. 
-For it was of God to harden their hearts, to come against Israel in battle, that he might utterly destroy them, that they might have no favor, but that he might destroy them, as God commanded Moses. 
+It was of God to harden their hearts, to come against Israel in battle, that he might utterly destroy them, that they might have no favor, but that he might destroy them, as God commanded Moses. 
 Joshua came at that time, and cut off the Anakim from the hill country, from Hebron, from Debir, from Anab, and from all the hill country of Judah, and from all the hill country of Israel. Joshua utterly destroyed them with their cities. 
 There were none of the Anakim left in the land of the children of Israel. Only in Gaza, in Gath, and in Ashdod, did some remain. 
 So Joshua took the whole land, according to all that God spoke to Moses; and Joshua gave it for an inheritance to Israel according to their divisions by their tribes. Then the land had rest from war. 

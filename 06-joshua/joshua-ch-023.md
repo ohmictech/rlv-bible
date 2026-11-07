@@ -6,7 +6,7 @@ Your God will thrust them out from before you, and drive them from out of your s
 "So be very courageous to keep and to do all that is written in the book of the law of Moses, that you not turn away from it to the right hand or to the left; 
 that you not come among these nations, these that remain among you; neither make mention of the name of their gods, nor cause to swear by them, neither serve them, nor bow down yourselves to them; 
 but hold fast to your God, as you have done to this day. 
-"For God has driven great and strong nations out from before you. But as for you, no man has stood before you to this day. 
+"God has driven great and strong nations out from before you. But as for you, no man has stood before you to this day. 
 One man of you shall chase a thousand; for it is your God who fights for you, as he spoke to you. 
 Take good heed to yourselves, that you love your God. 
 "But if you do at all go back, and hold fast to the remnant of these nations, even these who remain among you, and make marriages with them, and go in to them, and they to you; 

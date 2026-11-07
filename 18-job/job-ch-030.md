@@ -8,7 +8,7 @@ They bray among the bushes. They are gathered together under the nettles.
 They are children of fools, yes, children of guilty men. They were flogged out of the land. 
 "Now I have become their song. Yes, I am a byword to them. 
 They abhor me, they stand aloof from me, and don't hesitate to spit in my face. 
-For he has untied his cord, and afflicted me; and they have thrown off restraint before me. 
+He has untied his cord, and afflicted me; and they have thrown off restraint before me. 
 On my right hand rise the rabble. They thrust aside my feet. They cast their ways of destruction up against me. 
 They mar my path. They promote my destruction without anyone's help. 
 As through a wide breach they come. They roll themselves in amid the ruin. 
@@ -20,7 +20,7 @@ He has cast me into the mire. I have become like dust and ashes.
 I cry to you, and you do not answer me. I stand up, and you gaze at me. 
 You have turned to be cruel to me. With the might of your hand you persecute me. 
 You lift me up to the wind, and drive me with it. You dissolve me in the storm. 
-For I know that you will bring me to death, to the house appointed for all living. 
+I know that you will bring me to death, to the house appointed for all living. 
 "However doesn't one stretch out a hand in his fall? Or in his calamity cry for help? 
 Didn't I weep for him who was in trouble? Wasn't my soul grieved for the needy? 
 When I looked for good, then bad came. When I waited for light, darkness came. 

@@ -8,7 +8,7 @@ Don't remember the drifts of my youth, nor my rebellion. Remember me according t
 Good and upright is God, he will instruct those who have drifted in the way. 
 He will guide the humble in justice. He will teach the humble his way. 
 All the paths of God are loving kindness and truth to such as keep his covenant and his testimonies. 
-For your name's sake, God, pardon my guilt, for it is great. 
+Your name's sake, God, pardon my guilt, for it is great. 
 What man is he who fears God? He shall instruct him in the way that he shall choose. 
 His soul will dwell at ease. His offspring will inherit the land. 
 The friendship of God is with those who fear him. He will show them his covenant. 

@@ -22,10 +22,10 @@ The sons of Merari: Mahli and Mushi. The sons of Mahli: Eleazar and Kish.
 Eleazar died, and had no sons, but daughters only; and their relatives, the sons of Kish, took them as wives. 
 The sons of Mushi: Mahli, Eder, and Jeremoth, three. 
 These were the sons of Levi after their fathers' houses, even the heads of the fathers' houses of those who were counted individually, in the number of names by their polls, who did the work for the service of God's house, from twenty years old and upward. 
-For David said, "The God of Israel has given rest to his people; and he dwells in Jerusalem for the eras. 
+David said, "The God of Israel has given rest to his people; and he dwells in Jerusalem for the eras. 
 Also the Levites will no longer need to carry the tabernacle and all its vessels for its service." 
-For by the last words of David the sons of Levi were counted, from twenty years old and upward. 
-For their duty was to wait on the sons of Aaron for the service of God's house, in the courts, in the rooms, and in the purifying of all holy things, even the work of the service of God's house; 
+By the last words of David the sons of Levi were counted, from twenty years old and upward. 
+Their duty was to wait on the sons of Aaron for the service of God's house, in the courts, in the rooms, and in the purifying of all holy things, even the work of the service of God's house; 
 for the show bread also, and for the fine flour for a meal offering, whether of unleavened wafers, or of that which is baked in the pan, or of that which is soaked, and for all measurements of quantity and size; 
 and to stand every morning to thank and praise God, and likewise in the evening; 
 and to offer all burnt offerings to God on the Sabbaths, on the new moons, and on the set feasts, in number according to the ordinance concerning them, continually before God; 

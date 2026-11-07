@@ -1,4 +1,4 @@
-﻿For the Chief Musician. On stringed instruments. A Psalm by Asaph. A song. In Judah, God is known. His name is great in Israel. 
+﻿The Chief Musician. On stringed instruments. A Psalm by Asaph. A song. In Judah, God is known. His name is great in Israel. 
 His tabernacle is also in Salem. His dwelling place in Zion. 
 There he broke the flaming arrows of the bow, the shield, and the sword, and the weapons of war. Selah. 
 Glorious are you, and excellent, more than mountains of game. 

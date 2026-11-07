@@ -28,9 +28,9 @@ It is good for a man that he bear the yoke in his youth.
 Let him sit alone and keep silence, because he has laid it on him. 
 Let him put his mouth in the dust, if it is so that there may be hope. 
 Let him give his cheek to him who strikes him. Let him be filled full of reproach. 
-For the Lord will not cast off for the eras. 
-For though he causes grief, yet he will have compassion according to the multitude of his loving kindnesses. 
-For he does not afflict willingly, nor grieve the children of men. 
+The Lord will not cast off for the eras. 
+Though he causes grief, yet he will have compassion according to the multitude of his loving kindnesses. 
+He does not afflict willingly, nor grieve the children of men. 
 To crush under foot all the prisoners of the earth, 
 to turn away the right of a man before the face of the Most High, 
 to subvert a man in his cause, the Lord doesn't approve. 

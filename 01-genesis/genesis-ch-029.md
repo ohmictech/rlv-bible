@@ -1,5 +1,5 @@
 ﻿Then Jacob went on his journey, and came to the land of the children of the east. 
-He looked, and saw a well in the field, and saw three flocks of sheep lying there by it. For out of that well they watered the flocks. The stone on the well's mouth was large. 
+He looked, and saw a well in the field, and saw three flocks of sheep lying there by it. Out of that well they watered the flocks. The stone on the well's mouth was large. 
 There all the flocks were gathered. They rolled the stone from the well's mouth, and watered the sheep, and put the stone back on the well's mouth in its place. 
 Jacob said to them, "My relatives, where are you from?" They said, "We are from Haran." 
 He said to them, "Do you know Laban, the son of Nahor?" They said, "We know him." 
@@ -29,7 +29,7 @@ Jacob did so, and fulfilled her week. He gave him Rachel his daughter as wife.
 Laban gave Bilhah, his servant, to his daughter Rachel to be her servant. 
 He went in also to Rachel, and he loved also Rachel more than Leah, and served with him seven more years. 
 God saw that Leah was hated, and he opened her womb, but Rachel was barren. 
-Leah conceived, and bore a son, and she named him Reuben. For she said, "Because God has looked at my affliction; for now my husband will love me." 
+Leah conceived, and bore a son, and she named him Reuben. She said, "Because God has looked at my affliction; for now my husband will love me." 
 She conceived again, and bore a son, and said, "Because God has heard that I am hated, he has given me this son also." She named him Simeon. 
 She conceived again, and bore a son. She said, "Now this time my husband will be joined to me, because I have borne him three sons." Therefore his name was called Levi. 
 She conceived again, and bore a son. She said, "This time I will praise God." Therefore she named him Judah. Then she stopped bearing. 

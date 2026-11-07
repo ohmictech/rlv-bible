@@ -15,8 +15,8 @@ for he has not directed his words against me; neither will I answer him with you
 "They are amazed. They answer no more. They don't have a word to say. 
 Shall I wait, because they don't speak, because they stand still, and answer no more? 
 I also will answer my part, and I also will show my opinion. 
-For I am full of words. The spirit within me constrains me. 
+I am full of words. The spirit within me constrains me. 
 Behold, my breast is as wine which has no vent; like new wineskins it is ready to burst. 
 I will speak, that I may be refreshed. I will open my lips and answer. 
 Please don't let me respect any man's person, neither will I give flattering titles to any man. 
-For I don't know how to give flattering titles, or else my Maker would soon take me away. 
+I don't know how to give flattering titles, or else my Maker would soon take me away. 

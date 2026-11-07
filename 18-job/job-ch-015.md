@@ -2,7 +2,7 @@
 "Should a wise man answer with vain knowledge, and fill himself with the east wind? 
 Should he reason with unprofitable talk, or with speeches with which he can do no good? 
 Yes, you do away with fear, and hinder devotion before God. 
-For your guilt teaches your mouth, and you choose the language of the crafty. 
+Your guilt teaches your mouth, and you choose the language of the crafty. 
 Your own mouth condemns you, and not I. Yes, your own lips testify against you. 
 "Are you the first man who was born? Or were you brought out before the hills? 
 Have you heard the secret counsel of God? Do you limit wisdom to yourself? 
@@ -31,5 +31,5 @@ He will not depart out of darkness. The flame will dry up his branches. He will 
 Let him not trust in emptiness, deceiving himself, for emptiness will be his reward. 
 It will be accomplished before his time. His branch will not be green. 
 He will shake off his unripe grape as the vine, and will cast off his flower as the olive tree. 
-For the company of the godless will be barren, and fire will consume the tents of bribery. 
+The company of the godless will be barren, and fire will consume the tents of bribery. 
 They conceive mischief and produce guilt. Their heart prepares deceit." 

@@ -5,7 +5,7 @@ You who tear yourself in your anger, will the earth be forsaken for you? Or will
 "Yes, the light of the guilty will be put out. The spark of his fire won't shine. 
 The light will be dark in his tent. His lamp above him will be put out. 
 The steps of his strength will be shortened. His own counsel will cast him down. 
-For he is cast into a net by his own feet, and he wanders into its mesh. 
+He is cast into a net by his own feet, and he wanders into its mesh. 
 A snare will take him by the heel. A trap will catch him. 
 A noose is hidden for him in the ground, a trap for him on the path. 
 Terrors will make him afraid on every side, and will chase him at his heels. 

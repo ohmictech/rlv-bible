@@ -3,7 +3,7 @@ Solomon sent to Hiram, saying,
 "You know that David my father could not build a house for the name of his God because of the wars which were around him on every side, until God put his enemies under the soles of his feet. 
 But now my God has given me rest on every side. There is no enemy and no bad occurrence. 
 Behold, I intend to build a house for the name of my God, as God spoke to David my father, saying, 'Your son, whom I will set on your throne in your place shall build the house for my name.' 
-Now command that cedar trees be cut for me out of Lebanon. My servants will be with your servants; and I will give you wages for your servants according to all that you say. For you know that there is nobody among us who knows how to cut timber like the Sidonians." 
+Now command that cedar trees be cut for me out of Lebanon. My servants will be with your servants; and I will give you wages for your servants according to all that you say. You know that there is nobody among us who knows how to cut timber like the Sidonians." 
 When Hiram heard the words of Solomon, he rejoiced greatly, and said, "Blessed is God today, who has given to David a wise son to rule over this great people." 
 Hiram sent to Solomon, saying, "I have heard the message which you have sent to me. I will do all your desire concerning timber of cedar, and concerning cypress timber. 
 My servants will bring them down from Lebanon to the sea. I will make them into rafts to go by sea to the place that you specify to me, and will cause them to be broken up there, and you will receive them. You will accomplish my desire, in giving food for my household." 

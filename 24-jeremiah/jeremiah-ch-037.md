@@ -7,7 +7,7 @@ Then God's word came to the spokesman Jeremiah, saying,
 "The God of Israel says, 'You shall tell the king of Judah, who sent you to me to inquire of me: "Behold, Pharaoh's army, which has come out to help you, will return to Egypt into their own land. 
 The Chaldeans will come again, and fight against this city. They will take it and burn it with fire."' 
 "God says, 'Don't deceive yourselves, saying, "The Chaldeans will surely depart from us;" for they will not depart. 
-For though you had struck the whole army of the Chaldeans who fight against you, and only wounded men remained among them, they would each rise up in his tent and burn this city with fire.'" 
+Though you had struck the whole army of the Chaldeans who fight against you, and only wounded men remained among them, they would each rise up in his tent and burn this city with fire.'" 
 When the army of the Chaldeans had withdrawn from Jerusalem for fear of Pharaoh's army, 
 then Jeremiah went out of Jerusalem to go into the land of Benjamin, to receive his portion there, in the middle of the people. 
 When he was in Benjamin's gate, a captain of the guard was there, whose name was Irijah, the son of Shelemiah, the son of Hananiah; and he seized Jeremiah the spokesman, saying, "You are defecting to the Chaldeans!" 

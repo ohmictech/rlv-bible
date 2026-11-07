@@ -1,13 +1,13 @@
-﻿For the Chief Musician. A Psalm by the sons of Korah. Hear this, all you peoples. Listen, all you inhabitants of the world, 
+﻿The Chief Musician. A Psalm by the sons of Korah. Hear this, all you peoples. Listen, all you inhabitants of the world, 
 both low and high, rich and poor together. 
 My mouth will speak words of wisdom. My heart will utter understanding. 
 I will incline my ear to a proverb. I will solve my riddle on the harp. 
 Why should I fear in the days of bad, when guilt at my heels surrounds me? 
 Those who trust in their wealth, and boast in the multitude of their riches 
 none of them can by any means buy back his brother, nor give God a ransom for him. 
-For the buying back of their life is costly, no payment is ever enough, 
+The buying back of their life is costly, no payment is ever enough, 
 that he should live on for the eras, that he should not see corruption. 
-For he sees that wise men die; likewise the fool and the senseless perish, and leave their wealth to others. 
+He sees that wise men die; likewise the fool and the senseless perish, and leave their wealth to others. 
 Their inward thought is that their houses will endure for the eras, and their dwelling places to all generations. They name their lands after themselves. 
 But man, despite his riches, doesn't endure. He is like the animals that perish. 
 This is the destiny of those who are foolish, and of those who approve their sayings. Selah. 

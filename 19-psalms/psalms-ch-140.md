@@ -1,4 +1,4 @@
-﻿For the Chief Musician. A Psalm by David. Deliver me, God, from what is bad men. Preserve me from violent men: 
+﻿The Chief Musician. A Psalm by David. Deliver me, God, from what is bad men. Preserve me from violent men: 
 those who devise mischief in their hearts. They continually gather themselves together for war. 
 They have sharpened their tongues like a serpent. Viper's poison is under their lips. Selah. 
 God, keep me from the hands of the guilty. Preserve me from the violent men who have determined to trip my feet. 

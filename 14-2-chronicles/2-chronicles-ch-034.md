@@ -1,6 +1,6 @@
 ﻿Josiah was eight years old when he began to reign, and he reigned thirty-one years in Jerusalem. 
 He did that which was right in God's eyes, and walked in the ways of David his father, and didn't turn away to the right hand or to the left. 
-For in the eighth year of his reign, while he was yet young, he began to seek after the God of David his father; and in the twelfth year he began to purge Judah and Jerusalem from the high places, the Asherah poles, the engraved images, and the molten images. 
+In the eighth year of his reign, while he was yet young, he began to seek after the God of David his father; and in the twelfth year he began to purge Judah and Jerusalem from the high places, the Asherah poles, the engraved images, and the molten images. 
 They broke down the altars of the Baals in his presence; and he cut down the incense altars that were on high above them. He broke the Asherah poles, the engraved images, and the molten images in pieces, made dust of them, and scattered it on the graves of those who had sacrificed to them. 
 He burned the bones of the priests on their altars, and purged Judah and Jerusalem. 
 He did this in the cities of Manasseh, Ephraim, and Simeon, even to Naphtali, around in their ruins. 

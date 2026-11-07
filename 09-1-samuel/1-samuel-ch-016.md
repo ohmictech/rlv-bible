@@ -4,7 +4,7 @@ Call Jesse to the sacrifice, and I will show you what you shall do. You shall an
 Samuel did that which God spoke, and came to Bethlehem. The elders of the city came to meet him trembling, and said, "Do you come peaceably?" 
 He said, "Peaceably; I have come to sacrifice to God. Sanctify yourselves, and come with me to the sacrifice." He sanctified Jesse and his sons, and called them to the sacrifice. 
 When they had come, he looked at Eliab, and said, "Surely God's anointed is before him." 
-But God said to Samuel, "Don't look on his face, or on the height of his stature, because I have rejected him; for I don't see as man sees. For man looks at the outward appearance, but God looks at the heart." 
+But God said to Samuel, "Don't look on his face, or on the height of his stature, because I have rejected him; for I don't see as man sees. Man looks at the outward appearance, but God looks at the heart." 
 Then Jesse called Abinadab, and made him pass before Samuel. He said, "God has not chosen this one, either." 
 Then Jesse made Shammah to pass by. He said, "God has not chosen this one, either." 
 Jesse made seven of his sons to pass before Samuel. Samuel said to Jesse, "God has not chosen these." 

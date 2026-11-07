@@ -10,8 +10,8 @@ Rejoice greatly, daughter of Zion! Shout, daughter of Jerusalem! Behold, your Ki
 I will cut off the chariot from Ephraim and the horse from Jerusalem. The battle bow will be cut off; and he will speak peace to the nations. His dominion will be from sea to sea, and from the River to the ends of the earth. 
 As for you also, because of the blood of your covenant, I have set free your prisoners from the pit in which is no water. 
 Turn to the stronghold, you prisoners of hope! Even today I declare that I will restore double to you. 
-For indeed I bend Judah as a bow for me. I have loaded the bow with Ephraim. I will stir up your sons, Zion, against your sons, Greece, and will make you like the sword of a mighty man. 
+Indeed I bend Judah as a bow for me. I have loaded the bow with Ephraim. I will stir up your sons, Zion, against your sons, Greece, and will make you like the sword of a mighty man. 
 God will be seen over them. His arrow will flash like lightning. The God will blow the trumpet, and will go with whirlwinds of the south. 
 The God of Armies will defend them. They will destroy and overcome with sling stones. They will drink, and roar as through wine. They will be filled like bowls, like the corners of the altar. 
 Their God will save them in that day as the flock of his people; for they are like the jewels of a crown, lifted on high over his land. 
-For how great is his goodness, and how great is his beauty! Grain will make the young men flourish, and new wine the virgins. 
+How great is his goodness, and how great is his beauty! Grain will make the young men flourish, and new wine the virgins. 

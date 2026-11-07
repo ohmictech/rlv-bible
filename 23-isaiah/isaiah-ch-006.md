@@ -2,7 +2,7 @@
 Above him stood the seraphim. Each one had six wings. With two he covered his face. With two he covered his feet. With two he flew. 
 One called to another, and said, "Holy, holy, holy, is the God of Armies! The whole earth is full of his glory!" 
 The foundations of the thresholds shook at the voice of him who called, and the house was filled with smoke. 
-Then I said, "Woe is me! For I am undone, because I am a man of unclean lips and I live among a people of unclean lips, for my eyes have seen the King, the God of Armies!" 
+Then I said, "Woe is me! I am undone, because I am a man of unclean lips and I live among a people of unclean lips, for my eyes have seen the King, the God of Armies!" 
 Then one of the seraphim flew to me, having a live coal in his hand, which he had taken with the tongs from off the altar. 
 He touched my mouth with it, and said, "Behold, this has touched your lips; and your guilt is taken away, and your wrongdoing forgiven." 
 I heard the Lord's voice, saying, "Whom shall I send, and who will go for us?" Then I said, "Here I am. Send me!" 

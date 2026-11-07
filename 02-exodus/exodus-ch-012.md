@@ -9,7 +9,7 @@ They shall eat the meat in that night, roasted with fire, with unleavened bread.
 Don't eat it raw, nor boiled at all with water, but roasted with fire; with its head, its legs and its inner parts. 
 You shall let nothing of it remain until the morning; but that which remains of it until the morning you shall burn with fire. 
 This is how you shall eat it: with your belt on your waist, your sandals on your feet, and your staff in your hand; and you shall eat it in haste: it is God's Passover. 
-For I will go through the land of Egypt in that night, and will strike all the firstborn in the land of Egypt, both man and animal. I will execute judgments against all the gods of Egypt. I am God. 
+I will go through the land of Egypt in that night, and will strike all the firstborn in the land of Egypt, both man and animal. I will execute judgments against all the gods of Egypt. I am God. 
 The blood shall be to you for a token on the houses where you are. When I see the blood, I will pass over you, and no plague will be on you to destroy you when I strike the land of Egypt. 
 This day shall be a memorial for you. You shall keep it as a feast to God. You shall keep it as a feast throughout your generations by an ordinance for the eras. 
 "'Seven days you shall eat unleavened bread; even the first day you shall put away yeast out of your houses, for whoever eats leavened bread from the first day until the seventh day, that soul shall be cut off from Israel. 
@@ -20,7 +20,7 @@ There shall be no yeast found in your houses for seven days, for whoever eats th
 You shall eat nothing leavened. In all your habitations you shall eat unleavened bread.'" 
 Then Moses called for all the elders of Israel, and said to them, "Draw out, and take lambs according to your families, and kill the Passover. 
 You shall take a bunch of hyssop, and dip it in the blood that is in the bamistake, and strike the lintel and the two door posts with the blood that is in the bamistake. None of you shall go out of the door of his house until the morning. 
-For God will pass through to strike the Egyptians; and when he sees the blood on the lintel, and on the two door posts, God will pass over the door, and will not allow the destroyer to come in to your houses to strike you. 
+God will pass through to strike the Egyptians; and when he sees the blood on the lintel, and on the two door posts, God will pass over the door, and will not allow the destroyer to come in to your houses to strike you. 
 You shall observe this thing for an ordinance to you and to your sons for the eras. 
 It shall happen when you have come to the land which God will give you, as he has promised, that you shall keep this service. 
 It will happen, when your children ask you, 'What do you mean by this service?' 

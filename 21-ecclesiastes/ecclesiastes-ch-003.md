@@ -1,4 +1,4 @@
-﻿For everything there is a season, and a time for every purpose under the sky: 
+﻿Everything there is a season, and a time for every purpose under the sky: 
 a time to be born, and a time to die; a time to plant, and a time to pluck up that which is planted; 
 a time to kill, and a time to heal; a time to break down, and a time to build up; 
 a time to weep, and a time to laugh; a time to mourn, and a time to dance; 
@@ -16,7 +16,7 @@ That which is has been long ago, and that which is to be has been long ago. God 
 Moreover I saw under the sun, in the place of justice, that guilt was there; and in the place of righteousness, that guilt was there. 
 I said in my heart, "God will judge the righteous and the guilty; for there is a time there for every purpose and for every work." 
 I said in my heart, "As for the sons of men, God tests them, so that they may see that they themselves are like animals. 
-For that which happens to the sons of men happens to animals. Even one thing happens to them. As the one dies, so the other dies. Yes, they have all one breath; and man has no advantage over the animals, for all is vanity. 
+That which happens to the sons of men happens to animals. Even one thing happens to them. As the one dies, so the other dies. Yes, they have all one breath; and man has no advantage over the animals, for all is vanity. 
 All go to one place. All are from the dust, and all turn to dust again. 
 Who knows the spirit of man, whether it goes upward, and the spirit of the animal, whether it goes downward to the earth?" 
 So I saw that there is nothing better than that a man should rejoice in his works, for that is his portion; for who can bring him to see what will be after him? 

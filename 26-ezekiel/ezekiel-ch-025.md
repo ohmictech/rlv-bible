@@ -3,7 +3,7 @@
 Tell the children of Ammon, 'Hear the word of God! The God says, "Because you said, 'Aha!' against my sanctuary when it was profaned, and against the land of Israel when it was made desolate, and against the house of Judah when they went into captivity, 
 So, behold, I will deliver you to the children of the east for a possession. They will set their encampments in you and make their dwellings in you. They will eat your fruit and they will drink your milk. 
 I will make Rabbah a stable for camels and the children of Ammon a resting place for flocks. Then you will know that I am God." 
-For God says: "Because you have clapped your hands, stamped with the feet, and rejoiced with all the contempt of your soul against the land of Israel, 
+God says: "Because you have clapped your hands, stamped with the feet, and rejoiced with all the contempt of your soul against the land of Israel, 
 So, behold, I have stretched out my hand on you, and will deliver you for a plunder to the nations. I will cut you off from the peoples, and I will cause you to perish out of the countries. I will destroy you. Then you will know that I am God." 
 "'The God says: "Because Moab and Seir say, 'Behold, the house of Judah is like all the nations,' 
 So, behold, I will open the side of Moab from the cities, from his cities which are on its frontiers, the glory of the country, Beth Jeshimoth, Baal Meon, and Kiriathaim, 

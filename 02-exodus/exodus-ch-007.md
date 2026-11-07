@@ -9,7 +9,7 @@ God spoke to Moses and to Aaron, saying,
 "When Pharaoh speaks to you, saying, 'Perform a miracle!' then you shall tell Aaron, 'Take your rod, and cast it down before Pharaoh, and it will become a serpent.'" 
 Moses and Aaron went in to Pharaoh, and they did so, as God had commanded. Aaron cast down his rod before Pharaoh and before his servants, and it became a serpent. 
 Then Pharaoh also called for the wise men and the sorcerers. They also, the magicians of Egypt, did the same thing with their enchantments. 
-For they each cast down their rods, and they became serpents; but Aaron's rod swallowed up their rods. 
+They each cast down their rods, and they became serpents; but Aaron's rod swallowed up their rods. 
 Pharaoh's heart was hardened, and he didn't listen to them, as God had spoken. 
 God said to Moses, "Pharaoh's heart is stubborn. He refuses to let the people go. 
 Go to Pharaoh in the morning. Behold, he is going out to the water. You shall stand by the river's bank to meet him. You shall take the rod which was turned to a serpent in your hand. 

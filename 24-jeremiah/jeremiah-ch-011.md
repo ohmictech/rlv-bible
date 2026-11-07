@@ -4,17 +4,17 @@ and say to them, the God of Israel says: 'Cursed is the man who doesn't hear the
 which I commanded your fathers in the day that I brought them out of the land of Egypt, out of the iron furnace,' saying, 'Obey my voice and do them, according to all which I command you; so you shall be my people, and I will be your God; 
 that I may establish the oath which I swore to your fathers, to give them a land flowing with milk and honey,' as it is today." Then I answered, and said, "Amen, God." 
 God said to me, "Proclaim all these words in the cities of Judah, and in the streets of Jerusalem, saying, 'Hear the words of this covenant, and do them. 
-For I earnestly protested to your fathers in the day that I brought them up out of the land of Egypt, even to this day, rising early and protesting, saying, "Obey my voice." 
+I earnestly protested to your fathers in the day that I brought them up out of the land of Egypt, even to this day, rising early and protesting, saying, "Obey my voice." 
 Yet they didn't obey, nor turn their ear, but everyone walked in the stubbornness of their bad heart. So I brought on them all the words of this covenant, which I commanded them to do, but they didn't do them.'" 
 God said to me, "A conspiracy is found among the men of Judah, and among the inhabitants of Jerusalem. 
 They have turned back to the guilt of their forefathers, who refused to hear my words. They have gone after other gods to serve them. The house of Israel and the house of Judah have broken my covenant which I made with their fathers. 
 So God says, 'Behold, I will bring bad on them which they will not be able to escape; and they will cry to me, but I will not listen to them. 
 Then the cities of Judah and the inhabitants of Jerusalem will go and cry to the gods to which they offer incense, but they will not save them at all in the time of their trouble. 
-For according to the number of your cities are your gods, Judah; and according to the number of the streets of Jerusalem you have set up altars to the shameful thing, even altars to burn incense to Baal.' 
+According to the number of your cities are your gods, Judah; and according to the number of the streets of Jerusalem you have set up altars to the shameful thing, even altars to burn incense to Baal.' 
 "Therefore don't pray for this people. Don't lift up cry or prayer for them; for I will not hear them in the time that they cry to me because of their trouble. 
 What has my beloved to do in my house, since she has behaved lewdly with many, and the holy flesh has passed from you? When you do bad things, then you rejoice." 
 God called your name, "A green olive tree, beautiful with goodly fruit." With the noise of a great roar he has kindled fire on it, and its branches are broken. 
-For the God of Armies, who planted you, has pronounced bad against you, because of the bad of the house of Israel and of the house of Judah, which they have done to themselves in provoking me to anger by offering incense to Baal. 
+The God of Armies, who planted you, has pronounced bad against you, because of the bad of the house of Israel and of the house of Judah, which they have done to themselves in provoking me to anger by offering incense to Baal. 
 God gave me knowledge of it, and I knew it. Then you showed me their doings. 
 But I was like a gentle lamb that is led to the slaughter. I didn't know that they had devised plans against me, saying, "Let's destroy the tree with its fruit, and let's cut him off from the land of the living, that his name may be no more remembered." 
 But, God of Armies, who judges righteously, who tests the heart and the mind, I will see your vengeance on them; for to you I have revealed my cause. 

@@ -7,7 +7,7 @@ In his days Judah will be saved, and Israel will dwell safely. This is his name 
 "So, behold, the days come," says God, "that they will no more say, 'As God lives, who brought up the children of Israel out of the land of Egypt;' 
 but, 'As God lives, who brought up and who led the offspring of the house of Israel out of the north country, and from all the countries where I had driven them.' Then they will dwell in their own land." 
 Concerning the spokesmen: My heart within me is broken. All my bones shake. I am like a drunken man, and like a man whom wine has overcome, because of God, and because of his holy words. 
-"For the land is full of adulterers; for because of the curse the land mourns. The pastures of the wilderness have dried up. Their course is bad, and their might is not right; 
+"The land is full of adulterers; for because of the curse the land mourns. The pastures of the wilderness have dried up. Their course is bad, and their might is not right; 
 for both spokesman and priest are profane. Yes, in my house I have found their guilt," says God. 
 So their way will be to them as slippery places in the darkness. They will be driven on, and fall therein; for I will bring bad on them, even the year of their visitation," says God. 
 "I have seen folly in the spokesmen of Samaria. They prophesied by Baal, and caused my people Israel to err. 

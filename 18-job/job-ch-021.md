@@ -18,14 +18,14 @@ Behold, their prosperity is not in their hand. The counsel of the guilty is far 
 How often is it that they are as stubble before the wind, as chaff that the storm carries away? 
 You say, 'God lays up his guilt for his children.' Let him recompense it to himself, that he may know it. 
 Let his own eyes see his destruction. Let him drink of the wrath of the Almighty. 
-For what does he care for his house after him, when the number of his months is cut off? 
+What does he care for his house after him, when the number of his months is cut off? 
 "Shall any teach God knowledge, since he judges those who are high? 
 One dies in his full strength, being wholly at ease and quiet. 
 His pails are full of milk. The marrow of his bones is moistened. 
 Another dies in bitterness of soul, and never tastes of good. 
 They lie down alike in the dust. The worm covers them. 
 "Behold, I know your thoughts, the plans with which you would wrong me. 
-For you say, 'Where is the house of the prince? Where is the tent in which the guilty lived?' 
+You say, 'Where is the house of the prince? Where is the tent in which the guilty lived?' 
 Haven't you asked wayfaring men? Don't you know their evidences, 
 that the bad man is reserved to the day of calamity, that they are led out to the day of wrath? 
 Who will declare his way to his face? Who will repay him what he has done? 

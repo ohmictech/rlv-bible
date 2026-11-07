@@ -11,7 +11,7 @@ He said, "You are blessed by God, my daughter. You have shown more kindness in t
 Now, my daughter, don't be afraid. I will do to you all that you say; for all the city of my people knows that you are a worthy woman. 
 Now it is true that I am a near kinsman. However, there is a kinsman nearer than I. 
 Stay this night, and in the morning, if he will perform for you the part of a kinsman, good. Let him do the kinsman's duty. But if he will not do the duty of a kinsman for you, then I will do the duty of a kinsman for you, as God lives. Lie down until the morning." 
-She lay at his feet until the morning, then she rose up before one could discern another. For he said, "Let it not be known that the woman came to the threshing floor." 
+She lay at his feet until the morning, then she rose up before one could discern another. He said, "Let it not be known that the woman came to the threshing floor." 
 He said, "Bring the mantle that is on you, and hold it." She held it; and he measured six measures of barley, and laid it on her; then he went into the city. 
 When she came to her mother-in-law, she said, "How did it go, my daughter?" She told her all that the man had done for her. 
 She said, "He gave me these six measures of barley; for he said, 'Don't go empty to your mother-in-law.'" 

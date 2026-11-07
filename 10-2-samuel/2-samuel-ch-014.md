@@ -10,8 +10,8 @@ The woman of Tekoa said to the king, "My lord, O king, may the guilt be on me, a
 The king said, "Whoever says anything to you, bring him to me, and he will not bother you any more." 
 Then she said, "Please let the king remember your God, that the avenger of blood destroy not any more, lest they destroy my son." He said, "As God lives, not one hair of your son shall fall to the earth." 
 Then the woman said, "Please let your servant speak a word to my lord the king." He said, "Say on." 
-The woman said, "Why then have you devised such a thing against the people of God? For in speaking this word the king is as one who is guilty, in that the king does not bring home again his banished one. 
-For we must die, and are like water spilled on the ground, which can't be gathered up again; neither does God take away life, but devises means, that he who is banished not be an outcast from him. 
+The woman said, "Why then have you devised such a thing against the people of God? In speaking this word the king is as one who is guilty, in that the king does not bring home again his banished one. 
+We must die, and are like water spilled on the ground, which can't be gathered up again; neither does God take away life, but devises means, that he who is banished not be an outcast from him. 
 Now, seeing that I have come to speak this word to my lord the king, it is because the people have made me afraid. Your servant said, 'I will now speak to the king; it may be that the king will perform the request of his servant.' 
 For the king will hear, to deliver his servant out of the hand of the man who would destroy me and my son together out of the inheritance of God. 
 Then your servant said, 'Please let the word of my lord the king bring rest; for as an messenger of God, so is my lord the king to discern good and bad. May God, your God, be with you.'" 

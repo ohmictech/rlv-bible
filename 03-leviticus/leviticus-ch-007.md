@@ -22,7 +22,7 @@ When anyone touches any unclean thing, the uncleanness of man, or an unclean ani
 God spoke to Moses, saying, 
 "Speak to the children of Israel, saying, 'You shall eat no fat, of bull, or sheep, or goat. 
 The fat of that which dies of itself, and the fat of that which is torn of animals, may be used for any other service, but you shall in no way eat of it. 
-For whoever eats the fat of the animal which men offer as an offering made by fire to God, even the soul who eats it shall be cut off from his people. 
+Whoever eats the fat of the animal which men offer as an offering made by fire to God, even the soul who eats it shall be cut off from his people. 
 You shall not eat any blood, whether it is of bird or of animal, in any of your dwellings. 
 Whoever it is who eats any blood, that soul shall be cut off from his people.'" 
 God spoke to Moses, saying, 
@@ -31,7 +31,7 @@ With his own hands he shall bring the offerings of God made by fire. He shall br
 The priest shall burn the fat on the altar, but the breast shall be Aaron's and his sons'. 
 The right thigh you shall give to the priest for a heave offering out of the sacrifices of your offerings for wholeness. 
 He among the sons of Aaron who offers the blood of the offerings for wholeness, and the fat, shall have the right thigh for a portion. 
-For the waved breast and the heaved thigh I have taken from the children of Israel out of the sacrifices of their offerings for wholeness, and have given them to Aaron the priest and to his sons as their portion for the eras from the children of Israel.'" 
+The waved breast and the heaved thigh I have taken from the children of Israel out of the sacrifices of their offerings for wholeness, and have given them to Aaron the priest and to his sons as their portion for the eras from the children of Israel.'" 
 This is the consecrated portion of Aaron, and the consecrated portion of his sons, out of the offerings of God made by fire, in the day when he presented them to minister to God in the priest's office; 
 which God commanded to be given them of the children of Israel, in the day that he anointed them. It is their portion for the eras throughout their generations. 
 This is the law of the burnt offering, the meal offering, the offering for wrongdoing, the trespass offering, the consecration, and the sacrifice of offerings for wholeness 

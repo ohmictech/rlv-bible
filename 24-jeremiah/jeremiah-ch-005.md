@@ -8,7 +8,7 @@ So a lion out of the forest will kill them. A wolf of the evenings will destroy 
 They were as fed horses roaming at large. Everyone neighed after his neighbor's wife. 
 Shouldn't I punish them for these things?" says God. "Shouldn't my soul be avenged on such a nation as this? 
 "Go up on her walls, and destroy, but don't make a full end. Take away her branches, for they are not God's. 
-For the house of Israel and the house of Judah have dealt very treacherously against me," says God. 
+The house of Israel and the house of Judah have dealt very treacherously against me," says God. 
 They have denied God, and said, "It is not he. Bad won't come on us. We won't see sword or famine. 
 The spokesmen will become wind, and the word is not in them. Thus it will be done to them." 
 So the God of Armies says, "Because you speak this word, behold, I will make my words in your mouth fire, and this people wood, and it will devour them. 
@@ -23,7 +23,7 @@ Don't you fear me?' says God; 'Won't you tremble at my presence, who have placed
 "But this people has a revolting and a rebellious heart. They have revolted and gone. 
 They don't say in their heart, 'Let's now fear our God, who gives rain, both the former and the latter, in its season, who preserves to us the appointed weeks of the harvest.' 
 "Your guilt have turned away these things, and your mistakes have withheld good from you. 
-For guilty men are found among my people. They watch, as fowlers lie in wait. They set a trap. They catch men. 
+Guilty men are found among my people. They watch, as fowlers lie in wait. They set a trap. They catch men. 
 As a cage is full of birds, so are their houses full of deceit. So they have become great, and grew rich. 
 They have grown fat. They shine; yes, they excel in deeds of guilt. They don't plead the cause, the cause of the fatherless, that they may prosper; and they don't defend the rights of the needy. 
 "Shouldn't I punish for these things?" says God. "Shouldn't my soul be avenged on such a nation as this? 

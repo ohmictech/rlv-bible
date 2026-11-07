@@ -9,7 +9,7 @@ He shall have dominion also from sea to sea, from the River to the ends of the e
 Those who dwell in the wilderness shall bow before him. His enemies shall lick the dust. 
 The kings of Tarshish and of the islands will bring tribute. The kings of Sheba and Seba shall offer gifts. 
 Yes, all kings shall fall down before him. All nations shall serve him. 
-For he will deliver the needy when he cries; the poor, who has no helper. 
+He will deliver the needy when he cries; the poor, who has no helper. 
 He will have pity on the poor and needy. He will save the souls of the needy. 
 He will buy back their soul from oppression and violence. Their blood will be precious in his sight. 
 He will live; and Sheba's gold will be given to him. Men will pray for him continually. They will bless him all day long. 

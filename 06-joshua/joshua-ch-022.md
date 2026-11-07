@@ -22,7 +22,7 @@ Then the children of Reuben and the children of Gad and the half-tribe of Manass
 "The Mighty One, God, the Mighty One, God, God, he knows; and Israel shall know: if it was in rebellion, or if in trespass against God (don't save us today), 
 that we have built us an altar to turn away from following God; or if to offer burnt offering or meal offering, or if to offer sacrifices of offerings for wholeness, let God himself require it. 
 "If we have not out of concern done this, and for a reason, saying, 'In time to come your children might speak to our children, saying, "What have you to do with the God of Israel? 
-For God has made the Jordan a border between us and you, you children of Reuben and children of Gad. You have no portion in God."' So your children might make our children cease from fearing God. 
+God has made the Jordan a border between us and you, you children of Reuben and children of Gad. You have no portion in God."' So your children might make our children cease from fearing God. 
 "So we said, 'Let's now prepare to build ourselves an altar, not for burnt offering, nor for sacrifice; 
 but it will be a witness between us and you, and between our generations after us, that we may perform the service of God before him with our burnt offerings, with our sacrifices, and with our offerings for wholeness;' that your children may not tell our children in time to come, 'You have no portion in God.' 
 "Therefore we said, 'It shall be, when they tell us or our generations this in time to come, that we shall say, "Behold the pattern of God's altar, which our fathers made, not for burnt offering, nor for sacrifice; but it is a witness between us and you."' 

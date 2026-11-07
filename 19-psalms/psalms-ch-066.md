@@ -1,4 +1,4 @@
-﻿For the Chief Musician. A song. A Psalm. Make a joyful shout to God, all the earth! 
+﻿The Chief Musician. A song. A Psalm. Make a joyful shout to God, all the earth! 
 Sing to the glory of his name! Offer glory and praise! 
 Tell God, "How awesome are your deeds! Through the greatness of your power, your enemies submit themselves to you. 
 All the earth will worship you, and will sing to you; they will sing to your name." Selah. 
@@ -7,7 +7,7 @@ He turned the sea into dry land. They went through the river on foot. There, we 
 He rules by his might for the eras. His eyes watch the nations. Don't let the rebellious rise up against him. Selah. 
 Praise our God, you peoples! Make the sound of his praise heard, 
 who preserves our life among the living, and doesn't allow our feet to be moved. 
-For you, God, have tested us. You have refined us, as silver is refined. 
+You, God, have tested us. You have refined us, as silver is refined. 
 You brought us into prison. You laid a burden on our backs. 
 You allowed men to ride over our heads. We went through fire and through water, but you brought us to the place of abundance. 
 I will come into your temple with burnt offerings. I will pay my vows to you, 

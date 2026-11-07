@@ -1,4 +1,4 @@
-﻿"Listen to this, you priests! Listen, house of Israel, and give ear, house of the king! For the judgment is against you; for you have been a snare at Mizpah, and a net spread on Tabor. 
+﻿"Listen to this, you priests! Listen, house of Israel, and give ear, house of the king! The judgment is against you; for you have been a snare at Mizpah, and a net spread on Tabor. 
 The rebels are deep in slaughter, but I discipline everyone. 
 I know Ephraim, and Israel is not hidden from me; for now, Ephraim, you have played the prostitute. Israel is defiled. 
 Their deeds won't allow them to turn to their God, for the spirit of prostitution is within them, and they don't know God. 
@@ -11,5 +11,5 @@ The princes of Judah are like those who remove a landmark. I will pour out my wr
 Ephraim is oppressed, he is crushed in judgment, because he is intent in his pursuit of idols. 
 So I am to Ephraim like a moth, and to the house of Judah like rottenness. 
 "When Ephraim saw his sickness, and Judah his wound, then Ephraim went to Assyria, and sent to King Jareb: but he is not able to heal you, neither will he cure you of your wound. 
-For I will be to Ephraim like a lion, and like a young lion to the house of Judah. I myself will tear in pieces and go away. I will carry off, and there will be no one to deliver. 
+I will be to Ephraim like a lion, and like a young lion to the house of Judah. I myself will tear in pieces and go away. I will carry off, and there will be no one to deliver. 
 I will go and return to my place, until they acknowledge their offense, and seek my face. In their affliction they will seek me earnestly." 

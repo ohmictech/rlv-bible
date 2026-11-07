@@ -6,14 +6,14 @@ Hungry and thirsty, their soul fainted in them.
 Then they cried to God in their trouble, and he delivered them out of their distresses. 
 He led them also by a straight way, that they might go to a city to live in. 
 Let them praise God for his loving kindness, for his wonderful deeds to the children of men! 
-For he satisfies the longing soul. He fills the hungry soul with good. 
+He satisfies the longing soul. He fills the hungry soul with good. 
 Some sat in darkness and in the shadow of death, being bound in affliction and iron, 
 because they rebelled against the words of God, and condemned the counsel of the Most High. 
 So he brought down their heart with labor. They fell down, and there was no one to help. 
 Then they cried to God in their trouble, and he saved them out of their distresses. 
 He brought them out of darkness and the shadow of death, and broke away their chains. 
 Let them praise God for his loving kindness, for his wonderful deeds to the children of men! 
-For he has broken the gates of bronze, and cut through bars of iron. 
+He has broken the gates of bronze, and cut through bars of iron. 
 Fools are afflicted because of their disobedience, and because of their guilt. 
 Their soul abhors all kinds of food. They draw near to the gates of death. 
 Then they cry to God in their trouble, and he saves them out of their distresses. 
@@ -22,7 +22,7 @@ Let them praise God for his loving kindness, for his wonderful deeds to the chil
 Let them offer the sacrifices of thanksgiving, and declare his deeds with singing. 
 Those who go down to the sea in ships, who do business in great waters, 
 these see God's deeds, and his wonders in the deep. 
-For he commands, and raises the stormy wind, which lifts up its waves. 
+He commands, and raises the stormy wind, which lifts up its waves. 
 They mount up to the sky; they go down again to the depths. Their soul melts away because of trouble. 
 They reel back and forth, and stagger like a drunken man, and are at their wits' end. 
 Then they cry to God in their trouble, and he brings them out of their distress. 

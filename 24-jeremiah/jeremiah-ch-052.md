@@ -1,6 +1,6 @@
 ﻿Zedekiah was twenty-one years old when he began to reign. He reigned eleven years in Jerusalem. His mother's name was Hamutal the daughter of Jeremiah of Libnah. 
 He did that which was bad in God's sight, according to all that Jehoiakim had done. 
-For through God's anger this happened in Jerusalem and Judah, until he had cast them out from his presence. Zedekiah rebelled against the king of Babylon. 
+Through God's anger this happened in Jerusalem and Judah, until he had cast them out from his presence. Zedekiah rebelled against the king of Babylon. 
 In the ninth year of his reign, in the tenth month, in the tenth day of the month, Nebuchadnezzar king of Babylon came, he and all his army, against Jerusalem, and encamped against it; and they built forts against it round about. 
 So the city was besieged to the eleventh year of King Zedekiah. 
 In the fourth month, in the ninth day of the month, the famine was severe in the city, so that there was no bread for the people of the land. 
@@ -31,4 +31,4 @@ in the twenty-third year of Nebuchadnezzar, Nebuzaradan the captain of the guard
 In the thirty-seventh year of the captivity of Jehoiachin king of Judah, in the twelfth month, in the twenty-fifth day of the month, Badmerodach king of Babylon, in the first year of his reign, lifted up the head of Jehoiachin king of Judah, and released him from prison. 
 He spoke kindly to him, and set his throne above the throne of the kings who were with him in Babylon, 
 and changed his prison garments. Jehoiachin ate bread before him continually all the days of his life. 
-For his allowance, there was a continual allowance given him by the king of Babylon, every day a portion until the day of his death, all the days of his life. 
+His allowance, there was a continual allowance given him by the king of Babylon, every day a portion until the day of his death, all the days of his life. 

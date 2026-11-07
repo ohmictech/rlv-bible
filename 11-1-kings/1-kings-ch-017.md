@@ -11,7 +11,7 @@ So he arose and went to Zarephath; and when he came to the gate of the city, beh
 As she was going to get it, he called to her and said, "Please bring me a morsel of bread in your hand." 
 She said, "As your God lives, I don't have anything baked, but only a handful of meal in a jar and a little oil in a jar. Behold, I am gathering two sticks, that I may go in and bake it for me and my son, that we may eat it, and die." 
 Elijah said to her, "Don't be afraid. Go and do as you have said; but make me a little cake from it first, and bring it out to me, and afterward make some for you and for your son. 
-For the God of Israel says, 'The jar of meal will not run out, and the jar of oil will not fail, until the day that God sends rain on the earth.'" 
+The God of Israel says, 'The jar of meal will not run out, and the jar of oil will not fail, until the day that God sends rain on the earth.'" 
 She went and did according to the saying of Elijah; and she, he, and her household ate many days. 
 The jar of meal didn't run out and the jar of oil didn't fail, according to God's word, which he spoke by Elijah. 
 After these things, the son of the woman, the mistress of the house, became sick; and his sickness was so severe that there was no breath left in him. 

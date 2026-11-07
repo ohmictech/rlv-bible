@@ -1,9 +1,9 @@
-﻿What should we say then? Should we continue in the drift, so that favor may overflow? 
+﻿What should we say then? Should we continue in the drift, so that favor can overflow? 
 Never! We who died to the drift, how could we live in it any longer? 
 Don't you know that all of us who were immersed into Christ Jesus were immersed into his death? 
 We were buried with him through immersion into death, so that just as Christ was raised from the dead through the weight of the Father, we also would walk in new life. 
 If we have become united with him in the way of his death, we will also be part of his rising; 
-knowing this, that our old man was crucified with him, so that the body of the drift would be put out of work, so that we would no longer be slaves to the drift. 
+knowing this, that our old man was crucified with him, so that the body of the drift would be put out of work, and we would no longer be slaves to the drift. 
 The person who died has been freed from the drift. 
 But if we died with Christ, we trust that we will also live with him, 
 knowing that Christ, being raised from the dead, dies no more. Death no longer dominates him! 

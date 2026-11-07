@@ -1,6 +1,6 @@
 ﻿A Psalm by David. Hear my prayer, God. Listen to my petitions. In your faithfulness and righteousness, relieve me. 
 Don't enter into judgment with your servant, for in your sight no man living is righteous. 
-For the enemy pursues my soul. He has struck my life down to the ground. He has made me live in dark places, as those who have been long dead. 
+The enemy pursues my soul. He has struck my life down to the ground. He has made me live in dark places, as those who have been long dead. 
 So my spirit is overwhelmed within me. My heart within me is desolate. 
 I remember the days of old. I meditate on all your doings. I contemplate the work of your hands. 
 I spread out my hands to you. My soul thirsts for you, like a parched land. Selah. 

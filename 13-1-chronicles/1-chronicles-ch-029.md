@@ -8,11 +8,11 @@ and they gave for the service of God's house of gold five thousand talents and t
 People with whom precious stones were found gave them to the treasure of God's house, under the hand of Jehiel the Gershonite. 
 Then the people rejoiced, because they offered willingly, because with a perfect heart they offered willingly to God; and David the king also rejoiced with great joy. 
 So David blessed God before all the assembly; and David said, "You are blessed, the God of Israel our father, for all the eras. 
-Yours, God, is the greatness, the power, the glory, the victory, and the majesty! For all that is in the sky and on the earth is yours. Yours is the kingdom, God, and you are exalted as head above all. 
+Yours, God, is the greatness, the power, the glory, the victory, and the majesty! All that is in the sky and on the earth is yours. Yours is the kingdom, God, and you are exalted as head above all. 
 Both riches and honor come from you, and you rule over all! In your hand is power and might! It is in your hand to make great, and to give strength to all! 
 Now, our God, we thank you and praise your glorious name. 
-But who am I, and what is my people, that we should be able to offer so willingly as this? For all things come from you, and we have given you of your own. 
-For we are strangers before you and foreigners, as all our fathers were. Our days on the earth are as a shadow, and there is no remaining. 
+But who am I, and what is my people, that we should be able to offer so willingly as this? All things come from you, and we have given you of your own. 
+We are strangers before you and foreigners, as all our fathers were. Our days on the earth are as a shadow, and there is no remaining. 
 God our God, all this store that we have prepared to build you a house for your holy name comes from your hand, and is all your own. 
 I know also, my God, that you try the heart and have pleasure in uprightness. As for me, in the uprightness of my heart I have willingly offered all these things. Now I have seen with joy your people, who are present here, offer willingly to you. 
 the God of Abraham, of Isaac, and of Israel, our fathers, keep this desire for the eras in the thoughts of the heart of your people, and prepare their heart for you; 

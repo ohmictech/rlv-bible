@@ -9,10 +9,10 @@ Then he said to me, "Son of man, dig now in the wall." When I had dug in the wal
 He said to me, "Go in, and see the guilty abominations that they do here." 
 So I went in and looked, and saw every form of creeping things, abominable animals, and all the idols of the house of Israel, portrayed around on the wall. 
 Seventy men of the elders of the house of Israel stood before them. In the middle of them Jaazaniah the son of Shaphan stood, every man with his censer in his hand; and the smell of the cloud of incense went up. 
-Then he said to me, "Son of man, have you seen what the elders of the house of Israel do in the dark, every man in his rooms of imagery? For they say, 'God doesn't see us. God has forsaken the land.'" 
+Then he said to me, "Son of man, have you seen what the elders of the house of Israel do in the dark, every man in his rooms of imagery? They say, 'God doesn't see us. God has forsaken the land.'" 
 He said also to me, "You will again see more of the great abominations which they do." 
 Then he brought me to the door of the gate of God's house which was toward the north; and I saw the women sit there weeping for Tammuz. 
 Then he said to me, "Have you seen this, son of man? You will again see yet greater abominations than these." 
 He brought me into the inner court of God's house; and I saw at the door of God's temple, between the porch and the altar, there were about twenty-five men with their backs toward God's temple and their faces toward the east. They were worshiping the sun toward the east. 
-Then he said to me, "Have you seen this, son of man? Is it a light thing to the house of Judah that they commit the abominations which they commit here? For they have filled the land with violence, and have turned again to provoke me to anger. Behold, they put the branch to their nose. 
+Then he said to me, "Have you seen this, son of man? Is it a light thing to the house of Judah that they commit the abominations which they commit here? They have filled the land with violence, and have turned again to provoke me to anger. Behold, they put the branch to their nose. 
 So I will also deal in wrath. My eye won't spare, neither will I have pity. Though they cry in my ears with a loud voice, yet I will not hear them." 

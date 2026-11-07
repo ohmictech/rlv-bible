@@ -4,12 +4,12 @@ You shall sow your field six years, and you shall prune your vineyard six years,
 but in the seventh year there shall be a Sabbath of solemn rest for the land, a Sabbath to God. You shall not sow your field or prune your vineyard. 
 What grows of itself in your harvest you shall not reap, and you shall not gather the grapes of your undressed vine. It shall be a year of solemn rest for the land. 
 The Sabbath of the land shall be for food for you; for yourself, for your servant, for your maid, for your hired servant, and for your stranger, who lives as a foreigner with you. 
-For your livestock also, and for the animals that are in your land, shall all its increase be for food. 
+Your livestock also, and for the animals that are in your land, shall all its increase be for food. 
 "'You shall count off seven Sabbaths of years, seven times seven years; and there shall be to you the days of seven Sabbaths of years, even forty-nine years. 
 Then you shall sound the loud trumpet on the tenth day of the seventh month. On the Day of Making Right you shall sound the trumpet throughout all your land. 
 You shall make the fiftieth year holy, and proclaim liberty throughout the land to all its inhabitants. It shall be a jubilee to you; and each of you shall return to his own property, and each of you shall return to his family. 
 That fiftieth year shall be a jubilee to you. In it you shall not sow, neither reap that which grows of itself, nor gather from the undressed vines. 
-For it is a jubilee; it shall be holy to you. You shall eat of its increase out of the field. 
+It is a jubilee; it shall be holy to you. You shall eat of its increase out of the field. 
 "'In this Year of Jubilee each of you shall return to his property. 
 "'If you sell anything to your neighbor, or buy from your neighbor, you shall not wrong one another. 
 According to the number of years after the Jubilee you shall buy from your neighbor. According to the number of years of the crops he shall sell to you. 
@@ -26,7 +26,7 @@ In all the land of your possession you shall grant a buying back for the land.
 If a man has no one to buy it back, and he becomes prosperous and finds sufficient means to buy it back, 
 then let him reckon the years since its sale, and restore the surplus to the man to whom he sold it; and he shall return to his property. 
 But if he isn't able to get it back for himself, then what he has sold shall remain in the hand of him who has bought it until the Year of Jubilee. In the Jubilee it shall be released, and he shall return to his property. 
-"'If a man sells a dwelling house in a walled city, then he may buy it back within a whole year after it has been sold. For a full year he shall have the right of buying back. 
+"'If a man sells a dwelling house in a walled city, then he may buy it back within a whole year after it has been sold. A full year he shall have the right of buying back. 
 If it isn't bought back within the space of a full year, then the house that is in the walled city shall be made sure in perpetuity to him who bought it, throughout his generations. It shall not be released in the Jubilee. 
 But the houses of the villages which have no wall around them shall be accounted for with the fields of the country: they may be bought back, and they shall be released in the Jubilee. 
 "'Nevertheless, in the cities of the Levites, the Levites may buy back the houses in the cities of their possession at any time. 
@@ -39,7 +39,7 @@ I am your God, who brought you out of the land of Egypt, to give you the land of
 "'If your brother has grown poor among you, and sells himself to you, you shall not make him to serve as a slave. 
 As a hired servant, and as a temporary resident, he shall be with you; he shall serve with you until the Year of Jubilee. 
 Then he shall go out from you, he and his children with him, and shall return to his own family, and to the possession of his fathers. 
-For they are my servants, whom I brought out of the land of Egypt. They shall not be sold as slaves. 
+They are my servants, whom I brought out of the land of Egypt. They shall not be sold as slaves. 
 You shall not rule over him with harshness, but shall fear your God. 
 "'As for your male and your female slaves, whom you may have from the nations that are around you, from them you may buy male and female slaves. 
 Moreover, of the children of the aliens who live among you, of them you may buy, and of their families who are with you, which they have conceived in your land; and they will be your property. 
@@ -52,4 +52,4 @@ If there are yet many years, according to them he shall give back the price of h
 If there remain but a few years to the year of jubilee, then he shall reckon with him; according to his years of service he shall give back the price of his buying back. 
 As a servant hired year by year shall he be with him. He shall not rule with harshness over him in your sight. 
 If he isn't bought back by these means, then he shall be released in the Year of Jubilee: he and his children with him. 
-For to me the children of Israel are servants; they are my servants whom I brought out of the land of Egypt. I am your God. 
+To me the children of Israel are servants; they are my servants whom I brought out of the land of Egypt. I am your God. 

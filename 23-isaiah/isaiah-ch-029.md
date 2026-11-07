@@ -7,7 +7,7 @@ She will be visited by the God of Armies with thunder, with earthquake, with gre
 The multitude of all the nations that fight against Ariel, even everyone who fights against her and her stronghold, and who distress her, will be like a dream, a vision of the night. 
 It will be like when a hungry man dreams, and behold, he eats; but he awakes, and his hunger isn't satisfied; or like when a thirsty man dreams, and behold, he drinks; but he awakes, and behold, he is faint, and he is still thirsty. The multitude of all the nations that fight against Mount Zion will be like that. 
 Pause and wonder! Blind yourselves and be blind! They are drunken, but not with wine; they stagger, but not with strong drink. 
-For God has poured out on you a spirit of deep sleep, and has closed your eyes, the spokesmen; and he has covered your heads, the seers. 
+God has poured out on you a spirit of deep sleep, and has closed your eyes, the spokesmen; and he has covered your heads, the seers. 
 All vision has become to you like the words of a book that is sealed, which men deliver to one who is educated, saying, "Read this, please;" and he says, "I can't, for it is sealed;" 
 and the book is delivered to one who is not educated, saying, "Read this, please;" and he says, "I can't read." 
 The Lord said, "Because this people draws near with their mouth and honors me with their lips, but they have removed their heart far from me, and their fear of me is a commandment of men which has been taught; 
@@ -17,7 +17,7 @@ You turn things upside down! Should the potter be thought to be like clay, that 
 Isn't it yet a very little while, and Lebanon will be turned into a fruitful field, and the fruitful field will be regarded as a forest? 
 In that day, the deaf will hear the words of the book, and the eyes of the blind will see out of obscurity and out of darkness. 
 The humble also will increase their joy in God, and the poor among men will rejoice in the Holy One of Israel. 
-For the ruthless is brought to nothing, and the scoffer ceases, and everyone who is alert to do bad things are cut off 
+The ruthless is brought to nothing, and the scoffer ceases, and everyone who is alert to do bad things are cut off 
 who cause a person to be indicted by a word, and lay a snare for one who reproves in the gate, and who deprive the innocent of justice with false testimony. 
 So God, who bought back Abraham, says concerning the house of Jacob: "Jacob shall no longer be ashamed, neither shall his face grow pale. 
 But when he sees his children, the work of my hands, in the middle of him, they will sanctify my name. Yes, they will sanctify the Holy One of Jacob, and will stand in awe of the God of Israel. 

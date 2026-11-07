@@ -1,15 +1,15 @@
 ﻿God's word that came to Micah of Morasheth in the days of Jotham, Ahaz, and Hezekiah, kings of Judah, which he saw concerning Samaria and Jerusalem. 
 Hear, you peoples, all of you! Listen, O earth, and all that is therein. Let God be witness against you, the Lord from his holy temple. 
-For behold, God comes out of his place, and will come down and tread on the high places of the earth. 
+Behold, God comes out of his place, and will come down and tread on the high places of the earth. 
 The mountains melt under him, and the valleys split apart like wax before the fire, like waters that are poured down a steep place. 
 "All this is for the disobedience of Jacob, and for the drifts of the house of Israel. What is the disobedience of Jacob? Isn't it Samaria? And what are the high places of Judah? Aren't they Jerusalem? 
 So I will make Samaria like a rubble heap of the field, like places for planting vineyards; and I will pour down its stones into the valley, and I will uncover its foundations. 
 All her idols will be beaten to pieces, all her temple gifts will be burned with fire, and I will destroy all her images; for of the hire of a prostitute has she gathered them, and to the hire of a prostitute shall they return." 
-For this I will lament and wail. I will go stripped and naked. I will howl like the jackals and mourn like the ostriches. 
-For her wounds are incurable; for it has come even to Judah. It reaches to the gate of my people, even to Jerusalem. 
+This I will lament and wail. I will go stripped and naked. I will howl like the jackals and mourn like the ostriches. 
+Her wounds are incurable; for it has come even to Judah. It reaches to the gate of my people, even to Jerusalem. 
 Don't tell it in Gath. Don't weep at all. At Beth Ophrah I have rolled myself in the dust. 
 Pass on, inhabitant of Shaphir, in nakedness and shame. The inhabitant of Zaanan won't come out. The wailing of Beth Ezel will take from you his protection. 
-For the inhabitant of Maroth waits anxiously for good, because bad has come down from God to the gate of Jerusalem. 
+The inhabitant of Maroth waits anxiously for good, because bad has come down from God to the gate of Jerusalem. 
 Harness the chariot to the swift steed, inhabitant of Lachish. She was the beginning of wrongdoing to the daughter of Zion; for the rebellion of Israel were found in you. 
 So you will give a parting gift to Moresheth Gath. The houses of Achzib will be a deceitful thing to the kings of Israel. 
 I will yet bring a conqueror to you, inhabitants of Mareshah. The glory of Israel will come to Adullam. 

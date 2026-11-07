@@ -1,4 +1,4 @@
-﻿For the Chief Musician. A contemplation by David, when Doeg the Edomite came and told Saul, "David has come to Ahimelech's house." Why do you boast of mischief, mighty man? God's loving kindness endures continually. 
+﻿The Chief Musician. A contemplation by David, when Doeg the Edomite came and told Saul, "David has come to Ahimelech's house." Why do you boast of mischief, mighty man? God's loving kindness endures continually. 
 Your tongue plots destruction, like a sharp razor, working deceitfully. 
 You love bad more than good, lying rather than speaking the truth. Selah. 
 You love all devouring words, you deceitful tongue. 

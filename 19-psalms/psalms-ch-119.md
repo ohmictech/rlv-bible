@@ -80,7 +80,7 @@ Let those who fear you turn to me. They will know your statutes.
 Let my heart be blameless toward your decrees, that I may not be disappointed. KAPF 
 My soul faints for your salvation. I hope in your word. 
 My eyes fail for your word. I say, "When will you comfort me?" 
-For I have become like a wineskin in the smoke. I don't forget your statutes. 
+I have become like a wineskin in the smoke. I don't forget your statutes. 
 How many are the days of your servant? When will you execute judgment on those who persecute me? 
 The proud have dug pits for me, contrary to your law. 
 All of your commandments are faithful. They persecute me wrongfully. Help me! 

@@ -14,7 +14,7 @@ The young men carry millstones. The children stumbled under loads of wood.
 The elders have ceased from the gate, and the young men from their music. 
 The joy of our heart has ceased. Our dance is turned into mourning. 
 The crown has fallen from our head. Woe to us, for we have drifted! 
-For this our heart is faint. For these things our eyes are dim: 
+This our heart is faint. These things our eyes are dim: 
 for the mountain of Zion, which is desolate. The foxes walk on it. 
 You, God, remain for the eras. Your throne is from generation to generation. 
 Why do you forget us for the eras, and forsake us for so long a time? 

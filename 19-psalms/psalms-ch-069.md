@@ -1,4 +1,4 @@
-﻿For the Chief Musician. To the tune of "Lilies." By David. Save me, God, for the waters have come up to my neck! 
+﻿The Chief Musician. To the tune of "Lilies." By David. Save me, God, for the waters have come up to my neck! 
 I driftk in deep mire, where there is no foothold. I have come into deep waters, where the floods overflow me. 
 I am weary with my crying. My throat is dry. My eyes fail looking for my God. 
 Those who hate me without a cause are more than the hairs of my head. Those who want to cut me off, being my enemies wrongfully, are mighty. I have to restore what I didn't take away. 
@@ -6,7 +6,7 @@ God, you know my foolishness. My mistakes aren't hidden from you.
 Don't let those who wait for you be shamed through me, God of Armies. Don't let those who seek you be brought to dishonor through me, God of Israel. 
 Because for your sake, I have borne reproach. Shame has covered my face. 
 I have become a stranger to my brothers, an alien to my mother's children. 
-For the passion of your house consumes me. The reproaches of those who reproach you have fallen on me. 
+The passion of your house consumes me. The reproaches of those who reproach you have fallen on me. 
 When I wept and I fasted, that was to my reproach. 
 When I made sackcloth my clothing, I became a byword to them. 
 Those who sit in the gate talk about me. I am the song of the drunkards. 
@@ -23,14 +23,14 @@ Let their table before them become a snare. May it become a retribution and a tr
 Let their eyes be darkened, so that they can't see. Let their backs be continually bent. 
 Pour out your indignation on them. Let the fierceness of your anger overtake them. 
 Let their habitation be desolate. Let no one dwell in their tents. 
-For they persecute him whom you have wounded. They tell of the sorrow of those whom you have hurt. 
+They persecute him whom you have wounded. They tell of the sorrow of those whom you have hurt. 
 Charge them with crime upon crime. Don't let them come into your righteousness. 
 Let them be blotted out of the book of life, and not be written with the righteous. 
 But I am in pain and distress. Let your salvation, God, protect me. 
 I will praise the name of God with a song, and will magnify him with thanksgiving. 
 It will please God better than an ox, or a bull that has horns and hoofs. 
 The humble have seen it, and are glad. You who seek after God, let your heart live. 
-For God hears the needy, and doesn't despise his captive people. 
+God hears the needy, and doesn't despise his captive people. 
 Let sky and earth praise him; the seas, and everything that moves therein! 
-For God will save Zion, and build the cities of Judah. They shall settle there, and own it. 
+God will save Zion, and build the cities of Judah. They shall settle there, and own it. 
 The children also of his servants shall inherit it. Those who love his name shall dwell therein. 

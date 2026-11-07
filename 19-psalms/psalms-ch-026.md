@@ -1,6 +1,6 @@
 ﻿By David. Judge me, God, for I have walked in my integrity. I have trusted also in God without wavering. 
 Examine me, God, and prove me. Try my heart and my mind. 
-For your loving kindness is before my eyes. I have walked in your truth. 
+Your loving kindness is before my eyes. I have walked in your truth. 
 I have not sat with deceitful men, neither will I go in with hypocrites. 
 I hate the assembly of those who do bad, and will not sit with the guilty. 
 I will wash my hands in innocence, so I will go about your altar, God, 

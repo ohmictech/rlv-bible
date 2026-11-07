@@ -7,7 +7,7 @@ But she had brought them up to the roof, and hidden them under the stalks of fla
 The men pursued them along the way to the fords of the Jordan River. As soon as those who pursued them had gone out, they shut the gate. 
 Before they had lain down, she came up to them on the roof. 
 She said to the men, "I know that God has given you the land, and that the fear of you has fallen upon us, and that all the inhabitants of the land melt away before you. 
-For we have heard how God dried up the water of the Red Sea before you, when you came out of Egypt; and what you did to the two kings of the Amorites, who were beyond the Jordan, to Sihon and to Og, whom you utterly destroyed. 
+We have heard how God dried up the water of the Red Sea before you, when you came out of Egypt; and what you did to the two kings of the Amorites, who were beyond the Jordan, to Sihon and to Og, whom you utterly destroyed. 
 As soon as we had heard it, our hearts melted, and there wasn't any more spirit in any man, because of you: for your God is God in the sky above, and on earth beneath. 
 Now, please swear to me by God, since I have dealt kindly with you, that you also will deal kindly with my father's house, and give me a true sign; 
 and that you will save alive my father, my mother, my brothers, and my sisters, and all that they have, and will deliver our lives from death." 

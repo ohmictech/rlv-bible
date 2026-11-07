@@ -1,6 +1,6 @@
-﻿A Song. A Psalm by the sons of Korah. For the Chief Musician. To the tune of "The Suffering of Affliction." A contemplation by Heman, the Ezrahite. the God of my salvation, I have cried day and night before you. 
+﻿A Song. A Psalm by the sons of Korah. The Chief Musician. To the tune of "The Suffering of Affliction." A contemplation by Heman, the Ezrahite. the God of my salvation, I have cried day and night before you. 
 Let my prayer enter into your presence. Turn your ear to my cry. 
-For my soul is full of troubles. My life draws near to Hades. 
+My soul is full of troubles. My life draws near to Hades. 
 I am counted among those who go down into the pit. I am like a man who has no help, 
 set apart among the dead, like the slain who lie in the grave, whom you remember no more. They are cut off from your hand. 
 You have laid me in the lowest pit, in the darkest depths. 

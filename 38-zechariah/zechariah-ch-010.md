@@ -1,5 +1,5 @@
 ﻿Ask of God rain in the spring time, God who makes storm clouds, and he gives rain showers to everyone for the plants in the field. 
-For the teraphim have spoken vanity, and the diviners have seen a lie; and they have told false dreams. They comfort in vain. So they go their way like sheep. They are oppressed, because there is no shepherd. 
+The teraphim have spoken vanity, and the diviners have seen a lie; and they have told false dreams. They comfort in vain. So they go their way like sheep. They are oppressed, because there is no shepherd. 
 My anger is kindled against the shepherds, and I will punish the male goats, for the God of Armies has visited his flock, the house of Judah, and will make them as his majestic horse in the battle. 
 From him will come the cornerstone, from him the tent peg, from him the battle bow, from him every ruler together. 
 They will be as mighty men, treading down muddy streets in the battle. They will fight, because God is with them. The riders on horses will be confounded. 

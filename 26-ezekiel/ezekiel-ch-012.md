@@ -21,8 +21,8 @@ The cities that are inhabited will be laid waste, and the land will be a desolat
 God's word came to me, saying, 
 "Son of man, what is this proverb that you have in the land of Israel, saying, 'The days are prolonged, and every vision fails'? 
 Tell them, 'The God says: "I will make this proverb to cease, and they will no more use it as a proverb in Israel;"' but tell them, '"The days are at hand, and the fulfillment of every vision. 
-For there will be no more any false vision nor flattering divination within the house of Israel. 
-For I am God. I will speak, and the word that I speak will be performed. It will be no more deferred; for in your days, rebellious house, I will speak the word and will perform it," says God.'" 
+There will be no more any false vision nor flattering divination within the house of Israel. 
+I am God. I will speak, and the word that I speak will be performed. It will be no more deferred; for in your days, rebellious house, I will speak the word and will perform it," says God.'" 
 Again God's word came to me, saying, 
 "Son of man, behold, they of the house of Israel say, 'The vision that he sees is for many days to come, and he prophesies of times that are far off.' 
 "Therefore tell them, 'The God says: "None of my words will be deferred any more, but the word which I speak will be performed," says God.'" 

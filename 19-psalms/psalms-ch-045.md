@@ -1,4 +1,4 @@
-﻿For the Chief Musician. Set to "The Lilies." A contemplation by the sons of Korah. A wedding song. My heart overflows with a noble theme. I recite my verses for the king. My tongue is like the pen of a skillful writer. 
+﻿The Chief Musician. Set to "The Lilies." A contemplation by the sons of Korah. A wedding song. My heart overflows with a noble theme. I recite my verses for the king. My tongue is like the pen of a skillful writer. 
 You are the most excellent of the sons of men. Grace has anointed your lips, God has blessed you for the eras. 
 Strap your sword on your thigh, O mighty one, in your splendor and your majesty. 
 In your majesty ride on victoriously on behalf of truth, humility, and righteousness. Let your right hand display awesome deeds. 

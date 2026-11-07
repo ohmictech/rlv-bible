@@ -2,7 +2,7 @@
 of the nations concerning which God said to the children of Israel, "You shall not go among them, neither shall they come among you, for surely they will turn away your heart after their gods." Solomon joined to these in love. 
 He had seven hundred wives, princesses, and three hundred concubines. His wives turned his heart away. 
 When Solomon was old, his wives turned away his heart after other gods; and his heart was not perfect with his God, as the heart of David his father was. 
-For Solomon went after Ashtoreth the goddess of the Sidonians, and after Milcom the abomination of the Ammonites. 
+Solomon went after Ashtoreth the goddess of the Sidonians, and after Milcom the abomination of the Ammonites. 
 Solomon did that which was bad in God's sight, and didn't go fully after God, as David his father did. 
 Then Solomon built a high place for Chemosh the abomination of Moab, on the mountain that is before Jerusalem, and for Molech the abomination of the children of Ammon. 
 So he did for all his foreign wives, who burned incense and sacrificed to their gods. 
@@ -12,7 +12,7 @@ So God said to Solomon, "Because this is done by you, and you have not kept my c
 Nevertheless, I will not do it in your days, for David your father's sake; but I will tear it out of your son's hand. 
 However, I will not tear away all the kingdom; but I will give one tribe to your son, for David my servant's sake, and for Jerusalem's sake which I have chosen." 
 God raised up an adversary to Solomon: Hadad the Edomite. He was one of the king's offspring in Edom. 
-For when David was in Edom, and Joab the captain of the army had gone up to bury the slain, and had struck every male in Edom 
+When David was in Edom, and Joab the captain of the army had gone up to bury the slain, and had struck every male in Edom 
 (for Joab and all Israel remained there six months, until he had cut off every male in Edom), 
 Hadad fled, he and certain Edomites of his father's servants with him, to go into Egypt, when Hadad was still a little child. 
 They arose out of Midian and came to Paran; and they took men with them out of Paran, and they came to Egypt, to Pharaoh king of Egypt, who gave him a house, and appointed him food, and gave him land. 

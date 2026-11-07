@@ -3,7 +3,7 @@ The godly man has perished out of the earth, and there is no one upright among m
 Their hands are on that which is bad to do it diligently. The ruler and judge ask for a bribe. The powerful man dictates the bad desire of his soul. Thus they conspire together. 
 The best of them is like a brier. The most upright is worse than a thorn hedge. The day of your watchmen, even your visitation, has come; now is the time of their confusion. 
 Don't trust in a neighbor. Don't put confidence in a friend. With the woman lying in your embrace, be careful of the words of your mouth! 
-For the son dishonors the father, the daughter rises up against her mother, the daughter-in-law against her mother-in-law; a man's enemies are the men of his own house. 
+The son dishonors the father, the daughter rises up against her mother, the daughter-in-law against her mother-in-law; a man's enemies are the men of his own house. 
 But as for me, I will look to God. I will wait for the God of my salvation. My God will hear me. 
 Don't rejoice against me, my enemy. When I fall, I will arise. When I sit in darkness, God will be a light to me. 
 I will bear the indignation of God, because I have wronged him, until he pleads my case and executes judgment for me. He will bring me out to the light. I will see his righteousness. 

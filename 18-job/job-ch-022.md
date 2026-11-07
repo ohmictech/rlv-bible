@@ -3,7 +3,7 @@
 Is it any pleasure to the Almighty that you are righteous? Or does it benefit him that you make your ways perfect? 
 Is it for your piety that he reproves you, that he enters with you into judgment? 
 Isn't your guilt great? Neither is there any end to your guilt. 
-For you have taken pledges from your brother for nothing, and stripped the naked of their clothing. 
+You have taken pledges from your brother for nothing, and stripped the naked of their clothing. 
 You haven't given water to the weary to drink, and you have withheld bread from the hungry. 
 But as for the mighty man, he had the earth. The honorable man, he lived in it. 
 You have sent widows away empty, and the arms of the fatherless have been broken. 
@@ -23,7 +23,7 @@ Please receive instruction from his mouth, and lay up his words in your heart.
 If you return to the Almighty, you will be built up, if you put away unrighteousness far from your tents. 
 Lay your treasure in the dust, the gold of Ophir among the stones of the brooks. 
 The Almighty will be your treasure, and precious silver to you. 
-For then you will delight yourself in the Almighty, and will lift up your face to God. 
+Then you will delight yourself in the Almighty, and will lift up your face to God. 
 You will make your prayer to him, and he will hear you. You will pay your vows. 
 You will also decree a thing, and it will be established to you. Light will shine on your ways. 
 When they cast down, you will say, 'be lifted up.' He will save the humble person. 

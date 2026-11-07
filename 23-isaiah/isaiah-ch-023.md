@@ -1,4 +1,4 @@
-﻿The burden of Tyre. Howl, you ships of Tarshish! For it is laid waste, so that there is no house, no entering in. From the land of Kittim it is revealed to them. 
+﻿The burden of Tyre. Howl, you ships of Tarshish! It is laid waste, so that there is no house, no entering in. From the land of Kittim it is revealed to them. 
 Be still, you inhabitants of the coast, you whom the merchants of Sidon that pass over the sea have replenished. 
 On great waters, the seed of the Shihor, the harvest of the Nile, was her revenue. She was the market of nations. 
 Be ashamed, Sidon; for the sea has spoken, the stronghold of the sea, saying, "I have not travailed, nor given birth, neither have I nourished young men, nor brought up virgins." 

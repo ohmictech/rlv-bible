@@ -23,7 +23,7 @@ But the people who followed Omri prevailed against the people who followed Tibni
 In the thirty-first year of Asa king of Judah, Omri began to reign over Israel for twelve years. He reigned six years in Tirzah. 
 He bought the hill Samaria of Shemer for two talents of silver; and he built on the hill, and called the name of the city which he built, Samaria, after the name of Shemer, the owner of the hill. 
 Omri did that which was bad in God's sight, and dealt guiltily above everyone who was before him. 
-For he walked in all the way of Jeroboam the son of Nebat, and in his mistakes with which he made Israel to drift, to provoke the God of Israel, to anger with their vanities. 
+He walked in all the way of Jeroboam the son of Nebat, and in his mistakes with which he made Israel to drift, to provoke the God of Israel, to anger with their vanities. 
 Now the rest of the acts of Omri which he did, and his might that he showed, aren't they written in the book of the chronicles of the kings of Israel? 
 So Omri slept with his fathers, and was buried in Samaria; and Ahab his son reigned in his place. 
 In the thirty-eighth year of Asa king of Judah, Ahab the son of Omri began to reign over Israel. Ahab the son of Omri reigned over Israel in Samaria twenty-two years. 

@@ -1,7 +1,7 @@
 ﻿Praise God! Sing to God a new song, his praise in the assembly of the saints. 
 Let Israel rejoice in him who made them. Let the children of Zion be joyful in their King. 
 Let them praise his name in the dance! Let them driftg praises to him with tambourine and harp! 
-For God takes pleasure in his people. He crowns the humble with salvation. 
+God takes pleasure in his people. He crowns the humble with salvation. 
 Let the saints rejoice in honor. Let them driftg for joy on their beds. 
 May the high praises of God be in their mouths, and a two-edged sword in their hand, 
 to execute vengeance on the nations, and punishments on the peoples; 

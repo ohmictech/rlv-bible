@@ -7,7 +7,7 @@ Wail, for God's day is at hand! It will come as destruction from the Almighty.
 So all hands will be feeble, and everyone's heart will melt. 
 They will be dismayed. Pangs and sorrows will seize them. They will be in pain like a woman in labor. They will look in amazement one at another. Their faces will be faces of flame. 
 Behold, the day of God comes, cruel, with wrath and fierce anger; to make the land a desolation, and to destroy its those who have drifted out of it. 
-For the stars of the sky and its constellations will not give their light. The sun will be darkened in its going out, and the moon will not cause its light to shine. 
+The stars of the sky and its constellations will not give their light. The sun will be darkened in its going out, and the moon will not cause its light to shine. 
 I will punish the world for their bad, and the guilty for their guilt. I will cause the arrogance of the proud to cease, and will humble the arrogance of the terrible. 
 I will make people more rare than fine gold, even a person than the pure gold of Ophir. 
 So I will make the sky tremble, and the earth will be shaken out of its place in the God of Armies' wrath, and in the day of his fierce anger. 

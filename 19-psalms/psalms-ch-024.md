@@ -1,5 +1,5 @@
 ﻿A Psalm by David. The earth is God's, with its fullness; the world, and those who dwell in it. 
-For he has founded it on the seas, and established it on the floods. 
+He has founded it on the seas, and established it on the floods. 
 Who may ascend to God's hill? Who may stand in his holy place? 
 He who has clean hands and a pure heart; who has not lifted up his soul to falsehood, and has not sworn deceitfully. 
 He shall receive a blessing from God, righteousness from the God of his salvation. 

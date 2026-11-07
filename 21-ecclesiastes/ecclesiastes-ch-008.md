@@ -3,8 +3,8 @@ I say, "Keep the king's command!" because of the oath to God.
 Don't be hasty to go out of his presence. Don't persist in an bad thing, for he does whatever pleases him, 
 for the king's word is supreme. Who can say to him, "What are you doing?" 
 Whoever keeps the commandment shall not come to harm, and his wise heart will know the time and procedure. 
-For there is a time and procedure for every purpose, although the misery of man is heavy on him. 
-For he doesn't know that which will be; for who can tell him how it will be? 
+There is a time and procedure for every purpose, although the misery of man is heavy on him. 
+He doesn't know that which will be; for who can tell him how it will be? 
 There is no man who has power over the spirit to contain the spirit; neither does he have power over the day of death. There is no discharge in war; neither shall guilt deliver those who practice it. 
 All this I have seen, and applied my mind to every work that is done under the sun. There is a time in which one man has power over another to his hurt. 
 So I saw the guilty buried. Indeed they came also from holiness. They went and were forgotten in the city where they did this. This also is vanity. 

@@ -1,8 +1,8 @@
-﻿Of Moab. The God of Armies, the God of Israel says: "Woe to Nebo! For it is laid waste. Kiriathaim is disappointed. It is taken. Misgab is put to shame and broken down. 
+﻿Of Moab. The God of Armies, the God of Israel says: "Woe to Nebo! It is laid waste. Kiriathaim is disappointed. It is taken. Misgab is put to shame and broken down. 
 The praise of Moab is no more. In Heshbon they have devised bad against her: 'Come! Let's cut her off from being a nation.' You also, Madmen, will be brought to silence. The sword will pursue you. 
 The sound of a cry from Horonaim, desolation and great destruction! 
 Moab is destroyed. Her little ones have caused a cry to be heard. 
-For they will go up by the ascent of Luhith with continual weeping. For at the descent of Horonaim they have heard the distress of the cry of destruction. 
+They will go up by the ascent of Luhith with continual weeping. At the descent of Horonaim they have heard the distress of the cry of destruction. 
 Flee! Save your lives! Be like the juniper bush in the wilderness. 
 For, because you have trusted in your works and in your treasures, you also will be taken. Chemosh will go out into captivity, his priests and his princes together. 
 The destroyer will come on every city, and no city will escape; the valley also will perish, and the plain will be destroyed, as God has spoken. 
@@ -24,7 +24,7 @@ on Kiriathaim, on Beth Gamul, on Beth Meon,
 on Kerioth, on Bozrah, and on all the cities of the land of Moab, far or near. 
 The horn of Moab is cut off, and his arm is broken," says God. 
 "Make him drunk, for he magnified himself against God. Moab will wallow in his vomit, and he also will be in derision. 
-For wasn't Israel a derision to you? Was he found among thieves? For as often as you speak of him, you shake your head. 
+Wasn't Israel a derision to you? Was he found among thieves? As often as you speak of him, you shake your head. 
 You inhabitants of Moab, leave the cities, and dwell in the rock. Be like the dove that makes her nest over the mouth of the abyss. 
 "We have heard of the pride of Moab. He is very proud in his loftiness, his pride, his arrogance, and the arrogance of his heart. 
 I know his wrath," says God, "that it is nothing; his boastings have done nothing. 
@@ -34,10 +34,10 @@ Gladness and joy is taken away from the fruitful field and from the land of Moab
 From the cry of Heshbon even to Elealeh, even to Jahaz they have uttered their voice, from Zoar even to Horonaim, to Eglath Shelishiyah; for the waters of Nimrim will also become desolate. 
 Moreover I will cause to cease in Moab," says God, "him who offers in the high place, and him who burns incense to his gods. 
 So my heart sounds for Moab like flutes, and my heart sounds like flutes for the men of Kir Heres. So the abundance that he has gotten has perished. 
-For every head is bald, and every beard clipped. There are cuttings on all the hands, and sackcloth on the waist. 
+Every head is bald, and every beard clipped. There are cuttings on all the hands, and sackcloth on the waist. 
 On all the housetops of Moab, and in its streets, there is lamentation everywhere; for I have broken Moab like a vessel in which no one delights," says God. 
 "How it is broken down! How they wail! How Moab has turned the back with shame! So will Moab become a derision and a terror to everyone who is around him." 
-For God says: "Behold, he will fly as an eagle, and will spread out his wings against Moab. 
+God says: "Behold, he will fly as an eagle, and will spread out his wings against Moab. 
 Kerioth is taken, and the strongholds are seized. The heart of the mighty men of Moab at that day will be as the heart of a woman in her pangs. 
 Moab will be destroyed from being a people, because he has magnified himself against God. 
 Terror, the pit, and the snare are on you, inhabitant of Moab," says God. 

@@ -1,7 +1,7 @@
-﻿For the Chief Musician. A Psalm by David. God, you have searched me, and you know me. 
+﻿The Chief Musician. A Psalm by David. God, you have searched me, and you know me. 
 You know my sitting down and my rising up. You perceive my thoughts from afar. 
 You search out my path and my lying down, and are acquainted with all my ways. 
-For there is not a word on my tongue, but behold, God, you know it altogether. 
+There is not a word on my tongue, but behold, God, you know it altogether. 
 You hem me in behind and before. You laid your hand on me. 
 This knowledge is beyond me. It's lofty. I can't attain it. 
 Where could I go from your Spirit? Or where could I flee from your presence? 
@@ -10,14 +10,14 @@ If I take the wings of the dawn, and settle in the uttermost parts of the sea,
 even there your hand will lead me, and your right hand will hold me. 
 If I say, "Surely the darkness will overwhelm me. The light around me will be night," 
 even the darkness doesn't hide from you, but the night shines as the day. The darkness is like light to you. 
-For you formed my inmost being. You knit me together in my mother's womb. 
+You formed my inmost being. You knit me together in my mother's womb. 
 I will give thanks to you, for I am fearfully and wonderfully made. Your works are wonderful. My soul knows that very well. 
 My frame wasn't hidden from you, when I was made in secret, woven together in the depths of the earth. 
 Your eyes saw my body. In your book they were all written, the days that were ordained for me, when as yet there were none of them. 
 How precious to me are your thoughts, God! How vast is their sum! 
 If I would count them, they are more in number than the sand. When I wake up, I am still with you. 
 If only you, God, would kill the guilty. Get away from me, you bloodthirsty men! 
-For they speak against you guiltily. Your enemies take your name in vain. 
+They speak against you guiltily. Your enemies take your name in vain. 
 God, don't I hate those who hate you? Am I not grieved with those who rise up against you? 
 I hate them with perfect hatred. They have become my enemies. 
 Search me, God, and know my heart. Try me, and know my thoughts. 

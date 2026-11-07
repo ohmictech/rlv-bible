@@ -2,7 +2,7 @@
 Lay siege against it, build forts against it, and cast up a mound against it. Also set camps against it and plant battering rams against it all around. 
 Take for yourself an iron pan and set it for a wall of iron between you and the city. Then set your face toward it. It will be besieged, and you shall lay siege against it. This shall be a sign to the house of Israel. 
 "Moreover lie on your left side, and lay the guilt of the house of Israel on it. According to the number of the days that you shall lie on it, you shall bear their guilt. 
-For I have appointed the years of their guilt to be to you a number of days, even three hundred ninety days. So you shall bear the guilt of the house of Israel. 
+I have appointed the years of their guilt to be to you a number of days, even three hundred ninety days. So you shall bear the guilt of the house of Israel. 
 "Again, when you have accomplished these, you shall lie on your right side, and shall bear the guilt of the house of Judah. I have appointed forty days, each day for a year, to you. 
 You shall set your face toward the siege of Jerusalem, with your arm uncovered; and you shall prophesy against it. 
 Behold, I put ropes on you, and you shall not turn yourself from one side to the other, until you have accomplished the days of your siege. 

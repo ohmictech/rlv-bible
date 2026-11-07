@@ -15,7 +15,7 @@ He shall not marry a widow, or one divorced, or a woman who has been defiled, or
 He shall not profane his offspring among his people, for I am God who sanctifies him.'" 
 God spoke to Moses, saying, 
 "Say to Aaron, 'None of your offspring throughout their generations who has a defect may approach to offer the bread of his God. 
-For whatever man he is that has a defect, he shall not draw near: a blind man, or a lame, or he who has a flat nose, or any deformity, 
+Whatever man he is that has a defect, he shall not draw near: a blind man, or a lame, or he who has a flat nose, or any deformity, 
 or a man who has an injured foot, or an injured hand, 
 or hunchbacked, or a dwarf, or one who has a defect in his eye, or an itching disease, or scabs, or who has damaged testicles. 
 No man of the offspring of Aaron the priest who has a defect shall come near to offer the offerings of God made by fire. Since he has a defect, he shall not come near to offer the bread of his God. 

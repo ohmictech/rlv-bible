@@ -1,7 +1,7 @@
 ﻿Then Job answered, 
 "Oh that my anguish were weighed, and all my calamity laid in the balances! 
-For now it would be heavier than the sand of the seas, my words have been rash. 
-For the arrows of the Almighty are within me. My spirit drinks up their poison. The terrors of God set themselves in array against me. 
+Now it would be heavier than the sand of the seas, my words have been rash. 
+The arrows of the Almighty are within me. My spirit drinks up their poison. The terrors of God set themselves in array against me. 
 Does the wild donkey bray when he has grass? Or does the ox low over his fodder? 
 Can that which has no flavor be eaten without salt? Or is there any taste in the white of an egg? 
 My soul refuses to touch them. They are as loathsome food to me. 
@@ -18,7 +18,7 @@ In the dry season, they vanish. When it is hot, they are consumed out of their p
 The caravans that travel beside them turn away. They go up into the waste, and perish. 
 The caravans of Tema looked. The companies of Sheba waited for them. 
 They were distressed because they were confident. They came there, and were confounded. 
-For now you are nothing. You see a terror, and are afraid. 
+Now you are nothing. You see a terror, and are afraid. 
 Did I ever say, 'Give to me'? or, 'Offer a present for me from your substance'? 
 or, 'Deliver me from the adversary's hand'? or, 'Buy me back from the hand of the oppressors'? 
 "Teach me, and I will hold my peace. Cause me to understand my error. 

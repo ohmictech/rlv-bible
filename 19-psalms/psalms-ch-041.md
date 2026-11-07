@@ -1,4 +1,4 @@
-﻿For the Chief Musician. A Psalm by David. Blessed is he who considers the poor. God will deliver him in the day of bad. 
+﻿The Chief Musician. A Psalm by David. Blessed is he who considers the poor. God will deliver him in the day of bad. 
 God will preserve him, and keep him alive. He shall be blessed on the earth, and he will not surrender him to the will of his enemies. 
 God will sustain him on his sickbed, and restore him from his bed of illness. 
 I said, "God, have mercy on me! Heal me, for I have wronged you." 

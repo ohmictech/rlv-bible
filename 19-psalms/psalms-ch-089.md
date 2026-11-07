@@ -3,7 +3,7 @@ I indeed declare, "Love stands firm for the eras. You established the sky. Your 
 "I have made a covenant with my chosen one, I have sworn to David, my servant, 
 'I will establish your offspring for the eras, and build up your throne to all generations.'" Selah. 
 The sky will praise your wonders, God, your faithfulness also in the assembly of the holy ones. 
-For who in the skies can be compared to God? Who among the sons of the heavenly beings is like God, 
+Who in the skies can be compared to God? Who among the sons of the heavenly beings is like God, 
 a very awesome God in the council of the holy ones, to be feared above everyone who is around him? 
 God, God of Armies, who is a mighty one, like you? God, your faithfulness is around you. 
 You rule the pride of the sea. When its waves rise up, you calm them. 
@@ -14,8 +14,8 @@ You have a mighty arm. Your hand is strong, and your right hand is exalted.
 Righteousness and justice are the foundation of your throne. Loving kindness and truth go before your face. 
 Blessed are the people who learn to acclaim you. They walk in the light of your presence, God. 
 In your name they rejoice all day. In your righteousness, they are exalted. 
-For you are the glory of their strength. In your favor, our horn will be exalted. 
-For our shield belongs to God, our king to the Holy One of Israel. 
+You are the glory of their strength. In your favor, our horn will be exalted. 
+Our shield belongs to God, our king to the Holy One of Israel. 
 Then you spoke in vision to your saints, and said, "I have given strength to the warrior. I have exalted a young man from the people. 
 I have found David, my servant. I have anointed him with my holy oil, 
 with whom my hand shall be established. My arm will also strengthen him. 

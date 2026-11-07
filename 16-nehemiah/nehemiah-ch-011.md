@@ -20,7 +20,7 @@ Moreover the gatekeepers, Akkub, Talmon, and their brothers, who kept watch at t
 The residue of Israel, of the priests, and the Levites were in all the cities of Judah, everyone in his inheritance. 
 But the temple servants lived in Ophel; and Ziha and Gishpa were over the temple servants. 
 The overseer also of the Levites at Jerusalem was Uzzi the son of Bani, the son of Hashabiah, the son of Mattaniah, the son of Mica, of the sons of Asaph, the singers responsible for the service of God's house. 
-For there was a commandment from the king concerning them, and a settled provision for the singers, as every day required. 
+There was a commandment from the king concerning them, and a settled provision for the singers, as every day required. 
 Pethahiah the son of Meshezabel, of the children of Zerah the son of Judah, was at the king's hand in all matters concerning the people. 
 As for the villages with their fields, some of the children of Judah lived in Kiriath Arba and its towns, in Dibon and its towns, in Jekabzeel and its villages, 
 in Jeshua, in Moladah, Beth Pelet, 

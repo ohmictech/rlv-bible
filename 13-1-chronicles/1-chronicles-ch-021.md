@@ -21,10 +21,10 @@ Ornan turned back and saw the messenger; and his four sons who were with him hid
 As David came to Ornan, Ornan looked and saw David, and went out of the threshing floor, and bowed himself to David with his face to the ground. 
 Then David said to Ornan, "Sell me the place of this threshing floor, that I may build an altar to God on it. You shall sell it to me for the full price, that the plague may be stopped from afflicting the people." 
 Ornan said to David, "Take it for yourself, and let my lord the king do that which is good in his eyes. Behold, I give the oxen for burnt offerings, and the threshing instruments for wood, and the wheat for the meal offering. I give it all." 
-King David said to Ornan, "No, but I will most certainly buy it for the full price. For I will not take that which is yours for God, nor offer a burnt offering that costs me nothing." 
+King David said to Ornan, "No, but I will most certainly buy it for the full price. I will not take that which is yours for God, nor offer a burnt offering that costs me nothing." 
 So David gave to Ornan six hundred shekels of gold by weight for the place. 
 David built an altar to God there, and offered burnt offerings and offerings for wholeness, and called on God; and he answered him from the sky by fire on the altar of burnt offering. 
 Then God commanded the messenger, and he put his sword back into its sheath. 
 At that time, when David saw that God had answered him in the threshing floor of Ornan the Jebusite, then he sacrificed there. 
-For God's tabernacle, which Moses made in the wilderness, and the altar of burnt offering, were at that time in the high place at Gibeon. 
+God's tabernacle, which Moses made in the wilderness, and the altar of burnt offering, were at that time in the high place at Gibeon. 
 But David couldn't go before it to inquire of God, for he was afraid because of the sword of God's messenger. 

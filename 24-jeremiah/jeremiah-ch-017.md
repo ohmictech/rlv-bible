@@ -3,9 +3,9 @@ Even their children remember their altars and their Asherah poles by the green t
 My mountain in the field, I will give your substance and all your treasures for a plunder, and your high places, because of wrongdoing, throughout all your borders. 
 You, even of yourself, will discontinue from your heritage that I gave you. I will cause you to serve your enemies in the land which you don't know, for you have kindled a fire in my anger which will burn for the eras." 
 God says: "Cursed is the man who trusts in man, relies on strength of flesh, and whose heart departs from God. 
-For he will be like a bush in the desert, and will not see when good comes, but will inhabit the parched places in the wilderness, an uninhabited salt land. 
+He will be like a bush in the desert, and will not see when good comes, but will inhabit the parched places in the wilderness, an uninhabited salt land. 
 "Blessed is the man who trusts in God, and whose confidence is in God. 
-For he will be as a tree planted by the waters, who spreads out its roots by the river, and will not fear when heat comes, but its leaf will be green, and will not be concerned in the year of drought. It won't cease from yielding fruit. 
+He will be as a tree planted by the waters, who spreads out its roots by the river, and will not fear when heat comes, but its leaf will be green, and will not be concerned in the year of drought. It won't cease from yielding fruit. 
 The heart is deceitful above all things and it is exceedingly corrupt. Who can know it? 
 "I, God, search the mind. I try the heart, even to give every man according to his ways, according to the fruit of his doings." 
 As the partridge that sits on eggs which she has not laid, so is he who gets riches, and not by right. In the middle of his days, they will leave him. At his end, he will be a fool. 

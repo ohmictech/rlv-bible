@@ -1,5 +1,5 @@
 ﻿Oh that my head were waters, and my eyes a spring of tears, that I might weep day and night for the slain of the daughter of my people! 
-Oh that I had in the wilderness a lodging place of wayfaring men, that I might leave my people and go from them! For they are all adulterers, an assembly of treacherous men. 
+Oh that I had in the wilderness a lodging place of wayfaring men, that I might leave my people and go from them! They are all adulterers, an assembly of treacherous men. 
 "They bend their tongue, as their bow, for falsehood. They have grown strong in the land, but not for truth; for they proceed from what is bad to bad, and they don't know me," says God. 
 "Everyone beware of his neighbor, and don't trust in any brother; for every brother will utterly supplant, and every neighbor will go around like a slanderer. 
 Friends deceive each other, and will not speak the truth. They have taught their tongue to speak lies. They weary themselves committing guilt. 
@@ -16,9 +16,9 @@ So the God of Armies, the God of Israel says, "Behold, I will feed them, even th
 I will scatter them also among the nations, whom neither they nor their fathers have known. I will send the sword after them, until I have consumed them." 
 The God of Armies says, "Consider, and call for the mourning women, that they may come. Send for the skillful women, that they may come. 
 Let them make haste and take up a wailing for us, that our eyes may run down with tears and our eyelids gush out with waters. 
-For a voice of wailing is heard out of Zion, 'How we are ruined! We are greatly confounded because we have forsaken the land, because they have cast down our dwellings.'" 
+A voice of wailing is heard out of Zion, 'How we are ruined! We are greatly confounded because we have forsaken the land, because they have cast down our dwellings.'" 
 Yet hear God's word, you women. Let your ear receive the word of his mouth. Teach your daughters wailing. Everyone teach her neighbor a lamentation. 
-For death has come up into our windows. It has entered into our palaces to cut off the children from outside, and the young men from the streets. 
+Death has come up into our windows. It has entered into our palaces to cut off the children from outside, and the young men from the streets. 
 Speak, "God says, "'The dead bodies of men will fall as dung on the open field, and as the handful after the harvester. No one will gather them.'" 
 God says, "Don't let the wise man glory in his wisdom. Don't let the mighty man glory in his might. Don't let the rich man glory in his riches. 
 But let him who glories glory in this, that he has understanding, and knows me, that I am God who exercises loving kindness, justice, and righteousness on the earth, for I delight in these things," says God. 

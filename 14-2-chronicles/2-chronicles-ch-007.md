@@ -13,7 +13,7 @@ Then God appeared to Solomon by night, and said to him, "I have heard your praye
 "If I shut up the sky so that there is no rain, or if I command the locust to devour the land, or if I send pestilence among my people, 
 if my people who are called by my name will humble themselves, pray, seek my face, and turn from their guilty ways, then I will hear from the sky, will forgive their wrongdoing, and will heal their land. 
 Now my eyes will be open and my ears attentive to prayer that is made in this place. 
-For now I have chosen and made this house holy, that my name may be there for the eras; and my eyes and my heart will be there perpetually. 
+Now I have chosen and made this house holy, that my name may be there for the eras; and my eyes and my heart will be there perpetually. 
 "As for you, if you will walk before me as David your father walked, and do according to all that I have commanded you, and will keep my statutes and my ordinances, 
 then I will establish the throne of your kingdom, according as I covenanted with David your father, saying, 'There shall not fail you a man to be ruler in Israel.' 
 But if you turn away and forsake my statutes and my commandments which I have set before you, and go and serve other gods and worship them, 

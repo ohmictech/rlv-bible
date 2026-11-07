@@ -53,7 +53,7 @@ You also bear your own shame yourself, in that you have given judgment for your 
 "'"I will reverse their captivity, the captivity of Sodom and her daughters, and the captivity of Samaria and her daughters, and the captivity of your captives among them; 
 that you may bear your own shame, and may be ashamed because of all that you have done, in that you are a comfort to them. 
 Your sisters, Sodom and her daughters, will return to their former estate; and Samaria and her daughters will return to their former estate; and you and your daughters will return to your former estate. 
-For your sister Sodom was not mentioned by your mouth in the day of your pride, 
+Your sister Sodom was not mentioned by your mouth in the day of your pride, 
 before your guilt was uncovered, as at the time of the reproach of the daughters of Syria, and of everyone who is around her, the daughters of the Philistines, who despise you all around. 
 You have borne your lewdness and your abominations," says God. 
 "'For God says: "I will also deal with you as you have done, who have despised the oath in breaking the covenant. 

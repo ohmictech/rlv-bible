@@ -39,7 +39,7 @@ Egypt was glad when they departed, for the fear of them had fallen on them.
 He spread a cloud for a covering, fire to give light in the night. 
 They asked, and he brought quails, and satisfied them with the bread of the sky. 
 He opened the rock, and waters gushed out. They ran as a river in the dry places. 
-For he remembered his holy word, and Abraham, his servant. 
+He remembered his holy word, and Abraham, his servant. 
 He brought his people out with joy, his chosen with singing. 
 He gave them the lands of the nations. They took the labor of the peoples in possession, 
 that they might keep his statutes, and observe his laws. Praise God! 

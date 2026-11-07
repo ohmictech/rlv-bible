@@ -7,7 +7,7 @@ Then he wrote a letter the second time to them, saying, "If you are on my side, 
 When the letter came to them, they took the king's sons and killed them, even seventy people, and put their heads in baskets, and sent them to him to Jezreel. 
 A messenger came and told him, "They have brought the heads of the king's sons." He said, "Lay them in two heaps at the entrance of the gate until the morning." 
 In the morning, he went out and stood, and said to everyone, "You are righteous. Behold, I conspired against my master and killed him, but who killed all these? 
-Know now that nothing will fall to the earth of God's word, which God spoke concerning Ahab's house. For God has done that which he spoke by his servant Elijah." 
+Know now that nothing will fall to the earth of God's word, which God spoke concerning Ahab's house. God has done that which he spoke by his servant Elijah." 
 So Jehu struck all that remained of Ahab's house in Jezreel, with all his great men, his familiar friends, and his priests, until he left him no one remaining. 
 He arose and departed, and went to Samaria. As he was at the shearing house of the shepherds on the way, 
 Jehu met with the brothers of Ahaziah king of Judah, and said, "Who are you?" They answered, "We are the brothers of Ahaziah. We are going down to greet the children of the king and the children of the queen." 

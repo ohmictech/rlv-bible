@@ -4,18 +4,18 @@ Abraham called his son who was born to him, whom Sarah bore to him, Isaac.
 Abraham circumcised his son, Isaac, when he was eight days old, as God had commanded him. 
 Abraham was one hundred years old when his son, Isaac, was born to him. 
 Sarah said, "God has made me laugh. Everyone who hears will laugh with me." 
-She said, "Who would have said to Abraham that Sarah would nurse children? For I have borne him a son in his old age." 
+She said, "Who would have said to Abraham that Sarah would nurse children? I have borne him a son in his old age." 
 The child grew and was weaned. Abraham made a great feast on the day that Isaac was weaned. 
 Sarah saw the son of Hagar the Egyptian, whom she had borne to Abraham, mocking. 
-So she said to Abraham, "Cast out this servant and her son! For the son of this servant will not be heir with my son, Isaac." 
+So she said to Abraham, "Cast out this servant and her son! The son of this servant will not be heir with my son, Isaac." 
 The thing was very grievous in Abraham's sight on account of his son. 
-God said to Abraham, "Don't let it be grievous in your sight because of the boy, and because of your servant. In all that Sarah says to you, listen to her voice. For your offspring will be named through Isaac. 
+God said to Abraham, "Don't let it be grievous in your sight because of the boy, and because of your servant. In all that Sarah says to you, listen to her voice. Your offspring will be named through Isaac. 
 I will also make a nation of the son of the servant, because he is your child." 
 Abraham rose up early in the morning, and took bread and a container of water, and gave it to Hagar, putting it on her shoulder; and gave her the child, and sent her away. She departed, and wandered in the wilderness of Beersheba. 
 The water in the container was spent, and she put the child under one of the shrubs. 
-She went and sat down opposite him, a good way off, about a bow shot away. For she said, "Don't let me see the death of the child." She sat opposite him, and lifted up her voice, and wept. 
-God heard the voice of the boy. The messenger of God called to Hagar out of the sky, and said to her, "What troubles you, Hagar? Don't be afraid. For God has heard the voice of the boy where he is. 
-Get up, lift up the boy, and hold him with your hand. For I will make him a great nation." 
+She went and sat down opposite him, a good way off, about a bow shot away. She said, "Don't let me see the death of the child." She sat opposite him, and lifted up her voice, and wept. 
+God heard the voice of the boy. The messenger of God called to Hagar out of the sky, and said to her, "What troubles you, Hagar? Don't be afraid. God has heard the voice of the boy where he is. 
+Get up, lift up the boy, and hold him with your hand. I will make him a great nation." 
 God opened her eyes, and she saw a well of water. She went, filled the container with water, and gave the boy a drink. 
 God was with the boy, and he grew. He lived in the wilderness, and as he grew up, he became an archer. 
 He lived in the wilderness of Paran. His mother got a wife for him out of the land of Egypt. 

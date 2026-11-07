@@ -1,4 +1,4 @@
-﻿For the Chief Musician. To Jeduthun. A Psalm by Asaph. My cry goes to God! Indeed, I cry to God for help, and for him to listen to me. 
+﻿The Chief Musician. To Jeduthun. A Psalm by Asaph. My cry goes to God! Indeed, I cry to God for help, and for him to listen to me. 
 In the day of my trouble I sought the Lord. My hand was stretched out in the night, and didn't get tired. My soul refused to be comforted. 
 I remember God, and I groan. I complain, and my spirit is overwhelmed. Selah. 
 You hold my eyelids open. I am so troubled that I can't speak. 

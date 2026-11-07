@@ -3,7 +3,7 @@ His offspring will be mighty in the land. The generation of the upright will be 
 Wealth and riches are in his house. His righteousness endures for the eras. 
 Light dawns in the darkness for the upright, gracious, merciful, and righteous. 
 It is well with the man who deals graciously and lends. He will maintain his cause in judgment. 
-For he will never be shaken. The righteous will be remembered for the eras. 
+He will never be shaken. The righteous will be remembered for the eras. 
 He will not be afraid of bad news. His heart is steadfast, trusting in God. 
 His heart is established. He will not be afraid in the end when he sees his adversaries. 
 He has dispersed, he has given to the poor. His righteousness endures for the eras. His horn will be exalted with honor. 

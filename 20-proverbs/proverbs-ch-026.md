@@ -17,7 +17,7 @@ The sluggard is wiser in his own eyes than seven men who answer with discretion.
 Like one who grabs a dog's ears is one who passes by and meddles in a quarrel not his own. 
 Like a madman who shoots torches, arrows, and death, 
 is the man who deceives his neighbor and says, "Am I not joking?" 
-For lack of wood a fire goes out. Without gossip, a quarrel dies down. 
+Lack of wood a fire goes out. Without gossip, a quarrel dies down. 
 As coals are to hot embers, and wood to fire, so is a contentious man to kindling strife. 
 The words of a whisperer are as dainty morsels, they go down into the innermost parts. 
 Like silver dross on an earthen vessel are the lips of a fervent one with an bad heart. 

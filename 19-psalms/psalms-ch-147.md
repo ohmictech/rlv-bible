@@ -10,7 +10,7 @@ He provides food for the livestock, and for the young ravens when they call.
 He doesn't delight in the strength of the horse. He takes no pleasure in the legs of a man. 
 God takes pleasure in those who fear him, in those who hope in his loving kindness. 
 Praise God, Jerusalem! Praise your God, Zion! 
-For he has strengthened the bars of your gates. He has blessed your children within you. 
+He has strengthened the bars of your gates. He has blessed your children within you. 
 He makes peace in your borders. He fills you with the finest of the wheat. 
 He sends out his commandment to the earth. His word runs very swiftly. 
 He gives snow like wool, and scatters frost like ashes. 

@@ -29,6 +29,6 @@ One went out from me, and I said, "Surely he is torn in pieces;" and I haven't s
 If you take this one also from me, and harm happens to him, you will bring down my gray hairs with sorrow to Hades.' 
 Now when I come to your servant my father, and the boy is not with us; since his life is bound up in the boy's life; 
 it will happen, when he sees that the boy is no more, that he will die. Your servants will bring down the gray hairs of your servant, our father, with sorrow to Hades. 
-For your servant became collateral for the boy to my father, saying, 'If I don't bring him to you, then I will bear the blame to my father for the eras.' 
+Your servant became collateral for the boy to my father, saying, 'If I don't bring him to you, then I will bear the blame to my father for the eras.' 
 Now, please let your servant stay instead of the boy, my lord's slave; and let the boy go up with his brothers. 
-For how will I go up to my father, if the boy isn't with me?, lest I see the bad that will come on my father." 
+How will I go up to my father, if the boy isn't with me?, lest I see the bad that will come on my father." 

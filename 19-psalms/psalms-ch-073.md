@@ -1,7 +1,7 @@
 ﻿A Psalm by Asaph. Surely God is good to Israel, to those who are pure in heart. 
 But as for me, my feet were almost gone. My steps had nearly slipped. 
-For I was envious of the arrogant, when I saw the prosperity of the guilty. 
-For there are no struggles in their death, but their strength is firm. 
+I was envious of the arrogant, when I saw the prosperity of the guilty. 
+There are no struggles in their death, but their strength is firm. 
 They are free from burdens of men, neither are they plagued like other men. 
 So pride is like a chain around their neck. Violence covers them like a garment. 
 Their eyes bulge with fat. Their minds pass the limits of conceit. 
@@ -18,7 +18,7 @@ until I entered God's sanctuary, and considered their latter end.
 Surely you set them in slippery places. You throw them down to destruction. 
 How they are suddenly destroyed! They are completely swept away with terrors. 
 As a dream when one wakes up, so, Lord, when you awake, you will despise their fantasies. 
-For my soul was grieved. I was embittered in my heart. 
+My soul was grieved. I was embittered in my heart. 
 I was so senseless and ignorant. I was a brute beast before you. 
 Nevertheless, I am continually with you. You have held my right hand. 
 You will guide me with your counsel, and afterward receive me to glory. 

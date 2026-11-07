@@ -1,9 +1,9 @@
 ﻿Open your doors, Lebanon, that the fire may devour your cedars. 
 Wail, cypress tree, for the cedar has fallen, because the stately ones are destroyed. Wail, you oaks of Bashan, for the strong forest has come down. 
-A voice of the wailing of the shepherds! For their glory is destroyed, a voice of the roaring of young lions! For the pride of the Jordan is ruined. 
+A voice of the wailing of the shepherds! Their glory is destroyed, a voice of the roaring of young lions! The pride of the Jordan is ruined. 
 My God says: "Feed the flock of slaughter. 
 Their buyers slaughter them and go unpunished. Those who sell them say, 'Blessed be God, for I am rich;' and their own shepherds don't pity them. 
-For I will no more pity the inhabitants of the land," says God; "but, behold, I will deliver every one of the men into his neighbor's hand and into the hand of his king. They will strike the land, and out of their hand I will not deliver them." 
+I will no more pity the inhabitants of the land," says God; "but, behold, I will deliver every one of the men into his neighbor's hand and into the hand of his king. They will strike the land, and out of their hand I will not deliver them." 
 So I fed the flock to be slaughtered, especially the oppressed of the flock. I took for myself two staffs. The one I called "Favor" and the other I called "Union", and I fed the flock. 
 I cut off the three shepherds in one month; for my soul was weary of them, and their soul also loathed me. 
 Then I said, "I will not feed you. That which dies, let it die; and that which is to be cut off, let it be cut off; and let those who are left eat each other's flesh." 

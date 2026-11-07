@@ -1,6 +1,6 @@
 ﻿Listen, sons, to a father's instruction. Pay attention and know understanding; 
 for I give you sound learning. Don't forsake my law. 
-For I was a son to my father, tender and an only child in the sight of my mother. 
+I was a son to my father, tender and an only child in the sight of my mother. 
 He taught me, and said to me: "Let your heart retain my words. Keep my commandments, and live. 
 Get wisdom. Get understanding. Don't forget, and don't deviate from the words of my mouth. 
 Don't forsake her, and she will preserve you. Love her, and she will keep you. 
@@ -13,13 +13,13 @@ When you go, your steps will not be hampered. When you run, you will not stumble
 Take firm hold of instruction. Don't let her go. Keep her, for she is your life. 
 Don't enter into the path of the guilty. Don't walk in the way of bad men. 
 Avoid it, and don't pass by it. Turn from it, and pass on. 
-For they don't sleep unless they do bad things. Their sleep is taken away, unless they make someone fall. 
-For they eat the bread of guilt and drink the wine of violence. 
+They don't sleep unless they do bad things. Their sleep is taken away, unless they make someone fall. 
+They eat the bread of guilt and drink the wine of violence. 
 But the path of the righteous is like the dawning light that shines more and more until the perfect day. 
 The way of the guilty is like darkness. They don't know what they stumble over. 
 My son, attend to my words. Turn your ear to my sayings. 
 Let them not depart from your eyes. Keep them in the center of your heart. 
-For they are life to those who find them, and health to their whole body. 
+They are life to those who find them, and health to their whole body. 
 Keep your heart with all diligence, for out of it is the wellspring of life. 
 Put away from yourself a perverse mouth. Put corrupt lips far from you. 
 Let your eyes look straight ahead. Fix your gaze directly before you. 

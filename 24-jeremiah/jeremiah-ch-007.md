@@ -19,7 +19,7 @@ The children gather wood, and the fathers kindle the fire, and the women knead t
 Do they provoke me to anger?" says God. "Don't they provoke themselves, to the confusion of their own faces?" 
 So God says: "Behold, my anger and my wrath will be poured out on this place, on man, on animal, on the trees of the field, and on the fruit of the ground; and it will burn and will not be quenched." 
 The God of Armies, the God of Israel says: "Add your burnt offerings to your sacrifices and eat meat. 
-For I didn't speak to your fathers or command them in the day that I brought them out of the land of Egypt concerning burnt offerings or sacrifices; 
+I didn't speak to your fathers or command them in the day that I brought them out of the land of Egypt concerning burnt offerings or sacrifices; 
 but this thing I commanded them, saying, 'Listen to my voice, and I will be your God, and you shall be my people. Walk in all the way that I command you, that it may be well with you.' 
 But they didn't listen or turn their ear, but walked in their own counsels and in the stubbornness of their bad heart, and went backward, and not forward. 
 Since the day that your fathers came out of the land of Egypt to this day, I have sent to you all my servants the spokesmen, daily rising up early and sending them. 
@@ -27,7 +27,7 @@ Yet they didn't listen to me or incline their ear, but made their neck stiff. Th
 "You shall speak all these words to them, but they will not listen to you. You shall also call to them, but they will not answer you. 
 You shall tell them, 'This is the nation that has not listened to their God's voice, nor received instruction. Truth has perished, and is cut off from their mouth.' 
 Cut off your hair, and throw it away, and take up a lamentation on the bare heights; for God has rejected and forsaken the generation of his wrath. 
-"For the children of Judah have done that which is bad in my sight," says God. "They have set their abominations in the house which is called by my name, to defile it. 
+"The children of Judah have done that which is bad in my sight," says God. "They have set their abominations in the house which is called by my name, to defile it. 
 They have built the high places of Topheth, which is in the valley of the son of Hinnom, to burn their sons and their daughters in the fire, which I didn't command, nor did it come into my mind. 
 So behold, the days come", says God, "that it will no more be called 'Topheth' or 'The valley of the son of Hinnom', but 'The valley of Slaughter'; for they will bury in Topheth until there is no place to bury. 
 The dead bodies of this people will be food for the birds of the sky, and for the animals of the earth. No one will frighten them away. 

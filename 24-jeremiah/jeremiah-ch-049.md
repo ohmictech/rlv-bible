@@ -9,14 +9,14 @@ Flee! Turn back! Dwell in the depths, inhabitants of Dedan; for I will bring the
 If grape gatherers came to you, would they not leave some gleaning grapes? If thieves came by night, wouldn't they steal until they had enough? 
 But I have made Esau bare, I have uncovered his secret places, and he will not be able to hide himself. His offspring is destroyed, with his brothers and his neighbors; and he is no more. 
 Leave your fatherless children. I will preserve them alive. Let your widows trust in me." 
-For God says: "Behold, they to whom it didn't pertain to drink of the cup will certainly drink; and are you he who will altogether go unpunished? You won't go unpunished, but you will surely drink. 
-For I have sworn by myself," says God, "that Bozrah will become an astonishment, a reproach, a waste, and a curse. All its cities will be perpetual wastes." 
+God says: "Behold, they to whom it didn't pertain to drink of the cup will certainly drink; and are you he who will altogether go unpunished? You won't go unpunished, but you will surely drink. 
+I have sworn by myself," says God, "that Bozrah will become an astonishment, a reproach, a waste, and a curse. All its cities will be perpetual wastes." 
 I have heard news from God, and an ambassador is sent among the nations, saying, "Gather yourselves together! Come against her! Rise up to the battle!" 
 "For, behold, I have made you small among the nations, and despised among men. 
 As for your terror, the pride of your heart has deceived you, O you who dwell in the clefts of the rock, who hold the height of the hill, though you should make your nest as high as the eagle, I will bring you down from there," says God. 
 "Edom will become an astonishment. Everyone who passes by it will be astonished, and will hiss at all its plagues. 
 As in the overthrow of Sodom and Gomorrah and its neighbor cities," says God, "no man will dwell there, neither will any son of man live therein. 
-"Behold, he will come up like a lion from the pride of the Jordan against the strong habitation; for I will suddenly make them run away from it, and whoever is chosen, I will appoint him over it. For who is like me? Who will appoint me a time? Who is the shepherd who will stand before me?" 
+"Behold, he will come up like a lion from the pride of the Jordan against the strong habitation; for I will suddenly make them run away from it, and whoever is chosen, I will appoint him over it. Who is like me? Who will appoint me a time? Who is the shepherd who will stand before me?" 
 So hear the counsel of God, that he has taken against Edom, and his purposes that he has purposed against the inhabitants of Teman: Surely they will drag them away, the little ones of the flock. Surely he will make their habitation desolate over them. 
 The earth trembles at the noise of their fall; there is a cry, the noise which is heard in the Red Sea. 
 Behold, he will come up and fly as the eagle, and spread out his wings against Bozrah. The heart of the mighty men of Edom at that day will be as the heart of a woman in her pangs. 

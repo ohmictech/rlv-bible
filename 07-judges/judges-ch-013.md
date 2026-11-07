@@ -17,7 +17,7 @@ God's messenger said to Manoah, "Though you detain me, I won't eat your bread. I
 Manoah said to God's messenger, "What is your name, that when your words happen, we may honor you?" 
 God's messenger said to him, "Why do you ask about my name, since it is incomprehensible?" 
 So Manoah took the young goat with the meal offering, and offered it on the rock to God. Then the messenger did an amazing thing as Manoah and his wife watched. 
-For when the flame went up toward the sky from off the altar, God's messenger ascended in the flame of the altar. Manoah and his wife watched; and they fell on their faces to the ground. 
+When the flame went up toward the sky from off the altar, God's messenger ascended in the flame of the altar. Manoah and his wife watched; and they fell on their faces to the ground. 
 But God's messenger didn't appear to Manoah or to his wife any more. Then Manoah knew that he was God's messenger. 
 Manoah said to his wife, "We shall surely die, because we have seen God." 
 But his wife said to him, "If God were pleased to kill us, he wouldn't have received a burnt offering and a meal offering at our hand, and he wouldn't have shown us all these things, nor would he have told us such things as these at this time." 

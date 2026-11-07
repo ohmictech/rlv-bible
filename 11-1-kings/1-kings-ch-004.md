@@ -21,14 +21,14 @@ Judah and Israel were numerous as the sand which is by the sea in multitude, eat
 Solomon ruled over all the kingdoms from the River to the land of the Philistines, and to the border of Egypt. They brought tribute and served Solomon all the days of his life. 
 Solomon's provision for one day was thirty cors of fine flour, sixty measures of meal, 
 ten head of fat cattle, twenty head of cattle out of the pastures, and one hundred sheep, in addition to deer, gazelles, roebucks, and fattened fowl. 
-For he had dominion over all on this side of the River, from Tiphsah even to Gaza, over all the kings on this side of the River; and he had peace on all sides around him. 
+He had dominion over all on this side of the River, from Tiphsah even to Gaza, over all the kings on this side of the River; and he had peace on all sides around him. 
 Judah and Israel lived safely, every man under his vine and under his fig tree, from Dan even to Beersheba, all the days of Solomon. 
 Solomon had forty thousand stalls of horses for his chariots, and twelve thousand horsemen. 
 Those officers provided food for King Solomon, and for everyone who came to King Solomon's table, every man in his month. They let nothing be lacking. 
 They also brought barley and straw for the horses and swift steeds to the place where the officers were, each man according to his duty. 
 God gave Solomon abundant wisdom, understanding, and breadth of mind like the sand that is on the seashore. 
 Solomon's wisdom excelled the wisdom of all the children of the east and all the wisdom of Egypt. 
-For he was wiser than everyone, wiser than Ethan the Ezrahite, Heman, Calcol, and Darda, the sons of Mahol; and his fame was in all the nations all around. 
+He was wiser than everyone, wiser than Ethan the Ezrahite, Heman, Calcol, and Darda, the sons of Mahol; and his fame was in all the nations all around. 
 He spoke three thousand proverbs, and his songs numbered one thousand five. 
 He spoke of trees, from the cedar that is in Lebanon even to the hyssop that grows out of the wall; he also spoke of animals, of birds, of creeping things, and of fish. 
 People of all nations came to hear the wisdom of Solomon, sent by all kings of the earth who had heard of his wisdom. 

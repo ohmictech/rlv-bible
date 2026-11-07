@@ -28,7 +28,7 @@ On the next day after the new moon, the second day, David's place was empty. Sau
 Jonathan answered Saul, "David earnestly asked permission of me to go to Bethlehem. 
 He said, 'Please let me go, for our family has a sacrifice in the city. My brother has commanded me to be there. Now, if I have found favor in your eyes, please let me go away and see my brothers.' Therefore he has not come to the king's table." 
 Then Saul's anger burned against Jonathan, and he said to him, "You son of a perverse rebellious woman, don't I know that you have chosen the son of Jesse to your own shame, and to the shame of your mother's nakedness? 
-For as long as the son of Jesse lives on the earth, you will not be established, nor will your kingdom. So now send and bring him to me, for he shall surely die!" 
+As long as the son of Jesse lives on the earth, you will not be established, nor will your kingdom. So now send and bring him to me, for he shall surely die!" 
 Jonathan answered Saul his father, and said to him, "Why should he be put to death? What has he done?" 
 Saul cast his spear at him to strike him. By this Jonathan knew that his father was determined to put David to death. 
 So Jonathan arose from the table in fierce anger, and ate no food the second day of the month; for he was grieved for David, because his father had treated him shamefully. 

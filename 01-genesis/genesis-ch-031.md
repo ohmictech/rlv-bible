@@ -12,8 +12,8 @@ The messenger of God said to me in the dream, 'Jacob,' and I said, 'Here I am.'
 He said, 'Now lift up your eyes, and behold, all the male goats which leap on the flock are streaked, speckled, and grizzled, for I have seen all that Laban does to you. 
 I am the God of Bethel, where you anointed a pillar, where you vowed a vow to me. Now arise, get out from this land, and return to the land of your birth.'" 
 Rachel and Leah answered him, "Is there yet any portion or inheritance for us in our father's house? 
-Aren't we considered as foreigners by him? For he has sold us, and has also used up our money. 
-For all the riches which God has taken away from our father are ours and our children's. Now then, whatever God has said to you, do." 
+Aren't we considered as foreigners by him? He has sold us, and has also used up our money. 
+All the riches which God has taken away from our father are ours and our children's. Now then, whatever God has said to you, do." 
 Then Jacob rose up, and set his sons and his wives on the camels, 
 and he took away all his livestock, and all his possessions which he had gathered, including the livestock which he had gained in Paddan Aram, to go to Isaac his father, to the land of Canaan. 
 Now Laban had gone to shear his sheep; and Rachel stole the teraphim that were her father's. 

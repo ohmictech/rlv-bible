@@ -7,7 +7,7 @@ The sky shall declare his righteousness, for God himself is judge. Selah.
 "Hear, my people, and I will speak. Israel, I will testify against you. I am God, your God. 
 I don't rebuke you for your sacrifices. Your burnt offerings are continually before me. 
 I have no need for a bull from your stall, nor male goats from your pens. 
-For every animal of the forest is mine, and the livestock on a thousand hills. 
+Every animal of the forest is mine, and the livestock on a thousand hills. 
 I know all the birds of the mountains. The wild animals of the field are mine. 
 If I were hungry, I would not tell you, for the world is mine, and all that is in it. 
 Will I eat the meat of bulls, or drink the blood of goats? 

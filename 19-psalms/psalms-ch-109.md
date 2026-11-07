@@ -1,4 +1,4 @@
-﻿For the Chief Musician. A Psalm by David. God of my praise, don't remain silent, 
+﻿The Chief Musician. A Psalm by David. God of my praise, don't remain silent, 
 for they have opened the mouth of the guilty and the mouth of deceit against me. They have spoken to me with a lying tongue. 
 They have also surrounded me with words of hatred, and fought against me without a cause. 
 In return for my love, they are my adversaries; but I am in prayer. 
@@ -28,4 +28,4 @@ that they may know that this is your hand; that you, God, have done it.
 They may curse, but you bless. When they arise, they will be shamed, but your servant shall rejoice. 
 Let my adversaries be clothed with dishonor. Let them cover themselves with their own shame as with a robe. 
 I will give great thanks to God with my mouth. Yes, I will praise him among the multitude. 
-For he will stand at the right hand of the needy, to save him from those who judge his soul. 
+He will stand at the right hand of the needy, to save him from those who judge his soul. 

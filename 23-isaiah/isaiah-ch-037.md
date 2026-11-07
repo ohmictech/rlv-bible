@@ -29,10 +29,10 @@ But I know your sitting down, your going out, your coming in, and your raging ag
 Because of your raging against me, and because your arrogance has come up into my ears, I will put my hook in your nose and my bridle in your lips, and I will turn you back by the way by which you came. 
 "'This shall be the sign to you: You will eat this year that which grows of itself, and in the second year that which springs from it; and in the third year sow and reap and plant vineyards, and eat their fruit. 
 The remnant that is escaped of the house of Judah will again take root downward, and bear fruit upward. 
-For out of Jerusalem a remnant will go out, and survivors will escape from Mount Zion. The passion of the God of Armies will perform this.' 
+Out of Jerusalem a remnant will go out, and survivors will escape from Mount Zion. The passion of the God of Armies will perform this.' 
 "Therefore God says concerning the king of Assyria, 'He will not come to this city, nor shoot an arrow there, neither will he come before it with shield, nor cast up a mound against it. 
 He will return the way that he came, and he won't come to this city,' says God. 
-'For I will defend this city to save it, for my own sake, and for my servant David's sake.'" 
+'I will defend this city to save it, for my own sake, and for my servant David's sake.'" 
 Then God's messenger went out and struck one hundred and eighty-five thousand men in the camp of the Assyrians. When men arose early in the morning, behold, these were all dead bodies. 
 So Sennacherib king of Assyria departed, went away, returned to Nineveh, and stayed there. 
 As he was worshiping in the house of Nisroch his god, Adrammelech and Sharezer his sons struck him with the sword; and they escaped into the land of Ararat. Esar Haddon his son reigned in his place. 

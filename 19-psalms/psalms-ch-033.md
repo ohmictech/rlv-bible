@@ -1,12 +1,12 @@
 ﻿Rejoice in God, you righteous! Praise is fitting for the upright. 
 Give thanks to God with the lyre. Sing praises to him with the harp of ten strings. 
 Sing to him a new song. Play skillfully with a shout of joy! 
-For God's word is right. All his work is done in faithfulness. 
+God's word is right. All his work is done in faithfulness. 
 He loves righteousness and justice. The earth is full of the loving kindness of God. 
 By God's word, the sky were made: all their army by the breath of his mouth. 
 He gathers the waters of the sea together as a heap. He lays up the deeps in storehouses. 
 Let all the earth fear God. Let all the inhabitants of the world stand in awe of him. 
-For he spoke, and it was done. He commanded, and it stood firm. 
+He spoke, and it was done. He commanded, and it stood firm. 
 God brings the counsel of the nations to nothing. He makes the thoughts of the peoples to be of no effect. 
 The counsel of God stands fast for the eras, the thoughts of his heart to all generations. 
 Blessed is the nation whose God he is, the people whom he has chosen for his own inheritance. 
@@ -18,5 +18,5 @@ A horse is a vain thing for safety, neither does he deliver any by his great pow
 Behold, God's eye is on those who fear him, on those who hope in his loving kindness, 
 to deliver their soul from death, to keep them alive in famine. 
 Our soul has waited for God. He is our help and our shield. 
-For our heart rejoices in him, because we have trusted in his holy name. 
+Our heart rejoices in him, because we have trusted in his holy name. 
 Let your loving kindness be on us, God, since we have hoped in you. 

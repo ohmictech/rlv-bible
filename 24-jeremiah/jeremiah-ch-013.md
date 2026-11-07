@@ -8,7 +8,7 @@ Then I went to the Euphrates, and dug, and took the belt from the place where I 
 Then God's word came to me, saying, 
 "God says, 'In this way I will ruin the pride of Judah, and the great pride of Jerusalem. 
 This bad people, who refuse to hear my words, who walk in the stubbornness of their heart, and have gone after other gods to serve them and to worship them, will even be as this belt, which is profitable for nothing. 
-For as the belt clings to the waist of a man, so I have caused the whole house of Israel and the whole house of Judah to cling to me,' says God; 'that they may be to me for a people, for a name, for praise, and for glory; but they would not hear.' 
+As the belt clings to the waist of a man, so I have caused the whole house of Israel and the whole house of Judah to cling to me,' says God; 'that they may be to me for a people, for a name, for praise, and for glory; but they would not hear.' 
 "Therefore you shall speak to them this word: 'The God of Israel says, "Every container should be filled with wine."' They will tell you, 'Do we not certainly know that every container should be filled with wine?' 
 Then tell them, 'God says, "Behold, I will fill all the inhabitants of this land, even the kings who sit on David's throne, the priests, the spokesmen, and all the inhabitants of Jerusalem, with drunkenness. 
 I will dash them one against another, even the fathers and the sons together," says God: "I will not pity, spare, or have compassion, that I should not destroy them."'" 

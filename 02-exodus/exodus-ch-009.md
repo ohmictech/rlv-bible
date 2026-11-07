@@ -1,5 +1,5 @@
 ﻿Then God said to Moses, "Go in to Pharaoh, and tell him, 'This is what the God of the Hebrews, says: "Let my people go, that they may serve me. 
-For if you refuse to let them go, and hold them still, 
+If you refuse to let them go, and hold them still, 
 behold, God's hand is on your livestock which are in the field, on the horses, on the donkeys, on the camels, on the herds, and on the flocks with a very grievous pestilence. 
 God will make a distinction between the livestock of Israel and the livestock of Egypt; and nothing shall die of all that belongs to the children of Israel."'" 
 God appointed a set time, saying, "Tomorrow God shall do this thing in the land." 
@@ -11,8 +11,8 @@ They took ashes of the furnace, and stood before Pharaoh; and Moses sprinkled it
 The magicians couldn't stand before Moses because of the boils; for the boils were on the magicians and on all the Egyptians. 
 God hardened the heart of Pharaoh, and he didn't listen to them, as God had spoken to Moses. 
 God said to Moses, "Rise up early in the morning, and stand before Pharaoh, and tell him, 'This is what the God of the Hebrews, says: "Let my people go, that they may serve me. 
-For this time I will send all my plagues against your heart, against your officials, and against your people; that you may know that there is no one like me in all the earth. 
-For now I would have stretched out my hand, and struck you and your people with pestilence, and you would have been cut off from the earth; 
+This time I will send all my plagues against your heart, against your officials, and against your people; that you may know that there is no one like me in all the earth. 
+Now I would have stretched out my hand, and struck you and your people with pestilence, and you would have been cut off from the earth; 
 but indeed for this cause I have made you stand: to show you my power, and that my name may be declared throughout all the earth, 
 because you still exalt yourself against my people, that you won't let them go. 
 Behold, tomorrow about this time I will cause it to rain a very grievous hail, such as has not been in Egypt since the day it was founded even until now. 

@@ -1,4 +1,4 @@
-﻿For the divisions of the doorkeepers: of the Korahites, Meshelemiah the son of Kore, of the sons of Asaph. 
+﻿The divisions of the doorkeepers: of the Korahites, Meshelemiah the son of Kore, of the sons of Asaph. 
 Meshelemiah had sons: Zechariah the firstborn, Jediael the second, Zebadiah the third, Jathniel the fourth, 
 Elam the fifth, Jehohanan the sixth, and Eliehoenai the seventh. 
 Obed-Edom had sons: Shemaiah the firstborn, Jehozabad the second, Joah the third, Sacar the fourth, Nethanel the fifth, 
@@ -15,7 +15,7 @@ The lot eastward fell to Shelemiah. Then for Zechariah his son, a wise counselor
 To Obed-Edom southward; and to his sons the storehouse. 
 To Shuppim and Hosah westward, by the gate of Shallecheth, at the causeway that goes up, watchman opposite watchman. 
 Eastward were six Levites, northward four a day, southward four a day, and for the storehouse two and two. 
-For Parbar westward, four at the causeway, and two at Parbar. 
+Parbar westward, four at the causeway, and two at Parbar. 
 These were the divisions of the doorkeepers; of the sons of the Korahites, and of the sons of Merari. 
 Of the Levites, Ahijah was over the treasures of God's house and over the treasures of the dedicated things. 
 The sons of Ladan, the sons of the Gershonites belonging to Ladan, the heads of the fathers' households belonging to Ladan the Gershonite: Jehieli. 

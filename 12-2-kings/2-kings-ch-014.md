@@ -23,7 +23,7 @@ He built Elath and restored it to Judah. After that the king slept with his fath
 In the fifteenth year of Amaziah the son of Joash king of Judah, Jeroboam the son of Joash king of Israel began to reign in Samaria for forty-one years. 
 He did that which was bad in God's sight. He didn't depart from all the drifts of Jeroboam the son of Nebat, with which he made Israel to drift. 
 He restored the border of Israel from the entrance of Hamath to the sea of the Arabah, according to the God of Israel's word, which he spoke by his servant Jonah the son of Amittai, the spokesman, who was from Gath Hepher. 
-For God saw the affliction of Israel, that it was very bitter for all, slave and free; and there was no helper for Israel. 
+God saw the affliction of Israel, that it was very bitter for all, slave and free; and there was no helper for Israel. 
 God didn't say that he would blot out the name of Israel from under the sky; but he saved them by the hand of Jeroboam the son of Joash. 
 Now the rest of the acts of Jeroboam, and all that he did, and his might, how he fought, and how he recovered Damascus, and Hamath, which had belonged to Judah, for Israel, aren't they written in the book of the chronicles of the kings of Israel? 
 Jeroboam slept with his fathers, even with the kings of Israel; and Zechariah his son reigned in his place. 

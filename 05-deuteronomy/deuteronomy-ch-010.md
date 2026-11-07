@@ -14,7 +14,7 @@ to keep God's commandments and statutes, which I command you today for your good
 Behold, to your God belongs the sky, the sky above the skies, and the earth, with all that is therein. 
 Only God had a delight in your fathers to love them, and he chose their offspring after them, even you above all peoples, as it is today. 
 Circumcise the foreskin of your heart, and be no more stiff-necked. 
-For your God is God of gods and Lord of lords, the great God, the mighty, and the awesome, who doesn't respect persons or take bribes. 
+Your God is God of gods and Lord of lords, the great God, the mighty, and the awesome, who doesn't respect persons or take bribes. 
 He executes justice for the fatherless and widow and loves the foreigner in giving him food and clothing. 
 So love the foreigner, for you were foreigners in the land of Egypt. 
 You shall fear your God. You shall serve him. You shall cling to him, and you shall swear by his name. 

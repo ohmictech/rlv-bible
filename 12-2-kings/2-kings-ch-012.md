@@ -18,4 +18,4 @@ Then Hazael king of Syria went up and fought against Gath, and took it; and Haza
 Jehoash king of Judah took all the holy things that Jehoshaphat and Jehoram and Ahaziah, his fathers, kings of Judah, had dedicated, and his own holy things, and all the gold that was found in the treasures of God's house, and of the king's house, and sent it to Hazael king of Syria; and he went away from Jerusalem. 
 Now the rest of the acts of Joash, and all that he did, aren't they written in the book of the chronicles of the kings of Judah? 
 His servants arose and made a conspiracy, and struck Joash at the house of Millo, on the way that goes down to Silla. 
-For Jozacar the son of Shimeath, and Jehozabad the son of Shomer, his servants, struck him, and he died; and they buried him with his fathers in David's city; and Amaziah his son reigned in his place. 
+Jozacar the son of Shimeath, and Jehozabad the son of Shomer, his servants, struck him, and he died; and they buried him with his fathers in David's city; and Amaziah his son reigned in his place. 

@@ -23,7 +23,7 @@ The others came out of the city against them, so they were in the middle of Isra
 They captured the king of Ai alive, and brought him to Joshua. 
 When Israel had finished killing all the inhabitants of Ai in the field, in the wilderness in which they pursued them, and they had all fallen by the edge of the sword until they were consumed, all Israel returned to Ai and struck it with the edge of the sword. 
 All that fell that day, both of men and women, were twelve thousand, even everyone in Ai. 
-For Joshua didn't draw back his hand, with which he stretched out the javelin, until he had utterly destroyed all the inhabitants of Ai. 
+Joshua didn't draw back his hand, with which he stretched out the javelin, until he had utterly destroyed all the inhabitants of Ai. 
 Israel took for themselves only the livestock and the goods of that city, according to God's word which he commanded Joshua. 
 So Joshua burned Ai and made it a heap for the eras, even a desolation, to this day. 
 He hanged the king of Ai on a tree until the evening. At sundown, Joshua commanded, and they took his body down from the tree and threw it at the entrance of the gate of the city, and raised a great heap of stones on it that remains to this day. 

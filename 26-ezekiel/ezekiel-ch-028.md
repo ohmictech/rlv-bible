@@ -20,7 +20,7 @@ Everyone who know you among the peoples will be astonished at you. You have beco
 God's word came to me, saying, 
 "Son of man, set your face toward Sidon, and prophesy against it, 
 and say, 'The God says: "Behold, I am against you, Sidon. I will be glorified among you. Then they will know that I am God, when I have executed judgments in her, and am sanctified in her. 
-For I will send pestilence into her, and blood into her streets. The wounded will fall within her, with the sword on her on every side. Then they will know that I am God. 
+I will send pestilence into her, and blood into her streets. The wounded will fall within her, with the sword on her on every side. Then they will know that I am God. 
 "'"There will no longer be a pricking brier to the house of Israel, nor a hurting thorn of any that are around them that scorned them. Then they will know that I am God." 
 "'The God says: "When I have gathered the house of Israel from the peoples among whom they are scattered, and am shown as holy among them in the sight of the nations, then they will dwell in their own land which I gave to my servant Jacob. 
 They will dwell in it securely. Yes, they will build houses, plant vineyards, and will dwell securely when I have executed judgments on all those around them who have treated them with contempt. Then they will know that I am their God."'" 

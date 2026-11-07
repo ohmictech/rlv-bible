@@ -17,9 +17,9 @@ Ten cubits shall be the length of a board, and one and a half cubits the width o
 There shall be two tenons in each board, joined to one another: thus you shall make for all the boards of the tabernacle. 
 You shall make twenty boards for the tabernacle, for the south side southward. 
 You shall make forty sockets of silver under the twenty boards; two sockets under one board for its two tenons, and two sockets under another board for its two tenons. 
-For the second side of the tabernacle, on the north side, twenty boards, 
+The second side of the tabernacle, on the north side, twenty boards, 
 and their forty sockets of silver; two sockets under one board, and two sockets under another board. 
-For the far side of the tabernacle westward you shall make six boards. 
+The far side of the tabernacle westward you shall make six boards. 
 You shall make two boards for the corners of the tabernacle in the far side. 
 They shall be double beneath, and in the same way they shall be whole to its top to one ring: thus shall it be for them both; they shall be for the two corners. 
 There shall be eight boards, and their sockets of silver, sixteen sockets; two sockets under one board, and two sockets under another board. 

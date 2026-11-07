@@ -19,7 +19,7 @@ Then the Spirit came on Amasai, who was chief of the thirty, and he said, "We ar
 Some of Manasseh also joined David when he came with the Philistines against Saul to battle, but they didn't help them, for the lords of the Philistines sent him away after consultation, saying, "He will desert to his master Saul to the jeopardy of our heads." 
 As he went to Ziklag, some from Manasseh joined him: Adnah, Jozabad, Jediael, Michael, Jozabad, Elihu, and Zillethai, captains of thousands who were of Manasseh. 
 They helped David against the band of raiders, for they were all mighty men of valor and were captains in the army. 
-For from day to day men came to David to help him, until there was a great army, like God's army. 
+From day to day men came to David to help him, until there was a great army, like God's army. 
 These are the numbers of the heads of those who were armed for war, who came to David to Hebron to turn the kingdom of Saul to him, according to God's word. 
 The children of Judah who bore shield and spear were six thousand eight hundred, armed for war. 
 Of the children of Simeon, mighty men of valor for the war: seven thousand one hundred. 

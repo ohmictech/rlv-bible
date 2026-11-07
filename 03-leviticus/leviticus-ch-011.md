@@ -41,7 +41,7 @@ He who eats of its carcass shall wash his clothes, and be unclean until the even
 "'Every creeping thing that creeps on the earth is an abomination. It shall not be eaten. 
 Whatever goes on its belly, and whatever goes on all fours, or whatever has many feet, even all creeping things that creep on the earth, them you shall not eat; for they are an abomination. 
 You shall not make yourselves abominable with any creeping thing that creeps. You shall not make yourselves unclean with them, that you should be defiled by them. 
-For I am your God. Sanctify yourselves, and be holy; for I am holy. You shall not defile yourselves with any kind of creeping thing that moves on the earth. 
-For I am God who brought you up out of the land of Egypt, to be your God. You shall be holy, for I am holy. 
+I am your God. Sanctify yourselves, and be holy; for I am holy. You shall not defile yourselves with any kind of creeping thing that moves on the earth. 
+I am God who brought you up out of the land of Egypt, to be your God. You shall be holy, for I am holy. 
 "'This is the law of the animal, and of the bird, and of every living creature that moves in the waters, and of every creature that creeps on the earth, 
 to make a distinction between the unclean and the clean, and between the living thing that may be eaten and the living thing that may not be eaten.'" 

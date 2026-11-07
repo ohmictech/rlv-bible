@@ -5,10 +5,10 @@ The God of Armies, the God of Israel says to all the captives whom I have caused
 "Build houses and dwell in them. Plant gardens and eat their fruit. 
 Take wives and father sons and daughters. Take wives for your sons, and give your daughters to husbands, that they may bear sons and daughters. Multiply there, and don't be diminished. 
 Seek the peace of the city where I have caused you to be carried away captive, and pray to God for it; for in its peace you will have peace." 
-For the God of Armies, the God of Israel says: "Don't let your spokesmen who are among you and your diviners deceive you. Don't listen to your dreams which you cause to be dreamed. 
-For they prophesy falsely to you in my name. I have not sent them," says God. 
-For God says, "After seventy years are accomplished for Babylon, I will visit you and perform my good word toward you, in causing you to return to this place. 
-For I know the thoughts that I think toward you," says God, "thoughts of peace, and not of bad, to give you hope and a future. 
+The God of Armies, the God of Israel says: "Don't let your spokesmen who are among you and your diviners deceive you. Don't listen to your dreams which you cause to be dreamed. 
+They prophesy falsely to you in my name. I have not sent them," says God. 
+God says, "After seventy years are accomplished for Babylon, I will visit you and perform my good word toward you, in causing you to return to this place. 
+I know the thoughts that I think toward you," says God, "thoughts of peace, and not of bad, to give you hope and a future. 
 You shall call on me, and you shall go and pray to me, and I will listen to you. 
 You shall seek me and find me, when you search for me with all your heart. 
 I will be found by you," says God, "and I will turn again your captivity, and I will gather you from all the nations, and from all the places where I have driven you," says God. "I will bring you again to the place from where I caused you to be carried away captive." 

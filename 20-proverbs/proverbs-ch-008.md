@@ -4,11 +4,11 @@ Beside the gates, at the entry of the city, at the entry doors, she cries aloud:
 "I call to you men! I send my voice to the sons of mankind. 
 You simple, understand prudence! You fools, be of an understanding heart! 
 Hear, for I will speak excellent things. The opening of my lips is for right things. 
-For my mouth speaks truth. Wickedness is an abomination to my lips. 
+My mouth speaks truth. Wickedness is an abomination to my lips. 
 All the words of my mouth are in righteousness. There is nothing crooked or perverse in them. 
 They are all plain to him who understands, right to those who find knowledge. 
 Receive my instruction rather than silver, knowledge rather than choice gold. 
-For wisdom is better than rubies. All the things that may be desired can't be compared to it. 
+Wisdom is better than rubies. All the things that may be desired can't be compared to it. 
 "I, wisdom, have made prudence my dwelling. Find out knowledge and discretion. 
 The fear of God is to hate bad. I hate pride, arrogance, the bad way, and the perverse mouth. 
 Counsel and sound knowledge are mine. I have understanding and power. 
@@ -32,5 +32,5 @@ rejoicing in his whole world. My delight was with the sons of men.
 "Now, my sons, listen to me, for blessed are those who keep my ways. 
 Hear instruction, and be wise. Don't refuse it. 
 Blessed is the man who hears me, watching daily at my gates, waiting at my door posts. 
-For whoever finds me finds life, and will obtain favor from God. 
+Whoever finds me finds life, and will obtain favor from God. 
 But he who wrongs me wrongs his own soul. Everyone who hates me love death." 

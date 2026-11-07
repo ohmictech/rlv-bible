@@ -3,7 +3,7 @@ Keep my commandments and live! Guard my teaching as the apple of your eye.
 Bind them on your fingers. Write them on the tablet of your heart. 
 Tell wisdom, "You are my sister." Call understanding your relative, 
 that they may keep you from the strange woman, from the foreigner who flatters with her words. 
-For at the window of my house, I looked out through my lattice. 
+At the window of my house, I looked out through my lattice. 
 I saw among the simple ones. I discerned among the youths a young man void of understanding, 
 passing through the street near her corner, he went the way to her house, 
 in the twilight, in the evening of the day, in the middle of the night and in the darkness. 
@@ -16,7 +16,7 @@ So I came out to meet you, to diligently seek your face, and I have found you.
 I have spread my couch with carpets of tapestry, with striped cloths of the yarn of Egypt. 
 I have perfumed my bed with myrrh, aloes, and cinnamon. 
 Come, let's take our fill of loving until the morning. Let's solace ourselves with loving. 
-For my husband isn't at home. He has gone on a long journey. 
+My husband isn't at home. He has gone on a long journey. 
 He has taken a bag of money with him. He will come home at the full moon." 
 With persuasive words, she led him astray. With the flattering of her lips, she seduced him. 
 He followed her immediately, as an ox goes to the slaughter, as a fool stepping into a noose. 

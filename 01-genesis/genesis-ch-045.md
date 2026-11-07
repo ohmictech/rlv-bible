@@ -3,7 +3,7 @@ He wept aloud. The Egyptians heard, and the house of Pharaoh heard.
 Joseph said to his brothers, "I am Joseph! Does my father still live?" His brothers couldn't answer him; for they were terrified at his presence. 
 Joseph said to his brothers, "Come near to me, please." They came near. He said, "I am Joseph, your brother, whom you sold into Egypt. 
 Now don't be grieved, nor angry with yourselves, that you sold me here, for God sent me before you to preserve life. 
-For these two years the famine has been in the land, and there are yet five years, in which there will be no plowing and no harvest. 
+These two years the famine has been in the land, and there are yet five years, in which there will be no plowing and no harvest. 
 God sent me before you to preserve for you a remnant on the earth, and to save you alive by a great deliverance. 
 So now it wasn't you who sent me here, but God, and he has made me a father to Pharaoh, lord of all his house, and ruler over all the land of Egypt. 
 Hurry, and go up to my father, and tell him, 'This is what your son Joseph says, "God has made me lord of all Egypt. Come down to me. Don't wait. 

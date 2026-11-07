@@ -1,7 +1,7 @@
 ﻿Elihu also continued, and said, 
 "Bear with me a little, and I will show you; for I still have something to say on God's behalf. 
 I will get my knowledge from afar, and will ascribe righteousness to my Maker. 
-For truly my words are not false. One who is perfect in knowledge is with you. 
+Truly my words are not false. One who is perfect in knowledge is with you. 
 "Behold, God is mighty, and doesn't despise anyone. He is mighty in strength of understanding. 
 He doesn't preserve the life of the guilty, but gives justice to the afflicted. 
 He doesn't withdraw his eyes from the righteous, but with kings on the throne, he sets them for the eras, and they are exalted. 
@@ -24,10 +24,10 @@ Who has prescribed his way for him? Or who can say, 'You have committed unrighte
 "Remember that you magnify his work, about which men have sung. 
 All men have looked on it. Man sees it afar off. 
 Behold, God is great, and we don't know him. The number of his years is unsearchable. 
-For he draws up the drops of water, which distill in rain from his vapor, 
+He draws up the drops of water, which distill in rain from his vapor, 
 which the skies pour down and which drop on man abundantly. 
 Indeed, can anyone understand the spreading of the clouds and the thunderings of his pavilion? 
 Behold, he spreads his light around him. He covers the bottom of the sea. 
-For by these he judges the people. He gives food in abundance. 
+By these he judges the people. He gives food in abundance. 
 He covers his hands with the lightning, and commands it to strike the mark. 
 Its noise tells about him, and the livestock also, concerning the storm that comes up. 

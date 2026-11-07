@@ -28,7 +28,7 @@ He said, "Blessed be the God of my master Abraham, who has not forsaken his lovi
 The young lady ran, and told her mother's house about these words. 
 Rebekah had a brother, and his name was Laban. Laban ran out to the man, to the spring. 
 When he saw the ring, and the bracelets on his sister's hands, and when he heard the words of Rebekah his sister, saying, "This is what the man said to me," he came to the man. Behold, he was standing by the camels at the spring. 
-He said, "Come in, you blessed of God. Why do you stand outside? For I have prepared the house, and room for the camels." 
+He said, "Come in, you blessed of God. Why do you stand outside? I have prepared the house, and room for the camels." 
 The man came into the house, and he unloaded the camels. He gave straw and feed for the camels, and water to wash his feet and the feet of the men who were with him. 
 Food was set before him to eat, but he said, "I will not eat until I have told my message." Laban said, "Speak on." 
 He said, "I am Abraham's servant. 

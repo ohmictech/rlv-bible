@@ -1,6 +1,6 @@
 ﻿This is the word that came to Jeremiah from God in the tenth year of Zedekiah king of Judah, which was the eighteenth year of Nebuchadnezzar. 
 Now at that time the king of Babylon's army was besieging Jerusalem. Jeremiah the spokesman was shut up in the court of the guard, which was in the king of Judah's house. 
-For Zedekiah king of Judah had shut him up, saying, "Why do you prophesy, and say, 'God says, "Behold, I will give this city into the hand of the king of Babylon, and he will take it; 
+Zedekiah king of Judah had shut him up, saying, "Why do you prophesy, and say, 'God says, "Behold, I will give this city into the hand of the king of Babylon, and he will take it; 
 and Zedekiah king of Judah won't escape out of the hand of the Chaldeans, but will surely be delivered into the hand of the king of Babylon, and will speak with him mouth to mouth, and his eyes will see his eyes; 
 and he will bring Zedekiah to Babylon, and he will be there until I visit him," says God, "though you fight with the Chaldeans, you will not prosper"'?" 
 Jeremiah said, "God's word came to me, saying, 
@@ -27,8 +27,8 @@ Then God's word came to Jeremiah, saying,
 "Behold, I am the God of all flesh. Is there anything too hard for me? 
 So God says: Behold, I will give this city into the hand of the Chaldeans, and into the hand of Nebuchadnezzar king of Babylon, and he will take it. 
 The Chaldeans, who fight against this city, will come and set this city on fire, and burn it with the houses on whose roofs they have offered incense to Baal, and poured out drink offerings to other gods, to provoke me to anger. 
-"For the children of Israel and the children of Judah have done only that which was bad in my sight from their youth; for the children of Israel have only provoked me to anger with the work of their hands, says God. 
-For this city has been to me a provocation of my anger and of my wrath from the day that they built it even to this day, so that I should remove it from before my face, 
+"The children of Israel and the children of Judah have done only that which was bad in my sight from their youth; for the children of Israel have only provoked me to anger with the work of their hands, says God. 
+This city has been to me a provocation of my anger and of my wrath from the day that they built it even to this day, so that I should remove it from before my face, 
 because of all the bad of the children of Israel and of the children of Judah, which they have done to provoke me to anger, they, their kings, their princes, their priests, their spokesmen, the men of Judah, and the inhabitants of Jerusalem. 
 They have turned their backs to me, and not their faces. Although I taught them, rising up early and teaching them, yet they have not listened to receive instruction. 
 But they set their abominations in the house which is called by my name, to defile it. 
@@ -39,6 +39,6 @@ Then they will be my people, and I will be their God.
 I will give them one heart and one way, that they may fear me for the eras, for their good and the good of their children after them. 
 I will make an perpetual covenant with them, that I will not turn away from following them, to do them good. I will put my fear in their hearts, that they may not depart from me. 
 Yes, I will rejoice over them to do them good, and I will plant them in this land assuredly with my whole heart and with my whole soul." 
-For God says: "Just as I have brought all this great bad on this people, so I will bring on them all the good that I have promised them. 
+God says: "Just as I have brought all this great bad on this people, so I will bring on them all the good that I have promised them. 
 Fields will be bought in this land, about which you say, 'It is desolate, without man or animal. It is given into the hand of the Chaldeans.' 
 Men will buy fields for money, sign the deeds, seal them, and call witnesses, in the land of Benjamin, and in the places around Jerusalem, in the cities of Judah, in the cities of the hill country, in the cities of the lowland, and in the cities of the South; for I will cause their captivity to be reversed," says God. 

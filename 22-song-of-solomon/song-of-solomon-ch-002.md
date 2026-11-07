@@ -8,7 +8,7 @@ I adjure you, daughters of Jerusalem, by the roes, or by the hinds of the field,
 The voice of my beloved! Behold, he comes, leaping on the mountains, skipping on the hills. 
 My beloved is like a roe or a young deer. Behold, he stands behind our wall! He looks in at the windows. He glances through the lattice. 
 My beloved spoke, and said to me, "Rise up, my love, my beautiful one, and come away. 
-For behold, the winter is past. The rain is over and gone. 
+Behold, the winter is past. The rain is over and gone. 
 The flowers appear on the earth. The time of the singing has come, and the voice of the turtledove is heard in our land. 
 The fig tree ripens her green figs. The vines are in blossom. They give out their fragrance. Arise, my love, my beautiful one, and come away." 
 My dove in the clefts of the rock, in the hiding places of the mountainside, let me see your face. Let me hear your voice; for your voice is sweet and your face is lovely. 

@@ -1,4 +1,4 @@
-﻿For the Chief Musician. A Psalm by David. The sky declare the glory of God. The expanse shows his handiwork. 
+﻿The Chief Musician. A Psalm by David. The sky declare the glory of God. The expanse shows his handiwork. 
 Day after day they pour out speech, and night after night they display knowledge. 
 There is no speech nor language where their voice is not heard. 
 Their voice has gone out through all the earth, their words to the end of the world. In them he has set a tent for the sun, 

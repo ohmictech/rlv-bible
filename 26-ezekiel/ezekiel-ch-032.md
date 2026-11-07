@@ -8,7 +8,7 @@ When I extinguish you, I will cover the sky and make its stars dark. I will cove
 I will make all the bright lights of the sky dark over you, and set darkness on your land," says God. 
 "I will also trouble the hearts of many peoples, when I bring your destruction among the nations, into the countries which you have not known. 
 Yes, I will make many peoples amazed at you, and their kings will be horribly afraid for you, when I brandish my sword before them. They will tremble at every moment, every man for his own life, in the day of your fall." 
-For God says: "The sword of the king of Babylon will come on you. 
+God says: "The sword of the king of Babylon will come on you. 
 I will cause your multitude to fall by the swords of the mighty. They are all the ruthless of the nations. They will bring the pride of Egypt to nothing, and all its multitude will be destroyed. 
 I will destroy also all its animals from beside many waters. The foot of man won't trouble them any more, nor will the hoofs of animals trouble them. 
 Then I will make their waters clear, and cause their rivers to run like oil," says God. 
@@ -29,4 +29,4 @@ They will not lie with the mighty who are fallen of the uncircumcised, who have 
 "There is Edom, her kings, and all her princes, who in their might are laid with those who are slain by the sword. They will lie with the uncircumcised, and with those who go down to the pit. 
 "There are the princes of the north, everyone, and all the Sidonians, who have gone down with the slain. They are put to shame in the terror which they caused by their might. They lie uncircumcised with those who are slain by the sword, and bear their shame with those who go down to the pit. 
 "Pharaoh will see them and will be comforted over all his multitude, even Pharaoh and all his army, slain by the sword," says God. 
-"For I have put his terror in the land of the living. He will be laid among the uncircumcised, with those who are slain by the sword, even Pharaoh and all his multitude," says God. 
+"I have put his terror in the land of the living. He will be laid among the uncircumcised, with those who are slain by the sword, even Pharaoh and all his multitude," says God. 

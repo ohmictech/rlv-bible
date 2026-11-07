@@ -26,7 +26,7 @@ You shall do no regular work. You shall offer an offering made by fire to God.'"
 God spoke to Moses, saying, 
 "However on the tenth day of this seventh month is the day of making right. It shall be a holy convocation to you. You shall afflict yourselves and you shall offer an offering made by fire to God. 
 You shall do no kind of work in that same day, for it is a day of making right, to make things right for you before your God. 
-For whoever it is who shall not deny himself in that same day shall be cut off from his people. 
+Whoever it is who shall not deny himself in that same day shall be cut off from his people. 
 Whoever does any kind of work in that same day, I will destroy that person from among his people. 
 You shall do no kind of work: it is a statute for the eras throughout your generations in all your dwellings. 
 It shall be a Sabbath of solemn rest for you, and you shall deny yourselves. In the ninth day of the month at evening, from evening to evening, you shall keep your Sabbath." 

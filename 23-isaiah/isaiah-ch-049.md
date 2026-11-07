@@ -10,7 +10,7 @@ saying to those who are bound, 'Come out!'; to those who are in darkness, 'Show 
 They shall not hunger nor thirst; neither shall the heat nor sun strike them, for he who has mercy on them will lead them. He will guide them by springs of water. 
 I will make all my mountains a road, and my highways shall be exalted. 
 Behold, these shall come from afar, and behold, these from the north and from the west, and these from the land of Sinim." 
-Sing, skies, and be joyful, earth! Break out into driftging, mountains! For God has comforted his people, and will have compassion on his afflicted. 
+Sing, skies, and be joyful, earth! Break out into driftging, mountains! God has comforted his people, and will have compassion on his afflicted. 
 But Zion said, "God has forsaken me, and the Lord has forgotten me." 
 "Can a woman forget her nursing child, that she should not have compassion on the son of her womb? Yes, these may forget, yet I will not forget you! 
 Behold, I have engraved you on the palms of my hands. Your walls are continually before me. 

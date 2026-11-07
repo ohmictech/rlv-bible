@@ -1,4 +1,4 @@
-﻿For the Chief Musician. A Psalm by David. I waited patiently for God. He turned to me, and heard my cry. 
+﻿The Chief Musician. A Psalm by David. I waited patiently for God. He turned to me, and heard my cry. 
 He brought me up also out of a horrible pit, out of the miry clay. He set my feet on a rock, and gave me a firm place to stand. 
 He has put a new song in my mouth, even praise to our God. Many shall see it, and fear, and shall trust in God. 
 Blessed is the man who makes God his trust, and doesn't respect the proud, nor such as turn away to lies. 
@@ -9,7 +9,7 @@ I delight to do your will, my God. Yes, your law is within my heart."
 I have proclaimed glad news of righteousness in the great assembly. Behold, I will not seal my lips, God, you know. 
 I have not hidden your righteousness within my heart. I have declared your faithfulness and your salvation. I have not concealed your loving kindness and your truth from the great assembly. 
 Don't withhold your tender mercies from me, God. Let your loving kindness and your truth continually preserve me. 
-For innumerable bad things have surrounded me. My guilt have overtaken me, so that I am not able to look up. They are more than the hairs of my head. My heart has failed me. 
+Innumerable bad things have surrounded me. My guilt have overtaken me, so that I am not able to look up. They are more than the hairs of my head. My heart has failed me. 
 Be pleased, God, to deliver me. Hurry to help me, God. 
 Let them be disappointed and confounded together who seek after my soul to destroy it. Let them be turned backward and brought to dishonor who delight in my hurt. 
 Let them be desolate by reason of their shame that tell me, "Aha! Aha!" 

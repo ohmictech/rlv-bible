@@ -1,6 +1,6 @@
 ﻿Behold, God's hand is not shortened, that it can't save; nor his ear dull, that it can't hear. 
 But your guilt have separated you and your God, and your mistakes have hidden his face from you, so that he will not hear. 
-For your hands are defiled with blood, and your fingers with guilt. Your lips have spoken lies. Your tongue mutters guilt. 
+Your hands are defiled with blood, and your fingers with guilt. Your lips have spoken lies. Your tongue mutters guilt. 
 No one sues in righteousness, and no one pleads in truth. They trust in vanity and speak lies. They conceive mischief and give birth to guilt. 
 They hatch adders' eggs and weave the spider's web. He who eats of their eggs dies; and that which is crushed breaks out into a viper. 
 Their webs won't become garments. They won't cover themselves with their works. Their works are works of guilt, and acts of violence are in their hands. 
@@ -9,7 +9,7 @@ They don't know the way of peace; and there is no justice in their ways. They ha
 So justice is far from us, and righteousness doesn't overtake us. We look for light, but see darkness; for brightness, but we walk in obscurity. 
 We grope for the wall like the blind. Yes, we grope as those who have no eyes. We stumble at noon as if it were twilight. Among those who are strong, we are like dead men. 
 We all roar like bears and moan sadly like doves. We look for justice, but there is none, for salvation, but it is far off from us. 
-For our rebellion are multiplied before you, and our mistakes testify against us; for our rebellion are with us, and as for our guilt, we know them: 
+Our rebellion are multiplied before you, and our mistakes testify against us; for our rebellion are with us, and as for our guilt, we know them: 
 transgressing and denying God, and turning away from following our God, speaking oppression and revolt, conceiving and uttering from the heart words of falsehood. 
 Justice is turned away backward, and righteousness stands far away; for truth has fallen in the street, and uprightness can't enter. 
 Yes, truth is lacking; and he who departs from what is bad makes himself a prey. God saw it, and it displeased him that there was no justice. 

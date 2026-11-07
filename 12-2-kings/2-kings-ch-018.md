@@ -3,7 +3,7 @@ He was twenty-five years old when he began to reign, and he reigned twenty-nine 
 He did that which was right in God's eyes, according to all that David his father had done. 
 He removed the high places, broke the pillars, and cut down the Asherah. He also broke in pieces the bronze serpent that Moses had made, because in those days the children of Israel burned incense to it; and he called it Nehushtan. 
 He trusted in the God of Israel, so that after him was no one like him among all the kings of Judah, nor among them that were before him. 
-For he joined with God. He didn't depart from following him, but kept his commandments, which God commanded Moses. 
+He joined with God. He didn't depart from following him, but kept his commandments, which God commanded Moses. 
 God was with him. Wherever he went, he prospered. He rebelled against the king of Assyria, and didn't serve him. 
 He struck the Philistines to Gaza and its borders, from the tower of the watchmen to the fortified city. 
 In the fourth year of King Hezekiah, which was the seventh year of Hoshea son of Elah king of Israel, Shalmaneser king of Assyria came up against Samaria and besieged it. 

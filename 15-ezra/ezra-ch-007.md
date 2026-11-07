@@ -6,8 +6,8 @@ the son of Abishua, the son of Phinehas, the son of Eleazar, the son of Aaron th
 this Ezra went up from Babylon. He was a skilled Bible teacher in the law of Moses, which the God of Israel had given; and the king granted him all his request, according to his God's hand on him. 
 Some of the children of Israel, including some of the priests, the Levites, the singers, the gatekeepers, and the temple servants went up to Jerusalem in the seventh year of Artaxerxes the king. 
 He came to Jerusalem in the fifth month, which was in the seventh year of the king. 
-For on the first day of the first month he began to go up from Babylon; and on the first day of the fifth month he came to Jerusalem, according to the good hand of his God on him. 
-For Ezra had set his heart to seek God's law, and to do it, and to teach statutes and ordinances in Israel. 
+On the first day of the first month he began to go up from Babylon; and on the first day of the fifth month he came to Jerusalem, according to the good hand of his God on him. 
+Ezra had set his heart to seek God's law, and to do it, and to teach statutes and ordinances in Israel. 
 Now this is the copy of the letter that King Artaxerxes gave to Ezra the priest, the Bible teacher, even the Bible teacher of the words of God's commandments, and of his statutes to Israel: 
 Artaxerxes, king of kings, To Ezra the priest, the Bible teacher of the law of the perfect God of the sky. Now 
 I make a decree that all those of the people of Israel and their priests and the Levites in my realm, who intend of their own free will to go to Jerusalem, go with you. 

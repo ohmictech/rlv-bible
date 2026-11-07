@@ -1,4 +1,4 @@
-﻿For the Chief Musician. To the tune of "The Lily of the Covenant." A teaching poem by David, when he fought with Aram Naharaim and with Aram Zobah, and Joab returned, and killed twelve thousand of Edom in the Valley of Salt. God, you have rejected us. You have broken us down. You have been angry. Restore us, again. 
+﻿The Chief Musician. To the tune of "The Lily of the Covenant." A teaching poem by David, when he fought with Aram Naharaim and with Aram Zobah, and Joab returned, and killed twelve thousand of Edom in the Valley of Salt. God, you have rejected us. You have broken us down. You have been angry. Restore us, again. 
 You have made the land tremble. You have torn it. Mend its fractures, for it quakes. 
 You have shown your people hard things. You have made us drink the wine that makes us stagger. 
 You have given a banner to those who fear you, that it may be displayed because of the truth. Selah. 

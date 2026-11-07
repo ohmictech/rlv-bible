@@ -18,7 +18,7 @@ They caused their sons and their daughters to pass through the fire, used divina
 So God was very angry with Israel, and removed them out of his sight. There was none left but the tribe of Judah only. 
 Also Judah didn't keep the commandments of their God, but walked in the statutes of Israel which they made. 
 God rejected all the offspring of Israel, afflicted them, and delivered them into the hands of raiders, until he had cast them out of his sight. 
-For he tore Israel from David's house; and they made Jeroboam the son of Nebat king; and Jeroboam drove Israel from following God, and made them do great wrong. 
+He tore Israel from David's house; and they made Jeroboam the son of Nebat king; and Jeroboam drove Israel from following God, and made them do great wrong. 
 The children of Israel walked in all the drifts of Jeroboam which he did; they didn't depart from them 
 until God removed Israel out of his sight, as he said by all his servants the spokesmen. So Israel was carried away out of their own land to Assyria to this day. 
 The king of Assyria brought people from Babylon, from Cuthah, from Avva, and from Hamath and Sepharvaim, and placed them in the cities of Samaria instead of the children of Israel; and they possessed Samaria and lived in its cities. 

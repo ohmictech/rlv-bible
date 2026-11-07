@@ -1,4 +1,4 @@
-﻿For the Chief Musician. A Psalm by the sons of Korah. God, you have been favorable to your land. You have restored the fortunes of Jacob. 
+﻿The Chief Musician. A Psalm by the sons of Korah. God, you have been favorable to your land. You have restored the fortunes of Jacob. 
 You have forgiven the guilt of your people. You have covered all their wrongdoing. Selah. 
 You have taken away all your wrath. You have turned from the fierceness of your anger. 
 Turn us, God of our salvation, and cause your indignation toward us to cease. 

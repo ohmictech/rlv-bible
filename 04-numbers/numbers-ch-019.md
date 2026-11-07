@@ -14,7 +14,7 @@ Whoever touches a dead person, the body of a man who has died, and doesn't purif
 "This is the law when a man dies in a tent: everyone who comes into the tent, and everyone who is in the tent, shall be unclean seven days. 
 Every open vessel, which has no covering bound on it, is unclean. 
 "Whoever in the open field touches one who is slain with a sword, or a dead body, or a bone of a man, or a grave, shall be unclean seven days. 
-"For the unclean, they shall take of the ashes of the burning of the offering for wrongdoing; and running water shall be poured on them in a vessel. 
+"The unclean, they shall take of the ashes of the burning of the offering for wrongdoing; and running water shall be poured on them in a vessel. 
 A clean person shall take hyssop, dip it in the water, and sprinkle it on the tent, on all the vessels, on the persons who were there, and on him who touched the bone, or the slain, or the dead, or the grave. 
 The clean person shall sprinkle on the unclean on the third day, and on the seventh day. On the seventh day, he shall purify him. He shall wash his clothes and bathe himself in water, and shall be clean at evening. 
 But the man who shall be unclean, and shall not purify himself, that soul shall be cut off from among the assembly, because he has defiled the sanctuary of God. The water for impurity has not been sprinkled on him. He is unclean. 

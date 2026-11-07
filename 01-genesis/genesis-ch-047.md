@@ -1,7 +1,7 @@
 ﻿Then Joseph went in and told Pharaoh, and said, "My father and my brothers, with their flocks, their herds, and all that they own, have come out of the land of Canaan; and behold, they are in the land of Goshen." 
 From among his brothers he took five men, and presented them to Pharaoh. 
 Pharaoh said to his brothers, "What is your occupation?" They said to Pharaoh, "Your servants are shepherds, both we, and our fathers." 
-They also said to Pharaoh, "We have come to live as foreigners in the land, for there is no pasture for your servants' flocks. For the famine is severe in the land of Canaan. Now, please let your servants dwell in the land of Goshen." 
+They also said to Pharaoh, "We have come to live as foreigners in the land, for there is no pasture for your servants' flocks. The famine is severe in the land of Canaan. Now, please let your servants dwell in the land of Goshen." 
 Pharaoh spoke to Joseph, saying, "Your father and your brothers have come to you. 
 The land of Egypt is before you. Make your father and your brothers dwell in the best of the land. Let them dwell in the land of Goshen. If you know any able men among them, then put them in charge of my livestock." 
 Joseph brought in Jacob, his father, and set him before Pharaoh; and Jacob blessed Pharaoh. 
@@ -12,7 +12,7 @@ Joseph placed his father and his brothers, and gave them a possession in the lan
 Joseph provided his father, his brothers, and all of his father's household with bread, according to the sizes of their families. 
 There was no bread in all the land; for the famine was very severe, so that the land of Egypt and the land of Canaan fainted by reason of the famine. 
 Joseph gathered up all the money that was found in the land of Egypt, and in the land of Canaan, for the grain which they bought: and Joseph brought the money into Pharaoh's house. 
-When the money was all spent in the land of Egypt, and in the land of Canaan, all the Egyptians came to Joseph, and said, "Give us bread, for why should we die in your presence? For our money fails." 
+When the money was all spent in the land of Egypt, and in the land of Canaan, all the Egyptians came to Joseph, and said, "Give us bread, for why should we die in your presence? Our money fails." 
 Joseph said, "Give me your livestock; and I will give you food for your livestock, if your money is gone." 
 They brought their livestock to Joseph, and Joseph gave them bread in exchange for the horses, and for the flocks, and for the herds, and for the donkeys: and he fed them with bread in exchange for all their livestock for that year. 
 When that year was ended, they came to him the second year, and said to him, "We will not hide from my lord how our money is all spent, and the herds of livestock are my lord's. There is nothing left in the sight of my lord, but our bodies, and our lands. 

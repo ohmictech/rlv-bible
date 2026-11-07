@@ -16,7 +16,7 @@ I will put hostility between you and the woman, and between your offspring and h
 To the woman he said, "I will greatly multiply your pain in childbirth. You will bear children in pain. Your desire will be for your husband, and he will rule over you." 
 To Adam he said, "Because you listened to your wife and ate from the tree I commanded you about, saying, 'You must not eat from it,' the ground is cursed because of you. You will eat from it by hard work all the days of your life. 
 It will grow thorns and thistles for you, and you will eat the plants of the field. 
-You will eat food by the sweat of your brow until you return to the ground, for you were taken out of it. For you are dust, and you will return to dust." 
+You will eat food by the sweat of your brow until you return to the ground, for you were taken out of it. You are dust, and you will return to dust." 
 The man called his wife Eve because she would be the mother of all the living. 
 God made clothes of animal skin for Adam and for his wife, and clothed them. 
 God said, "Look, the man has become like one of us, knowing good and bad. He must not be allowed to reach out his hand and take from the tree of life and eat, and live for the eras." 

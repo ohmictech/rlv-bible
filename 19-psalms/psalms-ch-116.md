@@ -5,7 +5,7 @@ Then I called on God's name: "God, I beg you, deliver my soul."
 God is gracious and righteous. Yes, our God is merciful. 
 God preserves the simple. I was brought low, and he saved me. 
 Return to your rest, my soul, for God has dealt bountifully with you. 
-For you have delivered my soul from death, my eyes from tears, and my feet from falling. 
+You have delivered my soul from death, my eyes from tears, and my feet from falling. 
 I will walk before God in the land of the living. 
 I believed, I said, "I was greatly afflicted." 
 I said in my haste, "All people are liars." 

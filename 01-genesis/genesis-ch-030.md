@@ -27,7 +27,7 @@ Give me my wives and my children for whom I have served you, and let me go; for 
 Laban said to him, "If now I have found favor in your eyes, stay here, for I have divined that God has blessed me for your sake." 
 He said, "Appoint me your wages, and I will give it." 
 Jacob said to him, "You know how I have served you, and how your livestock have fared with me. 
-For it was little which you had before I came, and it has increased to a multitude. God has blessed you wherever I turned. Now when will I provide for my own house also?" 
+It was little which you had before I came, and it has increased to a multitude. God has blessed you wherever I turned. Now when will I provide for my own house also?" 
 Laban said, "What shall I give you?" Jacob said, "You shall not give me anything. If you will do this thing for me, I will again feed your flock and keep it. 
 I will pass through all your flock today, removing from there every speckled and spotted one, and every black one among the sheep, and the spotted and speckled among the goats. This will be my hire. 
 So my righteousness will answer for me hereafter, when you come concerning my hire that is before you. Every one that is not speckled and spotted among the goats, and black among the sheep, that might be with me, will be considered stolen." 

@@ -8,7 +8,7 @@ One who corrects a mocker invites insult. One who reproves a guilty man invites 
 Don't reprove a scoffer, lest he hate you. Reprove a wise person, and he will love you. 
 Instruct a wise person, and he will be still wiser. Teach a righteous person, and he will increase in learning. 
 The fear of God is the beginning of wisdom. The knowledge of the Holy One is understanding. 
-For by me your days will be multiplied. The years of your life will be increased. 
+By me your days will be multiplied. The years of your life will be increased. 
 If you are wise, you are wise for yourself. If you mock, you alone will bear it. 
 The foolish woman is loud, undisciplined, and knows nothing. 
 She sits at the door of her house, on a seat in the high places of the city, 

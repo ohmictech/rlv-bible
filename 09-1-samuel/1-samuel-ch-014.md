@@ -27,7 +27,7 @@ When the people had come to the forest, behold, honey was dripping, but no one p
 But Jonathan didn't hear when his father commanded the people with the oath. So he put out the end of the rod that was in his hand and dipped it in the honeycomb, and put his hand to his mouth; and his eyes brightened. 
 Then one of the people answered, and said, "Your father directly commanded the people with an oath, saying, 'Cursed is the man who eats food today.'" So the people were faint. 
 Then Jonathan said, "My father has troubled the land. Please look how my eyes have brightened because I tasted a little of this honey. 
-How much more, if perhaps the people had eaten freely today of the plunder of their enemies which they found? For now there has been no great slaughter among the Philistines." 
+How much more, if perhaps the people had eaten freely today of the plunder of their enemies which they found? Now there has been no great slaughter among the Philistines." 
 They struck the Philistines that day from Michmash to Aijalon. The people were very faint; 
 and the people pounced on the plunder, and took sheep, cattle, and calves, and killed them on the ground; and the people ate them with the blood. 
 Then they told Saul, saying, "Behold, the people are wronging God, in that they eat meat with the blood." He said, "You have dealt treacherously. Roll a large stone to me today!" 
@@ -36,7 +36,7 @@ Saul built an altar to God. This was the first altar that he built to God.
 Saul said, "Let's go down after the Philistines by night, and take plunder among them until the morning light. Let's not leave a man of them." They said, "Do whatever seems good to you." Then the priest said, "Let's draw near here to God." 
 Saul asked counsel of God: "Shall I go down after the Philistines? Will you deliver them into the hand of Israel?" But he didn't answer him that day. 
 Saul said, "Draw near here, all you chiefs of the people, and know and see in whom this wrongdoing lies today. 
-For as God lives, who saves Israel, though it is in Jonathan my son, he shall surely die." But there was not a man among everyone who answered him. 
+As God lives, who saves Israel, though it is in Jonathan my son, he shall surely die." But there was not a man among everyone who answered him. 
 Then he said to all Israel, "You be on one side, and I and Jonathan my son will be on the other side." The people said to Saul, "Do what seems good to you." 
 So Saul said to the God of Israel, "Show the right." Jonathan and Saul were chosen, but the people escaped. 
 Saul said, "Cast lots between me and Jonathan my son." Jonathan was selected. 

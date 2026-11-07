@@ -1,4 +1,4 @@
-﻿For the Chief Musician. By David. The fool has said in his heart, "There is no God." They are corrupt. They have done abominable deeds. There is no one who does good. 
+﻿The Chief Musician. By David. The fool has said in his heart, "There is no God." They are corrupt. They have done abominable deeds. There is no one who does good. 
 God looked down from the sky on the children of men, to see if there were any who understood, who sought after God. 
 They have all gone aside. They have together become corrupt. There is no one who does good, no, not one. 
 Have all the workers of guilt no knowledge, who eat up my people as they eat bread, and don't call on God? 

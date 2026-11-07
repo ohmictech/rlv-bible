@@ -1,4 +1,4 @@
-﻿For the Chief Musician. A Psalm by David. A song. Let God arise! Let his enemies be scattered! Let them who hate him also flee before him. 
+﻿The Chief Musician. A Psalm by David. A song. Let God arise! Let his enemies be scattered! Let them who hate him also flee before him. 
 As smoke is driven away, so drive them away. As wax melts before the fire, so let the guilty perish at the presence of God. 
 But let the righteous be glad. Let them rejoice before God. Yes, let them rejoice with gladness. 
 Sing to God! Sing praises to his name! Extol him who rides on the clouds: to God, his name! Rejoice before him! 

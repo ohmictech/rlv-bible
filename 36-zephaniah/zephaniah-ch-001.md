@@ -4,7 +4,7 @@ I will sweep away man and animal. I will sweep away the birds of the sky, the fi
 I will stretch out my hand against Judah and against all the inhabitants of Jerusalem. I will cut off the remnant of Baal from this place, the name of the idolatrous and pagan priests, 
 those who worship the army of the sky on the housetops, those who worship and swear by God and also swear by Malcam, 
 those who have turned back from following God, and those who haven't sought God nor inquired after him. 
-Be silent at the presence of God, for the day of God is at hand. For God has prepared a sacrifice. He has consecrated his guests. 
+Be silent at the presence of God, for the day of God is at hand. God has prepared a sacrifice. He has consecrated his guests. 
 It will happen in the day of God's sacrifice that I will punish the princes, the king's sons, and everyone who is clothed with foreign clothing. 
 In that day, I will punish everyone who leaps over the threshold, who fill their master's house with violence and deceit. 
 In that day, says God, there will be the noise of a cry from the fish gate, a wailing from the second quarter, and a great crashing from the hills. 

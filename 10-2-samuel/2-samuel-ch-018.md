@@ -5,7 +5,7 @@ The king said to them, "I will do what seems best to you." The king stood beside
 The king commanded Joab and Abishai and Ittai, saying, "Deal gently for my sake with the young man Absalom." Everyone heard when the king commanded all the captains concerning Absalom. 
 So the people went out into the field against Israel; and the battle was in the forest of Ephraim. 
 The people of Israel were struck there before David's servants, and there was a great slaughter there that day of twenty thousand men. 
-For the battle was there spread over the surface of all the country, and the forest devoured more people that day than the sword devoured. 
+The battle was there spread over the surface of all the country, and the forest devoured more people that day than the sword devoured. 
 Absalom happened to meet David's servants. Absalom was riding on his mule, and the mule went under the thick boughs of a great oak; and his head caught hold of the oak, and he was hanging between the sky and earth; and the mule that was under him went on. 
 A certain man saw it, and told Joab, and said, "Behold, I saw Absalom hanging in an oak." 
 Joab said to the man who told him, "Behold, you saw it, and why didn't you strike him there to the ground? I would have given you ten pieces of silver and a sash." 

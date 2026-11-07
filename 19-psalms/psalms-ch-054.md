@@ -1,7 +1,7 @@
-﻿For the Chief Musician. On stringed instruments. A contemplation by David, when the Ziphites came and said to Saul, "Isn't David hiding himself among us?" Save me, God, by your name. Vindicate me in your might. 
+﻿The Chief Musician. On stringed instruments. A contemplation by David, when the Ziphites came and said to Saul, "Isn't David hiding himself among us?" Save me, God, by your name. Vindicate me in your might. 
 Hear my prayer, God. Listen to the words of my mouth. 
-For strangers have risen up against me. Violent men have sought after my soul. They haven't set God before them. Selah. 
+Strangers have risen up against me. Violent men have sought after my soul. They haven't set God before them. Selah. 
 Behold, God is my helper. The Lord is the one who sustains my soul. 
 He will repay the bad to my enemies. Destroy them in your truth. 
 With a free will offering, I will sacrifice to you. I will give thanks to your name, God, for it is good. 
-For he has delivered me out of all trouble. My eye has seen triumph over my enemies. 
+He has delivered me out of all trouble. My eye has seen triumph over my enemies. 

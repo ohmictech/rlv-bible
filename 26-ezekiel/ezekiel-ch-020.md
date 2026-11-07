@@ -25,7 +25,7 @@ because they had not executed my ordinances, but had rejected my statutes, and h
 Moreover also I gave them statutes that were not good, and ordinances in which they couldn't live. 
 I polluted them in their own gifts, in that they caused all that opens the womb to pass through the fire, that I might make them desolate, to the end that they might know that I am God."' 
 "Therefore, son of man, speak to the house of Israel, and tell them, 'The God says: "Moreover, in this your fathers have blasphemed me, in that they have committed a trespass against me. 
-For when I had brought them into the land which I swore to give to them, then they saw every high hill and every thick tree, and they offered there their sacrifices, and there they presented the provocation of their offering. There they also made their pleasant aroma, and there they poured out their drink offerings. 
+When I had brought them into the land which I swore to give to them, then they saw every high hill and every thick tree, and they offered there their sacrifices, and there they presented the provocation of their offering. There they also made their pleasant aroma, and there they poured out their drink offerings. 
 Then I said to them, 'What does the high place where you go mean?' So its name is called Bamah to this day."' 
 "Therefore tell the house of Israel, 'The God says: "Do you pollute yourselves in the way of your fathers? Do you play the prostitute after their abominations? 
 When you offer your gifts, when you make your sons pass through the fire, do you pollute yourselves with all your idols to this day? Should I be inquired of by you, house of Israel? As I live, says God, I will not be inquired of by you! 
@@ -37,7 +37,7 @@ Just as I entered into judgment with your fathers in the wilderness of the land 
 "I will cause you to pass under the rod, and I will bring you into the bond of the covenant. 
 I will purge out from among you the rebels and those who disobey me. I will bring them out of the land where they live, but they shall not enter into the land of Israel. Then you will know that I am God." 
 "'As for you, house of Israel, God says: "Go, everyone serve his idols, and hereafter also, if you will not listen to me; but you shall no more profane my holy name with your gifts and with your idols. 
-For in my holy mountain, in the mountain of the height of Israel," says God, "there all the house of Israel, everyone, shall serve me in the land. There I will accept them, and there I will require your offerings and the first fruits of your offerings, with all your holy things. 
+In my holy mountain, in the mountain of the height of Israel," says God, "there all the house of Israel, everyone, shall serve me in the land. There I will accept them, and there I will require your offerings and the first fruits of your offerings, with all your holy things. 
 I will accept you as a pleasant aroma when I bring you out from the peoples and gather you out of the countries in which you have been scattered. I will be sanctified in you in the sight of the nations. 
 You will know that I am God when I bring you into the land of Israel, into the country which I swore to give to your fathers. 
 There you will remember your ways, and all your deeds in which you have polluted yourselves. Then you will loathe yourselves in your own sight for all your bad things that you have committed. 

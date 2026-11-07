@@ -9,7 +9,7 @@ So Tamar went to her brother Amnon's house; and he was lying down. She took doug
 She took the pan and poured them out before him, but he refused to eat. Amnon said, "Have everyone leave me." Then every man went out from him. 
 Amnon said to Tamar, "Bring the food into the room, that I may eat from your hand." Tamar took the cakes which she had made, and brought them into the room to Amnon her brother. 
 When she had brought them near to him to eat, he took hold of her and said to her, "Come, lie with me, my sister!" 
-She answered him, "No, my brother, do not force me! For no such thing ought to be done in Israel. Don't you do this folly! 
+She answered him, "No, my brother, do not force me! No such thing ought to be done in Israel. Don't you do this folly! 
 As for me, where would I carry my shame? And as for you, you will be as one of the fools in Israel. Now, please speak to the king; for he will not withhold me from you." 
 However, he would not listen to her voice; but being stronger than she, he forced her and lay with her. 
 Then Amnon hated her with exceedingly great hatred; for the hatred with which he hated her was greater than the love with which he had loved her. Amnon said to her, "Arise, be gone!" 

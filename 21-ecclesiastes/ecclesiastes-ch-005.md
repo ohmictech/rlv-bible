@@ -1,10 +1,10 @@
 ﻿Guard your steps when you go to God's house; for to draw near to listen is better than to give the sacrifice of fools, for they don't know that they do bad things. 
 Don't be rash with your mouth, and don't let your heart be hasty to utter anything before God; for God is in the sky, and you on earth. So let your words be few. 
-For as a dream comes with a multitude of cares, so a fool's speech with a multitude of words. 
+As a dream comes with a multitude of cares, so a fool's speech with a multitude of words. 
 When you vow a vow to God, don't defer to pay it; for he has no pleasure in fools. Pay that which you vow. 
 It is better that you should not vow, than that you should vow and not pay. 
 Don't allow your mouth to lead you into wrongdoing. Don't protest before the messenger that it was a mistake. Why should God be angry at your voice, and destroy the work of your hands? 
-For in the multitude of dreams there are vanities, as well as in many words; but you must fear God. 
+In the multitude of dreams there are vanities, as well as in many words; but you must fear God. 
 If you see the oppression of the poor, and the violent taking away of justice and righteousness in a district, don't marvel at the matter, for one official is eyed by a higher one, and there are officials over them. 
 Moreover the profit of the earth is for all. The king profits from the field. 
 He who loves silver shall not be satisfied with silver, nor he who loves abundance, with increase. This also is vanity. 
@@ -17,4 +17,4 @@ This also is a grievous bad, that in all points as he came, so shall he go. And 
 All his days he also eats in darkness, he is frustrated, and has sickness and wrath. 
 Behold, that which I have seen to be good and proper is for one to eat and to drink, and to enjoy good in all his labor, in which he labors under the sun, all the days of his life which God has given him; for this is his portion. 
 Every man also to whom God has given riches and wealth, and has given him power to eat of it, and to take his portion, and to rejoice in his labor, this is the gift of God. 
-For he shall not often reflect on the days of his life, because God occupies him with the joy of his heart. 
+He shall not often reflect on the days of his life, because God occupies him with the joy of his heart. 

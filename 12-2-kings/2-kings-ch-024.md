@@ -17,4 +17,4 @@ All the men of might, even seven thousand, and the craftsmen and the smiths one 
 The king of Babylon made Mattaniah, Jehoiachin's father's brother, king in his place, and changed his name to Zedekiah. 
 Zedekiah was twenty-one years old when he began to reign, and he reigned eleven years in Jerusalem. His mother's name was Hamutal the daughter of Jeremiah of Libnah. 
 He did that which was bad in God's sight, according to all that Jehoiakim had done. 
-For through the anger of God, this happened in Jerusalem and Judah, until he had cast them out from his presence. Then Zedekiah rebelled against the king of Babylon. 
+Through the anger of God, this happened in Jerusalem and Judah, until he had cast them out from his presence. Then Zedekiah rebelled against the king of Babylon. 

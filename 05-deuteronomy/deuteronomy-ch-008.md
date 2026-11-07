@@ -4,7 +4,7 @@ He humbled you, allowed you to be hungry, and fed you with manna, which you didn
 Your clothing didn't grow old on you, neither did your foot swell, these forty years. 
 You shall consider in your heart that as a man disciplines his son, so your God disciplines you. 
 You shall keep the commandments of your God, to walk in his ways, and to fear him. 
-For your God brings you into a good land, a land of brooks of water, of springs, and underground water flowing into valleys and hills; 
+Your God brings you into a good land, a land of brooks of water, of springs, and underground water flowing into valleys and hills; 
 a land of wheat, barley, vines, fig trees, and pomegranates; a land of olive trees and honey; 
 a land in which you shall eat bread without scarcity, you shall not lack anything in it; a land whose stones are iron, and out of whose hills you may dig copper. 
 You shall eat and be full, and you shall bless your God for the good land which he has given you. 

@@ -15,11 +15,11 @@ but I will settle him in my house and in my kingdom for the eras. His throne wil
 According to all these words, and according to all this vision, so Nathan spoke to David. 
 Then David the king went in and sat before God; and he said, "Who am I, God, and what is my house, that you have brought me this far? 
 This was a small thing in your eyes, O God, but you have spoken of your servant's house for a great while to come, and have respected me according to the standard of a man of high degree, God. 
-What can David say yet more to you concerning the honor which is done to your servant? For you know your servant. 
+What can David say yet more to you concerning the honor which is done to your servant? You know your servant. 
 God, for your servant's sake, and according to your own heart, you have done all this greatness, to make known all these great things. 
 God, there is no one like you, neither is there any God besides you, according to all that we have heard with our ears. 
 What one nation on the earth is like your people Israel, whom God went to buy back to himself for a people, to make you a name by great and awesome things, in driving out nations from before your people whom you bought back out of Egypt? 
-For you made your people Israel your own people for the eras; and you, God, became their God. 
+You made your people Israel your own people for the eras; and you, God, became their God. 
 Now, God, let the word that you have spoken concerning your servant, and concerning his house, be established for the eras, and do as you have spoken. 
 Let your name be established and magnified for the eras, saying, 'The God of Armies is the God of Israel, even a God to Israel. The house of David your servant is established before you.' 
 For you, my God, have revealed to your servant that you will build him a house. So your servant has found courage to pray before you. 

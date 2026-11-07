@@ -14,7 +14,7 @@ But the prince of the kingdom of Persia withstood me twenty-one days; but, behol
 Now I have come to make you understand what will happen to your people in the latter days, for the vision is yet for many days." 
 When he had spoken these words to me, I set my face toward the ground and was mute. 
 Behold, one in the likeness of the sons of men touched my lips. Then I opened my mouth, and spoke and said to him who stood before me, "My lord, by reason of the vision my sorrows have overtaken me, and I retain no strength. 
-For how can the servant of this my lord talk with this my lord? For as for me, immediately there remained no strength in me. There was no breath left in me." 
+How can the servant of this my lord talk with this my lord? As for me, immediately there remained no strength in me. There was no breath left in me." 
 Then one like the appearance of a man touched me again, and he strengthened me. 
 He said, "Greatly beloved man, don't be afraid. Peace be to you. Be strong. Yes, be strong." When he spoke to me, I was strengthened, and said, "Let my lord speak, for you have strengthened me." 
 Then he said, "Do you know why I have come to you? Now I will return to fight with the prince of Persia. When I go out, behold, the prince of Greece will come. 

@@ -1,16 +1,16 @@
-﻿For the Chief Musician. A Psalm by David. In you, God, I take refuge. Let me never be disappointed. Deliver me in your righteousness. 
+﻿The Chief Musician. A Psalm by David. In you, God, I take refuge. Let me never be disappointed. Deliver me in your righteousness. 
 Bow down your ear to me. Deliver me speedily. Be to me a strong rock, a house of defense to save me. 
-For you are my rock and my fortress, for your name's sake lead me and guide me. 
+You are my rock and my fortress, for your name's sake lead me and guide me. 
 Pluck me out of the net that they have laid secretly for me, for you are my stronghold. 
 Into your hand I commend my spirit. You buy me back, God, God of truth. 
 I hate those who regard lying vanities, but I trust in God. 
 I will be glad and rejoice in your loving kindness, for you have seen my affliction. You have known my soul in adversities. 
 You have not shut me up into the hand of the enemy. You have set my feet in a large place. 
 Have mercy on me, God, for I am in distress. My eye, my soul, and my body waste away with grief. 
-For my life is spent with sorrow, my years with sighing. My strength fails because of my guilt. My bones are wasted away. 
+My life is spent with sorrow, my years with sighing. My strength fails because of my guilt. My bones are wasted away. 
 Because of all my adversaries I have become utterly contemptible to my neighbors, a horror to my acquaintances. Those who saw me on the street fled from me. 
 I am forgotten from their hearts like a dead man. I am like broken pottery. 
-For I have heard the slander of many, terror on every side, while they conspire together against me, they plot to take away my life. 
+I have heard the slander of many, terror on every side, while they conspire together against me, they plot to take away my life. 
 But I trust in you, God. I said, "You are my God." 
 My times are in your hand. Deliver me from the hand of my enemies, and from those who persecute me. 
 Make your face to shine on your servant. Save me in your loving kindness. 

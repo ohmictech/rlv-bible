@@ -1,4 +1,4 @@
-﻿For the Chief Musician. A Psalm by David. A song. Praise waits for you, God, in Zion. Vows shall be performed to you. 
+﻿The Chief Musician. A Psalm by David. A song. Praise waits for you, God, in Zion. Vows shall be performed to you. 
 You who hear prayer, everyone will come to you. 
 Mistakes overwhelmed me, but you atoned for our rebellion. 
 Blessed is the one whom you choose and cause to come near, that he may live in your courts. We will be filled with the goodness of your house, your holy temple. 

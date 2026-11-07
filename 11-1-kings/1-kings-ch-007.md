@@ -1,5 +1,5 @@
 ﻿Solomon was building his own house thirteen years, and he finished all his house. 
-For he built the House of the Forest of Lebanon. Its length was one hundred cubits, its width fifty cubits, and its height thirty cubits, on four rows of cedar pillars, with cedar beams on the pillars. 
+He built the House of the Forest of Lebanon. Its length was one hundred cubits, its width fifty cubits, and its height thirty cubits, on four rows of cedar pillars, with cedar beams on the pillars. 
 It was covered with cedar above over the forty-five beams that were on the pillars, fifteen in a row. 
 There were beams in three rows, and window was facing window in three ranks. 
 All the doors and posts were made square with beams; and window was facing window in three ranks. 
@@ -12,7 +12,7 @@ Above were costly stones, even cut stone, according to measure, and cedar wood.
 The great court around had three courses of cut stone with a course of cedar beams, like the inner court of God's house and the porch of the house. 
 King Solomon sent and brought Hiram out of Tyre. 
 He was the son of a widow of the tribe of Naphtali, and his father was a man of Tyre, a worker in bronze; and he was filled with wisdom and understanding and skill to work all works in bronze. He came to King Solomon and performed all his work. 
-For he fashioned the two pillars of bronze, eighteen cubits high apiece; and a line of twelve cubits encircled either of them. 
+He fashioned the two pillars of bronze, eighteen cubits high apiece; and a line of twelve cubits encircled either of them. 
 He made two capitals of molten bronze to set on the tops of the pillars. The height of the one capital was five cubits, and the height of the other capital was five cubits. 
 There were nets of checker work and wreaths of chain work for the capitals which were on the top of the pillars: seven for the one capital, and seven for the other capital. 
 So he made the pillars; and there were two rows of pomegranates around the one network, to cover the capitals that were on the top of the pillars; and he did so for the other capital. 

@@ -8,7 +8,7 @@ But if the watchman sees the sword come and doesn't blow the trumpet, and the pe
 When I tell the guilty, 'O guilty man, you will surely die,' and you don't speak to warn the guilty from his way, that guilty man will die in his guilt, but I will require his blood at your hand. 
 Nevertheless, if you warn the guilty of his way to turn from it, and he doesn't turn from his way; he will die in his guilt, but you have delivered your soul. 
 "You, son of man, tell the house of Israel: 'You say this, "Our rebellion and our mistakes are on us, and we pine away in them. How then can we live?"' 
-Tell them, '"As I live," says God, "I have no pleasure in the death of the guilty, but that the guilty turn from his way and live. Turn, turn from your bad ways! For why will you die, house of Israel?"' 
+Tell them, '"As I live," says God, "I have no pleasure in the death of the guilty, but that the guilty turn from his way and live. Turn, turn from your bad ways! Why will you die, house of Israel?"' 
 "You, son of man, tell the children of your people, 'The righteousness of the righteous will not deliver him in the day of his disobedience. And as for the guilt of the guilty, he will not fall by it in the day that he turns from his guilt; neither will he who is righteous be able to live by it in the day that he drifts. 
 When I tell the righteous that he will surely live, if he trusts in his righteousness and commits guilt, none of his righteous deeds will be remembered; but he will die in his guilt that he has committed. 
 Again, when I say to the guilty, "You will surely die," if he turns from his wrongdoing and does that which is lawful and right, 

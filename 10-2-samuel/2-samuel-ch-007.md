@@ -3,7 +3,7 @@ the king said to Nathan the spokesman, "See now, I dwell in a house of cedar, bu
 Nathan said to the king, "Go, do all that is in your heart, for God is with you." 
 That same night, God's word came to Nathan, saying, 
 "Go and tell my servant David, 'God says, "Should you build me a house for me to dwell in? 
-For I have not lived in a house since the day that I brought the children of Israel up out of Egypt, even to this day, but have moved around in a tent and in a tabernacle. 
+I have not lived in a house since the day that I brought the children of Israel up out of Egypt, even to this day, but have moved around in a tent and in a tabernacle. 
 In all places in which I have walked with all the children of Israel, did I say a word to anyone from the tribes of Israel whom I commanded to be shepherd of my people Israel, saying, 'Why have you not built me a house of cedar?'"' 
 Now tell my servant David this: 'The God of Armies says, "I took you from the sheep pen, from following the sheep, to be prince over my people, over Israel. 
 I have been with you wherever you went, and have cut off all your enemies from before you. I will make you a great name, like the name of the great ones who are on the earth. 
@@ -17,9 +17,9 @@ Your house and your kingdom will be made sure for the eras before you. Your thro
 Nathan spoke to David all these words, and according to all this vision. 
 Then David the king went in and sat before God; and he said, "Who am I, God, and what is my house, that you have brought me this far? 
 This was yet a small thing in your eyes, God, but you have spoken also of your servant's house for a great while to come; and this among men, God! 
-What more can David say to you? For you know your servant, God. 
-For your word's sake, and according to your own heart, you have worked all this greatness, to make your servant know it. 
-So you are great, God. For there is no one like you, neither is there any God besides you, according to all that we have heard with our ears. 
+What more can David say to you? You know your servant, God. 
+Your word's sake, and according to your own heart, you have worked all this greatness, to make your servant know it. 
+So you are great, God. There is no one like you, neither is there any God besides you, according to all that we have heard with our ears. 
 What one nation on the earth is like your people, even like Israel, whom God went to buy back to himself for a people, and to make himself a name, and to do great things for you, and awesome things for your land, before your people, whom you bought back to yourself out of Egypt, from the nations and their gods? 
 You established for yourself your people Israel to be your people for the eras; and you, God, became their God. 
 "Now, God, the word that you have spoken concerning your servant, and concerning his house, confirm it for the eras, and do as you have spoken. 

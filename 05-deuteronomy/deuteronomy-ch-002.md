@@ -4,7 +4,7 @@ God spoke to me, saying,
 Command the people, saying, 'You are to pass through the border of your brothers, the children of Esau, who dwell in Seir; and they will be afraid of you. So be careful. 
 Don't contend with them; for I will not give you any of their land, no, not so much as for the sole of the foot to tread on, because I have given Mount Seir to Esau for a possession. 
 You shall purchase food from them for money, that you may eat. You shall also buy water from them for money, that you may drink.'" 
-For your God has blessed you in all the work of your hands. He has known your walking through this great wilderness. These forty years, your God has been with you. You have lacked nothing. 
+Your God has blessed you in all the work of your hands. He has known your walking through this great wilderness. These forty years, your God has been with you. You have lacked nothing. 
 So we passed by from our brothers, the children of Esau, who dwell in Seir, from the way of the Arabah from Elath and from Ezion Geber. We turned and passed by the way of the wilderness of Moab. 
 God said to me, "Don't bother Moab, neither contend with them in battle; for I will not give you any of his land for a possession, because I have given Ar to the children of Lot for a possession." 
 (The Emim lived there before, a great and numerous people, and tall as the Anakim. 

@@ -15,7 +15,7 @@ I chattered like a swallow or a crane. I moaned like a dove. My eyes weaken look
 What will I say? He has both spoken to me, and himself has done it. I will walk carefully all my years because of the anguish of my soul. 
 Lord, men live by these things; and my spirit finds life in everyone. You restore me, and cause me to live. 
 Behold, for peace I had great anguish, but you have in love for my soul delivered it from the pit of corruption; for you have cast all my mistakes behind your back. 
-For Hades can't praise you. Death can't celebrate you. Those who go down into the pit can't hope for your truth. 
+Hades can't praise you. Death can't celebrate you. Those who go down into the pit can't hope for your truth. 
 The living, the living, he shall praise you, as I do today. The father shall make known your truth to the children. 
 God will save me. So we will sing my songs with stringed instruments all the days of our life in God's house. 
 Now Isaiah had said, "Let them take a cake of figs, and lay it for a poultice on the boil, and he shall recover." 

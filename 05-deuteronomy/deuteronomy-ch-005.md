@@ -22,8 +22,8 @@ You shall remember that you were a servant in the land of Egypt, and your God br
 God spoke these words to all your assembly on the mountain out of the middle of the fire, of the cloud, and of the thick darkness, with a great voice. He added no more. He wrote them on two stone tablets, and gave them to me. 
 When you heard the voice out of the middle of the darkness, while the mountain was burning with fire, you came near to me, even all the heads of your tribes, and your elders; 
 and you said, "Behold, our God has shown us his glory and his greatness, and we have heard his voice out of the middle of the fire. We have seen today that God does speak with man, and he lives. 
-Now, why should we die? For this great fire will consume us. If we hear our God's voice any more, then we shall die. 
-For who is there of all flesh who has heard the voice of the living God speaking out of the middle of the fire, as we have, and lived? 
+Now, why should we die? This great fire will consume us. If we hear our God's voice any more, then we shall die. 
+Who is there of all flesh who has heard the voice of the living God speaking out of the middle of the fire, as we have, and lived? 
 Go near, and hear all that our God shall say, and tell us all that our God tells you; and we will hear it, and do it." 
 God heard the voice of your words when you spoke to me; and God said to me, "I have heard the voice of the words of this people which they have spoken to you. They have well said all that they have spoken. 
 Oh that there were such a heart in them that they would fear me and keep all my commandments always, that it might be well with them and with their children for the eras! 

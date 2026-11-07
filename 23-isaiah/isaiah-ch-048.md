@@ -6,9 +6,9 @@ So I have declared it to you from of old; before it came to pass I showed it to 
 You have heard it. Now see all this. And you, won't you declare it? "I have shown you new things from this time, even hidden things, which you have not known. 
 They are created now, and not from of old. Before today, you didn't hear them, lest you should say, 'Behold, I knew them.' 
 Yes, you didn't hear. Yes, you didn't know. Yes, from of old your ear was not opened, for I knew that you dealt very treacherously, and were called a transgressor from the womb. 
-For my name's sake, I will defer my anger, and for my praise, I hold it back for you so that I don't cut you off. 
+My name's sake, I will defer my anger, and for my praise, I hold it back for you so that I don't cut you off. 
 Behold, I have refined you, but not as silver. I have chosen you in the furnace of affliction. 
-For my own sake, for my own sake, I will do it; for how would my name be profaned? I will not give my glory to another. 
+My own sake, for my own sake, I will do it; for how would my name be profaned? I will not give my glory to another. 
 "Listen to me, O Jacob, and Israel my called: I am he. I am the first. I am also the last. 
 Yes, my hand has laid the foundation of the earth, and my right hand has spread out the sky. when I call to them, they stand up together. 
 "Assemble yourselves, all of you, and hear! Who among them has declared these things? He whom God loves will do what he likes to Babylon, and his arm will be against the Chaldeans. 

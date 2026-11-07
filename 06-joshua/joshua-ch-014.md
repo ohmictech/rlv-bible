@@ -1,7 +1,7 @@
 ﻿These are the inheritances which the children of Israel took in the land of Canaan, which Eleazar the priest, Joshua the son of Nun, and the heads of the fathers' houses of the tribes of the children of Israel, distributed to them, 
 by the lot of their inheritance, as God commanded by Moses, for the nine tribes, and for the half-tribe. 
-For Moses had given the inheritance of the two tribes and the half-tribe beyond the Jordan; but to the Levites he gave no inheritance among them. 
-For the children of Joseph were two tribes, Manasseh and Ephraim. They gave no portion to the Levites in the land, except cities to dwell in, with their pasture lands for their livestock and for their property. 
+Moses had given the inheritance of the two tribes and the half-tribe beyond the Jordan; but to the Levites he gave no inheritance among them. 
+The children of Joseph were two tribes, Manasseh and Ephraim. They gave no portion to the Levites in the land, except cities to dwell in, with their pasture lands for their livestock and for their property. 
 The children of Israel did as God commanded Moses, and they divided the land. 
 Then the children of Judah came near to Joshua in Gilgal. Caleb the son of Jephunneh the Kenizzite said to him, "You know the thing that God spoke to Moses the man of God concerning me and concerning you in Kadesh Barnea. 
 I was forty years old when Moses the servant of God sent me from Kadesh Barnea to spy out the land. I brought him word again as it was in my heart. 

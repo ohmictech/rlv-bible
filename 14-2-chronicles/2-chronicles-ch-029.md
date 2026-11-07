@@ -3,10 +3,10 @@ He did that which was right in God's eyes, according to all that David his fathe
 In the first year of his reign, in the first month, he opened the doors of God's house and repaired them. 
 He brought in the priests and the Levites and gathered them together into the wide place on the east, 
 and said to them, "Listen to me, you Levites! Now sanctify yourselves, and sanctify the house of the God of your fathers, and carry the filthiness out of the holy place. 
-For our fathers were unfaithful, and have done that which was bad in our God's sight, and have forsaken him, and have turned away their faces from the habitation of God, and turned their backs. 
+Our fathers were unfaithful, and have done that which was bad in our God's sight, and have forsaken him, and have turned away their faces from the habitation of God, and turned their backs. 
 Also they have shut up the doors of the porch, and put out the lamps, and have not burned incense nor offered burnt offerings in the holy place to the God of Israel. 
 So God's wrath was on Judah and Jerusalem, and he has delivered them to be tossed back and forth, to be an astonishment and a hissing, as you see with your eyes. 
-For behold, our fathers have fallen by the sword, and our sons and our daughters and our wives are in captivity for this. 
+Behold, our fathers have fallen by the sword, and our sons and our daughters and our wives are in captivity for this. 
 Now it is in my heart to make a covenant with the God of Israel, that his fierce anger may turn away from us. 
 My sons, don't be negligent now; for God has chosen you to stand before him, to minister to him, and that you should be his ministers and burn incense." 
 Then the Levites arose: Mahath, the son of Amasai, and Joel the son of Azariah, of the sons of the Kohathites; and of the sons of Merari, Kish the son of Abdi, and Azariah the son of Jehallelel; and of the Gershonites, Joah the son of Zimmah, and Eden the son of Joah; 

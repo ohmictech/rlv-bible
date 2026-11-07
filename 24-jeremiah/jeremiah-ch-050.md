@@ -13,7 +13,7 @@ your mother will be utterly disappointed. She who bore you will be confounded. B
 Because of God's wrath she won't be inhabited, but she will be wholly desolate. Everyone who goes by Babylon will be astonished, and hiss at all her plagues. 
 Set yourselves in array against Babylon all around, all you who bend the bow; shoot at her. Spare no arrows, for she has wronged God. 
 Shout against her all around. She has submitted herself. Her bulwarks have fallen. Her walls have been thrown down, for it is the vengeance of God. Take vengeance on her. As she has done, do to her. 
-Cut off the sower from Babylon, and him who handles the sickle in the time of harvest. For fear of the oppressing sword, they will each return to their own people, and they will each flee to their own land. 
+Cut off the sower from Babylon, and him who handles the sickle in the time of harvest. Fear of the oppressing sword, they will each return to their own people, and they will each flee to their own land. 
 "Israel is a hunted sheep. The lions have driven him away. First, the king of Assyria devoured him, and now at last Nebuchadnezzar king of Babylon has broken his bones." 
 So the God of Armies, the God of Israel says: "Behold, I will punish the king of Babylon and his land, as I have punished the king of Assyria. 
 I will bring Israel again to his pasture, and he will feed on Carmel and Bashan. His soul will be satisfied on the hills of Ephraim and in Gilead. 
@@ -24,7 +24,7 @@ How the hammer of the whole earth is cut apart and broken! How Babylon has becom
 I have laid a snare for you, and you are also taken, Babylon, and you weren't aware. You are found, and also caught, because you have fought against God. 
 God has opened his armory, and has brought out the weapons of his indignation; for the Lord, GOD of Armies, has a work to do in the land of the Chaldeans. 
 Come against her from the farthest border. Open her storehouses. Cast her up as heaps. Destroy her utterly. Let nothing of her be left. 
-Kill all her bulls. Let them go down to the slaughter. Woe to them! For their day has come, the time of their visitation. 
+Kill all her bulls. Let them go down to the slaughter. Woe to them! Their day has come, the time of their visitation. 
 Listen to those who flee and escape out of the land of Babylon, to declare in Zion the vengeance of our God, the vengeance of his temple. 
 "Call together the archers against Babylon, everyone who bends the bow. Encamp against her all around. Let none of it escape. Pay her back according to her work. According to all that she has done, do to her; for she has been proud against God, against the Holy One of Israel. 
 So her young men will fall in her streets. All her men of war will be brought to silence in that day," says God. 

@@ -7,7 +7,7 @@ Give strong drink to him who is ready to perish, and wine to the bitter in soul.
 Let him drink, and forget his poverty, and remember his misery no more. 
 Open your mouth for the mute, in the cause of everyone who is left desolate. 
 Open your mouth, judge righteously, and serve justice to the poor and needy." 
-Who can find a worthy woman? For her value is far above rubies. 
+Who can find a worthy woman? Her value is far above rubies. 
 The heart of her husband trusts in her. He shall have no lack of gain. 
 She does him good, and not harm, all the days of her life. 
 She seeks wool and flax, and works eagerly with her hands. 

@@ -1,7 +1,7 @@
 ﻿Gather yourselves together, yes, gather together, you nation that has no shame, 
 before the appointed time when the day passes as the chaff, before the fierce anger of God comes on you, before the day of God's anger comes on you. 
 Seek God, all you humble of the land, who have kept his ordinances. Seek righteousness. Seek humility. It may be that you will be hidden in the day of God's anger. 
-For Gaza will be forsaken, and Ashkelon a desolation. They will drive out Ashdod at noonday, and Ekron will be rooted up. 
+Gaza will be forsaken, and Ashkelon a desolation. They will drive out Ashdod at noonday, and Ekron will be rooted up. 
 Woe to the inhabitants of the sea coast, the nation of the Cherethites! God's word is against you, Canaan, the land of the Philistines. I will destroy you until there is no inhabitant. 
 The sea coast will be pastures, with cottages for shepherds and folds for flocks. 
 The coast will be for the remnant of the house of Judah. They will find pasture. In the houses of Ashkelon, they will lie down in the evening, for God, their God, will visit them and restore them. 

@@ -12,7 +12,7 @@ Not so! Go now you who are men, and serve God; for that is what you desire!" The
 God said to Moses, "Stretch out your hand over the land of Egypt for the locusts, that they may come up on the land of Egypt, and eat every herb of the land, even all that the hail has left." 
 Moses stretched out his rod over the land of Egypt, and God brought an east wind on the land all that day, and all night; and when it was morning, the east wind brought the locusts. 
 The locusts went up over all the land of Egypt, and rested in all the borders of Egypt. They were very grievous. Before them there were no such locusts as they, nor will there ever be again. 
-For they covered the surface of the whole earth, so that the land was darkened, and they ate every herb of the land, and all the fruit of the trees which the hail had left. There remained nothing green, either tree or herb of the field, through all the land of Egypt. 
+They covered the surface of the whole earth, so that the land was darkened, and they ate every herb of the land, and all the fruit of the trees which the hail had left. There remained nothing green, either tree or herb of the field, through all the land of Egypt. 
 Then Pharaoh called for Moses and Aaron in haste, and he said, "I have wronged your God, and against you. 
 Now please forgive my wrongdoing again, and pray to your God, that he may also take away from me this death." 
 Moses went out from Pharaoh, and prayed to God. 

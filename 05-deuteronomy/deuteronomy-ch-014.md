@@ -1,5 +1,5 @@
 ﻿You are the children of your God. You shall not cut yourselves, nor make any baldness between your eyes for the dead. 
-For you are a holy people to your God, and God has chosen you to be a people for his own possession, above all peoples who are on the face of the earth. 
+You are a holy people to your God, and God has chosen you to be a people for his own possession, above all peoples who are on the face of the earth. 
 You shall not eat any abominable thing. 
 These are the animals which you may eat: the ox, the sheep, the goat, 
 the deer, the gazelle, the roebuck, the wild goat, the ibex, the antelope, and the chamois. 

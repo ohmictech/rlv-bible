@@ -8,13 +8,13 @@ I will restore the fortunes of Judah and Israel, and will build them as at the f
 I will cleanse them from all their guilt by which they have wronged me. I will pardon all their guilt by which they have wronged me and by which they have transgressed against me. 
 This city will be to me for a name of joy, for praise, and for glory, before all the nations of the earth, which will hear all the good that I do to them, and will fear and tremble for all the good and for all the peace that I provide to it.'" 
 God says: "Yet again there will be heard in this place, about which you say, 'It is waste, without man and without animal, even in the cities of Judah, and in the streets of Jerusalem, that are desolate, without man and without inhabitant and without animal,' 
-the voice of joy and the voice of gladness, the voice of the bridegroom and the voice of the bride, the voice of those who say, 'Give thanks to the God of Armies, for God is good, for his loving kindness endures for the eras;' who bring thanksgiving into God's house. For I will cause the captivity of the land to be reversed as at the first," says God. 
+the voice of joy and the voice of gladness, the voice of the bridegroom and the voice of the bride, the voice of those who say, 'Give thanks to the God of Armies, for God is good, for his loving kindness endures for the eras;' who bring thanksgiving into God's house. I will cause the captivity of the land to be reversed as at the first," says God. 
 The God of Armies says: "Yet again there will be in this place, which is waste, without man and without animal, and in all its cities, a habitation of shepherds causing their flocks to lie down. 
 In the cities of the hill country, in the cities of the lowland, in the cities of the South, in the land of Benjamin, in the places around Jerusalem, and in the cities of Judah, the flocks will again pass under the hands of him who counts them," says God. 
 "Behold, the days come," says God, "that I will perform that good word which I have spoken concerning the house of Israel and concerning the house of Judah. 
 "In those days and at that time, I will cause a Branch of righteousness to grow up to David. He will execute justice and righteousness in the land. 
 In those days Judah will be saved, and Jerusalem will dwell safely. This is the name by which she will be called: God our righteousness." 
-For God says: "David will never lack a man to sit on the throne of the house of Israel. 
+God says: "David will never lack a man to sit on the throne of the house of Israel. 
 The Levitical priests won't lack a man before me to offer burnt offerings, to burn meal offerings, and to do sacrifice continually." 
 God's word came to Jeremiah, saying, 
 "God says: 'If you can break my covenant of the day and my covenant of the night, so that there will not be day and night in their time, 

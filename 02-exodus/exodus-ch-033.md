@@ -13,7 +13,7 @@ Moses said to God, "Behold, you tell me, 'Bring up this people;' and you haven't
 Now, if I have found favor in your sight, please show me your way, now, that I may know you, so that I may find favor in your sight; and consider that this nation is your people." 
 He said, "My presence will go with you, and I will give you rest." 
 Moses said to him, "If your presence doesn't go with me, don't carry us up from here. 
-For how would people know that I have found favor in your sight, I and your people? Isn't it that you go with us, so that we are separated, I and your people, from everyone who is on the surface of the earth?" 
+How would people know that I have found favor in your sight, I and your people? Isn't it that you go with us, so that we are separated, I and your people, from everyone who is on the surface of the earth?" 
 God said to Moses, "I will do this thing also that you have spoken; for you have found favor in my sight, and I know you by name." 
 Moses said, "Please show me your glory." 
 He said, "I will make all my goodness pass before you, and will proclaim God's name before you. I will be gracious to whom I will be gracious, and will show mercy on whom I will show mercy." 

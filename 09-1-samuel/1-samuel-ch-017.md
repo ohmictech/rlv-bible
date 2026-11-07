@@ -23,7 +23,7 @@ David left his baggage in the hand of the keeper of the baggage and ran to the a
 As he talked with them, behold, the champion, the Philistine of Gath, Goliath by name, came up out of the ranks of the Philistines, and said the same words; and David heard them. 
 All the men of Israel, when they saw the man, fled from him and were terrified. 
 The men of Israel said, "Have you seen this man who has come up? He has surely come up to defy Israel. The king will give great riches to the man who kills him, and will give him his daughter, and will make his father's house tax-free in Israel." 
-David spoke to the men who stood by him, saying, "What shall be done to the man who kills this Philistine and takes away the reproach from Israel? For who is this uncircumcised Philistine, that he should defy the armies of the living God?" 
+David spoke to the men who stood by him, saying, "What shall be done to the man who kills this Philistine and takes away the reproach from Israel? Who is this uncircumcised Philistine, that he should defy the armies of the living God?" 
 The people answered him in this way, saying, "So shall it be done to the man who kills him." 
 Eliab his oldest brother heard when he spoke to the men; and Eliab's anger burned against David, and he said, "Why have you come down? With whom have you left those few sheep in the wilderness? I know your pride and the bad of your heart; for you have come down that you might see the battle." 
 David said, "What have I now done? Is there not a cause?" 

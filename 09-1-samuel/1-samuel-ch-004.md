@@ -4,7 +4,7 @@ When the people had come into the camp, the elders of Israel said, "Why has God 
 So the people sent to Shiloh, and they brought from there the ark of the covenant of the God of Armies, who sits above the cherubim; and the two sons of Eli, Hophni and Phinehas, were there with the ark of the covenant of God. 
 When the ark of God's covenant came into the camp, all Israel shouted with a great shout, so that the earth resounded. 
 When the Philistines heard the noise of the shout, they said, "What does the noise of this great shout in the camp of the Hebrews mean?" They understood that God's ark had come into the camp. 
-The Philistines were afraid, for they said, "God has come into the camp." They said, "Woe to us! For there has not been such a thing before. 
+The Philistines were afraid, for they said, "God has come into the camp." They said, "Woe to us! There has not been such a thing before. 
 Woe to us! Who shall deliver us out of the hand of these mighty gods? These are the gods that struck the Egyptians with all kinds of plagues in the wilderness. 
 Be strong and behave like men, O you Philistines, that you not be servants to the Hebrews, as they have been to you. Strengthen yourselves like men, and fight!" 
 The Philistines fought, and Israel was defeated, and each man fled to his tent. There was a very great slaughter; for thirty thousand footmen of Israel fell. 

@@ -21,7 +21,7 @@ God said to Aaron, "You shall have no inheritance in their land, neither shall y
 "To the children of Levi, behold, I have given all the tithe in Israel for an inheritance, in return for their service which they serve, even the service of the Tent of Meeting. 
 Henceforth the children of Israel shall not come near the Tent of Meeting, lest they incur guilt and die. 
 But the Levites shall do the service of the Tent of Meeting, and they shall bear their guilt. It shall be a statute for the eras throughout your generations. Among the children of Israel, they shall have no inheritance. 
-For the tithe of the children of Israel, which they offer as a wave offering to God, I have given to the Levites for an inheritance. So I have said to them, 'Among the children of Israel they shall have no inheritance.'" 
+The tithe of the children of Israel, which they offer as a wave offering to God, I have given to the Levites for an inheritance. So I have said to them, 'Among the children of Israel they shall have no inheritance.'" 
 God spoke to Moses, saying, 
 "Moreover you shall speak to the Levites, and tell them, 'When you take of the children of Israel the tithe which I have given you from them for your inheritance, then you shall offer up a wave offering of it for God, a tithe of the tithe. 
 Your wave offering shall be credited to you, as though it were the grain of the threshing floor, and as the fullness of the wine press. 

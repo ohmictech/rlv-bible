@@ -1,4 +1,4 @@
-﻿For the Chief Musician. To Jeduthun. A Psalm by David. My soul rests in God alone. My salvation is from him. 
+﻿The Chief Musician. To Jeduthun. A Psalm by David. My soul rests in God alone. My salvation is from him. 
 He alone is my rock, my salvation, and my fortress. I will never be greatly shaken. 
 How long will you assault a man? Would all of you throw him down, like a leaning wall, like a tottering fence? 
 They fully intend to throw him down from his lofty place. They delight in lies. They bless with their mouth, but they curse inwardly. Selah. 

@@ -20,7 +20,7 @@ As soon as he came near to the camp, he saw the calf and the dancing. Then Moses
 He took the calf which they had made, and burned it with fire, ground it to powder, and scattered it on the water, and made the children of Israel drink it. 
 Moses said to Aaron, "What did these people do to you, that you have brought a great wrongdoing on them?" 
 Aaron said, "Don't let the anger of my lord grow hot. You know the people, that they are set on bad. 
-For they said to me, 'Make us gods, which shall go before us. As for this Moses, the man who brought us up out of the land of Egypt, we don't know what has become of him.' 
+They said to me, 'Make us gods, which shall go before us. As for this Moses, the man who brought us up out of the land of Egypt, we don't know what has become of him.' 
 I said to them, 'Whoever has any gold, let them take it off.' So they gave it to me; and I threw it into the fire, and out came this calf." 
 When Moses saw that the people were out of control, (for Aaron had let them lose control, causing derision among their enemies), 
 then Moses stood in the gate of the camp, and said, "Whoever is on God's side, come to me!" All the sons of Levi gathered themselves together to him. 

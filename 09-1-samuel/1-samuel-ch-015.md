@@ -20,7 +20,7 @@ Why then didn't you obey God's voice, but took the plunder, and did that which w
 Saul said to Samuel, "But I have obeyed God's voice, and have gone the way which God sent me, and have brought Agag the king of Amalek, and have utterly destroyed the Amalekites. 
 But the people took of the plunder, sheep and cattle, the best of the devoted things, to sacrifice to your God in Gilgal." 
 Samuel said, "Has God as great delight in burnt offerings and sacrifices, as in obeying God's voice? Behold, to obey is better than sacrifice, and to listen than the fat of rams. 
-For rebellion is as the wrongdoing of witchcraft, and stubbornness is as idolatry and teraphim. Because you have rejected God's word, he has also rejected you from being king." 
+Rebellion is as the wrongdoing of witchcraft, and stubbornness is as idolatry and teraphim. Because you have rejected God's word, he has also rejected you from being king." 
 Saul said to Samuel, "I have drifted; for I have transgressed the commandment of God and your words, because I feared the people and obeyed their voice. 
 Now, please pardon my wrongdoing, and turn again with me, that I may worship God." 
 Samuel said to Saul, "I will not return with you; for you have rejected God's word, and God has rejected you from being king over Israel." 

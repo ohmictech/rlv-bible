@@ -28,7 +28,7 @@ He set the cherubim within the inner house. The wings of the cherubim were stret
 He overlaid the cherubim with gold. 
 He carved all the walls of the house around with carved figures of cherubim, palm trees, and open flowers, inside and outside. 
 He overlaid the floor of the house with gold, inside and outside. 
-For the entrance of the inner sanctuary, he made doors of olive wood. The lintel and door posts were a fifth part of the wall. 
+The entrance of the inner sanctuary, he made doors of olive wood. The lintel and door posts were a fifth part of the wall. 
 So he made two doors of olive wood; and he carved on them carvings of cherubim, palm trees, and open flowers, and overlaid them with gold. He spread the gold on the cherubim and on the palm trees. 
 He also made the entrance of the temple door posts of olive wood, out of a fourth part of the wall, 
 and two doors of cypress wood. The two leaves of the one door were folding, and the two leaves of the other door were folding. 

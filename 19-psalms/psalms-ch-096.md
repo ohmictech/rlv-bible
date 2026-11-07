@@ -1,8 +1,8 @@
 ﻿Sing to God a new song! Sing to God, all the earth. 
 Sing to God! Bless his name! Proclaim his salvation from day to day! 
 Declare his glory among the nations, his marvelous works among everyones. 
-For God is great, and greatly to be praised! He is to be feared above all gods. 
-For all the gods of the peoples are idols, but God made the sky. 
+God is great, and greatly to be praised! He is to be feared above all gods. 
+All the gods of the peoples are idols, but God made the sky. 
 Honor and majesty are before him. Strength and beauty are in his sanctuary. 
 Ascribe to God, you families of nations, ascribe to God glory and strength. 
 Ascribe to God the glory due to his name. Bring an offering, and come into his courts. 

@@ -11,7 +11,7 @@ Can you hold the wild ox in the furrow with his harness? Or will he till the val
 Will you trust him, because his strength is great? Or will you leave to him your labor? 
 Will you confide in him, that he will bring home your seed, and gather the grain of your threshing floor? 
 "The wings of the ostrich wave proudly, but are they the feathers and plumage of love? 
-For she leaves her eggs on the earth, warms them in the dust, 
+She leaves her eggs on the earth, warms them in the dust, 
 and forgets that the foot may crush them, or that the wild animal may trample them. 
 She deals harshly with her young ones, as if they were not hers. Though her labor is in vain, she is without fear, 
 because God has deprived her of wisdom, neither has he imparted to her understanding. 

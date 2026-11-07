@@ -1,9 +1,9 @@
-﻿For the Chief Musician. By the sons of Korah. A contemplative psalm. We have heard with our ears, God; our fathers have told us what work you did in their days, in the days of old. 
+﻿The Chief Musician. By the sons of Korah. A contemplative psalm. We have heard with our ears, God; our fathers have told us what work you did in their days, in the days of old. 
 You drove out the nations with your hand, but you planted them. You afflicted the peoples, but you spread them abroad. 
-For they didn't get the land in possession by their own sword, neither did their own arm save them; but your right hand, your arm, and the light of your face, because you were favorable to them. 
+They didn't get the land in possession by their own sword, neither did their own arm save them; but your right hand, your arm, and the light of your face, because you were favorable to them. 
 God, you are my King. Command victories for Jacob! 
 Through you, we will push down our adversaries. Through your name, we will tread down those who rise up against us. 
-For I will not trust in my bow, neither will my sword save me. 
+I will not trust in my bow, neither will my sword save me. 
 But you have saved us from our adversaries, and have shamed those who hate us. 
 In God we have made our boast all day long. We will give thanks to your name for the eras. Selah. 
 But now you rejected us, and brought us to dishonor, and don't go out with our armies. 
@@ -18,9 +18,9 @@ All this has come on us, yet we haven't forgotten you. We haven't been false to 
 Our heart has not turned back, neither have our steps strayed from your path, 
 though you have crushed us in the haunt of jackals, and covered us with the shadow of death. 
 If we have forgotten the name of our God, or spread out our hands to a strange god, 
-won't God search this out? For he knows the secrets of the heart. 
+won't God search this out? He knows the secrets of the heart. 
 Yes, for your sake we are killed all day long. We are regarded as sheep for the slaughter. 
 Wake up! Why do you sleep, Lord? Arise! Don't reject us for the eras. 
 Why do you hide your face, and forget our affliction and our oppression? 
-For our soul is bowed down to the dust. Our body clings to the earth. 
+Our soul is bowed down to the dust. Our body clings to the earth. 
 Rise up to help us. Buy us back for your loving kindness' sake. 

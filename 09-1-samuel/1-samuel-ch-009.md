@@ -4,7 +4,7 @@ The donkeys of Kish, Saul's father, were lost. Kish said to Saul his son, "Now t
 He passed through the hill country of Ephraim, and passed through the land of Shalishah, but they didn't find them. Then they passed through the land of Shaalim, and they weren't there. Then he passed through the land of the Benjamites, but they didn't find them. 
 When they had come to the land of Zuph, Saul said to his servant who was with him, "Come! Let's return, lest my father stop caring about the donkeys and be anxious for us." 
 The servant said to him, "Behold now, there is a man of God in this city, and he is a man who is held in honor. All that he says surely happens. Now let's go there. Perhaps he can tell us which way to go." 
-Then Saul said to his servant, "But behold, if we go, what should we bring the man? For the bread is spent in our sacks, and there is not a present to bring to the man of God. What do we have?" 
+Then Saul said to his servant, "But behold, if we go, what should we bring the man? The bread is spent in our sacks, and there is not a present to bring to the man of God. What do we have?" 
 The servant answered Saul again and said, "Behold, I have in my hand the fourth part of a shekel of silver. I will give that to the man of God, to tell us our way." 
 (In earlier times in Israel, when a man went to inquire of God, he said, "Come! Let's go to the seer;" for he who is now called a spokesman was before called a seer.) 
 Then Saul said to his servant, "Well said. Come! Let's go." So they went to the city where the man of God was. 
@@ -17,7 +17,7 @@ Now God had revealed to Samuel a day before Saul came, saying,
 When Samuel saw Saul, God said to him, "Behold, the man of whom I spoke to you! He will have authority over my people." 
 Then Saul approached Samuel in the gateway, and said, "Please tell me where the seer's house is." 
 Samuel answered Saul and said, "I am the seer. Go up before me to the high place, for you are to eat with me today. In the morning I will let you go and will tell you all that is in your heart. 
-As for your donkeys who were lost three days ago, don't set your mind on them, for they have been found. For whom does all Israel desire? Is it not you and all your father's house?" 
+As for your donkeys who were lost three days ago, don't set your mind on them, for they have been found. Whom does all Israel desire? Is it not you and all your father's house?" 
 Saul answered, "Am I not a Benjamite, of the smallest of the tribes of Israel? And my family the least of all the families of the tribe of Benjamin? Why then do you speak to me like this?" 
 Samuel took Saul and his servant and brought them into the guest room, and made them sit in the best place among those who were invited, who were about thirty persons. 
 Samuel said to the cook, "Bring the portion which I gave you, of which I said to you, 'Set it aside.'" 

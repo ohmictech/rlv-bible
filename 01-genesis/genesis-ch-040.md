@@ -12,7 +12,7 @@ Pharaoh's cup was in my hand; and I took the grapes, and pressed them into Phara
 Joseph said to him, "This is its interpretation: the three branches are three days. 
 Within three more days, Pharaoh will lift up your head, and restore you to your office. You will give Pharaoh's cup into his hand, the way you did when you were his cup bearer. 
 But remember me when it is well with you. Please show kindness to me, and make mention of me to Pharaoh, and bring me out of this house. 
-For indeed, I was stolen away out of the land of the Hebrews, and here also I have done nothing that they should put me into the dungeon." 
+Indeed, I was stolen away out of the land of the Hebrews, and here also I have done nothing that they should put me into the dungeon." 
 When the chief baker saw that the interpretation was good, he said to Joseph, "I also was in my dream, and behold, three baskets of white bread were on my head. 
 In the uppermost basket there were all kinds of baked food for Pharaoh, and the birds ate them out of the basket on my head." 
 Joseph answered, "This is its interpretation. The three baskets are three days. 

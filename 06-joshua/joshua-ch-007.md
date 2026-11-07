@@ -6,7 +6,7 @@ The men of Ai struck about thirty-six men of them. They chased them from before 
 Joshua tore his clothes, and fell to the earth on his face before God's ark until the evening, he and the elders of Israel; and they put dust on their heads. 
 Joshua said, "Alas, God, why have you brought this people over the Jordan at all, to deliver us into the hand of the Amorites, to cause us to perish? I wish that we had been content and lived beyond the Jordan! 
 Oh, Lord, what shall I say, after Israel has turned their backs before their enemies? 
-For the Canaanites and all the inhabitants of the land will hear of it, and will surround us, and cut off our name from the earth. What will you do for your great name?" 
+The Canaanites and all the inhabitants of the land will hear of it, and will surround us, and cut off our name from the earth. What will you do for your great name?" 
 God said to Joshua, "Get up! Why have you fallen on your face like that? 
 Israel has drifted. Yes, they have even transgressed my covenant which I commanded them. Yes, they have even taken some of the devoted things, and have also stolen, and also deceived. They have even put it among their own stuff. 
 So the children of Israel can't stand before their enemies. They turn their backs before their enemies, because they have become devoted for destruction. I will not be with you any more, unless you destroy the devoted things from among you. 

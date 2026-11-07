@@ -15,5 +15,5 @@ Now, behold, in my affliction I have prepared for God's house one hundred thousa
 There are also workmen with you in abundance, cutters and workers of stone and timber, and all kinds of men who are skillful in every kind of work; 
 of the gold, the silver, the bronze, and the iron, there is no number. Arise and be doing, and may God be with you." 
 David also commanded all the princes of Israel to help Solomon his son, saying, 
-"Isn't your God with you? Hasn't he given you rest on every side? For he has delivered the inhabitants of the land into my hand; and the land is subdued before God and before his people. 
+"Isn't your God with you? Hasn't he given you rest on every side? He has delivered the inhabitants of the land into my hand; and the land is subdued before God and before his people. 
 Now set your heart and your soul to follow your God. Arise, and build the sanctuary of God, to bring the ark of God's covenant and the holy vessels of God into the house that is to be built for God's name." 

@@ -7,19 +7,19 @@ They didn't say, 'Where is God who brought us up out of the land of Egypt, who l
 I brought you into a plentiful land to eat its fruit and its goodness; but when you entered, you defiled my land, and made my heritage an abomination. 
 The priests didn't say, 'Where is God?' and those who handle the law didn't know me. The rulers also transgressed against me, and the spokesmen prophesied by Baal and followed things that do not profit. 
 "So I will yet contend with you," says God, "and I will contend with your children's children. 
-For pass over to the islands of Kittim, and see. Send to Kedar, and consider diligently, and see if there has been such a thing. 
+Pass over to the islands of Kittim, and see. Send to Kedar, and consider diligently, and see if there has been such a thing. 
 Has a nation changed its gods, which really are no gods? But my people have changed their glory for that which doesn't profit. 
 "Be astonished, you skies, at this and be horribly afraid. Be very desolate," says God. 
-"For my people have committed two bad things: they have forsaken me, the spring of living waters, and cut out cisterns for themselves: broken cisterns that can't hold water. 
+"My people have committed two bad things: they have forsaken me, the spring of living waters, and cut out cisterns for themselves: broken cisterns that can't hold water. 
 Is Israel a slave? Is he born into slavery? Why has he become a captive? 
 The young lions have roared at him and raised their voices. They have made his land waste. His cities are burned up, without inhabitant. 
 The children also of Memphis and Tahpanhes have broken the crown of your head. 
 "Haven't you brought this on yourself, in that you have forsaken your God, when he led you by the way? 
 Now what do you gain by going to Egypt, to drink the waters of the Shihor? Or why do you go on the way to Assyria, to drink the waters of the River? 
 "Your own guilt will correct you, and your backsliding will rebuke you. Know and see that it is an bad and bitter thing, that you have forsaken your God, and that my fear is not in you," says the Lord, GOD of Armies. 
-"For long ago I broke off your yoke, and burst your bonds. You said, 'I will not serve;' for on every high hill and under every green tree you bowed yourself, playing the prostitute. 
+"Long ago I broke off your yoke, and burst your bonds. You said, 'I will not serve;' for on every high hill and under every green tree you bowed yourself, playing the prostitute. 
 Yet I had planted you a noble vine, a pure and faithful seed. How then have you turned into the degenerate branches of a foreign vine to me? 
-For though you wash yourself with lye, and use much soap, yet your guilt is marked before me," says God. 
+Though you wash yourself with lye, and use much soap, yet your guilt is marked before me," says God. 
 "How can you say, 'I am not defiled. I have not gone after the Baals'? See your way in the valley. Know what you have done. You are a swift dromedary traversing her ways, 
 a wild donkey used to the wilderness, that sniffs the wind in her craving. When she is in heat, who can turn her away? Everyone who seeks her will not weary themselves. In her month, they will find her. 
 "Keep your feet from being bare, and your throat from thirst. But you said, 'It is in vain. No, for I have loved strangers, and I will go after them.' 

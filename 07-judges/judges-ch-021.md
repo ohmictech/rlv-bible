@@ -6,7 +6,7 @@ The children of Israel said, "Who is there among all the tribes of Israel who di
 The children of Israel grieved for Benjamin their brother, and said, "There is one tribe cut off from Israel today. 
 How shall we provide wives for those who remain, since we have sworn by God that we will not give them of our daughters to wives?" 
 They said, "What one is there of the tribes of Israel who didn't come up to God to Mizpah?" Behold, no one came from Jabesh Gilead to the camp to the assembly. 
-For when the people were counted, behold, there were none of the inhabitants of Jabesh Gilead there. 
+When the people were counted, behold, there were none of the inhabitants of Jabesh Gilead there. 
 The congregation sent twelve thousand of the most valiant men there, and commanded them, saying, "Go and strike the inhabitants of Jabesh Gilead with the edge of the sword, with the women and the little ones. 
 This is the thing that you shall do: you shall utterly destroy every male, and every woman who has lain with a man." 
 They found among the inhabitants of Jabesh Gilead four hundred young virgins who had not known man by lying with him; and they brought them to the camp to Shiloh, which is in the land of Canaan. 

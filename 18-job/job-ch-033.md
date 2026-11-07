@@ -11,7 +11,7 @@ Behold, he finds occasions against me. He counts me for his enemy.
 He puts my feet in the stocks. He marks all my paths.' 
 "Behold, I will answer you. In this you are not just, for God is greater than man. 
 Why do you strive against him, because he doesn't give account of any of his matters? 
-For God speaks once, yes twice, though man pays no attention. 
+God speaks once, yes twice, though man pays no attention. 
 In a dream, in a vision of the night, when deep sleep falls on men, in slumbering on the bed, 
 then he opens the ears of men, and seals their instruction, 
 that he may withdraw man from his purpose, and hide pride from man. 

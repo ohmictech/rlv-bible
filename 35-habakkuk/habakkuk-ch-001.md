@@ -1,6 +1,6 @@
 ﻿The revelation which Habakkuk the spokesman saw. 
 God, how long will I cry, and you will not hear? I cry out to you "Violence!" and will you not save? 
-Why do you show me guilt, and look at perversity? For destruction and violence are before me. There is strife, and contention rises up. 
+Why do you show me guilt, and look at perversity? Destruction and violence are before me. There is strife, and contention rises up. 
 So the law is paralyzed, and justice never prevails; for the guilty surround the righteous; justice comes out perverted. 
 "Look among the nations, watch, and wonder marvelously; for I am working a work in your days which you will not believe though it is told you. 
 For, behold, I am raising up the Chaldeans, that bitter and hasty nation who march through the width of the earth, to possess dwelling places that are not theirs. 

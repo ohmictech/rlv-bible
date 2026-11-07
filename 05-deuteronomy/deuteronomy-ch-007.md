@@ -1,9 +1,9 @@
 ﻿When your God brings you into the land where you go to possess it, and casts out many nations before you, the Hittite, the Girgashite, the Amorite, the Canaanite, the Perizzite, the Hivite, and the Jebusite, seven nations greater and mightier than you; 
 and when your God delivers them up before you, and you strike them, then you shall utterly destroy them. You shall make no covenant with them, nor show mercy to them. 
 You shall not make marriages with them. You shall not give your daughter to his son, nor shall you take his daughter for your son. 
-For that would turn away your sons from following me, that they may serve other gods. So God's anger would be kindled against you, and he would destroy you quickly. 
+That would turn away your sons from following me, that they may serve other gods. So God's anger would be kindled against you, and he would destroy you quickly. 
 But you shall deal with them like this: you shall break down their altars, dash their pillars in pieces, cut down their Asherah poles, and burn their engraved images with fire. 
-For you are a holy people to your God. Your God has chosen you to be a people for his own possession, above all peoples who are on the face of the earth. 
+You are a holy people to your God. Your God has chosen you to be a people for his own possession, above all peoples who are on the face of the earth. 
 God didn't set his love on you nor choose you, because you were more in number than any people; for you were the fewest of all peoples; 
 but because God loves you, and because he desires to keep the oath which he swore to your fathers, God has brought you out with a mighty hand and bought back you out of the house of bondage, from the hand of Pharaoh king of Egypt. 
 Know that your God is the true the faithful God, who keeps covenant and loving kindness to a thousand generations with those who love him and keep his commandments, 

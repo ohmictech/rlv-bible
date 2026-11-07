@@ -15,4 +15,4 @@ sent and took Jeremiah out of the court of the guard, and committed him to Gedal
 Now God's word came to Jeremiah while he was shut up in the court of the guard, saying, 
 "Go, and speak to Ebedmelech the Ethiopian, saying, 'The God of Armies, the God of Israel says: "Behold, I will bring my words on this city for bad, and not for good; and they will be accomplished before you in that day. 
 But I will deliver you in that day," says God; "and you will not be given into the hand of the men of whom you are afraid. 
-For I will surely save you. You won't fall by the sword, but you will escape with your life, because you have put your trust in me," says God.'" 
+I will surely save you. You won't fall by the sword, but you will escape with your life, because you have put your trust in me," says God.'" 

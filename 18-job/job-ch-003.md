@@ -10,7 +10,7 @@ Let the stars of its twilight be dark. Let it look for light, but have none, nei
 because it didn't shut up the doors of my mother's womb, nor did it hide trouble from my eyes. 
 "Why didn't I die from the womb? Why didn't I give up the spirit when my mother bore me? 
 Why did the knees receive me? Or why the breast, that I should nurse? 
-For now I should have lain down and been quiet. I should have slept, then I would have been at rest, 
+Now I should have lain down and been quiet. I should have slept, then I would have been at rest, 
 with kings and counselors of the earth, who built up waste places for themselves; 
 or with princes who had gold, who filled their houses with silver; 
 or as a hidden untimely birth I had not been, as infants who never saw light. 
@@ -21,6 +21,6 @@ The small and the great are there. The servant is free from his master.
 who long for death, but it doesn't come; and dig for it more than for hidden treasures, 
 who rejoice exceedingly, and are glad, when they can find the grave? 
 Why is light given to a man whose way is hidden, whom God has hedged in? 
-For my sighing comes before I eat. My groanings are poured out like water. 
-For the thing which I fear comes on me, that which I am afraid of comes to me. 
+My sighing comes before I eat. My groanings are poured out like water. 
+The thing which I fear comes on me, that which I am afraid of comes to me. 
 I am not at ease, neither am I quiet, neither do I have rest; but trouble comes." 

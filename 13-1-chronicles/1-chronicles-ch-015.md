@@ -1,5 +1,5 @@
 ﻿David made himself houses in David's city; and he prepared a place for God's ark, and pitched a tent for it. 
-Then David said, "No one ought to carry God's ark but the Levites. For God has chosen them to carry God's ark, and to minister to him for the eras." 
+Then David said, "No one ought to carry God's ark but the Levites. God has chosen them to carry God's ark, and to minister to him for the eras." 
 David assembled all Israel at Jerusalem, to bring up God's ark to its place, which he had prepared for it. 
 David gathered together the sons of Aaron and the Levites: 
 of the sons of Kohath, Uriel the chief, and his brothers one hundred twenty; 
@@ -10,7 +10,7 @@ of the sons of Hebron, Eliel the chief, and his brothers eighty;
 of the sons of Uzziel, Amminadab the chief, and his brothers one hundred twelve. 
 David called for Zadok and Abiathar the priests, and for the Levites: for Uriel, Asaiah, Joel, Shemaiah, Eliel, and Amminadab, 
 and said to them, "You are the heads of the fathers' households of the Levites. Sanctify yourselves, both you and your brothers, that you may bring the ark of the God of Israel, up to the place that I have prepared for it. 
-For because you didn't carry it at first, our God broke out in anger against us, because we didn't seek him according to the ordinance." 
+Because you didn't carry it at first, our God broke out in anger against us, because we didn't seek him according to the ordinance." 
 So the priests and the Levites sanctified themselves to bring up the ark of the God of Israel. 
 The children of the Levites bore God's ark on their shoulders with its poles, as Moses commanded according to God's word. 
 David spoke to the chief of the Levites to appoint their brothers as singers with instruments of music, stringed instruments, harps, and cymbals, sounding aloud and lifting up their voices with joy. 

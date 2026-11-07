@@ -3,7 +3,7 @@ You have planted them. Yes, they have taken root. They grow. Yes, they produce f
 But you, God, know me. You see me, and test my heart toward you. Pull them out like sheep for the slaughter, and prepare them for the day of slaughter. 
 How long will the land mourn, and the herbs of the whole country wither? Because of the guilt of those who dwell therein, the animals and birds are consumed; because they said, "He won't see our latter end." 
 "If you have run with the footmen, and they have wearied you, then how can you contend with horses? Though in a land of peace you are secure, yet how will you do in the pride of the Jordan? 
-For even your brothers, and the house of your father, even they have dealt treacherously with you! Even they have cried aloud after you! Don't believe them, though they speak beautiful words to you. 
+Even your brothers, and the house of your father, even they have dealt treacherously with you! Even they have cried aloud after you! Don't believe them, though they speak beautiful words to you. 
 "I have forsaken my house. I have cast off my heritage. I have given the dearly beloved of my soul into the hand of her enemies. 
 My heritage has become to me as a lion in the forest. She has uttered her voice against me. So I have hated her. 
 Is my heritage to me as a speckled bird of prey? Are the birds of prey against her all around? Go, assemble all the animals of the field. Bring them to devour. 

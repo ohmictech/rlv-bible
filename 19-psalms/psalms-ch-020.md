@@ -1,4 +1,4 @@
-﻿For the Chief Musician. A Psalm by David. May God answer you in the day of trouble. May the name of the God of Jacob set you up on high, 
+﻿The Chief Musician. A Psalm by David. May God answer you in the day of trouble. May the name of the God of Jacob set you up on high, 
 send you help from the sanctuary, grant you support from Zion, 
 remember all your offerings, and accept your burned sacrifice. Selah. 
 May he grant you your heart's desire, and fulfill all your counsel. 

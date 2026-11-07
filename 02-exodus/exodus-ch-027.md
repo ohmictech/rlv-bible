@@ -9,11 +9,11 @@ You shall make it hollow with planks. They shall make it as it has been shown yo
 "You shall make the court of the tabernacle: for the south side southward there shall be hangings for the court of fine twined linen one hundred cubits long for one side. 
 Its pillars shall be twenty, and their sockets twenty, of bronze. The hooks of the pillars and their fillets shall be of silver. 
 Likewise for the length of the north side, there shall be hangings one hundred cubits long, and its pillars twenty, and their sockets twenty, of bronze; the hooks of the pillars, and their fillets, of silver. 
-For the width of the court on the west side shall be hangings of fifty cubits; their pillars ten, and their sockets ten. 
+The width of the court on the west side shall be hangings of fifty cubits; their pillars ten, and their sockets ten. 
 The width of the court on the east side eastward shall be fifty cubits. 
 The hangings for the one side of the gate shall be fifteen cubits; their pillars three, and their sockets three. 
-For the other side shall be hangings of fifteen cubits; their pillars three, and their sockets three. 
-For the gate of the court shall be a screen of twenty cubits, of blue, and purple, and scarlet, and fine twined linen, the work of the embroiderer; their pillars four, and their sockets four. 
+The other side shall be hangings of fifteen cubits; their pillars three, and their sockets three. 
+The gate of the court shall be a screen of twenty cubits, of blue, and purple, and scarlet, and fine twined linen, the work of the embroiderer; their pillars four, and their sockets four. 
 All the pillars of the court around shall be filleted with silver; their hooks of silver, and their sockets of bronze. 
 The length of the court shall be one hundred cubits, and the width fifty throughout, and the height five cubits, of fine twined linen, and their sockets of bronze. 
 All the instruments of the tabernacle in all its service, and all its pins, and all the pins of the court, shall be of bronze. 

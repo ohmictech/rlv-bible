@@ -5,7 +5,7 @@ Absalom said moreover, "Oh that I were made judge in the land, that every man wh
 It was so, that when any man came near to bow down to him, he stretched out his hand, took hold of him, and kissed him. 
 Absalom did this sort of thing to all Israel who came to the king for judgment. So Absalom stole the hearts of the men of Israel. 
 At the end of forty years, Absalom said to the king, "Please let me go and pay my vow, which I have vowed to God, in Hebron. 
-For your servant vowed a vow while I stayed at Geshur in Syria, saying, 'If God shall indeed bring me again to Jerusalem, then I will serve God.'" 
+Your servant vowed a vow while I stayed at Geshur in Syria, saying, 'If God shall indeed bring me again to Jerusalem, then I will serve God.'" 
 The king said to him, "Go in peace." So he arose and went to Hebron. 
 But Absalom sent spies throughout all the tribes of Israel, saying, "As soon as you hear the sound of the trumpet, then you shall say, 'Absalom is king in Hebron!'" 
 Two hundred men went with Absalom out of Jerusalem, who were invited, and went in their simplicity; and they didn't know anything. 

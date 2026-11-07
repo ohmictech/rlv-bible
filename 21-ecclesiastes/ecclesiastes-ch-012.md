@@ -11,4 +11,4 @@ The Preacher sought to find out acceptable words, and that which was written bla
 The words of the wise are like goads; and like nails well fastened are words from the masters of assemblies, which are given from one shepherd. 
 Furthermore, my son, be admonished: of making many books there is no end; and much study is a weariness of the flesh. 
 This is the end of the matter. All has been heard. Fear God and keep his commandments; for this is the whole duty of man. 
-For God will bring every work into judgment, with every hidden thing, whether it is good, or whether it is bad. 
+God will bring every work into judgment, with every hidden thing, whether it is good, or whether it is bad. 

@@ -1,5 +1,5 @@
 ﻿Who has believed our message? To whom has God's arm been revealed? 
-For he grew up before him as a tender plant, and as a root out of dry ground. He has no good looks or majesty. When we see him, there is no beauty that we should desire him. 
+He grew up before him as a tender plant, and as a root out of dry ground. He has no good looks or majesty. When we see him, there is no beauty that we should desire him. 
 He was despised and rejected by men, a man of suffering and acquainted with disease. He was despised as one from whom men hide their face; and we didn't respect him. 
 Surely he has borne our sickness and carried our suffering; yet we considered him plagued, struck by God, and afflicted. 
 But he was pierced for our rebellion. He was crushed for our guilt. The punishment that brought our peace was on him; and by his wounds we are healed. 

@@ -11,8 +11,8 @@ He who disciplines the nations, won't he punish? He who teaches man knows.
 God knows the thoughts of man, that they are futile. 
 Blessed is the man whom you discipline, God, and teach out of your law, 
 that you may give him rest from the days of adversity, until the pit is dug for the guilty. 
-For God won't reject his people, neither will he forsake his inheritance. 
-For judgment will return to righteousness. All the upright in heart shall follow it. 
+God won't reject his people, neither will he forsake his inheritance. 
+Judgment will return to righteousness. All the upright in heart shall follow it. 
 Who will rise up for me against the guilty? Who will stand up for me against the those who do bad? 
 Unless God had been my help, my soul would have soon lived in silence. 
 When I said, "My foot is slipping!" Your loving kindness, God, held me up. 

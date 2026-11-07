@@ -8,7 +8,7 @@ when I went out to the city gate, when I prepared my seat in the street.
 The young men saw me and hid themselves. The aged rose up and stood. 
 The princes refrained from talking, and laid their hand on their mouth. 
 The voice of the nobles was hushed, and their tongue stuck to the roof of their mouth. 
-For when the ear heard me, then it blessed me, and when the eye saw me, it commended me, 
+When the ear heard me, then it blessed me, and when the eye saw me, it commended me, 
 because I delivered the poor who cried, and the fatherless also, who had no one to help him, 
 the blessing of him who was ready to perish came on me, and I caused the widow's heart to driftg for joy. 
 I put on righteousness, and it clothed me. My justice was as a robe and a diadem. 

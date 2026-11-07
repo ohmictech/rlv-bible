@@ -21,7 +21,7 @@ Where then does wisdom come from? Where is the place of understanding?
 Seeing it is hidden from the eyes of all living, and kept close from the birds of the sky. 
 Destruction and Death say, 'We have heard a rumor of it with our ears.' 
 "God understands its way, and he knows its place. 
-For he looks to the ends of the earth, and sees under the whole sky. 
+He looks to the ends of the earth, and sees under the whole sky. 
 He establishes the force of the wind. Yes, he measures out the waters by measure. 
 When he made a decree for the rain, and a way for the lightning of the thunder, 
 then he saw it, and declared it. He established it, yes, and searched it out. 

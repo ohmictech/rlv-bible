@@ -2,7 +2,7 @@
 For, behold, your enemies are stirred up. Those who hate you have lifted up their heads. 
 They conspire with cunning against your people. They plot against your cherished ones. 
 "Come," they say, "let's destroy them as a nation, that the name of Israel may be remembered no more." 
-For they have conspired together with one mind. They form an alliance against you. 
+They have conspired together with one mind. They form an alliance against you. 
 The tents of Edom and the Ishmaelites; Moab, and the Hagrites; 
 Gebal, Ammon, and Amalek; Philistia with the inhabitants of Tyre; 
 Assyria also is joined with them. They have helped the children of Lot. Selah. 

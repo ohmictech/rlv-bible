@@ -3,13 +3,13 @@ It is better to go to the house of mourning than to go to the house of feasting;
 Sorrow is better than laughter; for by the sadness of the face the heart is made good. 
 The heart of the wise is in the house of mourning; but the heart of fools is in the house of mirth. 
 It is better to hear the rebuke of the wise than for a man to hear the song of fools. 
-For as the crackling of thorns under a pot, so is the laughter of the fool. This also is vanity. 
+As the crackling of thorns under a pot, so is the laughter of the fool. This also is vanity. 
 Surely extortion makes the wise man foolish; and a bribe destroys the understanding. 
 Better is the end of a thing than its beginning. The patient in spirit is better than the proud in spirit. 
 Don't be hasty in your spirit to be angry, for anger rests in the bosom of fools. 
 Don't say, "Why were the former days better than these?" For you do not ask wisely about this. 
 Wisdom is as good as an inheritance. Yes, it is more excellent for those who see the sun. 
-For wisdom is a defense, even as money is a defense; but the excellency of knowledge is that wisdom preserves the life of him who has it. 
+Wisdom is a defense, even as money is a defense; but the excellency of knowledge is that wisdom preserves the life of him who has it. 
 Consider the work of God, for who can make that straight which he has made crooked? 
 In the day of prosperity be joyful, and in the day of adversity consider; yes, God has made the one side by side with the other, to the end that man should not find out anything after him. 
 All this I have seen in my days of vanity: there is a righteous man who perishes in his righteousness, and there is a guilty man who lives long in his bad ways. 

@@ -3,11 +3,11 @@ so as to turn your ear to wisdom, and apply your heart to understanding;
 yes, if you call out for discernment, and lift up your voice for understanding; 
 if you seek her as silver, and search for her as for hidden treasures; 
 then you will understand the fear of God, and find the knowledge of God. 
-For God gives wisdom. Out of his mouth comes knowledge and understanding. 
+God gives wisdom. Out of his mouth comes knowledge and understanding. 
 He lays up sound wisdom for the upright. He is a shield to those who walk in integrity, 
 that he may guard the paths of justice, and preserve the way of his saints. 
 Then you will understand righteousness and justice, equity and every good path. 
-For wisdom will enter into your heart. Knowledge will be pleasant to your soul. 
+Wisdom will enter into your heart. Knowledge will be pleasant to your soul. 
 Discretion will watch over you. Understanding will keep you, 
 to deliver you from the way of bad, from the men who speak perverse things, 
 who forsake the paths of uprightness, to walk in the ways of darkness, 
@@ -18,5 +18,5 @@ who forsakes the friend of her youth, and forgets the covenant of her God;
 for her house leads down to death, her paths to the departed spirits. 
 None who go to her return again, neither do they attain to the paths of life. 
 So walk in the way of good men, and keep the paths of the righteous. 
-For the upright will dwell in the land. The perfect will remain in it. 
+The upright will dwell in the land. The perfect will remain in it. 
 But the guilty will be cut off from the land. The treacherous will be rooted out of it. 

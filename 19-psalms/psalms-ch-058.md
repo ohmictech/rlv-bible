@@ -1,4 +1,4 @@
-﻿For the Chief Musician. To the tune of "Do Not Destroy." A poem by David. Do you indeed speak righteousness, silent ones? Do you judge blamelessly, you sons of men? 
+﻿The Chief Musician. To the tune of "Do Not Destroy." A poem by David. Do you indeed speak righteousness, silent ones? Do you judge blamelessly, you sons of men? 
 No, in your heart you plot injustice. You measure out the violence of your hands on the earth. 
 The guilty go astray from the womb. They are wayward as soon as they are born, speaking lies. 
 Their poison is like the poison of a snake, like a deaf cobra that stops its ear, 

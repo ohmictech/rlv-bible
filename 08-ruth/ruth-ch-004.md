@@ -1,7 +1,7 @@
 ﻿Now Boaz went up to the gate and sat down there. Behold, the near kinsman of whom Boaz spoke came by. Boaz said to him, "Come over here, friend, and sit down!" He came over, and sat down. 
 Boaz took ten men of the elders of the city, and said, "Sit down here," and they sat down. 
 He said to the near kinsman, "Naomi, who has come back out of the country of Moab, is selling the parcel of land, which was our brother Elimelech's. 
-I thought I should tell you, saying, 'Buy it before those who sit here, and before the elders of my people.' If you will buy it back, buy it back; but if you will not buy it back, then tell me, that I may know. For there is no one to buy it back besides you; and I am after you." He said, "I will buy it back." 
+I thought I should tell you, saying, 'Buy it before those who sit here, and before the elders of my people.' If you will buy it back, buy it back; but if you will not buy it back, then tell me, that I may know. There is no one to buy it back besides you; and I am after you." He said, "I will buy it back." 
 Then Boaz said, "On the day you buy the field from the hand of Naomi, you must buy it also from Ruth the Moabitess, the wife of the dead, to raise up the name of the dead on his inheritance." 
 The near kinsman said, "I can't buy it back for myself, lest I endanger my own inheritance. Take my right of buying back for yourself; for I can't buy it back." 
 Now this was the custom in former time in Israel concerning buy backing and concerning exchanging, to confirm all things: a man took off his sandal, and gave it to his neighbor; and this was the way of formalizing transactions in Israel. 

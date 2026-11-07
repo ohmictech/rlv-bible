@@ -35,4 +35,4 @@ Then the cloud covered the Tent of Meeting, and God's glory filled the tabernacl
 Moses wasn't able to enter into the Tent of Meeting, because the cloud stayed on it, and God's glory filled the tabernacle. 
 When the cloud was taken up from over the tabernacle, the children of Israel went onward, throughout all their journeys; 
 but if the cloud wasn't taken up, then they didn't travel until the day that it was taken up. 
-For the cloud of God was on the tabernacle by day, and there was fire in the cloud by night, in the sight of all the house of Israel, throughout all their journeys. 
+The cloud of God was on the tabernacle by day, and there was fire in the cloud by night, in the sight of all the house of Israel, throughout all their journeys. 

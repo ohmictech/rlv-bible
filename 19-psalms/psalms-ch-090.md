@@ -1,12 +1,12 @@
 ﻿A Prayer by Moses, the man of God. Lord, you have been our dwelling place for all generations. 
 Before the mountains were born, before you had formed the earth and the world, even from perpetual to perpetual, you are God. 
 You turn man to destruction, saying, "Return, you children of men." 
-For a thousand years in your sight are just like yesterday when it is past, like a watch in the night. 
+A thousand years in your sight are just like yesterday when it is past, like a watch in the night. 
 You sweep them away as they sleep. In the morning they sprout like new grass. 
 In the morning it sprouts and springs up. By evening, it is withered and dry. 
-For we are consumed in your anger. We are troubled in your wrath. 
+We are consumed in your anger. We are troubled in your wrath. 
 You have set our guilt before you, our secret mistakes in the light of your presence. 
-For all our days have passed away in your wrath. We bring our years to an end as a sigh. 
+All our days have passed away in your wrath. We bring our years to an end as a sigh. 
 The days of our years are seventy, or even by reason of strength eighty years; yet their pride is but labor and sorrow, for it passes quickly, and we fly away. 
 Who knows the power of your anger, your wrath according to the fear that is due to you? 
 So teach us to count our days, that we may gain a heart of wisdom. 

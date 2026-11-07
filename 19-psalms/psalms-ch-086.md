@@ -2,15 +2,15 @@
 Preserve my soul, for I am godly. You, my God, save your servant who trusts in you. 
 Be merciful to me, Lord, for I call to you all day long. 
 Bring joy to the soul of your servant, for to you, Lord, do I lift up my soul. 
-For you, Lord, are good, and ready to forgive, abundant in loving kindness to everyone who calls on you. 
+You, Lord, are good, and ready to forgive, abundant in loving kindness to everyone who calls on you. 
 Hear, God, my prayer. Listen to the voice of my petitions. 
 In the day of my trouble I will call on you, for you will answer me. 
 There is no one like you among the gods, Lord, nor any deeds like your deeds. 
 All nations you have made will come and worship before you, Lord. They shall glorify your name. 
-For you are great, and do wondrous things. You are God alone. 
+You are great, and do wondrous things. You are God alone. 
 Teach me your way, God. I will walk in your truth. Make my heart undivided to fear your name. 
 I will praise you, Lord my God, with my whole heart. I will glorify your name for the eras more. 
-For your loving kindness is great toward me. You have delivered my soul from the lowest Hades. 
+Your loving kindness is great toward me. You have delivered my soul from the lowest Hades. 
 God, the proud have risen up against me. A company of violent men have sought after my soul, and they don't hold regard for you before them. 
 But you, Lord, are a merciful and gracious God, slow to anger, and abundant in loving kindness and truth. 
 Turn to me, and have mercy on me! Give your strength to your servant. Save the son of your servant. 

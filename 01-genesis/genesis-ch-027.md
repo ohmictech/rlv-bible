@@ -33,7 +33,7 @@ Isaac his father said to him, "Who are you?" He said, "I am your son, your first
 Isaac trembled violently, and said, "Who, then, is he who has taken venison, and brought it to me, and I have eaten of all before you came, and have blessed him? Yes, he will be blessed." 
 When Esau heard the words of his father, he cried with an exceedingly great and bitter cry, and said to his father, "Bless me, even me also, my father." 
 He said, "Your brother came with deceit, and has taken away your blessing." 
-He said, "Isn't he rightly named Jacob? For he has supplanted me these two times. He took away my birthright. See, now he has taken away my blessing." He said, "Haven't you reserved a blessing for me?" 
+He said, "Isn't he rightly named Jacob? He has supplanted me these two times. He took away my birthright. See, now he has taken away my blessing." He said, "Haven't you reserved a blessing for me?" 
 Isaac answered Esau, "Behold, I have made him your lord, and all his brothers I have given to him for servants. I have sustained him with grain and new wine. What then will I do for you, my son?" 
 Esau said to his father, "Do you have just one blessing, my father? Bless me, even me also, my father." Esau lifted up his voice, and wept. 
 Isaac his father answered him, "Behold, your dwelling will be of the fatness of the earth, and of the dew of the sky from above. 

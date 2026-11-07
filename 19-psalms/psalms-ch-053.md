@@ -1,4 +1,4 @@
-﻿For the Chief Musician. To the tune of "Mahalath." A contemplation by David. The fool has said in his heart, "There is no God." They are corrupt, and have done abominable guilt. There is no one who does good. 
+﻿The Chief Musician. To the tune of "Mahalath." A contemplation by David. The fool has said in his heart, "There is no God." They are corrupt, and have done abominable guilt. There is no one who does good. 
 God looks down from the sky on the children of men, to see if there are any who understood, who seek after God. 
 Every one of them has gone back. They have become filthy together. There is no one who does good, no, not one. 
 Have the workers of guilt no knowledge, who eat up my people as they eat bread, and don't call on God? 

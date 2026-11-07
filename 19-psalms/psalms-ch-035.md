@@ -4,7 +4,7 @@ Brandish the spear and block those who pursue me. Tell my soul, "I am your salva
 Let those who seek after my soul be disappointed and brought to dishonor. Let those who plot my ruin be turned back and confounded. 
 Let them be as chaff before the wind, God's messenger driving them on. 
 Let their way be dark and slippery, God's messenger pursuing them. 
-For without cause they have hidden their net in a pit for me. Without cause they have dug a pit for my soul. 
+Without cause they have hidden their net in a pit for me. Without cause they have dug a pit for my soul. 
 Let destruction come on him unawares. Let his net that he has hidden catch himself. Let him fall into that destruction. 
 My soul shall be joyful in God. It shall rejoice in his salvation. 
 All my bones shall say, "God, who is like you, who delivers the poor from him who is too strong for him; yes, the poor and the needy from him who robs him?" 
@@ -17,7 +17,7 @@ Like the profane mockers in feasts, they gnashed their teeth at me.
 Lord, how long will you look on? Rescue my soul from their destruction, my precious life from the lions. 
 I will give you thanks in the great assembly. I will praise you among many people. 
 Don't let those who are my enemies wrongfully rejoice over me; neither let those who hate me without a cause wink their eyes. 
-For they don't speak peace, but they devise deceitful words against those who are quiet in the land. 
+They don't speak peace, but they devise deceitful words against those who are quiet in the land. 
 Yes, they opened their mouth wide against me. They said, "Aha! Aha! Our eye has seen it!" 
 You have seen it, God. Don't keep silent. Lord, don't be far from me. 
 Wake up! Rise up to defend me, my God! My Lord, contend for me! 

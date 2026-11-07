@@ -1,5 +1,5 @@
 ﻿"I made a covenant with my eyes; how then should I look lustfully at a young woman? 
-For what is the portion from God above, and the heritage from the Almighty on high? 
+What is the portion from God above, and the heritage from the Almighty on high? 
 Is it not calamity to the unrighteous, and disaster to the workers of guilt? 
 Doesn't he see my ways, and count all my steps? 
 "If I have walked with falsehood, and my foot has hurried to deceit 
@@ -8,7 +8,7 @@ if my step has turned out of the way, if my heart walked after my eyes, if any d
 then let me sow, and let another eat. Yes, let the produce of my field be rooted out. 
 "If my heart has been enticed to a woman, and I have laid wait at my neighbor's door, 
 then let my wife grind for another, and let others sleep with her. 
-For that would be a heinous crime. Yes, it would be an guilt to be punished by the judges, 
+That would be a heinous crime. Yes, it would be an guilt to be punished by the judges, 
 for it is a fire that consumes to destruction, and would root out all my increase. 
 "If I have despised the cause of my male servant or of my female servant, when they contended with me, 
 what then will I do when God rises up? When he visits, what will I answer him? 
@@ -20,7 +20,7 @@ if I have seen any perish for want of clothing, or that the needy had no coverin
 if his heart hasn't blessed me, if he hasn't been warmed with my sheep's fleece; 
 if I have lifted up my hand against the fatherless, because I saw my help in the gate; 
 then let my shoulder fall from the shoulder blade, and my arm be broken from the bone. 
-For calamity from God is a terror to me. Because of his majesty, I can do nothing. 
+Calamity from God is a terror to me. Because of his majesty, I can do nothing. 
 "If I have made gold my hope, and have said to the fine gold, 'You are my confidence;' 
 If I have rejoiced because my wealth was great, and because my hand had gotten much; 
 if I have seen the sun when it shined, or the moon moving in splendor, 

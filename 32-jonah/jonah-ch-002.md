@@ -1,6 +1,6 @@
 ﻿Then Jonah prayed to God, his God, out of the fish's belly. 
 He said, "I called because of my affliction to God. He answered me. Out of the belly of Hades I cried. You heard my voice. 
-For you threw me into the depths, in the heart of the seas. The flood was all around me. All your waves and your billows passed over me. 
+You threw me into the depths, in the heart of the seas. The flood was all around me. All your waves and your billows passed over me. 
 I said, 'I have been banished from your sight; yet I will look again toward your holy temple.' 
 The waters surrounded me, even to the soul. The deep was around me. The weeds were wrapped around my head. 
 I went down to the bottoms of the mountains. The earth barred me in for the eras; yet you have brought my life up from the pit, God my God. 

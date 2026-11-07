@@ -1,8 +1,8 @@
-﻿For Zion's sake I will not hold my peace, and for Jerusalem's sake I will not rest, until her righteousness shines out like the dawn, and her salvation like a burning lamp. 
+﻿Zion's sake I will not hold my peace, and for Jerusalem's sake I will not rest, until her righteousness shines out like the dawn, and her salvation like a burning lamp. 
 The nations will see your righteousness, and all kings your glory. You will be called by a new name, which God's mouth will name. 
 You will also be a crown of beauty in God's hand, and a royal diadem in your God's hand. 
 You will not be called Forsaken any more, nor will your land be called Desolate any more; but you will be called Hephzibah, and your land Beulah; for God delights in you, and your land will be married. 
-For as a young man marries a virgin, so your sons will marry you. As a bridegroom rejoices over his bride, so your God will rejoice over you. 
+As a young man marries a virgin, so your sons will marry you. As a bridegroom rejoices over his bride, so your God will rejoice over you. 
 I have set watchmen on your walls, Jerusalem. They will never be silent day nor night. You who call on God, take no rest, 
 and give him no rest until he establishes, and until he makes Jerusalem a praise on the earth. 
 God has sworn by his right hand, and by the arm of his strength, "Surely I will no more give your grain to be food for your enemies, and foreigners will not drink your new wine, for which you have labored, 

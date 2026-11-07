@@ -1,7 +1,7 @@
 ﻿Now in the twelfth month, which is the month Adar, on the thirteenth day of the month, when the king's commandment and his decree came near to be put in execution, on the day that the enemies of the Jews hoped to conquer them, (but it turned out that the opposite happened, that the Jews conquered those who hated them), 
 the Jews gathered themselves together in their cities throughout all the provinces of the King Ahasuerus, to lay hands on those who wanted to harm them. No one could withstand them, because the fear of them had fallen on everyone. 
 All the princes of the provinces, the local governors, the governors, and those who did the king's business helped the Jews, because the fear of Mordecai had fallen on them. 
-For Mordecai was great in the king's house, and his fame went out throughout all the provinces, for the man Mordecai grew greater and greater. 
+Mordecai was great in the king's house, and his fame went out throughout all the provinces, for the man Mordecai grew greater and greater. 
 The Jews struck all their enemies with the stroke of the sword, and with slaughter and destruction, and did what they wanted to those who hated them. 
 In the citadel of Susa, the Jews killed and destroyed five hundred men. 
 They killed Parshandatha, Dalphon, Aspatha, 

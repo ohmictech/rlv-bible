@@ -6,7 +6,7 @@ When Baasha heard of it, he stopped building Ramah, and let his work cease.
 Then Asa the king took all Judah, and they carried away the stones and timber of Ramah, with which Baasha had built; and he built Geba and Mizpah with them. 
 At that time Hanani the seer came to Asa king of Judah, and said to him, "Because you have relied on the king of Syria, and have not relied on your God, the army of the king of Syria has escaped out of your hand. 
 Weren't the Ethiopians and the Lubim a huge army, with chariots and exceedingly many horsemen? Yet, because you relied on God, he delivered them into your hand. 
-For God's eyes run back and forth throughout the whole earth, to show himself strong in the behalf of them whose heart is perfect toward him. You have done foolishly in this; for from now on you will have wars." 
+God's eyes run back and forth throughout the whole earth, to show himself strong in the behalf of them whose heart is perfect toward him. You have done foolishly in this; for from now on you will have wars." 
 Then Asa was angry with the seer, and put him in the prison; for he was in a rage with him because of this thing. Asa oppressed some of the people at the same time. 
 Behold, the acts of Asa, first and last, behold, they are written in the book of the kings of Judah and Israel. 
 In the thirty-ninth year of his reign, Asa was diseased in his feet. His disease was exceedingly great; yet in his disease he didn't seek God, but just the physicians. 

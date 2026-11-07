@@ -14,7 +14,7 @@ Behold, he snatches away. Who can hinder him? Who will ask him, 'What are you do
 How much less will I answer him, and choose my words to argue with him? 
 Though I were righteous, yet I wouldn't answer him. I would make supplication to my judge. 
 If I had called, and he had answered me, yet I wouldn't believe that he listened to my voice. 
-For he breaks me with a storm, and multiplies my wounds without cause. 
+He breaks me with a storm, and multiplies my wounds without cause. 
 He will not allow me to catch my breath, but fills me with bitterness. 
 If it is a matter of strength, behold, he is mighty! If of justice, 'Who,' says he, 'will summon me?' 
 Though I am righteous, my own mouth will condemn me. Though I am blameless, it will prove me perverse. 
@@ -29,7 +29,7 @@ I am afraid of all my sorrows. I know that you will not hold me innocent.
 I will be condemned. Why then do I labor in vain? 
 If I wash myself with snow, and cleanse my hands with lye, 
 yet you will plunge me in the ditch. My own clothes will abhor me. 
-For he is not a man, as I am, that I should answer him, that we should come together in judgment. 
+He is not a man, as I am, that I should answer him, that we should come together in judgment. 
 There is no umpire between us, that might lay his hand on us both. 
 Let him take his rod away from me. Let his terror not make me afraid; 
 then I would speak, and not fear him, for I am not so in myself. 

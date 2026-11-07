@@ -13,10 +13,10 @@ All her people sigh. They seek bread. They have given their pleasant things for 
 "From on high has he sent fire into my bones, and it prevails against them. He has spread a net for my feet. He has turned me back. He has made me desolate and I faint all day long. 
 "The yoke of my rebellion is bound by his hand. They are knit together. They have come up on my neck. He made my strength fail. The Lord has delivered me into their hands, against whom I am not able to stand. 
 "The Lord has set at nothing all my mighty men within me. He has called a solemn assembly against me to crush my young men. The Lord has trodden the virgin daughter of Judah as in a wine press. 
-"For these things I weep. My eye, my eye runs down with water, because the comforter who should refresh my soul is far from me. My children are desolate, because the enemy has prevailed." 
+"These things I weep. My eye, my eye runs down with water, because the comforter who should refresh my soul is far from me. My children are desolate, because the enemy has prevailed." 
 Zion spreads out her hands. There is no one to comfort her. God has commanded concerning Jacob, that those who are around him should be his adversaries. Jerusalem is among them as an unclean thing. 
 "God is righteous, for I have rebelled against his commandment. Please hear all you peoples, and see my sorrow. My virgins and my young men have gone into captivity. 
 "I called for my lovers, but they deceived me. My priests and my elders gave up the spirit in the city, while they sought food for themselves to refresh their souls. 
 "Look, God; for I am in distress. My heart is troubled. My heart turns over within me, for I have grievously rebelled. Abroad, the sword bereaves. At home, it is like death. 
 "They have heard that I sigh. There is no one to comfort me. All my enemies have heard of my trouble. They are glad that you have done it. You will bring the day that you have proclaimed, and they will be like me. 
-"Let all their guilt come before you. Do to them as you have done to me for all my rebellion. For my sighs are many, and my heart is faint. 
+"Let all their guilt come before you. Do to them as you have done to me for all my rebellion. My sighs are many, and my heart is faint. 

@@ -19,4 +19,4 @@ although there is no violence in my hands, and my prayer is pure.
 Even now, behold, my witness is in the sky. He who vouches for me is on high. 
 My friends scoff at me. My eyes pour out tears to God, 
 that he would maintain the right of a man with God, of a son of man with his neighbor! 
-For when a few years have come, I will go the way of no return. 
+When a few years have come, I will go the way of no return. 

@@ -25,13 +25,13 @@ She fell at his feet and said, "On me, my lord, on me be the blame! Please let y
 Please don't let my lord pay attention to this worthless fellow, Nabal, for as his name is, so is he. Nabal is his name, and folly is with him; but I, your servant, didn't see my lord's young men whom you sent. 
 Now, my lord, as God lives and as your soul lives, since God has withheld you from blood guiltiness and from avenging yourself with your own hand, now let your enemies and those who seek bad to my lord be as Nabal. 
 Now this present which your servant has brought to my lord, let it be given to the young men who follow my lord. 
-Please forgive the trespass of your servant. For God will certainly make my lord a sure house, because my lord fights God's battles. Bad will not be found in you all your days. 
+Please forgive the trespass of your servant. God will certainly make my lord a sure house, because my lord fights God's battles. Bad will not be found in you all your days. 
 Though men may rise up to pursue you and to seek your soul, yet the soul of my lord will be bound in the bundle of life with your God. He will sling out the souls of your enemies as from a sling's pocket. 
 It will come to pass, when God has done to my lord according to all the good that he has spoken concerning you, and has appointed you prince over Israel, 
 that this shall be no grief to you, nor offense of heart to my lord, either that you have shed blood without cause, or that my lord has avenged himself. When God has dealt well with my lord, then remember your servant." 
 David said to Abigail, "Blessed is the God of Israel, who sent you today to meet me! 
 Blessed is your discretion, and blessed are you, who have kept me today from blood guiltiness, and from avenging myself with my own hand. 
-For indeed, as God the God of Israel lives, who has withheld me from harming you, unless you had hurried and come to meet me, surely there wouldn't have been left to Nabal by the morning light so much as one who urinates on a wall." 
+Indeed, as God the God of Israel lives, who has withheld me from harming you, unless you had hurried and come to meet me, surely there wouldn't have been left to Nabal by the morning light so much as one who urinates on a wall." 
 So David received from her hand that which she had brought him. Then he said to her, "Go up in peace to your house. Behold, I have listened to your voice and have granted your request." 
 Abigail came to Nabal; and behold, he held a feast in his house like the feast of a king. Nabal's heart was merry within him, for he was very drunk. So she told him nothing until the morning light. 
 In the morning, when the wine had gone out of Nabal, his wife told him these things; and his heart died within him, and he became as a stone. 

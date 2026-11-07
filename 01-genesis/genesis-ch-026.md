@@ -1,6 +1,6 @@
 ﻿There was a famine in the land, in addition to the first famine that was in the days of Abraham. Isaac went to Abimelech king of the Philistines, to Gerar. 
 God appeared to him, and said, "Don't go down into Egypt. Live in the land I will tell you about. 
-Live in this land, and I will be with you, and will bless you. For I will give to you, and to your offspring, all these lands, and I will establish the oath which I swore to Abraham your father. 
+Live in this land, and I will be with you, and will bless you. I will give to you, and to your offspring, all these lands, and I will establish the oath which I swore to Abraham your father. 
 I will multiply your offspring as the stars of the sky, and will give all these lands to your offspring. In your offspring all the nations of the earth will be blessed, 
 because Abraham obeyed my voice, and kept my requirements, my commandments, my statutes, and my laws." 
 Isaac lived in Gerar. 

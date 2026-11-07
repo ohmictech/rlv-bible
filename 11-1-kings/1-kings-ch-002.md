@@ -34,7 +34,7 @@ So their blood will return on the head of Joab and on the head of his offspring 
 Then Benaiah the son of Jehoiada went up and fell on him, and killed him; and he was buried in his own house in the wilderness. 
 The king put Benaiah the son of Jehoiada in his place over the army; and the king put Zadok the priest in the place of Abiathar. 
 The king sent and called for Shimei, and said to him, "Build yourself a house in Jerusalem, and live there, and don't go anywhere else. 
-For on the day you go out and pass over the brook Kidron, know for certain that you will surely die. Your blood will be on your own head." 
+On the day you go out and pass over the brook Kidron, know for certain that you will surely die. Your blood will be on your own head." 
 Shimei said to the king, "What you say is good. As my lord the king has said, so will your servant do." Shimei lived in Jerusalem many days. 
 At the end of three years, two of Shimei's slaves ran away to Achish, son of Maacah, king of Gath. They told Shimei, saying, "Behold, your slaves are in Gath." 
 Shimei arose, saddled his donkey, and went to Gath to Achish to seek his slaves; and Shimei went and brought his slaves from Gath. 

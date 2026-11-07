@@ -7,7 +7,7 @@ Now among these of the children of Judah were Daniel, Hananiah, Mishael, and Aza
 The prince of the eunuchs gave names to them: to Daniel he gave the name Belteshazzar; to Hananiah, Shadrach; to Mishael, Meshach; and to Azariah, Abednego. 
 But Daniel purposed in his heart that he would not defile himself with the king's delicacies, nor with the wine which he drank. So he requested of the prince of the eunuchs that he might not defile himself. 
 Now God made Daniel find kindness and compassion in the sight of the prince of the eunuchs. 
-The prince of the eunuchs said to Daniel, "I fear my lord the king, who has appointed your food and your drink. For why should he see your faces worse looking than the youths who are of your own age? Then you would endanger my head with the king." 
+The prince of the eunuchs said to Daniel, "I fear my lord the king, who has appointed your food and your drink. Why should he see your faces worse looking than the youths who are of your own age? Then you would endanger my head with the king." 
 Then Daniel said to the steward whom the prince of the eunuchs had appointed over Daniel, Hananiah, Mishael, and Azariah: 
 "Test your servants, I beg you, ten days; and let them give us vegetables to eat and water to drink. 
 Then let our faces be examined before you, and the face of the youths who eat of the king's delicacies; and as you see, deal with your servants." 

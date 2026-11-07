@@ -1,4 +1,4 @@
-﻿For the Chief Musician. To the tune of "The Lilies of the Covenant." A Psalm by Asaph. Hear us, Shepherd of Israel, you who lead Joseph like a flock, you who sit above the cherubim, shine out. 
+﻿The Chief Musician. To the tune of "The Lilies of the Covenant." A Psalm by Asaph. Hear us, Shepherd of Israel, you who lead Joseph like a flock, you who sit above the cherubim, shine out. 
 Before Ephraim, Benjamin, and Manasseh, stir up your might! Come to save us! 
 Turn us again, God. Cause your face to shine, and we will be saved. 
 God of Armies, how long will you be angry against the prayer of your people? 

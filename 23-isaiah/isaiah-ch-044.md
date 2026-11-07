@@ -1,6 +1,6 @@
 ﻿Yet listen now, Jacob my servant, and Israel, whom I have chosen. 
 This is what God who made you, and formed you from the womb, who will help you says: "Don't be afraid, Jacob my servant; and you, Jeshurun, whom I have chosen. 
-For I will pour water on him who is thirsty, and streams on the dry ground. I will pour my Spirit on your descendants, and my blessing on your offspring; 
+I will pour water on him who is thirsty, and streams on the dry ground. I will pour my Spirit on your descendants, and my blessing on your offspring; 
 and they will spring up among the grass, as willows by the watercourses. 
 One will say, 'I am God's.' Another will be called by the name of Jacob; and another will write with his hand 'to God,' and honor the name of Israel." 
 This is what God, the King of Israel, and the one who buys him back, the God of Armies says: "I am the first, and I am the last; and besides me there is no God. 

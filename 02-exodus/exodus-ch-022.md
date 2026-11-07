@@ -6,7 +6,7 @@ If the stolen property is found in his hand alive, whether it is ox, donkey, or 
 "If fire breaks out, and catches in thorns so that the shocks of grain, or the standing grain, or the field are consumed; he who kindled the fire shall surely make restitution. 
 "If a man delivers to his neighbor money or stuff to keep, and it is stolen out of the man's house, if the thief is found, he shall pay double. 
 If the thief isn't found, then the master of the house shall come near to God, to find out whether or not he has put his hand on his neighbor's goods. 
-For every matter of trespass, whether it is for ox, for donkey, for sheep, for clothing, or for any kind of lost thing, about which one says, 'This is mine,' the cause of both parties shall come before God. He whom God condemns shall pay double to his neighbor. 
+Every matter of trespass, whether it is for ox, for donkey, for sheep, for clothing, or for any kind of lost thing, about which one says, 'This is mine,' the cause of both parties shall come before God. He whom God condemns shall pay double to his neighbor. 
 "If a man delivers to his neighbor a donkey, an ox, a sheep, or any animal to keep, and it dies or is injured, or driven away, no man seeing it; 
 the oath of God shall be between them both, he has not put his hand on his neighbor's goods; and its owner shall accept it, and he shall not make restitution. 
 But if it is stolen from him, the one who stole shall make restitution to its owner. 

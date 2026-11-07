@@ -7,7 +7,7 @@ Who can stand before his indignation? Who can endure the fierceness of his anger
 God is good, a stronghold in the day of trouble; and he knows those who take refuge in him. 
 But with an overflowing flood, he will make a full end of her place, and will pursue his enemies into darkness. 
 What do you plot against God? He will make a full end. Affliction won't rise up the second time. 
-For entangled like thorns, and drunken as with their drink, they are consumed utterly like dry stubble. 
+Entangled like thorns, and drunken as with their drink, they are consumed utterly like dry stubble. 
 One has gone out of you who devises bad against God, who counsels guilt. 
 God says: "Though they are in full strength and likewise many, even so they will be cut down and pass away. Though I have afflicted you, I will afflict you no more. 
 Now I will break his yoke from off you, and will burst your bonds apart." 

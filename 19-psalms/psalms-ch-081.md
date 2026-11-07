@@ -1,7 +1,7 @@
-﻿For the Chief Musician. On an instrument of Gath. By Asaph. Sing aloud to God, our strength! Make a joyful shout to the God of Jacob! 
+﻿The Chief Musician. On an instrument of Gath. By Asaph. Sing aloud to God, our strength! Make a joyful shout to the God of Jacob! 
 Raise a song, and bring here the tambourine, the pleasant lyre with the harp. 
 Blow the trumpet at the New Moon, at the full moon, on our feast day. 
-For it is a statute for Israel, an ordinance of the God of Jacob. 
+It is a statute for Israel, an ordinance of the God of Jacob. 
 He appointed it in Joseph for a covenant, when he went out over the land of Egypt, I heard a language that I didn't know. 
 "I removed his shoulder from the burden. His hands were freed from the basket. 
 You called in trouble, and I delivered you. I answered you in the secret place of thunder. I tested you at the waters of Meribah." Selah. 

@@ -7,7 +7,7 @@ If you see the donkey of him who hates you fallen down under his burden, don't l
 "Keep far from a false charge, and don't kill the innocent and righteous; for I will not justify the guilty. 
 "You shall take no bribe, for a bribe blinds those who have sight and perverts the words of the righteous. 
 "You shall not oppress an alien, for you know the heart of an alien, since you were aliens in the land of Egypt. 
-"For six years you shall sow your land, and shall gather in its increase, 
+"Six years you shall sow your land, and shall gather in its increase, 
 but the seventh year you shall let it rest and lie fallow, that the poor of your people may eat; and what they leave the animal of the field shall eat. In the same way, you shall deal with your vineyard and with your olive grove. 
 "Six days you shall do your work, and on the seventh day you shall rest, that your ox and your donkey may have rest, and the son of your servant, and the alien may be refreshed. 
 "Be careful to do all things that I have said to you; and don't invoke the name of other gods or even let them be heard out of your mouth. 
@@ -20,7 +20,7 @@ You shall bring the first of the first fruits of your ground into the house of y
 "Behold, I send an messenger before you, to keep you by the way, and to bring you into the place which I have prepared. 
 Pay attention to him, and listen to his voice. Don't provoke him, for he will not pardon your disobedience, for my name is in him. 
 But if you indeed listen to his voice, and do all that I speak, then I will be an enemy to your enemies, and an adversary to your adversaries. 
-For my messenger shall go before you, and bring you in to the Amorite, the Hittite, the Perizzite, the Canaanite, the Hivite, and the Jebusite; and I will cut them off. 
+My messenger shall go before you, and bring you in to the Amorite, the Hittite, the Perizzite, the Canaanite, the Hivite, and the Jebusite; and I will cut them off. 
 You shall not bow down to their gods, nor serve them, nor follow their practices, but you shall utterly overthrow them and demolish their pillars. 
 You shall serve your God, and he will bless your bread and your water, and I will take sickness away from among you. 
 No one will miscarry or be barren in your land. I will fulfill the number of your days. 

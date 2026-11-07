@@ -4,7 +4,7 @@ But God came to Abimelech in a dream of the night, and said to him, "Behold, you
 Now Abimelech had not come near her. He said, "Lord, will you kill even a righteous nation? 
 Didn't he tell me, 'She is my sister'? She, even she herself, said, 'He is my brother.' I have done this in the integrity of my heart and the innocence of my hands." 
 God said to him in the dream, "Yes, I know that in the integrity of your heart you have done this, and I also withheld you from wronging me. So I didn't allow you to touch her. 
-Now, restore the man's wife. For he is a spokesman, and he will pray for you, and you will live. If you don't restore her, know for sure that you will die, you, and everyone who is yours." 
+Now, restore the man's wife. He is a spokesman, and he will pray for you, and you will live. If you don't restore her, know for sure that you will die, you, and everyone who is yours." 
 Abimelech rose early in the morning, and called all his servants, and told all these things in their ear. The men were very scared. 
 Then Abimelech called Abraham, and said to him, "What have you done to us? How have I wronged you, that you have brought on me and on my kingdom a great wrongdoing? You have done deeds to me that ought not to be done!" 
 Abimelech said to Abraham, "What did you see, that you have done this thing?" 
@@ -15,4 +15,4 @@ Abimelech took sheep and cattle, male servants and female servants, and gave the
 Abimelech said, "Behold, my land is before you. Dwell where it pleases you." 
 To Sarah he said, "Behold, I have given your brother a thousand pieces of silver. Behold, it is for you a covering of the eyes to all that are with you. In front of all you are vindicated." 
 Abraham prayed to God. So God healed Abimelech, his wife, and his female servants, and they bore children. 
-For God had closed up tight all the wombs of the house of Abimelech, because of Sarah, Abraham's wife. 
+God had closed up tight all the wombs of the house of Abimelech, because of Sarah, Abraham's wife. 

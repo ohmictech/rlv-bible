@@ -5,7 +5,7 @@ surely my lips will not speak unrighteousness, neither will my tongue utter dece
 Far be it from me that I should justify you. Until I die I will not put away my integrity from me. 
 I hold fast to my righteousness, and will not let it go. My heart will not reproach me so long as I live. 
 "Let my enemy be as the guilty. Let him who rises up against me be as the unrighteous. 
-For what is the hope of the godless, when he is cut off, when God takes away his life? 
+What is the hope of the godless, when he is cut off, when God takes away his life? 
 Will God hear his cry when trouble comes on him? 
 Will he delight himself in the Almighty, and call on God at all times? 
 I will teach you about the hand of God. I will not conceal that which is with the Almighty. 
@@ -19,5 +19,5 @@ He builds his house as the moth, as a booth which the watchman makes.
 He lies down rich, but he will not do so again. He opens his eyes, and he is not. 
 Terrors overtake him like waters. A storm steals him away in the night. 
 The east wind carries him away, and he departs. It sweeps him out of his place. 
-For it hurls at him, and does not spare, as he flees away from his hand. 
+It hurls at him, and does not spare, as he flees away from his hand. 
 Men will clap their hands at him, and will hiss him out of his place. 

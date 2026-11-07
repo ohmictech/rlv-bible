@@ -45,7 +45,7 @@ These are those who were counted, whom Moses and Aaron counted, and the twelve m
 So everyone who was counted of the children of Israel by their fathers' houses, from twenty years old and upward, everyone who was able to go out to war in Israel 
 all those who were counted were six hundred three thousand five hundred fifty. 
 But the Levites after the tribe of their fathers were not counted among them. 
-For God spoke to Moses, saying, 
+God spoke to Moses, saying, 
 "Only the tribe of Levi you shall not count, neither shall you take a census of them among the children of Israel; 
 but appoint the Levites over the Tabernacle of the Testimony, and over all its furnishings, and over all that belongs to it. They shall carry the tabernacle and all its furnishings; and they shall take care of it, and shall encamp around it. 
 When the tabernacle is to move, the Levites shall take it down; and when the tabernacle is to be set up, the Levites shall set it up. The stranger who comes near shall be put to death. 

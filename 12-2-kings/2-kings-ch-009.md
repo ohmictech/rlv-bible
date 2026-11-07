@@ -5,7 +5,7 @@ So the young man, the young spokesman, went to Ramoth Gilead.
 When he came, behold, the captains of the army were sitting. Then he said, "I have a message for you, captain." Jehu said, "To which one of us?" He said, "To you, O captain." 
 He arose, and went into the house. Then he poured the oil on his head, and said to him, "The God of Israel says, 'I have anointed you king over the people of God, even over Israel. 
 You must strike your master Ahab's house, that I may avenge the blood of my servants the spokesmen, and the blood of all the servants of God, at the hand of Jezebel. 
-For the whole house of Ahab will perish. I will cut off from Ahab everyone who urinates against a wall, both him who is shut up and him who is left at large in Israel. 
+The whole house of Ahab will perish. I will cut off from Ahab everyone who urinates against a wall, both him who is shut up and him who is left at large in Israel. 
 I will make Ahab's house like the house of Jeroboam the son of Nebat, and like the house of Baasha the son of Ahijah. 
 The dogs will eat Jezebel on the plot of ground of Jezreel, and there shall be no one to bury her.'" Then he opened the door and fled. 
 When Jehu came out to the servants of his lord and one said to him, "Is all well? Why did this madman come to you?" He said to them, "You know the man and how he talks." 

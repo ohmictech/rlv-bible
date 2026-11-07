@@ -4,7 +4,7 @@ They received from Moses all the offering which the children of Israel had broug
 All the wise men, who performed all the work of the sanctuary, each came from his work which he did. 
 They spoke to Moses, saying, "The people have brought much more than enough for the service of the work which God commanded to make." 
 Moses gave a commandment, and they caused it to be proclaimed throughout the camp, saying, "Let neither man nor woman make anything else for the offering for the sanctuary." So the people were restrained from bringing. 
-For the stuff they had was sufficient to do all the work, and too much. 
+The stuff they had was sufficient to do all the work, and too much. 
 All the wise-hearted men among those who did the work made the tabernacle with ten curtains of fine twined linen, blue, purple, and scarlet. They made them with cherubim, the work of a skillful workman. 
 The length of each curtain was twenty-eight cubits, and the width of each curtain four cubits. All the curtains had one measure. 
 He coupled five curtains to one another, and the other five curtains he coupled to one another. 
@@ -22,9 +22,9 @@ Ten cubits was the length of a board, and a cubit and a half the width of each b
 Each board had two tenons, joined to one another. He made all the boards of the tabernacle this way. 
 He made the boards for the tabernacle, twenty boards for the south side southward. 
 He made forty sockets of silver under the twenty boards: two sockets under one board for its two tenons, and two sockets under another board for its two tenons. 
-For the second side of the tabernacle, on the north side, he made twenty boards 
+The second side of the tabernacle, on the north side, he made twenty boards 
 and their forty sockets of silver: two sockets under one board, and two sockets under another board. 
-For the far part of the tabernacle westward he made six boards. 
+The far part of the tabernacle westward he made six boards. 
 He made two boards for the corners of the tabernacle in the far part. 
 They were double beneath, and in the same way they were all the way to its top to one ring. He did this to both of them in the two corners. 
 There were eight boards and their sockets of silver, sixteen sockets, under every board two sockets. 

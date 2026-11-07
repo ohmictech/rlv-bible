@@ -8,10 +8,10 @@ then his master will bring him to God, and will bring him to the door or to the 
 If she doesn't please her master, who has married her to himself, then he will let her be bought back. He will have no right to sell her to a foreign people, since he has dealt deceitfully with her. 
 If he marries her to his son, he will deal with her as a daughter. 
 If he takes another wife to himself, he won't diminish her food, her clothing, and her marital rights. 
-If he doesn't do these three things for her, she may go free without paying any money. 
+If he doesn't do these three things for her, she can go free without paying any money. 
 "One who strikes a man so that he dies will surely be put to death, 
 but not if it's unintentional, but God allows it to happen; then I'll appoint you a place where he will flee. 
-If a man schemes and comes presumptuously on his neighbor to kill him, you will take him from my altar, that he may die. 
+If a man schemes and comes presumptuously on his neighbor to kill him, you will take him from my altar, that he can die. 
 "Anyone who attacks his father or his mother will be surely put to death. 
 "Anyone who kidnaps someone and sells him, or if he's found in his hand, he will surely be put to death. 
 "Anyone who curses his father or his mother will surely be put to death. 

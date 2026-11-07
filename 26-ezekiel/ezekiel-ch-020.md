@@ -17,7 +17,7 @@ because they rejected my ordinances, and didn't walk in my statutes, and profane
 Nevertheless my eye spared them, and I didn't destroy them. I didn't make a full end of them in the wilderness. 
 I said to their children in the wilderness, 'Don't walk in the statutes of your fathers. Don't observe their ordinances or defile yourselves with their idols. 
 I'm your God. Walk in my statutes, keep my ordinances, and do them. 
-Make my Sabbaths holy. They will be a sign between me and you, that you may know that I'm your God.' 
+Make my Sabbaths holy. They will be a sign between me and you, that you can know that I'm your God.' 
 "'"But the children rebelled against me. They didn't walk in my statutes, and didn't keep my ordinances to do them, which if a man does, he will live in them. They profaned my Sabbaths. Then I said I'd pour out my wrath on them, to accomplish my anger against them in the wilderness. 
 Nevertheless I withdrew my hand and worked for my name's sake, that it shouldn't be profaned in the sight of the nations, in whose sight I brought them out. 
 Moreover I swore to them in the wilderness, that I'd scatter them among the nations and disperse them through the countries, 

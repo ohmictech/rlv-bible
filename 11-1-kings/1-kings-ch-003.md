@@ -6,7 +6,7 @@ In Gibeon, God appeared to Solomon in a dream by night; and God said, "Ask for w
 Solomon said, "You have shown to your servant David my father great loving kindness, because he walked before you in truth, in righteousness, and in uprightness of heart with you. You have kept for him this great loving kindness, that you have given him a son to sit on his throne, as it's today. 
 Now, God my God, you have made your servant king instead of David my father. I'm just a little child. I don't know how to go out or come in. 
 Your servant is among your people which you have chosen, a great people, that can't be numbered or counted for multitude. 
-Give your servant an understanding heart to judge your people, that I may discern between good and bad; for who's able to judge this great people of yours?" 
+Give your servant an understanding heart to judge your people, that I can discern between good and bad; for who's able to judge this great people of yours?" 
 This request pleased the Lord, that Solomon had asked this thing. 
 God said to him, "Because you have asked this thing, and haven't asked for yourself long life, nor have you asked for riches for yourself, nor have you asked for the life of your enemies, but have asked for yourself understanding to discern justice, 
 Look, I have done according to your word. Look, I have given you a wise and understanding heart, so that there has been no one like you before you, and after you none will arise like you. 

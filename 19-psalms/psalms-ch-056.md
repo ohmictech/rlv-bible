@@ -10,4 +10,4 @@ Then my enemies will turn back in the day that I call. I know this: that God is 
 In God, I'll praise his word. In God, I'll praise his word. 
 I have put my trust in God. I won't be afraid. What can man do to me? 
 Your vows are on me, God. I'll give thank offerings to you. 
-You have delivered my soul from death, and prevented my feet from falling, that I may walk before God in the light of the living. 
+You have delivered my soul from death, and prevented my feet from falling, that I can walk before God in the light of the living. 

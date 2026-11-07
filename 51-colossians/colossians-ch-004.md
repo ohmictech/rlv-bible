@@ -9,7 +9,7 @@ I'm sending him to you for this very reason, so that he can find out how you're 
 I'm sending him with Onesimus, our trustworthy and truly loved brother, who's one of you. They'll tell you everything that's going on here. 
 Aristarchus, who's in prison with me, greets you, and so does Mark, Barnabas' cousin. You have already received instructions about him: if he comes to you, welcome him. 
 Jesus, who's called Justus, also greets you. These are the only ones of the circumcision who work with me for God's reign, and they have been a comfort to me. 
-Epaphras, one of your own number and a slave of Christ Jesus, greets you. He's always struggling for you in his prayers, that you may stand mature and fully convinced in everything God wants. 
+Epaphras, one of your own number and a slave of Christ Jesus, greets you. He's always struggling for you in his prayers, that you can stand mature and fully convinced in everything God wants. 
 I can testify about him that he has worked very hard for you, and for those in Laodicea and Hierapolis. 
 Luke, the truly loved doctor, and Demas greet you. 
 Greet the brothers and sisters in Laodicea, and Nymphas, and the gathering that meets in his house. 

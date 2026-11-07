@@ -7,7 +7,7 @@ My sheep wandered through all the mountains and on every high hill. Yes, my shee
 "'Therefore, you shepherds, hear God's word: 
 "As I live," says God, "surely because my sheep became a prey, and my sheep became food to all the animals of the field, because there was no shepherd, and my shepherds didn't search for my sheep, but the shepherds fed themselves, and didn't feed my sheep, 
 So, you shepherds, hear God's word!" 
-The God says: "Look, I'm against the shepherds. I'll require my sheep at their hand, and cause them to cease from feeding the sheep. The shepherds won't feed themselves any more. I'll deliver my sheep from their mouth, that they may not be food for them." 
+The God says: "Look, I'm against the shepherds. I'll require my sheep at their hand, and cause them to cease from feeding the sheep. The shepherds won't feed themselves any more. I'll deliver my sheep from their mouth, that they can't be food for them." 
 "'For God says: "Look, I myself, even I, will search for my sheep, and will seek them out. 
 As a shepherd seeks out his flock in the day that he's among his sheep that are scattered abroad, so I'll seek out my sheep. I'll deliver them out of all places where they have been scattered in the cloudy and dark day. 
 I'll bring them out from the peoples, and gather them from the countries, and will bring them into their own land. I'll feed them on the mountains of Israel, by the watercourses, and in all the inhabited places of the country. 

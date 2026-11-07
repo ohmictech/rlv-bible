@@ -9,7 +9,7 @@ But Zadok the priest, Benaiah the son of Jehoiada, Nathan the spokesman, Shimei,
 Adonijah killed sheep, cattle, and fatlings by the stone of Zoheleth, which is beside En Rogel; and he called all his brothers, the king's sons, and all the men of Judah, the king's servants; 
 but he didn't call Nathan the spokesman, and Benaiah, and the mighty men, and Solomon his brother. 
 Then Nathan spoke to Bathsheba the mother of Solomon, saying, "Haven't you heard that Adonijah the son of Haggith reigns, and David our lord doesn't know it? 
-Now come, please let me give you counsel, that you may save your own life and your son Solomon's life. 
+Now come, please let me give you counsel, that you can save your own life and your son Solomon's life. 
 Go in to King David, and tell him, 'Didn't you, my lord the king, swear to your servant, saying, "Assuredly Solomon your son will reign after me, and he will sit on my throne"? Why then does Adonijah reign?' 
 Look, while you're still talking there with the king, I'll also come in after you and confirm your words." 
 Bathsheba went in to the king in his room. The king was very old; and Abishag the Shunammite was serving the king. 

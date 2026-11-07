@@ -10,7 +10,7 @@ but they'll serve their God, and David their king, whom I'll raise up to them.
 So don't be afraid, O Jacob my servant, says God. Don't be dismayed, Israel. For, look, I'll save you from afar, and save your offspring from the land of their captivity. Jacob will return, and will be quiet and at ease. No one will make him afraid. 
 I'm with you, says God, to save you; for I'll make a full end of all the nations where I have scattered you, but I won't make a full end of you; but I'll correct you in measure, and will in no way leave you unpunished." 
 God says, "Your hurt is incurable. Your wound is grievous. 
-There's no one to plead your cause, that you may be bound up. You have no healing medicines. 
+There's no one to plead your cause, that you can be bound up. You have no healing medicines. 
 All your lovers have forgotten you. They don't seek you. I have wounded you with the wound of an enemy, with the chastisement of a cruel one, for the greatness of your guilt, because your mistakes were increased. 
 Why do you cry over your injury? Your pain is incurable. The greatness of your guilt, because your mistakes have increased, I have done these things to you. 
 So everyone who devours you'll be devoured. All your adversaries, everyone of them, will go into captivity. Those who plunder you'll be plunder. I'll make everyone who preys on you become prey. 

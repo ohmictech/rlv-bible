@@ -17,6 +17,6 @@ Will I wait, because they don't speak, because they stand still, and answer no m
 I also will answer my part, and I also will show my opinion. 
 I'm full of words. The spirit within me constrains me. 
 Look, my breast is as wine which has no vent; like new wineskins it's ready to burst. 
-I'll speak, that I may be refreshed. I'll open my lips and answer. 
+I'll speak, that I can be refreshed. I'll open my lips and answer. 
 Please don't let me respect any man's person, neither will I give flattering titles to any man. 
 I don't know how to give flattering titles, or else my Maker would soon take me away. 

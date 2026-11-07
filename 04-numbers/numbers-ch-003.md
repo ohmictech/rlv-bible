@@ -3,7 +3,7 @@ These are the names of the sons of Aaron: Nadab the firstborn, and Abihu, Eleaza
 These are the names of the sons of Aaron, the priests who were anointed, whom he consecrated to minister in the priest's office. 
 Nadab and Abihu died before God when they offered strange fire before God in the wilderness of Sinai, and they had no children. Eleazar and Ithamar ministered in the priest's office in the presence of Aaron their father. 
 God spoke to Moses, saying, 
-"Bring the tribe of Levi near, and set them before Aaron the priest, that they may minister to him. 
+"Bring the tribe of Levi near, and set them before Aaron the priest, that they can minister to him. 
 They will keep his requirements, and the requirements of the whole congregation before the Tent of Meeting, to do the service of the tabernacle. 
 They will keep all the furnishings of the Tent of Meeting, and the obligations of the children of Israel, to do the service of the tabernacle. 
 You will give the Levites to Aaron and to his sons. They're wholly given to him on the behalf of the children of Israel. 

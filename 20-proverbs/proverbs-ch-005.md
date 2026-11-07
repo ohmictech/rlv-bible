@@ -1,5 +1,5 @@
 ﻿My son, pay attention to my wisdom. Turn your ear to my understanding, 
-that you may maintain discretion, that your lips may preserve knowledge. 
+that you can maintain discretion, that your lips may preserve knowledge. 
 The lips of an adulteress drip honey. Her mouth is smoother than oil, 
 but in the end she's as bitter as wormwood, and as sharp as a two-edged sword. 
 Her feet go down to death. Her steps lead straight to Hades. 

@@ -17,7 +17,7 @@ By trust in his name, his name has made this man strong, whom you see and know. 
 "Now, brothers and sisters, I know that you did this in ignorance, as did also your rulers. 
 But the things which God announced by the mouth of all his spokesmen, that Christ should suffer, he thus fulfilled. 
 "Have a change of heart, and turn again, that your mistakes can be blotted out, so that there can come times of refreshing from the presence of the Lord, 
-and that he may send Christ Jesus, who was ordained for you before, 
+and that he can send Christ Jesus, who was ordained for you before, 
 whom the sky must receive until the times of restoration of all things, which God spoke long ago by the mouth of his set-apart spokesmen. 
 Moses indeed said to the fathers, 'The Lord God will raise up a spokesman for you from among your brothers, like me. You will listen to him in all things whatever he says to you. 
 It'll be that every person that won't listen to that spokesman will be rooted out from among the people.' 

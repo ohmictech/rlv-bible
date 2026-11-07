@@ -19,7 +19,7 @@ I commanded you at that time all the things which you should do.
 We traveled from Horeb and went through all that great and terrible wilderness which you saw, by the way to the hill country of the Amorites, as our God commanded us; and we came to Kadesh Barnea. 
 I said to you, "You have come to the hill country of the Amorites, which our God gives to us. 
 Look, your God has set the land before you. Go up, take possession, as God the God of your fathers has spoken to you. Don't be afraid, neither be dismayed." 
-You came near to me, everyone of you, and said, "Let's send men before us, that they may search the land for us, and bring back to us word of the way by which we must go up, and the cities to which we will come." 
+You came near to me, everyone of you, and said, "Let's send men before us, that they can search the land for us, and bring back to us word of the way by which we must go up, and the cities to which we will come." 
 The thing pleased me well. I took twelve of your men, one man for every tribe. 
 They turned and went up into the hill country, and came to the valley of Eshcol, and spied it out. 
 They took some of the fruit of the land in their hands and brought it down to us, and brought us word again, and said, "It's a good land which our God gives to us." 

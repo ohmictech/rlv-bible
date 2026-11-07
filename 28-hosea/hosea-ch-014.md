@@ -6,4 +6,4 @@ I'll be like the dew to Israel. He'll blossom like the lily, and send down his r
 His branches will spread, and his beauty will be like the olive tree, and his fragrance like Lebanon. 
 Men will dwell in his shade. They'll revive like the grain, and blossom like the vine. Their fragrance will be like the wine of Lebanon. 
 Ephraim, what have I to do any more with idols? I answer, and will take care of him. I'm like a green cypress tree; from me your fruit is found." 
-Who's wise, that he may understand these things? Who's prudent, that he may know them? The ways of God are right, and the righteous walk in them, but the rebellious stumble in them. 
+Who's wise, that he can understand these things? Who's prudent, that he can know them? The ways of God are right, and the righteous walk in them, but the rebellious stumble in them. 

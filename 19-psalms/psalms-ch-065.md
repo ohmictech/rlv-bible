@@ -1,7 +1,7 @@
 ﻿The Chief Musician. A Psalm by David. A song. Praise waits for you, God, in Zion. Vows will be performed to you. 
 You who hear prayer, everyone will come to you. 
 Mistakes overwhelmed me, but you atoned for our rebellion. 
-Blessed is the one whom you choose and cause to come near, that he may live in your courts. We'll be filled with the goodness of your house, your holy temple. 
+Blessed is the one whom you choose and cause to come near, that he can live in your courts. We'll be filled with the goodness of your house, your holy temple. 
 By awesome deeds of righteousness, you answer us, God of our salvation. You who are the hope of all the ends of the earth, of those who are far away on the sea. 
 By your power, you form the mountains, having armed yourself with strength. 
 You still the roaring of the seas, the roaring of their waves, and the turmoil of the nations. 

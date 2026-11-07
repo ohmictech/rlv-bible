@@ -13,7 +13,7 @@ Amasa lay wallowing in his blood in the middle of the highway. When the man saw 
 When he was removed out of the highway, everyone went on after Joab to pursue Sheba the son of Bichri. 
 He went through all the tribes of Israel to Abel, to Beth Maacah, and all the Berites. They were gathered together, and went also after him. 
 They came and besieged him in Abel of Beth Maacah, and they cast up a mound against the city, and it stood against the rampart; and everyone who was with Joab battered the wall to throw it down. 
-Then a wise woman cried out of the city, "Hear, hear! Please say to Joab, 'Come near here, that I may speak with you.'" 
+Then a wise woman cried out of the city, "Hear, hear! Please say to Joab, 'Come near here, that I can speak with you.'" 
 He came near to her; and the woman said, "Are you Joab?" He answered, "I'm." Then she said to him, "Hear the words of your servant." He answered, "I'm listening." 
 Then she spoke, saying, "They used to say in old times, 'They will surely ask counsel at Abel,' and so they settled a matter. 
 I'm among those who are peaceable and faithful in Israel. You seek to destroy a city and a mother in Israel. Why will you swallow up God's inheritance?" 

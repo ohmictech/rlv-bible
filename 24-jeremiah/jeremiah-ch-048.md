@@ -6,7 +6,7 @@ They'll go up by the ascent of Luhith with continual weeping. At the descent of 
 Flee! Save your lives! Be like the juniper bush in the wilderness. 
 For, because you have trusted in your works and in your treasures, you also will be taken. Chemosh will go out into captivity, his priests and his princes together. 
 The destroyer will come on every city, and no city will escape; the valley also will perish, and the plain will be destroyed, as God has spoken. 
-Give wings to Moab, that she may fly and get herself away: and her cities will become a desolation, without anyone to dwell in them. 
+Give wings to Moab, that she can fly and get herself away: and her cities will become a desolation, without anyone to dwell in them. 
 "Cursed is he who does the work of God negligently; and cursed is he who keeps back his sword from blood. 
 "Moab has been at ease from his youth, and he has settled on his dregs, and hasn't been emptied from vessel to vessel, neither has he gone into captivity; his taste remains in him, and his scent isn't changed. 
 Look, the days come," says God, "that I'll send to him those who pour off, and they'll pour him off; and they'll empty his vessels, and break their containers in pieces. 

@@ -4,7 +4,7 @@ Then I took Jaazaniah the son of Jeremiah, the son of Habazziniah, with his brot
 and I brought them into God's house, into the room of the sons of Hanan the son of Igdaliah, the man of God, which was by the room of the princes, which was above the room of Maaseiah the son of Shallum, the keeper of the threshold. 
 I set before the sons of the house of the Rechabites bowls full of wine, and cups; and I said to them, "Drink wine!" 
 But they said, "We'll drink no wine; for Jonadab the son of Rechab, our father, commanded us, saying, 'You will drink no wine, neither you nor your children, for the eras. 
-You won't build a house, sow seed, plant a vineyard, or have any; but all your days you will dwell in tents, that you may live many days in the land in which you live as nomads.' 
+You won't build a house, sow seed, plant a vineyard, or have any; but all your days you will dwell in tents, that you can live many days in the land in which you live as nomads.' 
 We have obeyed the voice of Jonadab the son of Rechab, our father, in all that he commanded us, to drink no wine all our days, we, our wives, our sons, or our daughters; 
 and not to build houses for ourselves to dwell in. We have no vineyard, field, or seed; 
 but we have lived in tents, and have obeyed, and done according to all that Jonadab our father commanded us. 

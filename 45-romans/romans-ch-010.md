@@ -1,4 +1,4 @@
-﻿Brothers, my heart's desire and my prayer to God is for Israel, that they may be rescued. 
+﻿Brothers, my heart's desire and my prayer to God is for Israel, that they can be rescued. 
 I testify about them that they have a passion for God, but not according to knowledge. 
 Being ignorant of God's rightness, and seeking to establish their own rightness, they didn't subject themselves to the rightness of God. 
 Christ is the fulfillment of the law for rightness to everyone who trusts. 

@@ -20,7 +20,7 @@ Didn't Moses give you the law, and yet none of you keeps the law? Why do you see
 The crowd answered, "You have an unclean spirit! Who seeks to kill you?" 
 Jesus answered them, "I did one deed, and you're all amazed because of it. 
 Moses has given you circumcision (not that it's of Moses, but of the fathers), and on the Sabbath you circumcise a boy. 
-If a boy receives circumcision on the Sabbath, that the law of Moses may not be broken, are you angry with me because I made a whole man healthy on the Sabbath? 
+If a boy receives circumcision on the Sabbath, that the law of Moses can't be broken, are you angry with me because I made a whole man healthy on the Sabbath? 
 Don't pass a verdict by appearances, but pass a right verdict." 
 So some of them of Jerusalem said, "Isn't this he whom they seek to kill? 
 Look, he speaks openly, and they say nothing to him. Can it be that the rulers indeed know that this is truly the Christ? 

@@ -3,14 +3,14 @@ Moses called to all Israel, and said to them: Your eyes have seen all that God d
 the great trials which your eyes saw, the signs, and those great wonders. 
 But God hasn't given you a heart to know, eyes to see, and ears to hear, to this day. 
 I have led you forty years in the wilderness. Your clothes haven't grown old on you, and your sandals haven't grown old on your feet. 
-You haven't eaten bread, neither have you drunk wine or strong drink, that you may know that I'm your God. 
+You haven't eaten bread, neither have you drunk wine or strong drink, that you can know that I'm your God. 
 When you came to this place, Sihon the king of Heshbon and Og the king of Bashan came out against us to battle, and we struck them. 
 We took their land, and gave it for an inheritance to the Reubenites, and to the Gadites, and to the half-tribe of the Manassites. 
-So keep the words of this covenant and do them, that you may prosper in all that you do. 
+So keep the words of this covenant and do them, that you can prosper in all that you do. 
 All of you stand today in the presence of your God: your heads, your tribes, your elders, and your officers, even all the men of Israel, 
 your little ones, your wives, and the foreigners who are in the middle of your camps, from the one who cuts your wood to the one who draws your water, 
-that you may enter into the covenant of your God, and into his oath, which your God makes with you today, 
-that he may establish you today as his people, and that he may be your God, as he spoke to you and as he swore to your fathers, to Abraham, to Isaac, and to Jacob. 
+that you can enter into the covenant of your God, and into his oath, which your God makes with you today, 
+that he can establish you today as his people, and that he can be your God, as he spoke to you and as he swore to your fathers, to Abraham, to Isaac, and to Jacob. 
 Neither do I make this covenant and this oath with you only, 
 but with those who stand here with us today before our God, and also with those who aren't here with us today 
 (for you know how we lived in the land of Egypt, and how we came through the middle of the nations through which you passed; 
@@ -26,4 +26,4 @@ Then men will say, "Because they abandoned the covenant of the God of their fath
 and went and served other gods and worshiped them, gods that they didn't know and that he hadn't given to them. 
 So God's anger burned against this land, to bring on it all the curses that are written in this book. 
 God rooted them out of their land in anger, in wrath, and in great indignation, and thrust them into another land, as it's today." 
-The secret things belong to our God; but the things that are revealed belong to us and to our children for the eras, that we may do all the words of this law. 
+The secret things belong to our God; but the things that are revealed belong to us and to our children for the eras, that we can do all the words of this law. 

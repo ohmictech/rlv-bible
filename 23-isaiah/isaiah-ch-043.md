@@ -6,8 +6,8 @@ Don't be afraid, for I'm with you. I'll bring your offspring from the east, and 
 I'll tell the north, 'Give them up!' and tell the south, 'Don't hold them back! Bring my sons from far away, and my daughters from the ends of the earth 
 everyone who's called by my name, and whom I have created for my glory, whom I have formed, yes, whom I have made.'" 
 Bring out the blind people who have eyes, and the deaf who have ears. 
-Let all the nations be gathered together, and let the peoples be assembled. Who among them can declare this, and show us former things? Let them bring their witnesses, that they may be justified, or let them hear, and say, "That's true." 
-"You're my witnesses," says God, "With my servant whom I have chosen; that you may know and believe me, and understand that I'm he. Before me there was no God formed, neither will there be after me. 
+Let all the nations be gathered together, and let the peoples be assembled. Who among them can declare this, and show us former things? Let them bring their witnesses, that they can be justified, or let them hear, and say, "That's true." 
+"You're my witnesses," says God, "With my servant whom I have chosen; that you can know and believe me, and understand that I'm he. Before me there was no God formed, neither will there be after me. 
 I myself am God. Besides me, there's no savior. 
 I have declared, I have saved, and I have shown, and there was no strange god among you. So you're my witnesses", says God, "and I'm God. 
 Yes, since the day was, I'm he. There's no one who can deliver out of my hand. I'll work, and who can hinder it?" 
@@ -23,6 +23,6 @@ Yet you haven't called on me, Jacob; but you have been weary of me, Israel.
 You haven't brought me any of your sheep for burnt offerings, neither have you honored me with your sacrifices. I haven't burdened you with offerings, nor wearied you with frankincense. 
 You have bought me no sweet cane with money, nor have you filled me with the fat of your sacrifices, but you have burdened me with your mistakes. You have wearied me with your guilt. 
 I, even I, am he who blots out your rebellion for my own sake; and I won't remember your mistakes. 
-Put me in remembrance. Let's plead together. Declare your case, that you may be justified. 
+Put me in remembrance. Let's plead together. Declare your case, that you can be justified. 
 Your first father drifted, and your teachers have transgressed against me. 
 So I'll profane the princes of the sanctuary; and I'll make Jacob a curse, and Israel an insult." 

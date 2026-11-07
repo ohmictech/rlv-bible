@@ -7,7 +7,7 @@ God says: "Because you have clapped your hands, stamped with the feet, and rejoi
 So, look, I have stretched out my hand on you, and will deliver you for a plunder to the nations. I'll cut you off from the peoples, and I'll cause you to perish out of the countries. I'll destroy you. Then you'll know that I'm God." 
 "'The God says: "Because Moab and Seir say, 'Look, the house of Judah is like all the nations,' 
 So, look, I'll open the side of Moab from the cities, from his cities which are on its frontiers, the glory of the country, Beth Jeshimoth, Baal Meon, and Kiriathaim, 
-to the children of the east, to go against the children of Ammon; and I'll give them for a possession, that the children of Ammon may not be remembered among the nations. 
+to the children of the east, to go against the children of Ammon; and I'll give them for a possession, that the children of Ammon can't be remembered among the nations. 
 I'll execute judgments on Moab. Then they'll know that I'm God." 
 "'The God says: "Because Edom has dealt against the house of Judah by taking vengeance, and has greatly offended, and taken revenge on them," 
 So God says, "I'll stretch out my hand on Edom, and will cut off man and animal from it; and I'll make it desolate from Teman. They'll fall by the sword even to Dedan. 

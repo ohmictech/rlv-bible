@@ -8,7 +8,7 @@ You will do this to them to cleanse them: sprinkle the water of cleansing on the
 Then let them take a young bull and its meal offering, fine flour mixed with oil; and another young bull you will take for an offering for wrongdoing. 
 You will present the Levites before the Tent of Meeting. You will assemble the whole congregation of the children of Israel. 
 You will present the Levites before God. The children of Israel will lay their hands on the Levites, 
-and Aaron will offer the Levites before God for a wave offering on the behalf of the children of Israel, that it may be theirs to do the service of God. 
+and Aaron will offer the Levites before God for a wave offering on the behalf of the children of Israel, that it might be theirs to do the service of God. 
 "The Levites will lay their hands on the heads of the bulls, and you will offer the one for an offering for wrongdoing and the other for a burnt offering to God, to make things right for the Levites. 
 You will set the Levites before Aaron and before his sons, and offer them as a wave offering to God. 
 Thus you will separate the Levites from among the children of Israel, and the Levites will be mine. 

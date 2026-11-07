@@ -4,8 +4,8 @@ On the fourteenth day of this month, at evening, you will keep it in its appoint
 Moses told the children of Israel that they should keep the Passover. 
 They kept the Passover in the first month, on the fourteenth day of the month at evening, in the wilderness of Sinai. According to all that God commanded Moses, so the children of Israel did. 
 There were certain men who were unclean because of the dead body of a man, so that they couldn't keep the Passover on that day, and they came before Moses and Aaron on that day. 
-Those men said to him, "We're unclean because of the dead body of a man. Why are we kept back, that we may not offer the offering of God in its appointed season among the children of Israel?" 
-Moses answered them, "Wait, that I may hear what God will command concerning you." 
+Those men said to him, "We're unclean because of the dead body of a man. Why are we kept back, that we can't offer the offering of God in its appointed season among the children of Israel?" 
+Moses answered them, "Wait, that I can hear what God will command concerning you." 
 God spoke to Moses, saying, 
 "Say to the children of Israel, 'If any man of you or of your generations is unclean by reason of a dead body, or is on a journey far away, he will still keep the Passover to God. 
 In the second month, on the fourteenth day at evening they will keep it; they will eat it with unleavened bread and bitter herbs. 

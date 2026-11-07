@@ -2,12 +2,12 @@
 Amnon was so troubled that he became sick because of his sister Tamar, for she was a virgin, and it seemed hard to Amnon to do anything to her. 
 But Amnon had a friend whose name was Jonadab the son of Shimeah, David's brother; and Jonadab was a very subtle man. 
 He said to him, "Why, son of the king, are you so sad from day to day? Won't you tell me?" Amnon said to him, "I love Tamar, my brother Absalom's sister." 
-Jonadab said to him, "Lay down on your bed and pretend to be sick. When your father comes to see you, tell him, 'Please let my sister Tamar come and give me bread to eat, and prepare the food in my sight, that I may see it and eat it from her hand.'" 
-So Amnon lay down and faked being sick. When the king came to see him, Amnon said to the king, "Please let my sister Tamar come and make me a couple of cakes in my sight, that I may eat from her hand." 
+Jonadab said to him, "Lay down on your bed and pretend to be sick. When your father comes to see you, tell him, 'Please let my sister Tamar come and give me bread to eat, and prepare the food in my sight, that I can see it and eat it from her hand.'" 
+So Amnon lay down and faked being sick. When the king came to see him, Amnon said to the king, "Please let my sister Tamar come and make me a couple of cakes in my sight, that I can eat from her hand." 
 Then David sent home to Tamar, saying, "Go now to your brother Amnon's house, and prepare food for him." 
 So Tamar went to her brother Amnon's house; and he was lying down. She took dough, kneaded it, made cakes in his sight, and baked the cakes. 
 She took the pan and poured them out before him, but he refused to eat. Amnon said, "Have everyone leave me." Then every man went out from him. 
-Amnon said to Tamar, "Bring the food into the room, that I may eat from your hand." Tamar took the cakes which she had made, and brought them into the room to Amnon her brother. 
+Amnon said to Tamar, "Bring the food into the room, that I can eat from your hand." Tamar took the cakes which she had made, and brought them into the room to Amnon her brother. 
 When she had brought them near to him to eat, he took hold of her and said to her, "Come, lie with me, my sister!" 
 She answered him, "No, my brother, don't force me! No such thing ought to be done in Israel. Don't you do this folly! 
 As for me, where would I carry my shame? And as for you, you'll be as one of the fools in Israel. Now, please speak to the king; for he won't withhold me from you." 

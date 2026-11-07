@@ -29,10 +29,10 @@ But if you do marry, you haven't drifted. And if a virgin marries, she hasn't dr
 But I say this, brothers: the time is short. From now on, both those who have wives may be as though they had none; 
 and those who weep, as though they didn't weep; and those who celebrate, as though they didn't celebrate; and those who buy, as though they didn't possess; 
 and those who use the world, as though they weren't using it to the full. The shape of this world is passing away. 
-But I want you to be free from worries. The unmarried man is concerned with the things of the Lord, how he may please the Lord; 
-but he who's married is concerned about the things of the world, how he may please his wife. 
+But I want you to be free from worries. The unmarried man is concerned with the things of the Lord, how he can please the Lord; 
+but he who's married is concerned about the things of the world, how he can please his wife. 
 There's also a difference between a wife and a virgin. The unmarried woman cares about the things of the Lord, so that she can be set apart in both body and spirit. But the married woman cares about the things of the world: how she can please her husband. 
-This I say for your own benefit, not that I may ensnare you, but for that which is appropriate, and that you may attend to the Lord without distraction. 
+This I say for your own benefit, not that I can ensnare you, but for that which is appropriate, and that you can attend to the Lord without distraction. 
 But if anyone thinks he's behaving improperly toward the woman he's pledged to, and she's past the age for marrying, and it seems necessary, let him do what he wants. He isn't drifting. Let them marry. 
 But the one who stands firm in his heart, under no pressure, but has control over his own will, and has decided in his own heart to keep the woman he's pledged to, does well. 
 So then the one who gives her in marriage does well, and the one who doesn't give her in marriage does better. 

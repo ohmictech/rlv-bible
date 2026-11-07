@@ -7,7 +7,7 @@ Moses spoke to the children of Israel; and all their princes gave him rods, for 
 Moses laid up the rods before God in the Tent of the Testimony. 
 On the next day, Moses went into the Tent of the Testimony; and look, Aaron's rod for the house of Levi had sprouted, budded, produced blossoms, and bore ripe almonds. 
 Moses brought out all the rods from before God to all the children of Israel. They looked, and each man took his rod. 
-God said to Moses, "Put back the rod of Aaron before the covenant, to be kept for a token against the children of rebellion; that you may make an end of their complaining against me, that they not die." 
+God said to Moses, "Put back the rod of Aaron before the covenant, to be kept for a token against the children of rebellion; that you can make an end of their complaining against me, that they not die." 
 Moses did so. As God commanded him, so he did. 
 The children of Israel spoke to Moses, saying, "Look, we perish! We're undone! We're all undone! 
 Everyone who keeps approaching God's tabernacle, dies! Will we all perish?" 

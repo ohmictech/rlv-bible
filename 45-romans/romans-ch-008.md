@@ -14,7 +14,7 @@ If you live after the flesh, you must die; but if by the Spirit you put to death
 As many as are led by the Spirit of God, these are children of God. 
 You didn't receive the spirit of bondage again to fear, but you received the Spirit of adoption, by whom we cry, "Abba! Father!" 
 The Spirit himself testifies with our spirit that we're children of God; 
-and if children, then heirs, heirs of God and joint heirs with Christ, if indeed we suffer with him, that we may also be honored with him. 
+and if children, then heirs, heirs of God and joint heirs with Christ, if indeed we suffer with him, that we can also be honored with him. 
 I consider that the hard times of this present time aren't worthy to be compared with the weight which will be revealed toward us. 
 The creation waits with eager expectation for the children of God to be revealed. 
 The creation was subjected to vanity, not of its own will, but because of him who subjected it, in expectation 

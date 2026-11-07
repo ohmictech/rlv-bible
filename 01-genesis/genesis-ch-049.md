@@ -1,4 +1,4 @@
-﻿Jacob called to his sons, and said: "Gather yourselves together, that I may tell you that which will happen to you in the days to come. 
+﻿Jacob called to his sons, and said: "Gather yourselves together, that I can tell you that which will happen to you in the days to come. 
 Assemble yourselves, and hear, you sons of Jacob. Listen to Israel, your father. 
 "Reuben, you're my firstborn, my might, and the beginning of my strength, excelling in dignity, and excelling in power. 
 Boiling over like water, you won't excel, because you went up to your father's bed, then defiled it. He went up to my couch. 

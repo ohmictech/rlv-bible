@@ -5,7 +5,7 @@ They'll fall down slain in the land of the Chaldeans, and thrust through in her 
 Israel isn't forsaken, nor Judah, by his God, by the God of Armies; though their land is full of guilt against the Holy One of Israel. 
 "Flee out of the middle of Babylon! Everyone save his own life! Don't be cut off in her guilt, for it's the time of God's vengeance. He'll give to her a recompense. 
 Babylon has been a golden cup in God's hand, who made all the earth drunk. The nations have drunk of her wine; the nations have gone mad. 
-Babylon has suddenly fallen and been destroyed! Wail for her! Take balm for her pain. Perhaps she may be healed. 
+Babylon has suddenly fallen and been destroyed! Wail for her! Take balm for her pain. Perhaps she can be healed. 
 "We'd have healed Babylon, but she isn't healed. Forsake her, and let's each go into his own country; for her judgment reaches to the sky, and is lifted up even to the skies. 
 'God has produced our righteousness. Come, and let's declare in Zion the work of our God.' 
 "Make the arrows sharp! Hold the shields firmly! God has stirred up the spirit of the kings of the Medes, because his purpose is against Babylon, to destroy it; for it's the vengeance of God, the vengeance of his temple. 
@@ -36,7 +36,7 @@ May the violence done to me and to my flesh be on Babylon!" the inhabitant of Zi
 So God says: "Look, I'll plead your cause, and take vengeance for you. I'll dry up her sea, and make her fountain dry. 
 Babylon will become heaps, a dwelling place for jackals, an astonishment, and a hissing, without inhabitant. 
 They'll roar together like young lions. They'll growl as lions' cubs. 
-When they're inflamed, I'll make their feast, and I'll make them drunk, that they may rejoice, and sleep a perpetual sleep, and not wake up," says God. 
+When they're inflamed, I'll make their feast, and I'll make them drunk, that they can rejoice, and sleep a perpetual sleep, and not wake up," says God. 
 "I'll bring them down like lambs to the slaughter, like rams with male goats. 
 "How Sheshach is taken! How the praise of the whole earth is seized! How Babylon has become a desolation among the nations! 
 The sea has come up on Babylon. She's covered with the multitude of its waves. 

@@ -33,7 +33,7 @@ Let them exalt him also in the assembly of the people, and praise him in the sea
 He turns rivers into a desert, water springs into a thirsty ground, 
 and a fruitful land into a salt waste, for the guilt of those who dwell in it. 
 He turns a desert into a pool of water, and a dry land into water springs. 
-There he makes the hungry live, that they may prepare a city to live in, 
+There he makes the hungry live, that they can prepare a city to live in, 
 sow fields, plant vineyards, and reap the fruits of increase. 
 He blesses them also, so that they're multiplied greatly. He doesn't allow their livestock to decrease. 
 Again, they're diminished and bowed down through oppression, trouble, and sorrow. 

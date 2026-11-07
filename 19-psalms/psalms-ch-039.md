@@ -10,4 +10,4 @@ I was mute. I didn't open my mouth, because you did it.
 Remove your scourge away from me. I'm overcome by the blow of your hand. 
 When you rebuke and correct man for guilt, you consume his wealth like a moth. Surely every man is but a breath." Selah. 
 "Hear my prayer, God, and give ear to my cry. Don't be silent at my tears. I'm a stranger with you, a foreigner, as all my fathers were. 
-Oh spare me, that I may recover strength, before I go away and exist no more." 
+Oh spare me, that I can recover strength, before I go away and exist no more." 

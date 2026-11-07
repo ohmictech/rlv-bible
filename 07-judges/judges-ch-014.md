@@ -10,9 +10,9 @@ He took it into his hands, and went on, eating as he went. He came to his father
 His father went down to the woman; and Samson made a feast there, for the young men used to do so. 
 When they saw him, they brought thirty companions to be with him. 
 Samson said to them, "Let me tell you a riddle now. If you can tell me the answer within the seven days of the feast, and find it out, then I'll give you thirty linen garments and thirty changes of clothing; 
-but if you can't tell me the answer, then you will give me thirty linen garments and thirty changes of clothing." They said to him, "Tell us your riddle, that we may hear it." 
+but if you can't tell me the answer, then you will give me thirty linen garments and thirty changes of clothing." They said to him, "Tell us your riddle, that we can hear it." 
 He said to them, "Out of the eater came out food. Out of the strong came out sweetness." They couldn't in three days declare the riddle. 
-On the seventh day, they said to Samson's wife, "Entice your husband, that he may declare to us the riddle, lest we burn you and your father's house with fire. Have you called us to impoverish us? Isn't that so?" 
+On the seventh day, they said to Samson's wife, "Entice your husband, that he can declare to us the riddle, lest we burn you and your father's house with fire. Have you called us to impoverish us? Isn't that so?" 
 Samson's wife wept before him, and said, "You just hate me, and don't love me. You've told a riddle to the children of my people, and haven't told it to me." He said to her, "Look, I haven't told my father or my mother, so why should I tell you?" 
 She wept before him the seven days, while their feast lasted; and on the seventh day, he told her, because she pressed him severely; and she told the riddle to the children of her people. 
 The men of the city said to him on the seventh day before the sun went down, "What's sweeter than honey? What's stronger than a lion?" He said to them, "If you hadn't plowed with my heifer, you wouldn't have found out my riddle." 

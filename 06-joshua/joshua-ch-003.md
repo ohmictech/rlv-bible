@@ -1,10 +1,10 @@
 ﻿Joshua got up early in the morning; and they moved from Shittim and came to the Jordan, he and all the children of Israel. They camped there before they crossed over. 
 After three days, the officers went through the middle of the camp; 
 and they commanded the people, saying, "When you see the ark of your God's covenant, and the Levitical priests bearing it, then leave your place and follow it. 
-Yet there will be a space between you and it of about two thousand cubits by measure, don't come closer to it, that you may know the way by which you must go; for you haven't passed this way before." 
+Yet there will be a space between you and it of about two thousand cubits by measure, don't come closer to it, that you can know the way by which you must go; for you haven't passed this way before." 
 Joshua said to the people, "Sanctify yourselves; for tomorrow God will do wonders among you." 
 Joshua spoke to the priests, saying, "Take up the ark of the covenant, and cross over before the people." They took up the ark of the covenant, and went before the people. 
-God said to Joshua, "Today I'll begin to magnify you in the sight of all Israel, that they may know that as I was with Moses, so I'll be with you. 
+God said to Joshua, "Today I'll begin to magnify you in the sight of all Israel, that they can know that as I was with Moses, so I'll be with you. 
 You will command the priests who bear the ark of the covenant, saying, 'When you come to the brink of the waters of the Jordan, you will stand still in the Jordan.'" 
 Joshua said to the children of Israel, "Come here, and hear the words of your God." 
 Joshua said, "By this you will know that the living God is among you, and that he'll without fail drive the Canaanite, the Hittite, the Hivite, the Perizzite, the Girgashite, the Amorite, and the Jebusite out from before you. 

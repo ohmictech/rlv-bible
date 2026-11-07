@@ -1,4 +1,4 @@
-﻿Pursue love, and earnestly desire the spiritual gifts, but especially that you may speak for God. 
+﻿Pursue love, and earnestly desire the spiritual gifts, but especially that you can speak for God. 
 The one who speaks in another language speaks not to people but to God, for no one understands, but in the Spirit he speaks secrets. 
 But the one who speaks for God speaks to people for their building up, encouragement, and comfort. 
 The one who speaks in another language builds himself up, but the one who speaks for God builds up the gathering. 
@@ -7,10 +7,10 @@ But now, brothers, if I come to you speaking with other languages, what good wou
 Even lifeless things that make a sound, whether pipe or harp, if they didn't give a distinction in the sounds, how would it be known what's piped or harped? 
 If the trumpet gave an uncertain sound, who would prepare himself for war? 
 So also you, unless you uttered by the tongue words easy to understand, how would it be known what's spoken? You'd be speaking into the air. 
-There are, it may be, so many kinds of languages in the world, and none of them is without meaning. 
+There are, it might be, so many kinds of languages in the world, and none of them is without meaning. 
 If then I don't know the meaning of the language, I'd be to him who speaks a foreigner, and he who speaks would be a foreigner to me. 
 So also you, since you're eager for spiritual gifts, seek to have them overflowing for the building up of the gathering. 
-So let him who speaks in another language pray that he may interpret. 
+So let him who speaks in another language pray that he can interpret. 
 If I pray in another language, my spirit prays, but my understanding is unfruitful. 
 What should I do? I'll pray with the spirit, and I'll pray with the understanding also. I'll sing with the spirit, and I'll sing with the understanding also. 
 Otherwise, if you bless with the spirit, how will he who fills the place of the unlearned say the "Amen" at your giving of thanks, seeing he doesn't know what you say? 

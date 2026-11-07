@@ -7,7 +7,7 @@ According to their pasture, so were they filled; they were filled, and their hea
 So I'm like a lion to them. Like a leopard, I'll lurk by the path. 
 I'll meet them like a bear that's bereaved of her cubs, and will tear the covering of their heart. There I'll devour them like a lioness. The wild animal will tear them. 
 You're destroyed, Israel, because you're against me, against your helper. 
-Where is your king now, that he may save you in all your cities? And your judges, of whom you said, 'Give me a king and princes'? 
+Where is your king now, that he can save you in all your cities? And your judges, of whom you said, 'Give me a king and princes'? 
 I have given you a king in my anger, and have taken him away in my wrath. 
 The guilt of Ephraim is stored up. His wrongdoing is stored up. 
 The sorrows of a travailing woman will come on him. He's an unwise son, for when it's time, he doesn't come to the opening of the womb. 

@@ -25,7 +25,7 @@ I was also perfect toward him. I kept myself from my guilt.
 So God has rewarded me according to my righteousness, According to my cleanness in his eyesight. 
 With the merciful you'll show yourself merciful. With the perfect man you'll show yourself perfect. 
 With the pure you'll show yourself pure. With the crooked you'll show yourself shrewd. 
-You'll save the afflicted people, but your eyes are on the arrogant, that you may bring them down. 
+You'll save the afflicted people, but your eyes are on the arrogant, that you can bring them down. 
 You're my lamp, God. God will light up my darkness. 
 By you, I run against a troop. By my God, I leap over a wall. 
 As for God, his way is perfect. God's word is tested. He's a shield to everyone who takes refuge in him. 

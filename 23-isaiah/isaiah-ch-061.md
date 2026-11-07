@@ -1,6 +1,6 @@
 ﻿The God's Spirit is on me, because God has anointed me to preach good news to the humble. He has sent me to bind up the broken hearted, to proclaim liberty to the captives and release to those who are bound, 
 to proclaim the year of God's favor and the day of vengeance of our God, to comfort everyone who mourns, 
-to provide for those who mourn in Zion, to give to them a garland for ashes, the oil of joy for mourning, the garment of praise for the spirit of heaviness, that they may be called trees of righteousness, the planting of God, that he may be glorified. 
+to provide for those who mourn in Zion, to give to them a garland for ashes, the oil of joy for mourning, the garment of praise for the spirit of heaviness, that they can be called trees of righteousness, the planting of God, that he can be glorified. 
 They'll rebuild the old ruins. They'll raise up the former devastated places. They'll repair the ruined cities that have been devastated for many generations. 
 Strangers will stand and feed your flocks. Foreigners will work your fields and your vineyards. 
 But you'll be called God's priests. Men will call you the servants of our God. You'll eat the wealth of the nations. You'll boast in their glory. 

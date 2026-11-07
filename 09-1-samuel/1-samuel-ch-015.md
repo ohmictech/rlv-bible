@@ -22,12 +22,12 @@ But the people took of the plunder, sheep and cattle, the best of the devoted th
 Samuel said, "Has God as great delight in burnt offerings and sacrifices, as in obeying God's voice? Look, to obey is better than sacrifice, and to listen than the fat of rams. 
 Rebellion is as the wrongdoing of witchcraft, and stubbornness is as idolatry and teraphim. Because you have rejected God's word, he has also rejected you from being king." 
 Saul said to Samuel, "I have drifted; for I have transgressed the commandment of God and your words, because I feared the people and obeyed their voice. 
-Now, please pardon my wrongdoing, and turn again with me, that I may worship God." 
+Now, please pardon my wrongdoing, and turn again with me, that I can worship God." 
 Samuel said to Saul, "I won't return with you; for you have rejected God's word, and God has rejected you from being king over Israel." 
 As Samuel turned around to go away, Saul grabbed the skirt of his robe, and it tore. 
 Samuel said to him, "God has torn the kingdom of Israel from you today, and has given it to a neighbor of yours who's better than you. 
 Also the Strength of Israel won't lie nor repent; for he isn't a man, that he should repent." 
-Then he said, "I have drifted; yet please honor me now before the elders of my people and before Israel, and come back with me, that I may worship your God." 
+Then he said, "I have drifted; yet please honor me now before the elders of my people and before Israel, and come back with me, that I can worship your God." 
 So Samuel went back with Saul; and Saul worshiped God. 
 Then Samuel said, "Bring Agag the king of the Amalekites here to me!" Agag came to him cheerfully. Agag said, "Surely the bitterness of death is past." 
 Samuel said, "As your sword has made women childless, so your mother will be childless among women!" Then Samuel cut Agag in pieces before God in Gilgal. 

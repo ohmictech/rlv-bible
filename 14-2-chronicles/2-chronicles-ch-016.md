@@ -1,6 +1,6 @@
 ﻿In the thirty-sixth year of Asa's reign, Baasha king of Israel went up against Judah, and built Ramah, that he might not allow anyone to go out or come in to Asa king of Judah. 
 Then Asa brought out silver and gold out of the treasures of God's house and of the king's house, and sent to Ben Hadad king of Syria, who lived at Damascus, saying, 
-"Let there be a treaty between me and you, as there was between my father and your father. Look, I have sent you silver and gold. Go, break your treaty with Baasha king of Israel, that he may depart from me." 
+"Let there be a treaty between me and you, as there was between my father and your father. Look, I have sent you silver and gold. Go, break your treaty with Baasha king of Israel, that he can depart from me." 
 Ben Hadad listened to King Asa, and sent the captains of his armies against the cities of Israel; and they struck Ijon, Dan, Abel Maim, and all the storage cities of Naphtali. 
 When Baasha heard of it, he stopped building Ramah, and let his work cease. 
 Then Asa the king took all Judah, and they carried away the stones and timber of Ramah, with which Baasha had built; and he built Geba and Mizpah with them. 

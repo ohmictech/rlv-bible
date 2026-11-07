@@ -9,7 +9,7 @@ and by some that Elijah had appeared, and by others that one of the old spokesme
 Herod said, "I beheaded John, but who's this about whom I hear such things?" He tried to see him. 
 The ones sent out, when they had returned, told him what things they had done. He took them and withdrew by themselves to a deserted region near a city called Bethsaida. 
 But the crowds, perceiving it, followed him. He welcomed them, spoke to them of God's reign, and he healed those who needed healing. 
-Late in the day the twelve came and said to him, "Send the crowd away, that they may go into the surrounding villages and farms and lodge and get food, for we're here in an empty place." 
+Late in the day the twelve came and said to him, "Send the crowd away, that they can go into the surrounding villages and farms and lodge and get food, for we're here in an empty place." 
 But he said to them, "You give them something to eat." They said, "We have no more than five loaves and two fish, unless we should go and buy food for all these people." 
 They were about five thousand men. He said to his students, "Make them sit down in groups of about fifty each." 
 They did so, and made them all sit down. 

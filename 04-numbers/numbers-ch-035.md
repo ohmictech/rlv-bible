@@ -29,6 +29,6 @@ because he should have remained in his city of refuge until the death of the hig
 "'These things will be for a statute and ordinance to you throughout your generations in all your dwellings. 
 "'Whoever kills any person, the murderer will be slain based on the testimony of witnesses; but one witness won't testify alone against any person so that he dies. 
 "'Moreover you will take no ransom for the life of a murderer who's guilty of death. He will surely be put to death. 
-"'You will take no ransom for him who has fled to his city of refuge, that he may come again to dwell in the land before the death of the priest. 
+"'You will take no ransom for him who has fled to his city of refuge, that he can come again to dwell in the land before the death of the priest. 
 "'So you won't pollute the land where you live; for blood pollutes the land. Nothing can make things right for the land for the blood that's shed in it, but by the blood of him who shed it. 
 Don't defile the land which you inhabit, where I dwell; for I, God, dwell among the children of Israel.'" 

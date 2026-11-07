@@ -1,5 +1,5 @@
 ﻿After these things, Naboth the Jezreelite had a vineyard which was in Jezreel, next to the palace of Ahab king of Samaria. 
-Ahab spoke to Naboth, saying, "Give me your vineyard, that I may have it for a garden of herbs, because it's near my house; and I'll give you for it a better vineyard than it. Or, if it seems good to you, I'll give you its worth in money." 
+Ahab spoke to Naboth, saying, "Give me your vineyard, that I can have it for a garden of herbs, because it's near my house; and I'll give you for it a better vineyard than it. Or, if it seems good to you, I'll give you its worth in money." 
 Naboth said to Ahab, "May God forbid me, that I should give the inheritance of my fathers to you!" 
 Ahab came into his house sullen and angry because of the word which Naboth the Jezreelite had spoken to him, for he had said, "I won't give you the inheritance of my fathers." He laid himself down on his bed, and turned away his face, and would eat no bread. 
 But Jezebel his wife came to him, and said to him, "Why is your spirit so sad that you eat no bread?" 

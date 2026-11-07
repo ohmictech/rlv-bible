@@ -10,7 +10,7 @@ Her gates have sunk into the ground. He has destroyed and broken her bars. Her k
 The elders of the daughter of Zion sit on the ground. They keep silence. They have cast up dust on their heads. They have clothed themselves with sackcloth. The virgins of Jerusalem hang down their heads to the ground. 
 My eyes fail with tears. My heart is troubled. My bile is poured on the earth, because of the destruction of the daughter of my people, because the young children and the infants swoon in the streets of the city. 
 They ask their mothers, "Where is grain and wine?" when they swoon as the wounded in the streets of the city, when their soul is poured out into their mothers' bosom. 
-What will I testify to you? What will I liken to you, daughter of Jerusalem? What will I compare to you, that I may comfort you, virgin daughter of Zion? Your breach is as big as the sea. Who can heal you? 
+What will I testify to you? What will I liken to you, daughter of Jerusalem? What will I compare to you, that I can comfort you, virgin daughter of Zion? Your breach is as big as the sea. Who can heal you? 
 Your spokesmen have seen false and foolish visions for you. They haven't uncovered your guilt, to reverse your captivity, but have seen for you false revelations and causes of banishment. 
 All that pass by clap their hands at you. They hiss and wag their head at the daughter of Jerusalem, saying, "Is this the city that men called 'The perfection of beauty, the joy of the whole earth'?" 
 All your enemies have opened their mouth wide against you. They hiss and gnash their teeth. They say, "We have swallowed her up. Certainly this is the day that we looked for. We have found it. We have seen it." 

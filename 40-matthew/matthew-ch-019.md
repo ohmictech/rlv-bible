@@ -13,7 +13,7 @@ There are eunuchs who were born that way from their mother's womb, and there are
 Then little children were brought to him that he should lay his hands on them and pray, and the students rebuked them. 
 But Jesus said, "Let the little children come, and don't forbid them, for the reign of the sky belongs to ones like these." 
 He laid his hands on them, and departed from there. 
-Look, one came to him and said, "Teacher, what good thing must I do, that I may have the real life of the era?" 
+Look, one came to him and said, "Teacher, what good thing must I do, that I can have the real life of the era?" 
 He said to him, "Why do you call me good? No one is good but one, that's, God. But if you want to enter into real life, keep the commands." 
 He said to him, "Which ones?" Jesus said, "'You won't murder.' 'You won't cheat.' 'You won't steal.' 'You won't give false witness.' 
 'Honor your father and your mother.' And, 'You will love your neighbor as yourself.'" 

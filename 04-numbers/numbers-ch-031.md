@@ -1,6 +1,6 @@
 ﻿God spoke to Moses, saying, 
 "Avenge the children of Israel on the Midianites. Afterward you will be gathered to your people." 
-Moses spoke to the people, saying, "Arm men from among you for war, that they may go against Midian, to execute God's vengeance on Midian. 
+Moses spoke to the people, saying, "Arm men from among you for war, that they can go against Midian, to execute God's vengeance on Midian. 
 You will send one thousand out of every tribe, throughout all the tribes of Israel, to the war." 
 So there were delivered, out of the thousands of Israel, a thousand from every tribe, twelve thousand armed for war. 
 Moses sent them, one thousand of every tribe, to the war with Phinehas the son of Eleazar the priest, to the war, with the vessels of the sanctuary and the trumpets for the alarm in his hand. 

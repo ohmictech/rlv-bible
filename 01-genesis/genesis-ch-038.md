@@ -13,7 +13,7 @@ After many days, Shua's daughter, the wife of Judah, died. Judah was comforted, 
 Tamar was told, "Look, your father-in-law is going up to Timnah to shear his sheep." 
 She took off the garments of her widowhood, and covered herself with her veil, and wrapped herself, and sat in the gate of Enaim, which is on the way to Timnah; for she saw that Shelah was grown up, and she wasn't given to him as a wife. 
 When Judah saw her, he thought that she was a prostitute, for she had covered her face. 
-He turned to her by the way, and said, "Please come, let me come in to you," for he didn't know that she was his daughter-in-law. She said, "What will you give me, that you may come in to me?" 
+He turned to her by the way, and said, "Please come, let me come in to you," for he didn't know that she was his daughter-in-law. She said, "What will you give me, that you can come in to me?" 
 He said, "I'll send you a young goat from the flock." She said, "Will you give me a pledge, until you send it?" 
 He said, "What pledge will I give you?" She said, "Your signet and your cord, and your staff that's in your hand." He gave them to her, and came in to her, and she conceived by him. 
 She arose, and went away, and put off her veil from her, and put on the garments of her widowhood. 

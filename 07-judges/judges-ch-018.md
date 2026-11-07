@@ -2,7 +2,7 @@
 The children of Dan sent five men of their family from their whole number, men of valor, from Zorah and from Eshtaol, to spy out the land and to search it. They said to them, "Go, explore the land!" They came to the hill country of Ephraim, to the house of Micah, and lodged there. 
 When they were by the house of Micah, they knew the voice of the young man the Levite; so they went over there and said to him, "Who brought you here? What do you do in this place? What do you have here?" 
 He said to them, "Thus and thus has Micah dealt with me, and he has hired me, and I have become his priest." 
-They said to him, "Please ask counsel of God, that we may know whether our way which we go will be prosperous." 
+They said to him, "Please ask counsel of God, that we can know whether our way which we go will be prosperous." 
 The priest said to them, "Go in peace. Your way in which you go is before God." 
 Then the five men departed and came to Laish and saw the people who were there, how they lived in safety, in the way of the Sidonians, quiet and secure; for there was no one in the land possessing authority, that might put them to shame in anything, and they were far from the Sidonians, and had no dealings with anyone else. 
 They came to their brothers at Zorah and Eshtaol; and their brothers asked them, "What do you say?" 

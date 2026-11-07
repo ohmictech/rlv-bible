@@ -9,7 +9,7 @@ of the sons of Elizaphan, Shemaiah the chief, and his brothers two hundred;
 of the sons of Hebron, Eliel the chief, and his brothers eighty; 
 of the sons of Uzziel, Amminadab the chief, and his brothers one hundred twelve. 
 David called for Zadok and Abiathar the priests, and for the Levites: for Uriel, Asaiah, Joel, Shemaiah, Eliel, and Amminadab, 
-and said to them, "You're the heads of the fathers' households of the Levites. Sanctify yourselves, both you and your brothers, that you may bring the ark of the God of Israel, up to the place that I have prepared for it. 
+and said to them, "You're the heads of the fathers' households of the Levites. Sanctify yourselves, both you and your brothers, that you can bring the ark of the God of Israel, up to the place that I have prepared for it. 
 Because you didn't carry it at first, our God broke out in anger against us, because we didn't seek him according to the ordinance." 
 So the priests and the Levites sanctified themselves to bring up the ark of the God of Israel. 
 The children of the Levites bore God's ark on their shoulders with its poles, as Moses commanded according to God's word. 

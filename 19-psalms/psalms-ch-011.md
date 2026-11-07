@@ -1,5 +1,5 @@
 ﻿The Chief Musician. By David. In God, I take refuge. How can you say to my soul, "Flee as a bird to your mountain"? 
-For, look, the guilty bend their bows. They set their arrows on the strings, that they may shoot in darkness at the upright in heart. 
+For, look, the guilty bend their bows. They set their arrows on the strings, that they can shoot in darkness at the upright in heart. 
 If the foundations are destroyed, what can the righteous do? 
 God is in his holy temple. God is on his throne in the sky. His eyes observe. His eyes examine the children of men. 
 God examines the righteous, but his soul hates the guilty and him who loves violence. 

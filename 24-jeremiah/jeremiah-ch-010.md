@@ -15,7 +15,7 @@ Every man has become brutish and without knowledge. Every goldsmith is disappoin
 They're vanity, a work of delusion. In the time of their visitation they'll perish. 
 The portion of Jacob isn't like these; for he's the maker of all things; and Israel is the tribe of his inheritance. The God of Armies is his name. 
 Gather up your wares out of the land, you who live under siege. 
-God says, "Look, I'll sling out the inhabitants of the land at this time, and will distress them, that they may feel it." 
+God says, "Look, I'll sling out the inhabitants of the land at this time, and will distress them, that they can feel it." 
 Woe is me because of my injury! My wound is serious; but I said, "Truly this is my grief, and I must bear it." 
 My tent has been destroyed, and all my cords are broken. My children have gone away from me, and they're no more. There's no one to spread my tent any more, to set up my curtains. 
 The shepherds have become brutish, and haven't inquired of God. So they haven't prospered, and all their flocks have scattered. 

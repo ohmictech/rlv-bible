@@ -12,7 +12,7 @@ Uriah said to David, "The ark, Israel, and Judah, are staying in tents; and my l
 David said to Uriah, "Stay here today also, and tomorrow I'll let you depart." So Uriah stayed in Jerusalem that day and the next day. 
 When David had called him, he ate and drank before him; and he made him drunk. At evening, he went out to lie on his bed with the servants of his lord, but didn't go down to his house. 
 In the morning, David wrote a letter to Joab and sent it by the hand of Uriah. 
-He wrote in the letter, saying, "Send Uriah to the forefront of the hottest battle, and retreat from him, that he may be struck and die." 
+He wrote in the letter, saying, "Send Uriah to the forefront of the hottest battle, and retreat from him, that he can be struck and die." 
 When Joab kept watch on the city, he assigned Uriah to the place where he knew that valiant men were. 
 The men of the city went out and fought with Joab. Some of the people fell, even of David's servants; and Uriah the Hittite died also. 
 Then Joab sent and told David all the things concerning the war; 

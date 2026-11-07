@@ -17,7 +17,7 @@ He who keeps the commandment keeps his soul, but he who's contemptuous in his wa
 He who has pity on the poor lends to God; he'll reward him. 
 Discipline your son, for there's hope; don't be a willing party to his death. 
 A hot-tempered man must pay the penalty, for if you rescue him, you must do it again. 
-Listen to counsel and receive instruction, that you may be wise in your latter end. 
+Listen to counsel and receive instruction, that you can be wise in your latter end. 
 There are many plans in a man's heart, but God's counsel will prevail. 
 That which makes a man to be desired is his kindness. A poor man is better than a liar. 
 The fear of God leads to life, then contentment; he rests and won't be touched by trouble. 

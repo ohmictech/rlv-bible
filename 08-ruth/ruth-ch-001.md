@@ -6,9 +6,9 @@ Mahlon and Chilion both died, and the woman was bereaved of her two children and
 Then she arose with her daughters-in-law, that she might return from the country of Moab; for she had heard in the country of Moab how God had visited his people in giving them bread. 
 She went out of the place where she was, and her two daughters-in-law with her. They went on the way to return to the land of Judah. 
 Naomi said to her two daughters-in-law, "Go, return each of you to her mother's house. May God deal kindly with you, as you have dealt with the dead and with me. 
-May God grant you that you may find rest, each of you in the house of her husband." Then she kissed them, and they lifted up their voices, and wept. 
+May God grant you that you can find rest, each of you in the house of her husband." Then she kissed them, and they lifted up their voices, and wept. 
 They said to her, "No, but we'll return with you to your people." 
-Naomi said, "Go back, my daughters. Why do you want to go with me? Do I still have sons in my womb, that they may be your husbands? 
+Naomi said, "Go back, my daughters. Why do you want to go with me? Do I still have sons in my womb, that they can be your husbands? 
 Go back, my daughters, go your way; for I'm too old to have a husband. If I should say, 'I have hope,' if I should even have a husband tonight, and should also bear sons, 
 would you then wait until they were grown? Would you then refrain from having husbands? No, my daughters, for it grieves me seriously for your sakes, for God's hand has gone out against me." 
 They lifted up their voices and wept again; then Orpah kissed her mother-in-law, but Ruth stayed with her. 

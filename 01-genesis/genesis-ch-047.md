@@ -16,7 +16,7 @@ When the money was all spent in the land of Egypt, and in the land of Canaan, al
 Joseph said, "Give me your livestock; and I'll give you food for your livestock, if your money is gone." 
 They brought their livestock to Joseph, and Joseph gave them bread in exchange for the horses, and for the flocks, and for the herds, and for the donkeys: and he fed them with bread in exchange for all their livestock for that year. 
 When that year was ended, they came to him the second year, and said to him, "We won't hide from my lord how our money is all spent, and the herds of livestock are my lord's. There's nothing left in the sight of my lord, but our bodies, and our lands. 
-Why should we die before your eyes, both we and our land? Buy us and our land for bread, and we and our land will be servants to Pharaoh. Give us seed, that we may live, and not die, and that the land won't be desolate." 
+Why should we die before your eyes, both we and our land? Buy us and our land for bread, and we and our land will be servants to Pharaoh. Give us seed, that we can live, and not die, and that the land won't be desolate." 
 So Joseph bought all the land of Egypt for Pharaoh, for every man of the Egyptians sold his field, because the famine was severe on them, and the land became Pharaoh's. 
 As for the people, he moved them to the cities from one end of the border of Egypt even to the other end of it. 
 Only he didn't buy the land of the priests, for the priests had a portion from Pharaoh, and ate their portion which Pharaoh gave them. That's why they didn't sell their land. 

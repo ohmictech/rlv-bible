@@ -6,12 +6,12 @@ He laid the foundations of the earth, that it shouldn't be moved for the eras.
 You covered it with the deep as with a cloak. The waters stood above the mountains. 
 At your rebuke they fled. At the voice of your thunder they hurried away. 
 The mountains rose, the valleys sank down, to the place which you had assigned to them. 
-You have set a boundary that they may not pass over, that they don't turn again to cover the earth. 
+You have set a boundary that they can't pass over, that they don't turn again to cover the earth. 
 He sends springs into the valleys. They run among the mountains. 
 They give drink to every animal of the field. The wild donkeys quench their thirst. 
 The birds of the sky nest by them. They sing among the branches. 
 He waters the mountains from his rooms. The earth is filled with the fruit of your works. 
-He causes the grass to grow for the livestock, and plants for man to cultivate, that he may produce food out of the earth: 
+He causes the grass to grow for the livestock, and plants for man to cultivate, that he can produce food out of the earth: 
 wine that makes the heart of man glad, oil to make his face to shine, and bread that strengthens man's heart. 
 God's trees are well watered, the cedars of Lebanon, which he has planted, 
 where the birds make their nests. The stork makes its home in the cypress trees. 
@@ -24,7 +24,7 @@ Man goes out to his work, to his labor until the evening.
 God, how many are your works! In wisdom, you have made them all. The earth is full of your riches. 
 There's the sea, great and wide, in which are innumerable living things, both small and large animals. 
 There the ships go, and leviathan, whom you formed to play there. 
-These all wait for you, that you may give them their food in due season. 
+These all wait for you, that you can give them their food in due season. 
 You give to them; they gather. You open your hand; they're satisfied with good. 
 You hide your face; they're troubled. You take away their breath; they die and return to the dust. 
 You send out your Spirit and they're created. You renew the face of the ground. 

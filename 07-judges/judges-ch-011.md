@@ -3,9 +3,9 @@ Gilead's wife bore him sons. When his wife's sons grew up, they drove Jephthah o
 Then Jephthah fled from his brothers and lived in the land of Tob. Outlaws joined up with Jephthah, and they went out with him. 
 After a while, the children of Ammon made war against Israel. 
 When the children of Ammon made war against Israel, the elders of Gilead went to get Jephthah out of the land of Tob. 
-They said to Jephthah, "Come and be our chief, that we may fight with the children of Ammon." 
+They said to Jephthah, "Come and be our chief, that we can fight with the children of Ammon." 
 Jephthah said to the elders of Gilead, "Didn't you hate me, and drive me out of my father's house? Why have you come to me now when you're in distress?" 
-The elders of Gilead said to Jephthah, "Therefore we have turned again to you now, that you may go with us and fight with the children of Ammon. You'll be our head over all the inhabitants of Gilead." 
+The elders of Gilead said to Jephthah, "Therefore we have turned again to you now, that you can go with us and fight with the children of Ammon. You'll be our head over all the inhabitants of Gilead." 
 Jephthah said to the elders of Gilead, "If you bring me home again to fight with the children of Ammon, and God delivers them before me, will I be your head?" 
 The elders of Gilead said to Jephthah, "God will be witness between us. Surely we'll do what you say." 
 Then Jephthah went with the elders of Gilead, and the people made him head and chief over them. Jephthah spoke all his words before God in Mizpah. 
@@ -34,7 +34,7 @@ He struck them from Aroer until you come to Minnith, even twenty cities, and to 
 Jephthah came to Mizpah to his house; and look, his daughter came out to meet him with tambourines and with dances. She was his only child. Besides her he had neither son nor daughter. 
 When he saw her, he tore his clothes, and said, "Alas, my daughter! You have brought me very low, and you're one of those who trouble me; for I have opened my mouth to God, and I can't go back." 
 She said to him, "My father, you have opened your mouth to God; do to me according to that which has proceeded out of your mouth, because God has taken vengeance for you on your enemies, even on the children of Ammon." 
-Then she said to her father, "Let this thing be done for me. Leave me alone two months, that I may depart and go down on the mountains, and bewail my virginity, I and my companions." 
+Then she said to her father, "Let this thing be done for me. Leave me alone two months, that I can depart and go down on the mountains, and bewail my virginity, I and my companions." 
 He said, "Go." He sent her away for two months; and she departed, she and her companions, and mourned her virginity on the mountains. 
 At the end of two months, she returned to her father, who did with her according to his vow which he had vowed. She was a virgin. It became a custom in Israel 
 that the daughters of Israel went yearly to celebrate the daughter of Jephthah the Gileadite four days in a year. 

@@ -7,7 +7,7 @@ The wind goes toward the south, and turns around to the north. It turns around c
 All the rivers run into the sea, yet the sea isn't full. To the place where the rivers flow, there they flow again. 
 All things are full of weariness beyond uttering. The eye isn't satisfied with seeing, nor the ear filled with hearing. 
 That which has been is that which will be, and that which has been done is that which will be done; and there's no new thing under the sun. 
-Is there a thing of which it may be said, "Look, this is new"? It has been long ago, in the ages which were before us. 
+Is there a thing of which it might be said, "Look, this is new"? It has been long ago, in the ages which were before us. 
 There's no memory of the former; neither will there be any memory of the latter that are to come, among those that will come after. 
 I, the Preacher, was king over Israel in Jerusalem. 
 I applied my heart to seek and to search out by wisdom concerning all that's done under the sky. It's a heavy burden that God has given to the sons of men to be afflicted with. 

@@ -17,7 +17,7 @@ and all the silver and gold that you'll find in all the province of Babylon, wit
 So you will with all diligence buy with this money bulls, rams, and lambs with their meal offerings and their drink offerings, and will offer them on the altar of the house of your God which is in Jerusalem. 
 Whatever seems good to you and to your brothers to do with the rest of the silver and the gold, do that according to the will of your God. 
 The vessels that are given to you for the service of the house of your God, deliver before the God of Jerusalem. 
-Whatever more will be needed for the house of your God, which you may have occasion to give, give it out of the king's treasure house. 
+Whatever more will be needed for the house of your God, which you can have occasion to give, give it out of the king's treasure house. 
 I, even I, Artaxerxes the king, make a decree to all the treasurers who are beyond the River, that whatever Ezra the priest, the Bible teacher of the law of the God of the sky, requires of you, it will be done with all diligence, 
 up to one hundred talents of silver, and to one hundred cors of wheat, and to one hundred baths of wine, and to one hundred baths of oil, and salt without prescribing how much. 
 Whatever is commanded by the God of the sky, let it be done exactly for the house of the God of the sky; for why should there be wrath against the realm of the king and his sons? 

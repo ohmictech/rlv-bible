@@ -28,4 +28,4 @@ Then he said to Thomas, "Reach here your finger, and see my hands. Reach here yo
 Thomas answered him, "My Lord and my God!" 
 Jesus said to him, "Because you have seen me, you have trusted. Flourishing are those who haven't seen and have trusted." 
 So Jesus did many other signs in the presence of his students, which aren't written in this book; 
-but these are written that you may trust that Jesus is the Christ, the Son of God, and that trusting you may have real life in his name. 
+but these are written that you can trust that Jesus is the Christ, the Son of God, and that trusting you can have real life in his name. 

@@ -23,5 +23,5 @@ Agrippa said to Festus, "I also would like to hear the man myself." "Tomorrow," 
 So on the next day, when Agrippa and Bernice had come with great pomp, and they had entered into the place of hearing with the commanding officers and the principal men of the city, at the command of Festus, Paul was brought in. 
 Festus said, "King Agrippa, and everyone who's here present with us, you see this man about whom all the crowd of the Jewish people petitioned me, both at Jerusalem and here, crying that he ought not to live any longer. 
 But when I found that he had committed nothing worthy of death, and as he himself appealed to the emperor, I determined to send him, 
-of whom I have no certain thing to write to my lord. So I have brought him out before you, and especially before you, King Agrippa, that, after examination I may have something to write. 
+of whom I have no certain thing to write to my lord. So I have brought him out before you, and especially before you, King Agrippa, that, after examination I can have something to write. 
 It seems to me unreasonable, in sending a prisoner, not to also specify the charges against him." 

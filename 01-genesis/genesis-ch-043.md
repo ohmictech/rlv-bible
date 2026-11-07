@@ -11,11 +11,11 @@ for if we hadn't delayed, surely we'd have returned a second time by now."
 Their father, Israel, said to them, "If it must be so, then do this: Take from the choice fruits of the land in your bags, and carry down a present for the man, a little balm, a little honey, spices and myrrh, nuts, and almonds; 
 and take double money in your hand, and take back the money that was returned in the mouth of your sacks. Perhaps it was an oversight. 
 Take your brother also, get up, and return to the man. 
-May God Almighty give you mercy before the man, that he may release to you your other brother and Benjamin. If I'm bereaved of my children, I'm bereaved." 
+May God Almighty give you mercy before the man, that he can release to you your other brother and Benjamin. If I'm bereaved of my children, I'm bereaved." 
 The men took that present, and they took double money in their hand, and Benjamin; and got up, went down to Egypt, and stood before Joseph. 
 When Joseph saw Benjamin with them, he said to the steward of his house, "Bring the men into the house, and butcher an animal, and prepare; for the men will dine with me at noon." 
 The man did as Joseph commanded, and the man brought the men to Joseph's house. 
-The men were afraid, because they were brought to Joseph's house; and they said, "Because of the money that was returned in our sacks the first time, we're brought in; that he may seek occasion against us, attack us, and seize us as slaves, along with our donkeys." 
+The men were afraid, because they were brought to Joseph's house; and they said, "Because of the money that was returned in our sacks the first time, we're brought in; that he can seek occasion against us, attack us, and seize us as slaves, along with our donkeys." 
 They came near to the steward of Joseph's house, and they spoke to him at the door of the house, 
 and said, "Oh, my lord, we indeed came down the first time to buy food. 
 When we came to the lodging place, we opened our sacks, and look, each man's money was in the mouth of his sack, our money in full weight. We have brought it back in our hand. 

@@ -13,10 +13,10 @@ They each cast down their rods, and they became serpents; but Aaron's rod swallo
 Pharaoh's heart was hardened, and he didn't listen to them, as God had spoken. 
 God said to Moses, "Pharaoh's heart is stubborn. He refuses to let the people go. 
 Go to Pharaoh in the morning. Look, he's going out to the water. You will stand by the river's bank to meet him. You will take the rod which was turned to a serpent in your hand. 
-You will tell him, 'The God of the Hebrews, has sent me to you, saying, "Let my people go, that they may serve me in the wilderness. Look, until now you haven't listened." 
+You will tell him, 'The God of the Hebrews, has sent me to you, saying, "Let my people go, that they can serve me in the wilderness. Look, until now you haven't listened." 
 God says, "In this you will know that I'm God. Look: I'll strike with the rod that's in my hand on the waters which are in the river, and they will be turned to blood. 
 The fish that are in the river will die and the river will become foul. The Egyptians will loathe to drink water from the river."'" 
-God said to Moses, "Tell Aaron, 'Take your rod, and stretch out your hand over the waters of Egypt, over their rivers, over their streams, and over their pools, and over all their ponds of water, that they may become blood. There will be blood throughout all the land of Egypt, both in vessels of wood and in vessels of stone.'" 
+God said to Moses, "Tell Aaron, 'Take your rod, and stretch out your hand over the waters of Egypt, over their rivers, over their streams, and over their pools, and over all their ponds of water, that they can become blood. There will be blood throughout all the land of Egypt, both in vessels of wood and in vessels of stone.'" 
 Moses and Aaron did so, as God commanded; and he lifted up the rod, and struck the waters that were in the river, in the sight of Pharaoh, and in the sight of his servants; and all the waters that were in the river were turned to blood. 
 The fish that were in the river died. The river became foul. The Egyptians couldn't drink water from the river. The blood was throughout all the land of Egypt. 
 The magicians of Egypt did the same thing with their enchantments. So Pharaoh's heart was hardened, and he didn't listen to them, as God had spoken. 

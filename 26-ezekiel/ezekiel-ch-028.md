@@ -14,7 +14,7 @@ You were in Eden, the garden of God. Every precious stone adorned you: ruby, top
 You were the anointed cherub who covers. Then I set you up on the holy mountain of God. You have walked up and down in the middle of the stones of fire. 
 You were perfect in your ways from the day that you were created, until unrighteousness was found in you. 
 By the abundance of your commerce, your insides were filled with violence, and you have drifted. So I have cast you as profane out of God's mountain. I have destroyed you, covering cherub, from the middle of the stones of fire. 
-Your heart was lifted up because of your beauty. You have corrupted your wisdom by reason of your splendor. I have cast you to the ground. I have laid you before kings, that they may see you. 
+Your heart was lifted up because of your beauty. You have corrupted your wisdom by reason of your splendor. I have cast you to the ground. I have laid you before kings, that they can see you. 
 By the multitude of your guilt, in the unrighteousness of your commerce, you have profaned your sanctuaries. So I have brought out a fire from the middle of you. It has devoured you. I have turned you to ashes on the earth in the sight of everyone who sees you. 
 Everyone who know you among the peoples will be astonished at you. You have become a terror, and you'll exist no more."'" 
 God's word came to me, saying, 

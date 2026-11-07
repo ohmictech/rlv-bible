@@ -19,5 +19,5 @@ When God raised up judges for them, then God was with the judge, and saved them 
 But when the judge was dead, they turned back, and dealt more corruptly than their fathers in following other gods to serve them and to bow down to them. They didn't cease what they were doing, or give up their stubborn ways. 
 God's anger burned against Israel; and he said, "Because this nation transgressed my covenant which I commanded their fathers, and hasn't listened to my voice, 
 I also will no longer drive out any of the nations that Joshua left when he died from before them; 
-that by them I may test Israel, to see if they'll keep God's way to walk therein, as their fathers kept it, or not." 
+that by them I can test Israel, to see if they'll keep God's way to walk therein, as their fathers kept it, or not." 
 So God left those nations, without driving them out hastily. He didn't deliver them into Joshua's hand. 

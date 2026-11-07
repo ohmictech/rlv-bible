@@ -2,7 +2,7 @@
 David arose and passed over, he and the six hundred men who were with him, to Achish the son of Maoch, king of Gath. 
 David lived with Achish at Gath, he and his men, every man with his household, even David with his two wives, Ahinoam the Jezreelitess and Abigail the Carmelitess, Nabal's wife. 
 Saul was told that David had fled to Gath, so he stopped looking for him. 
-David said to Achish, "If now I have found favor in your eyes, let them give me a place in one of the cities in the country, that I may dwell there. Why should your servant dwell in the royal city with you?" 
+David said to Achish, "If now I have found favor in your eyes, let them give me a place in one of the cities in the country, that I can dwell there. Why should your servant dwell in the royal city with you?" 
 Then Achish gave him Ziklag that day: Ziklag belongs to the kings of Judah to this day. 
 The number of the days that David lived in the country of the Philistines was a full year and four months. 
 David and his men went up and raided the Geshurites, the Girzites, and the Amalekites; for those were the inhabitants of the land who were of old, on the way to Shur, even to the land of Egypt. 

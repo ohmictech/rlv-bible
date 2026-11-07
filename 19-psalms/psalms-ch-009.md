@@ -11,7 +11,7 @@ Those who know your name will put their trust in you, for you, God, haven't fors
 Sing praises to God, who dwells in Zion, and declare among the people what he has done. 
 He who avenges blood remembers them. He doesn't forget the cry of the afflicted. 
 Have mercy on me, God. See my affliction by those who hate me, and lift me up from the gates of death, 
-that I may show all of your praise. I'll rejoice in your salvation in the gates of the daughter of Zion. 
+that I can show all of your praise. I'll rejoice in your salvation in the gates of the daughter of Zion. 
 The nations have sunk down in the pit that they made. In the net which they hid, their own foot is taken. 
 God has made himself known. He has executed judgment. The guilty is snared by the work of his own hands. Meditation. Selah. 
 The guilty will be turned back to Hades, even all the nations that forget God. 

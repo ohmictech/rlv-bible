@@ -6,7 +6,7 @@ One will say, 'I'm God's.' Another will be called by the name of Jacob; and anot
 This is what God, the King of Israel, and the one who buys him back, the God of Armies says: "I'm the first, and I'm the last; and besides me there's no God. 
 Who's like me? Who will call, and will declare it, and set it in order for me, since I established the ancient people? Let them declare the things that are coming, and that will happen. 
 Don't fear, neither be afraid. Haven't I declared it to you long ago, and shown it? You're my witnesses. Is there a God besides me? Indeed, there isn't. I don't know any other Rock." 
-Everyone who makes a carved image is vain. The things that they delight in won't profit. Their own witnesses don't see, nor know, that they may be disappointed. 
+Everyone who makes a carved image is vain. The things that they delight in won't profit. Their own witnesses don't see, nor know, that they can be disappointed. 
 Who has fashioned a god, or molds an image that's profitable for nothing? 
 Look, all his fellows will be disappointed; and the workmen are mere men. Let them all be gathered together. Let them stand up. They'll fear. They'll be put to shame together. 
 The blacksmith takes an ax, works in the coals, fashions it with hammers, and works it with his strong arm. He's hungry, and his strength fails; he drinks no water, and is faint. 

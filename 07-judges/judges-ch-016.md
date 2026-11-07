@@ -2,7 +2,7 @@
 The Gazites were told, "Samson is here!" They surrounded him and laid wait for him all night in the gate of the city, and were quiet all the night, saying, "Wait until morning light; then we'll kill him." 
 Samson lay until midnight, then arose at midnight and took hold of the doors of the gate of the city, with the two posts, and plucked them up, bar and all, and put them on his shoulders and carried them up to the top of the mountain that's before Hebron. 
 It came to pass afterward that he loved a woman in the valley of Sorek, whose name was Delilah. 
-The lords of the Philistines came up to her and said to her, "Entice him, and see in which his great strength lies, and by what means we may prevail against him, that we may bind him to afflict him; and we'll each give you eleven hundred pieces of silver." 
+The lords of the Philistines came up to her and said to her, "Entice him, and see in which his great strength lies, and by what means we can prevail against him, that we can bind him to afflict him; and we'll each give you eleven hundred pieces of silver." 
 Delilah said to Samson, "Please tell me where your great strength lies, and what you might be bound to afflict you." 
 Samson said to her, "If they bind me with seven green cords that were never dried, then will I become weak, and be as another man." 
 Then the lords of the Philistines brought up to her seven green cords which hadn't been dried, and she bound him with them. 
@@ -22,10 +22,10 @@ The Philistines laid hold on him and put out his eyes; and they brought him down
 However, the hair of his head began to grow again after he was shaved. 
 The lords of the Philistines gathered together to offer a great sacrifice to Dagon their god, and to rejoice; for they said, "Our god has delivered Samson our enemy into our hand." 
 When the people saw him, they praised their god; for they said, "Our god has delivered our enemy and the destroyer of our country, who has slain many of us, into our hand." 
-When their hearts were merry, they said, "Call for Samson, that he may entertain us." They called for Samson out of the prison; and he performed before them. They set him between the pillars; 
-and Samson said to the boy who held him by the hand, "Allow me to feel the pillars on which the house rests, that I may lean on them." 
+When their hearts were merry, they said, "Call for Samson, that he can entertain us." They called for Samson out of the prison; and he performed before them. They set him between the pillars; 
+and Samson said to the boy who held him by the hand, "Allow me to feel the pillars on which the house rests, that I can lean on them." 
 Now the house was full of men and women; and all the lords of the Philistines were there; and there were on the roof about three thousand men and women, who saw while Samson performed. 
-Samson called to God, and said, "God, remember me, please, and strengthen me, please, only this once, God, that I may be at once avenged of the Philistines for my two eyes." 
+Samson called to God, and said, "God, remember me, please, and strengthen me, please, only this once, God, that I can be at once avenged of the Philistines for my two eyes." 
 Samson took hold of the two middle pillars on which the house rested and leaned on them, the one with his right hand and the other with his left. 
 Samson said, "Let me die with the Philistines!" He bowed himself with all his might; and the house fell on the lords, and on everyone who was in it. So the dead that he killed at his death were more than those who he killed in his life. 
 Then his brothers and all the house of his father came down and took him, and brought him up and buried him between Zorah and Eshtaol in the burial site of Manoah his father. He judged Israel twenty years. 

@@ -7,7 +7,7 @@ He had bronze shin armor on his legs and a bronze javelin between his shoulders.
 The staff of his spear was like a weaver's beam; and his spear's head weighed six hundred shekels of iron. His shield bearer went before him. 
 He stood and cried to the armies of Israel, and said to them, "Why have you come out to set your battle in array? Am I not a Philistine, and you servants to Saul? Choose a man for yourselves, and let him come down to me. 
 If he's able to fight with me and kill me, then will we be your servants; but if I prevail against him and kill him, then you'll be our servants and serve us." 
-The Philistine said, "I defy the armies of Israel today! Give me a man, that we may fight together!" 
+The Philistine said, "I defy the armies of Israel today! Give me a man, that we can fight together!" 
 When Saul and all Israel heard those words of the Philistine, they were dismayed and greatly afraid. 
 Now David was the son of that Ephrathite of Bethlehem Judah, whose name was Jesse; and he had eight sons. The man was an elderly old man in the days of Saul. 
 The three oldest sons of Jesse had gone after Saul to the battle; and the names of his three sons who went to the battle were Eliab the firstborn, and next to him Abinadab, and the third Shammah. 

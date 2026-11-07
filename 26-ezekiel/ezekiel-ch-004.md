@@ -14,4 +14,4 @@ God said, "Even thus will the children of Israel eat their bread unclean, among 
 Then I said, "Ah God! Look, my soul hasn't been polluted; for from my youth up even until now I haven't eaten of that which dies of itself, or is torn of animals. No abominable meat has come into my mouth!" 
 Then he said to me, "Look, I have given you cow's dung for man's dung, and you will prepare your bread on it." 
 Moreover he said to me, "Son of man, look, I'll break the staff of bread in Jerusalem. They'll eat bread by weight, and with fearfulness. They'll drink water by measure, and in dismay; 
-that they may lack bread and water, be dismayed one with another, and pine away in their guilt. 
+that they can lack bread and water, be dismayed one with another, and pine away in their guilt. 

@@ -2,7 +2,7 @@
 When he saw them, Jacob said, "This is God's army." He called the name of that place Mahanaim. 
 Jacob sent messengers in front of him to Esau, his brother, to the land of Seir, the field of Edom. 
 He commanded them, saying, "This is what you will tell my lord, Esau: 'This is what your servant, Jacob, says. I have lived as a foreigner with Laban, and stayed until now. 
-I have cattle, donkeys, flocks, male servants, and female servants. I have sent to tell my lord, that I may find favor in your sight.'" 
+I have cattle, donkeys, flocks, male servants, and female servants. I have sent to tell my lord, that I can find favor in your sight.'" 
 The messengers returned to Jacob, saying, "We came to your brother Esau. He's coming to meet you, and four hundred men are with him." 
 Then Jacob was greatly afraid and was distressed. He divided the people who were with him, along with the flocks, the herds, and the camels, into two companies. 
 He said, "If Esau comes to the one company, and strikes it, then the company which is left will escape." 

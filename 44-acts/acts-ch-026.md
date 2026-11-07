@@ -1,4 +1,4 @@
-﻿Agrippa said to Paul, "You may speak for yourself." Then Paul stretched out his hand, and made his defense. 
+﻿Agrippa said to Paul, "You can speak for yourself." Then Paul stretched out his hand, and made his defense. 
 "I think myself happy, King Agrippa, that I'm to make my defense before you today concerning all the things the Jewish people accuse me of, 
 especially because you're expert in all customs and questions which are among the Jewish people. So I beg you to hear me patiently. 
 "Indeed, all the Jewish people know my way of life from my youth up, which was from the beginning among my own nation and at Jerusalem; 
@@ -15,7 +15,7 @@ When we had all fallen to the earth, I heard a voice saying to me in the Hebrew 
 "I said, 'Who are you, Lord?' "He said, 'I'm Jesus, whom you're persecuting. 
 But arise, and stand on your feet, for I have appeared to you for this purpose: to appoint you a servant and a witness both of the things which you have seen and of the things which I'll reveal to you; 
 delivering you from the people and from the nations, to whom I send you, 
-to open their eyes, that they may turn from darkness to light and from the power of the Adversary to God, that they may receive release of mistakes and an inheritance among those who are set apart by trust in me.' 
+to open their eyes, that they can turn from darkness to light and from the power of the Adversary to God, that they can receive release of mistakes and an inheritance among those who are set apart by trust in me.' 
 "Therefore, King Agrippa, I wasn't disobedient to the vision from the sky, 
 but declared first to them of Damascus, at Jerusalem, and throughout all the country of Judea, and also to the nations, that they should have a change of heart and turn to God, doing deeds that go with a change of heart. 
 That's why the Jewish people seized me in the temple courts and tried to kill me. 

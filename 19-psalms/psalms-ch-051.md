@@ -1,7 +1,7 @@
 ﻿The Chief Musician. A Psalm by David, when Nathan the spokesman came to him, after he had gone in to Bathsheba. Have mercy on me, God, according to your loving kindness. According to the multitude of your tender mercies, blot out my rebellion. 
 Wash me thoroughly from my guilt. Cleanse me from my wrongdoing. 
 I know my rebellion. My wrongdoing is constantly before me. 
-Against you, and you only, I have drifted, and done that which is bad in your sight, so you may be proved right when you speak, and justified when you judge. 
+Against you, and you only, I have drifted, and done that which is bad in your sight, so you can be proved right when you speak, and justified when you judge. 
 Look, I was born in guilt. My mother conceived me in wrongdoing. 
 Look, you desire truth in the inward parts. You teach me wisdom in the inmost place. 
 Purify me with hyssop, and I'll be clean. Wash me, and I'll be whiter than snow. 

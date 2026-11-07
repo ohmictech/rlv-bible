@@ -23,4 +23,4 @@ God said to Moses, "This is what you will tell the children of Israel: 'You your
 You will most certainly not make gods of silver or gods of gold for yourselves to be alongside me. 
 You will make an altar of earth for me, and will sacrifice on it your burnt offerings and your offerings for wholeness, your sheep and your cattle. In every place where I record my name I'll come to you and I'll bless you. 
 If you make me an altar of stone, you won't build it of cut stones; for if you lift up your tool on it, you have polluted it. 
-Don't go up by steps to my altar, that your nakedness may not be exposed to it.' 
+Don't go up by steps to my altar, that your nakedness can't be exposed to it.' 

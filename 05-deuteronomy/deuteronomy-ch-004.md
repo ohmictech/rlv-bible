@@ -1,5 +1,5 @@
-﻿Now, Israel, listen to the statutes and to the ordinances which I teach you, to do them, that you may live and go in and possess the land which the God of your fathers, gives you. 
-Don't add to the word which I command you, neither will you take away from it, that you may keep the commandments of your God which I command you. 
+﻿Now, Israel, listen to the statutes and to the ordinances which I teach you, to do them, that you can live and go in and possess the land which the God of your fathers, gives you. 
+Don't add to the word which I command you, neither will you take away from it, that you can keep the commandments of your God which I command you. 
 Your eyes have seen what God did because of Baal Peor; for your God has destroyed all the men who followed Baal Peor from among you. 
 But you who were faithful to your God are all alive today. 
 Look, I have taught you statutes and ordinances, even as my God commanded me, that you should do so in the middle of the land where you go in to possess it. 
@@ -7,7 +7,7 @@ Keep and do them; for this is your wisdom and your understanding in the sight of
 What great nation is there that has a god so near to them as our God is whenever we call on him? 
 What great nation is there that has statutes and ordinances so righteous as all this law which I set before you today? 
 Only be careful, and keep your soul diligently, lest you forget the things which your eyes saw, and lest they depart from your heart all the days of your life; but make them known to your children and your children's children 
-the day that you stood before your God in Horeb, when God said to me, "Assemble the people to me, and I'll make them hear my words, that they may learn to fear me all the days that they live on the earth, and that they may teach their children." 
+the day that you stood before your God in Horeb, when God said to me, "Assemble the people to me, and I'll make them hear my words, that they can learn to fear me all the days that they live on the earth, and that they can teach their children." 
 You came near and stood under the mountain. The mountain burned with fire to the heart of the sky, with darkness, cloud, and thick darkness. 
 God spoke to you out of the middle of the fire: you heard the voice of words, but you saw no form; you only heard a voice. 
 He declared to you his covenant, which he commanded you to perform, even the ten commandments. He wrote them on two stone tablets. 
@@ -37,7 +37,7 @@ Out of the sky he made you to hear his voice, that he might instruct you. On ear
 Because he loved your fathers, he chose their offspring after them, and brought you out with his presence, with his great power, out of Egypt; 
 to drive out nations from before you greater and mightier than you, to bring you in, to give you their land for an inheritance, as it's today. 
 Know today, and take it to heart, that God is the true God in the sky above and on the earth beneath. There's no one else. 
-You will keep his statutes and his commandments which I command you today, that it may go well with you and with your children after you, and that you may prolong your days in the land which your God gives you for all time. 
+You will keep his statutes and his commandments which I command you today, that it may go well with you and with your children after you, and that you can prolong your days in the land which your God gives you for all time. 
 Then Moses set apart three cities beyond the Jordan toward the sunrise, 
 that the man slayer might flee there, who kills his neighbor unintentionally and didn't hate him in time past, and that fleeing to one of these cities he might live: 
 Bezer in the wilderness, in the plain country, for the Reubenites; and Ramoth in Gilead for the Gadites; and Golan in Bashan for the Manassites. 

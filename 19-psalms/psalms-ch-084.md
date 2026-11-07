@@ -1,6 +1,6 @@
 ﻿The Chief Musician. On an instrument of Gath. A Psalm by the sons of Korah. How lovely are your dwellings, God of Armies! 
 My soul longs, and even faints for the courts of God. My heart and my flesh cry out for the living God. 
-Yes, the sparrow has found a home, and the swallow a nest for herself, where she may have her young, near your altars, God of Armies, my King, and my God. 
+Yes, the sparrow has found a home, and the swallow a nest for herself, where she can have her young, near your altars, God of Armies, my King, and my God. 
 Blessed are those who dwell in your house. They're always praising you. Selah. 
 Blessed are those whose strength is in you, who have set their hearts on a pilgrimage. 
 Passing through the valley of Weeping, they make it a place of springs. Yes, the autumn rain covers it with blessings. 

@@ -6,7 +6,7 @@ On the fourth day, they got up early in the morning, and he rose up to depart. T
 So they sat down, ate, and drank, both of them together. Then the young lady's father said to the man, "Please be pleased to stay all night, and let your heart be merry." 
 The man rose up to depart; but his father-in-law urged him, and he stayed there again. 
 He arose early in the morning on the fifth day to depart; and the young lady's father said, "Please strengthen your heart and stay until the day declines;" and they both ate. 
-When the man rose up to depart, he, and his concubine, and his servant, his father-in-law, the young lady's father, said to him, "Look, now the day draws toward evening, please stay all night. Look, the day is ending. Stay here, that your heart may be merry; and tomorrow go on your way early, that you may go home." 
+When the man rose up to depart, he, and his concubine, and his servant, his father-in-law, the young lady's father, said to him, "Look, now the day draws toward evening, please stay all night. Look, the day is ending. Stay here, that your heart may be merry; and tomorrow go on your way early, that you can go home." 
 But the man wouldn't stay that night, but he rose up and went near Jebus (also called Jerusalem). With him were a couple of saddled donkeys. His concubine also was with him. 
 When they were by Jebus, the day was far spent; and the servant said to his master, "Please come and let's enter into this city of the Jebusites, and stay in it." 
 His master said to him, "We won't enter into the city of a foreigner that isn't of the children of Israel; but we'll pass over to Gibeah." 

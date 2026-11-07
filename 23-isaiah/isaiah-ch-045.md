@@ -1,9 +1,9 @@
 ﻿God says to his anointed, to Cyrus, whose right hand I have held to subdue nations before him and strip kings of their armor, to open the doors before him, and the gates won't be shut: 
 "I'll go before you and make the rough places smooth. I'll break the doors of bronze in pieces and cut apart the bars of iron. 
-I'll give you the treasures of darkness and hidden riches of secret places, that you may know that it's I, God, who calls you by your name, even the God of Israel. 
+I'll give you the treasures of darkness and hidden riches of secret places, that you can know that it's I, God, who calls you by your name, even the God of Israel. 
 Jacob my servant's sake, and Israel my chosen, I have called you by your name. I have given you a title, though you haven't known me. 
 I'm God, and there's no one else. Besides me, there's no God. I'll strengthen you, though you haven't known me, 
-that they may know from the rising of the sun, and from the west, that there's no one besides me. I'm God, and there's no one else. 
+that they can know from the rising of the sun, and from the west, that there's no one besides me. I'm God, and there's no one else. 
 I form the light and create darkness. I make peace and create calamity. I'm God, who does all these things. 
 Rain, you skies, from above, and let the skies pour down righteousness. Let the earth open, that it may produce salvation, and let it cause righteousness to spring up with it. I, God, have created it. 
 Woe to him who strives with his Maker, a clay pot among the clay pots of the earth! Will the clay ask him who fashions it, 'What are you making?' or your work, 'He has no hands'? 

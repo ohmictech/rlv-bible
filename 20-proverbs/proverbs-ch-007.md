@@ -2,7 +2,7 @@
 Keep my commandments and live! Guard my teaching as the apple of your eye. 
 Bind them on your fingers. Write them on the tablet of your heart. 
 Tell wisdom, "You're my sister." Call understanding your relative, 
-that they may keep you from the strange woman, from the foreigner who flatters with her words. 
+that they can keep you from the strange woman, from the foreigner who flatters with her words. 
 At the window of my house, I looked out through my lattice. 
 I saw among the simple ones. I discerned among the youths a young man void of understanding, 
 passing through the street near her corner, he went the way to her house, 

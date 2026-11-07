@@ -15,7 +15,7 @@ Benjamin returned at that time; and they gave them the women whom they had saved
 The people grieved for Benjamin, because God had made a breach in the tribes of Israel. 
 Then the elders of the congregation said, "How will we provide wives for those who remain, since the women are destroyed out of Benjamin?" 
 They said, "There must be an inheritance for those who are escaped of Benjamin, that a tribe not be blotted out from Israel. 
-However, we may not give them wives of our daughters, for the children of Israel had sworn, saying, 'Cursed is he who gives a wife to Benjamin.'" 
+However, we can't give them wives of our daughters, for the children of Israel had sworn, saying, 'Cursed is he who gives a wife to Benjamin.'" 
 They said, "Look, there's a feast of God from year to year in Shiloh, which is on the north of Bethel, on the east side of the highway that goes up from Bethel to Shechem, and on the south of Lebonah." 
 They commanded the children of Benjamin, saying, "Go and lie in wait in the vineyards, 
 and see, and look, if the daughters of Shiloh come out to dance in the dances, then come out of the vineyards, and each man catch his wife of the daughters of Shiloh, and go to the land of Benjamin. 

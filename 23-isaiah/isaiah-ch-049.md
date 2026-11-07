@@ -3,7 +3,7 @@ He has made my mouth like a sharp sword. He has hidden me in the shadow of his h
 He said to me, "You're my servant, Israel, in whom I'll be glorified." 
 But I said, "I have labored in vain. I have spent my strength in vain for nothing; yet surely the justice due to me is with God, and my reward with my God." 
 Now God, he who formed me from the womb to be his servant, says to bring Jacob again to him, and to gather Israel to him, for I'm honorable in God's eyes, and my God has become my strength. 
-Indeed, he says, "It's too light a thing that you should be my servant to raise up the tribes of Jacob, and to restore the preserved of Israel. I'll also give you as a light to the nations, that you may be my salvation to the end of the earth." 
+Indeed, he says, "It's too light a thing that you should be my servant to raise up the tribes of Jacob, and to restore the preserved of Israel. I'll also give you as a light to the nations, that you can be my salvation to the end of the earth." 
 God, the one who buys back of Israel, and his Holy One, says to him whom man despises, to him whom the nation abhors, to a servant of rulers: "Kings will see and rise up, princes, and they will worship, because of God who's faithful, even the Holy One of Israel, who has chosen you." 
 God says, "I have answered you in an acceptable time. I have helped you in a day of salvation. I'll preserve you and give you for a covenant of the people, to raise up the land, to make them inherit the desolate heritage, 
 saying to those who are bound, 'Come out!'; to those who are in darkness, 'Show yourselves!' "They will feed along the paths, and their pasture will be on all treeless heights. 

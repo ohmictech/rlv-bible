@@ -1,6 +1,6 @@
 ﻿At the end of every seven years, you will cancel debts. 
 This is the way it will be done: every creditor will release that which he has lent to his neighbor. He won't require payment from his neighbor and his brother, because God's release has been proclaimed. 
-Of a foreigner you may require it; but whatever of yours is with your brother, your hand will release. 
+Of a foreigner you can require it; but whatever of yours is with your brother, your hand will release. 
 However there will be no poor with you (for God will surely bless you in the land which your God gives you for an inheritance to possess) 
 if only you diligently listen to your God's voice, to observe to do all this commandment which I command you today. 
 Your God will bless you, as he promised you. You'll lend to many nations, but you won't borrow. You'll rule over many nations, but they won't rule over you. 

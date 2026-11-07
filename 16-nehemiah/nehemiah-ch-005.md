@@ -1,5 +1,5 @@
 ﻿Then there arose a great cry of the people and of their wives against their brothers the Jews. 
-There were some who said, "We, our sons and our daughters, are many. Let's get grain, that we may eat and live." 
+There were some who said, "We, our sons and our daughters, are many. Let's get grain, that we can eat and live." 
 There were also some who said, "We're mortgaging our fields, our vineyards, and our houses. Let's get grain, because of the famine." 
 There were also some who said, "We have borrowed money for the king's tribute using our fields and our vineyards as collateral. 
 Yet now our flesh is as the flesh of our brothers, our children as their children. Look, we bring our sons and our daughters into bondage to be servants, and some of our daughters have been brought into bondage. It's also not in our power to help it, because other men have our fields and our vineyards." 

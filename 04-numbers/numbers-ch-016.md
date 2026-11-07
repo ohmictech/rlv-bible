@@ -18,7 +18,7 @@ Each man take his censer and put incense on it, and each man bring before God hi
 They each took his censer, and put fire in it, and laid incense on it, and stood at the door of the Tent of Meeting with Moses and Aaron. 
 Korah assembled all the congregation opposite them to the door of the Tent of Meeting. God's glory appeared to all the congregation. 
 God spoke to Moses and to Aaron, saying, 
-"Separate yourselves from among this congregation, that I may consume them in a moment!" 
+"Separate yourselves from among this congregation, that I can consume them in a moment!" 
 They fell on their faces, and said, "the God of the spirits of all flesh, will one a man drifts, and will you be angry with all the congregation?" 
 God spoke to Moses, saying, 
 "Speak to the congregation, saying, 'Get away from around the tent of Korah, Dathan, and Abiram!'" 
@@ -42,7 +42,7 @@ But on the next day all the congregation of the children of Israel complained ag
 When the congregation was assembled against Moses and against Aaron, they looked toward the Tent of Meeting. Look, the cloud covered it, and God's glory appeared. 
 Moses and Aaron came to the front of the Tent of Meeting. 
 God spoke to Moses, saying, 
-"Get away from among this congregation, that I may consume them in a moment!" They fell on their faces. 
+"Get away from among this congregation, that I can consume them in a moment!" They fell on their faces. 
 Moses said to Aaron, "Take your censer, put fire from the altar in it, lay incense on it, carry it quickly to the congregation, and make things right for them; for wrath has gone out from God! The plague has begun." 
 Aaron did as Moses said, and ran into the middle of the assembly. The plague had already begun among the people. He put on the incense, and made things right for the people. 
 He stood between the dead and the living; and the plague was stayed. 

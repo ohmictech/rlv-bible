@@ -1,6 +1,6 @@
 ﻿When Rachel saw that she bore Jacob no children, Rachel envied her sister. She said to Jacob, "Give me children, or else I'll die." 
 Jacob's anger burned against Rachel, and he said, "Am I in God's place, who has withheld from you the fruit of the womb?" 
-She said, "Look, my maid Bilhah. Go in to her, that she may bear on my knees, and I also may obtain children by her." 
+She said, "Look, my maid Bilhah. Go in to her, that she can bear on my knees, and I also may obtain children by her." 
 She gave him Bilhah her servant as wife, and Jacob went in to her. 
 Bilhah conceived, and bore Jacob a son. 
 Rachel said, "God has judged me, and has also heard my voice, and has given me a son." Therefore she called his name Dan. 
@@ -22,7 +22,7 @@ Afterwards, she bore a daughter, and named her Dinah.
 God remembered Rachel, and God listened to her, and opened her womb. 
 She conceived, bore a son, and said, "God has taken away my reproach." 
 She named him Joseph, saying, "May God add another son to me." 
-When Rachel had borne Joseph, Jacob said to Laban, "Send me away, that I may go to my own place, and to my country. 
+When Rachel had borne Joseph, Jacob said to Laban, "Send me away, that I can go to my own place, and to my country. 
 Give me my wives and my children for whom I have served you, and let me go; for you know my service with which I have served you." 
 Laban said to him, "If now I have found favor in your eyes, stay here, for I have divined that God has blessed me for your sake." 
 He said, "Appoint me your wages, and I'll give it." 

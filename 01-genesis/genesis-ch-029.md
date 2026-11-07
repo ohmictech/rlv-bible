@@ -18,7 +18,7 @@ Leah's eyes were weak, but Rachel was beautiful in form and attractive.
 Jacob loved Rachel. He said, "I'll serve you seven years for Rachel, your younger daughter." 
 Laban said, "It's better that I give her to you, than that I should give her to another man. Stay with me." 
 Jacob served seven years for Rachel. They seemed to him but a few days, for the love he had for her. 
-Jacob said to Laban, "Give me my wife, for my days are fulfilled, that I may go in to her." 
+Jacob said to Laban, "Give me my wife, for my days are fulfilled, that I can go in to her." 
 Laban gathered together all the men of the place, and made a feast. 
 In the evening, he took Leah his daughter, and brought her to Jacob. He went in to her. 
 Laban gave Zilpah his servant to his daughter Leah for a servant. 

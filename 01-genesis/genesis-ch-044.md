@@ -18,12 +18,12 @@ He said, "Far be it from me that I should do so. The man in whose hand the cup i
 Then Judah came near to him, and said, "Oh, my lord, please let your servant speak a word in my lord's ears, and don't let your anger burn against your servant; for you're even as Pharaoh. 
 My lord asked his servants, saying, 'Have you a father, or a brother?' 
 We said to my lord, 'We have a father, an old man, and a child of his old age, a little one; and his brother is dead, and he alone is left of his mother; and his father loves him.' 
-You said to your servants, 'Bring him down to me, that I may set my eyes on him.' 
+You said to your servants, 'Bring him down to me, that I can set my eyes on him.' 
 We said to my lord, 'The boy can't leave his father, for if he should leave his father, his father would die.' 
 You said to your servants, 'Unless your youngest brother comes down with you, you'll see my face no more.' 
 When we came up to your servant my father, we told him the words of my lord. 
 Our father said, 'Go again and buy us a little food.' 
-We said, 'We can't go down. If our youngest brother is with us, then we'll go down: for we may not see the man's face, unless our youngest brother is with us.' 
+We said, 'We can't go down. If our youngest brother is with us, then we'll go down: for we can't see the man's face, unless our youngest brother is with us.' 
 Your servant, my father, said to us, 'You know that my wife bore me two sons. 
 One went out from me, and I said, "Surely he's torn in pieces;" and I haven't seen him since. 
 If you take this one also from me, and harm happens to him, you'll bring down my gray hairs with sorrow to Hades.' 

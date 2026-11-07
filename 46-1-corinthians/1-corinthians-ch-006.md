@@ -12,7 +12,7 @@ Some of you were like that. But you were washed. You were set apart. You were ma
 "All things are permitted for me," but not all things are helpful. "All things are permitted for me," but I won't be brought under the power of anything. 
 "Foods for the belly, and the belly for foods," but God will bring both it and them to nothing. But the body isn't for sleeping around, but for the Lord, and the Lord for the body. 
 Now God raised the Lord, and will also raise us by his power. 
-Don't you know that your bodies are members of Christ? Should I then take the members of Christ and make them members of a woman who sleeps around? May it never be! 
+Don't you know that your bodies are members of Christ? Should I then take the members of Christ and make them members of a woman who sleeps around? Not a chance! 
 Or don't you know that the one joined to a woman who sleeps around is one body? For, "The two," he says, "will become one flesh." 
 But he who's joined to the Lord is one spirit. 
 Run from sleeping around! "Every wrongdoing a person makes is outside the body," but the one who sleeps around wrongs his own body. 

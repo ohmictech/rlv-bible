@@ -37,17 +37,17 @@ then hear in the sky, and forgive the wrongdoing of your servants, and of your p
 "If there's famine in the land, if there's pestilence, if there's blight, mildew, locust or caterpillar; if their enemy besieges them in the land of their cities, whatever plague, whatever sickness there's, 
 whatever prayer and supplication is made by any man, or by all your people Israel, who will each know the plague of his own heart, and spread out his hands toward this house, 
 then hear in the sky, your dwelling place, and forgive, and act, and give to every man according to all his ways, whose heart you know (for you, even you only, know the hearts of all the children of men); 
-that they may fear you all the days that they live in the land which you gave to our fathers. 
+that they can fear you all the days that they live in the land which you gave to our fathers. 
 "Moreover, concerning the foreigner, who isn't of your people Israel, when he comes out of a far country for your name's sake 
 (for they will hear of your great name and of your mighty hand and of your outstretched arm), when he comes and prays toward this house, 
-hear in the sky, your dwelling place, and do according to all that the foreigner calls to you for; that everyones of the earth may know your name, to fear you, as do your people Israel, and that they may know that this house which I have built is called by your name. 
+hear in the sky, your dwelling place, and do according to all that the foreigner calls to you for; that everyones of the earth may know your name, to fear you, as do your people Israel, and that they can know that this house which I have built is called by your name. 
 "If your people go out to battle against their enemy, by whatever way you will send them, and they pray to God toward the city which you have chosen, and toward the house which I have built for your name, 
 then hear in the sky their prayer and their supplication, and maintain their cause. 
 If they wrong you (for there's no man who doesn't drift), and you're angry with them and deliver them to the enemy, so that they carry them away captive to the land of the enemy, far off or near; 
 yet if they repent in the land where they're carried captive, and turn again, and make supplication to you in the land of those who carried them captive, saying, 'We have drifted and have done perversely; we have dealt guiltily,' 
 if they return to you with all their heart and with all their soul in the land of their enemies who carried them captive, and pray to you toward their land which you gave to their fathers, the city which you have chosen and the house which I have built for your name, 
 then hear their prayer and their supplication in the sky, your dwelling place, and maintain their cause; 
-and forgive your people who have wronged you, and all their rebellion in which they have transgressed against you; and give them compassion before those who carried them captive, that they may have compassion on them 
+and forgive your people who have wronged you, and all their rebellion in which they have transgressed against you; and give them compassion before those who carried them captive, that they can have compassion on them 
 (for they're your people and your inheritance, which you brought out of Egypt, from the middle of the iron furnace); 
 that your eyes may be open to the supplication of your servant and to the supplication of your people Israel, to listen to them whenever they cry to you. 
 You separated them from among everyones of the earth to be your inheritance, as you spoke by Moses your servant, when you brought our fathers out of Egypt, God." 
@@ -55,8 +55,8 @@ It was so, that when Solomon had finished praying all this prayer and supplicati
 He stood and blessed all the assembly of Israel with a loud voice, saying, 
 "Blessed be God, who has given rest to his people Israel, according to all that he promised. There hasn't failed one word of all his good promise, which he promised by Moses his servant. 
 May our God be with us as he was with our fathers. Let him not leave us or forsake us, 
-that he may incline our hearts to him, to walk in all his ways, and to keep his commandments, his statutes, and his ordinances, which he commanded our fathers. 
-Let these my words, with which I have made supplication before God, be near to our God day and night, that he may maintain the cause of his servant and the cause of his people Israel, as every day requires; 
+that he can incline our hearts to him, to walk in all his ways, and to keep his commandments, his statutes, and his ordinances, which he commanded our fathers. 
+Let these my words, with which I have made supplication before God, be near to our God day and night, that he can maintain the cause of his servant and the cause of his people Israel, as every day requires; 
 that everyones of the earth may know that God is the true God. There's no one else. 
 "Let your heart be perfect with our God, to walk in his statutes, and to keep his commandments, as it's today." 
 The king, and all Israel with him, offered sacrifice before God. 

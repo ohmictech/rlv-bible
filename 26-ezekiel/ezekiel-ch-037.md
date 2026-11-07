@@ -6,7 +6,7 @@ The God says to these bones: "Look, I'll cause breath to enter into you, and you
 I'll lay sinews on you, and will bring up flesh on you, and cover you with skin, and put breath in you, and you'll live. Then you'll know that I'm God."'" 
 So I prophesied as I was commanded. As I prophesied, there was a noise, and look, there was an earthquake. Then the bones came together, bone to its bone. 
 I saw, and, look, there were sinews on them, and flesh came up, and skin covered them above; but there was no breath in them. 
-Then he said to me, "Prophesy to the wind, prophesy, son of man, and tell the wind, 'The God says: "Come from the four winds, breath, and breathe on these slain, that they may live."'" 
+Then he said to me, "Prophesy to the wind, prophesy, son of man, and tell the wind, 'The God says: "Come from the four winds, breath, and breathe on these slain, that they can live."'" 
 So I prophesied as he commanded me, and the breath came into them, and they lived, and stood up on their feet, an exceedingly great army. 
 Then he said to me, "Son of man, these bones are the whole house of Israel. Look, they say, 'Our bones are dried up, and our hope is lost. We're completely cut off.' 
 Therefore prophesy, and tell them, 'The God says: "Look, I'll open your graves, and cause you to come up out of your graves, my people; and I'll bring you into the land of Israel. 
@@ -14,7 +14,7 @@ You'll know that I'm God, when I have opened your graves and caused you to come 
 I'll put my Spirit in you, and you'll live. Then I'll place you in your own land; and you'll know that I, God, have spoken it and performed it," says God.'" 
 God's word came again to me, saying, 
 "You, son of man, take one stick and write on it, 'For Judah, and for the children of Israel his companions.' Then take another stick, and write on it, 'For Joseph, the stick of Ephraim, and for all the house of Israel his companions.' 
-Then join them for yourself to one another into one stick, that they may become one in your hand. 
+Then join them for yourself to one another into one stick, that they can become one in your hand. 
 "When the children of your people speak to you, saying, 'Won't you show us what you mean by these?' 
 tell them, 'The God says: "Look, I'll take the stick of Joseph, which is in the hand of Ephraim, and the tribes of Israel his companions; and I'll put them with it, with the stick of Judah, and make them one stick, and they'll be one in my hand. 
 The sticks on which you write will be in your hand before their eyes."' 

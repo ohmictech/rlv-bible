@@ -13,7 +13,7 @@ In the morning, God's word came to me, saying,
 I'll also spread my net on him, and he'll be taken in my snare. I'll bring him to Babylon to the land of the Chaldeans; yet he won't see it, though he'll die there. 
 I'll scatter toward every wind everyone who's around him to help him, and all his bands. I'll draw out the sword after them. 
 "'They'll know that I'm God when I disperse them among the nations and scatter them through the countries. 
-But I'll leave a few men of them from the sword, from the famine, and from the pestilence, that they may declare all their abominations among the nations where they come. Then they'll know that I'm God.'" 
+But I'll leave a few men of them from the sword, from the famine, and from the pestilence, that they can declare all their abominations among the nations where they come. Then they'll know that I'm God.'" 
 Moreover God's word came to me, saying, 
 "Son of man, eat your bread with quaking, and drink your water with trembling and with fearfulness. 
 Tell the people of the land, 'The God says concerning the inhabitants of Jerusalem and the land of Israel: "They'll eat their bread with fearfulness and drink their water in dismay, that her land may be desolate, and all that's therein, because of the violence of everyone who dwells therein. 

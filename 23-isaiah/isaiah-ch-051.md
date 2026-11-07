@@ -13,11 +13,11 @@ Those ransomed by God will return, and come with singing to Zion. Perpetual joy 
 Have you forgotten God your Maker, who stretched out the sky, and laid the foundations of the earth? Do you live in fear continually all day because of the fury of the oppressor, when he prepares to destroy? Where is the fury of the oppressor? 
 The captive exile will speedily be freed. He won't die and go down into the pit. His bread won't fail. 
 I'm your God, who stirs up the sea so that its waves roar. the God of Armies is his name. 
-I have put my words in your mouth and have covered you in the shadow of my hand, that I may plant the sky, and lay the foundations of the earth, and tell Zion, 'You're my people.'" 
+I have put my words in your mouth and have covered you in the shadow of my hand, that I can plant the sky, and lay the foundations of the earth, and tell Zion, 'You're my people.'" 
 Awake, awake! Stand up, Jerusalem, you who have drunk from God's hand the cup of his wrath. You have drunken the bowl of the cup of staggering, and drained it. 
 There's no one to guide her among all the sons to whom she has given birth; and there's no one who takes her by the hand among all the sons whom she has brought up. 
 These two things have happened to you, who will grieve with you?, desolation and destruction, and famine and the sword. How can I comfort you? 
 Your sons have fainted. They lie at the head of all the streets, like an antelope in a net. They're full of God's wrath, the rebuke of your God. 
 So now hear this, you afflicted, and drunken, but not with wine: 
 Your God, your God who pleads the cause of his people, says, "Look, I have taken out of your hand the cup of staggering, even the bowl of the cup of my wrath. You won't drink it any more. 
-I'll put it into the hand of those who afflict you, who have said to your soul, 'Bow down, that we may walk over you;' and you have laid your back as the ground, like a street to those who walk over." 
+I'll put it into the hand of those who afflict you, who have said to your soul, 'Bow down, that we can walk over you;' and you have laid your back as the ground, like a street to those who walk over." 

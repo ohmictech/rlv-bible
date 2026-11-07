@@ -13,7 +13,7 @@ God spoke to Moses, saying,
 They will give this, everyone who passes over to those who are counted, half a shekel according to the shekel of the sanctuary (the shekel is twenty gerahs); half a shekel for an offering to God. 
 Everyone who passes over to those who are counted, from twenty years old and upward, will give the offering to God. 
 The rich won't give more, and the poor won't give less, than the half shekel, when they give the offering of God, to make things right for your souls. 
-You will take the making right money from the children of Israel, and will appoint it for the service of the Tent of Meeting; that it may be a memorial for the children of Israel before God, to make things right for your souls." 
+You will take the making right money from the children of Israel, and will appoint it for the service of the Tent of Meeting; that it might be a memorial for the children of Israel before God, to make things right for your souls." 
 God spoke to Moses, saying, 
 "You will also make a bamistake of bronze, and its base of bronze, in which to wash. You will put it between the Tent of Meeting and the altar, and you will put water in it. 
 Aaron and his sons will wash their hands and their feet in it. 
@@ -26,8 +26,8 @@ You will make it into a holy anointing oil, a perfume compounded after the art o
 You will use it to anoint the Tent of Meeting, the ark of the covenant, 
 the table and all its articles, the lamp stand and its accessories, the altar of incense, 
 the altar of burnt offering with all its utensils, and the bamistake with its base. 
-You will sanctify them, that they may be most holy. Whatever touches them will be holy. 
-You will anoint Aaron and his sons, and sanctify them, that they may minister to me in the priest's office. 
+You will sanctify them, that they can be most holy. Whatever touches them will be holy. 
+You will anoint Aaron and his sons, and sanctify them, that they can minister to me in the priest's office. 
 You will speak to the children of Israel, saying, 'This will be a holy anointing oil to me throughout your generations. 
 It won't be poured on man's flesh, and don't make any like it, according to its composition. It's holy. It will be holy to you. 
 Whoever compounds any like it, or whoever puts any of it on a stranger, he will be cut off from his people.'" 

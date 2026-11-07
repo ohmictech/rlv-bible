@@ -25,7 +25,7 @@ They don't say in their heart, 'Let's now fear our God, who gives rain, both the
 "Your guilt have turned away these things, and your mistakes have withheld good from you. 
 Guilty men are found among my people. They watch, as fowlers lie in wait. They set a trap. They catch men. 
 As a cage is full of birds, so are their houses full of deceit. So they have become great, and grew rich. 
-They have grown fat. They shine; yes, they excel in deeds of guilt. They don't plead the cause, the cause of the fatherless, that they may prosper; and they don't defend the rights of the needy. 
+They have grown fat. They shine; yes, they excel in deeds of guilt. They don't plead the cause, the cause of the fatherless, that they can prosper; and they don't defend the rights of the needy. 
 "Shouldn't I punish for these things?" says God. "Shouldn't my soul be avenged on such a nation as this? 
 "An astonishing and horrible thing has happened in the land. 
 The spokesmen prophesy falsely, and the priests rule by their own authority; and my people love to have it so. What will you do in the end of it? 

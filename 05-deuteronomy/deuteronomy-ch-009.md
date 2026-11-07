@@ -2,7 +2,7 @@
 a people great and tall, the sons of the Anakim, whom you know, and of whom you have heard say, "Who can stand before the sons of Anak?" 
 Know today that your God is he who goes over before you as a devouring fire. He'll destroy them and he'll bring them down before you. So you will drive them out and make them perish quickly, as God has spoken to you. 
 Don't say in your heart, after your God has thrust them out from before you, "For my righteousness God has brought me in to possess this land;" because God drives them out before you because of the guilt of these nations. 
-Not for your righteousness or for the uprightness of your heart do you go in to possess their land; but for the guilt of these nations your God does drive them out from before you, and that he may establish the word which God swore to your fathers, to Abraham, to Isaac, and to Jacob. 
+Not for your righteousness or for the uprightness of your heart do you go in to possess their land; but for the guilt of these nations your God does drive them out from before you, and that he can establish the word which God swore to your fathers, to Abraham, to Isaac, and to Jacob. 
 Know that your God doesn't give you this good land to possess for your righteousness, for you're a stiff-necked people. 
 Remember, and don't forget, how you provoked your God to wrath in the wilderness. From the day that you left the land of Egypt until you came to this place, you have been rebellious against God. 
 Also in Horeb you provoked God to wrath, and God was angry with you to destroy you. 
@@ -11,7 +11,7 @@ God delivered to me the two stone tablets written with God's finger. On them wer
 It came to pass at the end of forty days and forty nights that God gave me the two stone tablets, even the tablets of the covenant. 
 God said to me, "Arise, get down quickly from here; for your people whom you have brought out of Egypt have corrupted themselves. They have quickly turned away from the way which I commanded them. They have made a molten image for themselves!" 
 Furthermore God spoke to me, saying, "I have seen these people, and look, they're a stiff-necked people. 
-Leave me alone, that I may destroy them, and blot out their name from under the sky; and I'll make of you a nation mightier and greater than they." 
+Leave me alone, that I can destroy them, and blot out their name from under the sky; and I'll make of you a nation mightier and greater than they." 
 So I turned and came down from the mountain, and the mountain was burning with fire. The two tablets of the covenant were in my two hands. 
 I looked, and look, you had wronged your God. You had made yourselves a molded calf. You had quickly turned away from the way which God had commanded you. 
 I took hold of the two tablets, and threw them out of my two hands, and broke them before your eyes. 

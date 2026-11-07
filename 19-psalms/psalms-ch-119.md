@@ -15,7 +15,7 @@ I have rejoiced in the way of your testimonies, as much as in all riches.
 I'll meditate on your precepts, and consider your ways. 
 I'll delight myself in your statutes. I won't forget your word. GIMEL 
 Do good to your servant. I'll live and I'll obey your word. 
-Open my eyes, that I may see wondrous things out of your law. 
+Open my eyes, that I can see wondrous things out of your law. 
 I'm a stranger on the earth. Don't hide your commandments from me. 
 My soul is consumed with longing for your ordinances at all times. 
 You have rebuked the proud who are cursed, who wander from your commandments. 
@@ -35,7 +35,7 @@ Give me understanding, and I'll keep your law. Yes, I'll obey it with my whole h
 Direct me in the path of your commandments, for I delight in them. 
 Turn my heart toward your statutes, not toward selfish gain. 
 Turn my eyes away from looking at worthless things. Revive me in your ways. 
-Fulfill your promise to your servant, that you may be feared. 
+Fulfill your promise to your servant, that you can be feared. 
 Take away my disgrace that I dread, for your ordinances are good. 
 Look, I long for your precepts! Revive me in your righteousness. VAV 
 Let your loving kindness also come to me, God, your salvation, according to your word. 
@@ -68,16 +68,16 @@ Before I was afflicted, I went astray; but now I observe your word.
 You're good, and do good. Teach me your statutes. 
 The proud have smeared a lie upon me. With my whole heart, I'll keep your precepts. 
 Their heart is as callous as the fat, but I delight in your law. 
-It's good for me that I have been afflicted, that I may learn your statutes. 
+It's good for me that I have been afflicted, that I can learn your statutes. 
 The law of your mouth is better to me than thousands of pieces of gold and silver. YODH 
-Your hands have made me and formed me. Give me understanding, that I may learn your commandments. 
+Your hands have made me and formed me. Give me understanding, that I can learn your commandments. 
 Those who fear you'll see me and be glad, because I have put my hope in your word. 
 God, I know that your judgments are righteous, that in faithfulness you have afflicted me. 
 Please let your loving kindness be for my comfort, according to your word to your servant. 
-Let your tender mercies come to me, that I may live; for your law is my delight. 
+Let your tender mercies come to me, that I can live; for your law is my delight. 
 Let the proud be disappointed, for they have overthrown me wrongfully. I'll meditate on your precepts. 
 Let those who fear you turn to me. They'll know your statutes. 
-Let my heart be blameless toward your decrees, that I may not be disappointed. KAPF 
+Let my heart be blameless toward your decrees, that I can't be disappointed. KAPF 
 My soul faints for your salvation. I hope in your word. 
 My eyes fail for your word. I say, "When will you comfort me?" 
 I have become like a wineskin in the smoke. I don't forget your statutes. 
@@ -112,8 +112,8 @@ I have taken your testimonies as a heritage for the eras, for they're the joy of
 I have set my heart to perform your statutes for the eras, even to the end. SAMEKH 
 I hate double-minded men, but I love your law. 
 You're my hiding place and my shield. I hope in your word. 
-Depart from me, you those who do bad, that I may keep the commandments of my God. 
-Uphold me according to your word, that I may live. Let me not be ashamed of my hope. 
+Depart from me, you those who do bad, that I can keep the commandments of my God. 
+Uphold me according to your word, that I can live. Let me not be ashamed of my hope. 
 Hold me up, and I'll be safe, and will have respect for your statutes continually. 
 You reject everyone who strays from your statutes, for their deceit is in vain. 
 You put away all the guilty of the earth like dross. So I love your testimonies. 
@@ -122,7 +122,7 @@ I have done what's just and righteous. Don't leave me to my oppressors.
 Ensure your servant's well-being. Don't let the proud oppress me. 
 My eyes fail looking for your salvation, for your righteous word. 
 Deal with your servant according to your loving kindness. Teach me your statutes. 
-I'm your servant. Give me understanding, that I may know your testimonies. 
+I'm your servant. Give me understanding, that I can know your testimonies. 
 It's time to act, God, for they break your law. 
 So I love your commandments more than gold, yes, more than pure gold. 
 So I consider all of your precepts to be right. I hate every false way. PE 
@@ -141,7 +141,7 @@ Your promises have been thoroughly tested, and your servant loves them.
 I'm small and despised. I don't forget your precepts. 
 Your righteousness is an perpetual righteousness. Your law is truth. 
 Trouble and anguish have taken hold of me. Your commandments are my delight. 
-Your testimonies are righteous for the eras. Give me understanding, that I may live. QOPH 
+Your testimonies are righteous for the eras. Give me understanding, that I can live. QOPH 
 I have called with my whole heart. Answer me, God! I'll keep your statutes. 
 I have called to you. Save me! I'll obey your statutes. 
 I rise before dawn and cry for help. I put my hope in your words. 
@@ -172,5 +172,5 @@ Let my lips utter praise, for you teach me your statutes.
 Let my tongue sing of your word, for all your commandments are righteousness. 
 Let your hand be ready to help me, for I have chosen your precepts. 
 I have longed for your salvation, God. Your law is my delight. 
-Let my soul live, that I may praise you. Let your ordinances help me. 
+Let my soul live, that I can praise you. Let your ordinances help me. 
 I have gone astray like a lost sheep. Seek your servant, for I don't forget your commandments. 

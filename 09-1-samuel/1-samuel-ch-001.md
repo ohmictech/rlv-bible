@@ -19,7 +19,7 @@ She said, "Let your servant find favor in your sight." So the woman went her way
 They rose up in the morning early and worshiped God, then returned and came to their house to Ramah. Then Elkanah knew Hannah his wife; and God remembered her. 
 When the time had come, Hannah conceived, and bore a son; and she named him Samuel, saying, "Because I have asked him of God." 
 The man Elkanah, and all his house, went up to offer to God the yearly sacrifice and his vow. 
-But Hannah didn't go up, for she said to her husband, "Not until the child is weaned; then I'll bring him, that he may appear before God, and stay there for the eras." 
+But Hannah didn't go up, for she said to her husband, "Not until the child is weaned; then I'll bring him, that he can appear before God, and stay there for the eras." 
 Elkanah her husband said to her, "Do what seems good to you. Wait until you have weaned him; only may God establish his word." So the woman waited and nursed her son until she weaned him. 
 When she had weaned him, she took him up with her, with three bulls, and one ephah of meal, and a container of wine, and brought him to God's house in Shiloh. The child was young. 
 They killed the bull, and brought the child to Eli. 

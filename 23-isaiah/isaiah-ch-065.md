@@ -5,7 +5,7 @@ who sit among the graves, and spend nights in secret places; who eat pig's meat,
 who say, 'Stay by yourself, don't come near to me, for I'm holier than you.' These are smoke in my nose, a fire that burns all day. 
 "Look, it's written before me: I won't keep silence, but will repay, yes, I'll repay into their bosom 
 your own guilt and the guilt of your fathers together", says God, "who have burned incense on the mountains, and blasphemed me on the hills. So I'll first measure their work into their bosom." 
-God says, "As the new wine is found in the cluster, and one says, 'Don't destroy it, for a blessing is in it:' so I'll do for my servants' sake, that I may not destroy them all. 
+God says, "As the new wine is found in the cluster, and one says, 'Don't destroy it, for a blessing is in it:' so I'll do for my servants' sake, that I can't destroy them all. 
 I'll bring offspring out of Jacob, and out of Judah an inheritor of my mountains. My chosen will inherit it, and my servants will dwell there. 
 Sharon will be a fold of flocks, and the valley of Achor a place for herds to lie down in, for my people who have sought me. 
 "But you who forsake God, who forget my holy mountain, who prepare a table for Fortune, and who fill up mixed wine to Destiny; 

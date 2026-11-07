@@ -1,6 +1,6 @@
 ﻿Now these are the commandments, the statutes, and the ordinances, which your God commanded to teach you, that you might do them in the land that you go over to possess; 
 that you might fear your God, to keep all his statutes and his commandments, which I command you, you, your son, and your son's son, all the days of your life; and that your days may be prolonged. 
-Hear, Israel, and observe to do it, that it may be well with you, and that you may increase mightily, as the God of your fathers has promised to you, in a land flowing with milk and honey. 
+Hear, Israel, and observe to do it, that it might be well with you, and that you can increase mightily, as the God of your fathers has promised to you, in a land flowing with milk and honey. 
 Hear, Israel: God is our God. God is one. 
 You will love your God with all your heart, with all your soul, and with all your might. 
 These words, which I command you today, will be on your heart; 
@@ -15,7 +15,7 @@ Don't go after other gods, of the gods of the peoples who are around you,
 for your God among you is a jealous God, lest the anger of your God be kindled against you, and he destroy you from off the face of the earth. 
 Don't tempt your God, as you tempted him in Massah. 
 You will diligently keep the commandments of your God, and his testimonies, and his statutes, which he has commanded you. 
-You will do that which is right and good in God's sight, that it may be well with you and that you may go in and possess the good land which God swore to your fathers, 
+You will do that which is right and good in God's sight, that it might be well with you and that you can go in and possess the good land which God swore to your fathers, 
 to thrust out all your enemies from before you, as God has spoken. 
 When your son asks you in time to come, saying, "What do the testimonies, the statutes, and the ordinances, which our God has commanded you mean?" 
 then you will tell your son, "We were Pharaoh's slaves in Egypt. God brought us out of Egypt with a mighty hand; 

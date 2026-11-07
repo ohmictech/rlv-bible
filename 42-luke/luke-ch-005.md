@@ -21,7 +21,7 @@ Seeing their trust, he said to him, "Man, your mistakes are released."
 The Bible teachers and the strict religious ones began to reason, saying, "Who's this who speaks slander? Who can release mistakes, but God alone?" 
 But Jesus, perceiving their thoughts, answered them, "Why are you reasoning so in your hearts? 
 Which is easier to say, 'Your mistakes are released,' or to say, 'Get up and walk'? 
-But that you may know that the Human One has authority on earth to release mistakes," he said to the paralyzed man, "I tell you, get up, take your cot, and go to your house." 
+But that you can know that the Human One has authority on earth to release mistakes," he said to the paralyzed man, "I tell you, get up, take your cot, and go to your house." 
 Immediately he rose up before them, and took up what he had been lying on, and went home, giving honor to God. 
 Amazement took hold on all, and they gave honor to God. They were filled with fear, saying, "We have seen wonderful things today." 
 After these things he went out and saw a tax collector named Levi sitting at the tax collection office, and said to him, "Follow me!" 

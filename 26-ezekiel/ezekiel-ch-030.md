@@ -18,7 +18,7 @@ The young men of Aven and of Pibeseth will fall by the sword. They'll go into ca
 At Tehaphnehes also the day will withdraw itself, when I break the yokes of Egypt there. The pride of her power will cease in her. As for her, a cloud will cover her, and her daughters will go into captivity. 
 Thus I'll execute judgments on Egypt. Then they'll know that I'm God."'" 
 In the eleventh year, in the first month, in the seventh day of the month, God's word came to me, saying, 
-"Son of man, I have broken the arm of Pharaoh king of Egypt. Look, it hasn't been bound up, to apply medicines, to put a bandage to bind it, that it may become strong to hold the sword. 
+"Son of man, I have broken the arm of Pharaoh king of Egypt. Look, it hasn't been bound up, to apply medicines, to put a bandage to bind it, that it might become strong to hold the sword. 
 So God says: 'Look, I'm against Pharaoh king of Egypt, and will break his arms, the strong arm, and that which was broken. I'll cause the sword to fall out of his hand. 
 I'll scatter the Egyptians among the nations, and will disperse them through the countries. 
 I'll strengthen the arms of the king of Babylon, and put my sword in his hand; but I'll break the arms of Pharaoh, and he'll groan before the king of Babylon with the groaning of a mortally wounded man. 

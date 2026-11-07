@@ -7,7 +7,7 @@ Why have I seen it? They're dismayed and are turned backward. Their mighty ones 
 "Who's this who rises up like the Nile, like rivers whose waters surge? 
 Egypt rises up like the Nile, like rivers whose waters surge. He says, 'I'll rise up. I'll cover the earth. I'll destroy cities and its inhabitants.' 
 Go up, you horses! Rage, you chariots! Let the mighty men go out: Cush and Put, who handle the shield; and the Ludim, who handle and bend the bow. 
-That day is of the Lord, GOD of Armies, a day of vengeance, that he may avenge himself of his adversaries. The sword will devour and be satiated, and will drink its fill of their blood; for the Lord, GOD of Armies, has a sacrifice in the north country by the river Euphrates. 
+That day is of the Lord, GOD of Armies, a day of vengeance, that he can avenge himself of his adversaries. The sword will devour and be satiated, and will drink its fill of their blood; for the Lord, GOD of Armies, has a sacrifice in the north country by the river Euphrates. 
 Go up into Gilead, and take balm, virgin daughter of Egypt. You use many medicines in vain. There's no healing for you. 
 The nations have heard of your shame, and the earth is full of your cry; for the mighty man has stumbled against the mighty, they both fall together." 
 The word that God spoke to Jeremiah the spokesman, how that Nebuchadnezzar king of Babylon should come and strike the land of Egypt: 

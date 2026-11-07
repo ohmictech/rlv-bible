@@ -13,7 +13,7 @@ His students said, "Lord, if he has fallen asleep, he'll get better."
 Now Jesus had spoken of his death, but they thought that he spoke of taking rest in sleep. 
 So Jesus said to them plainly then, "Lazarus is dead. 
 I'm glad for your sakes that I wasn't there, so that you can trust. Nevertheless, let's go to him." 
-Thomas, who's called Didymus, said to his fellow students, "Let's also go, that we may die with him." 
+Thomas, who's called Didymus, said to his fellow students, "Let's also go, that we can die with him." 
 So when Jesus came, he found that he had been in the tomb four days already. 
 Now Bethany was near Jerusalem, about two miles away. 
 Many of the Jewish people had joined the women around Martha and Mary, to comfort them about their brother. 
@@ -39,7 +39,7 @@ Jesus, again groaning in himself, came to the tomb. Now it was a cave, and a sto
 Jesus said, "Take away the stone." Martha, the sister of him who was dead, said to him, "Lord, by this time there's a stench, for he has been dead four days." 
 Jesus said to her, "Didn't I tell you that if you trusted, you'd see God's weight?" 
 So they took away the stone from the place where the dead man was lying. Jesus lifted up his eyes and said, "Father, I thank you that you listened to me. 
-I know that you always listen to me, but because of the crowd standing around I said this, that they may trust that you sent me." 
+I know that you always listen to me, but because of the crowd standing around I said this, that they can trust that you sent me." 
 When he had said this, he cried with a loud voice, "Lazarus, come out!" 
 He who was dead came out, bound hand and foot with wrappings, and his face was wrapped around with a cloth. Jesus said to them, "Untie him, and let him go." 
 So many of the Jewish people who came to Mary and saw what Jesus did trusted in him. 

@@ -33,4 +33,4 @@ You'll see the affliction of my habitation, in all the wealth which I'll give Is
 The man of yours whom I don't cut off from my altar will consume your eyes and grieve your heart. All the increase of your house will die in the flower of their age. 
 This will be the sign to you that will come on your two sons, on Hophni and Phinehas: in one day they'll both die. 
 I'll raise up a faithful priest for myself who will do according to that which is in my heart and in my mind. I'll build him a sure house. He'll walk before my anointed for the eras. 
-It'll happen that everyone who's left in your house will come and bow down to him for a piece of silver and a loaf of bread, and will say, "Please put me into one of the priests' offices, that I may eat a morsel of bread."'" 
+It'll happen that everyone who's left in your house will come and bow down to him for a piece of silver and a loaf of bread, and will say, "Please put me into one of the priests' offices, that I can eat a morsel of bread."'" 

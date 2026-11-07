@@ -5,7 +5,7 @@ However I sent to you all my servants the spokesmen, rising up early and sending
 But they didn't listen and didn't incline their ear. They didn't turn from their guilt, to stop burning incense to other gods. 
 So my wrath and my anger was poured out, and was kindled in the cities of Judah and in the streets of Jerusalem; and they're wasted and desolate, as it's today.' 
 "Therefore now the God of Armies, the God of Israel says: 'Why do you commit great bad against your own souls, to cut off from yourselves man and woman, infant and nursing child out of the middle of Judah, to leave yourselves no one remaining, 
-in that you provoke me to anger with the works of your hands, burning incense to other gods in the land of Egypt where you have gone to live, that you may be cut off, and that you may be a curse and a reproach among all the nations of the earth? 
+in that you provoke me to anger with the works of your hands, burning incense to other gods in the land of Egypt where you have gone to live, that you can be cut off, and that you can be a curse and a reproach among all the nations of the earth? 
 Have you forgotten the guilt of your fathers, the guilt of the kings of Judah, the guilt of their wives, your own guilt, and the guilt of your wives which they committed in the land of Judah and in the streets of Jerusalem? 
 They aren't humbled even to this day, neither have they feared, nor walked in my law, nor in my statutes, that I set before you and before your fathers.' 
 "Therefore the God of Armies, the God of Israel says: 'Look, I'll set my face against you for bad, even to cut off all Judah. 
@@ -26,5 +26,5 @@ The God of Armies, the God of Israel says, 'You and your wives have both spoken 
 "Therefore hear God's word, all Judah who dwell in the land of Egypt: 'Look, I have sworn by my great name,' says God, 'that my name will no more be named in the mouth of any man of Judah in all the land of Egypt, saying, "As God lives." 
 Look, I watch over them for bad, and not for good; and all the men of Judah who are in the land of Egypt will be consumed by the sword and by the famine, until they're all gone. 
 Those who escape the sword will return out of the land of Egypt into the land of Judah few in number. All the remnant of Judah, who have gone into the land of Egypt to live there, will know whose word will stand, mine or theirs. 
-"'This will be the sign to you,' says God, 'that I'll punish you in this place, that you may know that my words will surely stand against you for bad.' 
+"'This will be the sign to you,' says God, 'that I'll punish you in this place, that you can know that my words will surely stand against you for bad.' 
 God says, 'Look, I'll give Pharaoh Hophra king of Egypt into the hand of his enemies and into the hand of those who seek his life, just as I gave Zedekiah king of Judah into the hand of Nebuchadnezzar king of Babylon, who was his enemy and sought his life.'" 

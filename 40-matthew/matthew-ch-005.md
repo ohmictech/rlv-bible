@@ -13,7 +13,7 @@ Celebrate, and be very glad, for your earned result in the sky is great. That's 
 "You're the salt of the earth, but if the salt goes flat, what will make it salty again? It's good for nothing anymore except to be thrown out and trampled on. 
 "You're the light of the world. A city on a hill can't be hidden. 
 People don't light a lamp and put it under a basket. They put it on a stand, and it shines for everyone in the house. 
-Even so, let your light shine in front of people, that they may see your good deeds and honor your Father who's in the sky. 
+Even so, let your light shine in front of people, that they can see your good deeds and honor your Father who's in the sky. 
 "Don't think that I came to break up the law or the prophets. I didn't come to break up, but to fill completely. 
 Truly, I tell you, until the sky and earth pass away, not even one smallest letter or one tiny pen stroke will in any way pass away from the law, until all things are accomplished. 
 So whoever breaks one of the least of these commands and teaches others to do the same will be called least in the reign of the sky. But whoever does them and teaches them will be called great in the reign of the sky. 
@@ -42,7 +42,7 @@ Whoever compels you to go one mile, go with him two.
 Give to him who asks you, and don't turn away someone who seeks to borrow from you. 
 "You have heard that it was said, 'You should love your neighbor and hate your enemy.' 
 But I tell you, love your enemies, bless those who curse you, do good to those who hate you, and pray for those who mistreat you and hunt you down, 
-that you may be children of your Father who's in the sky. He makes his sun rise on the malicious and the good, and sends rain on the right and the unright. 
+that you can be children of your Father who's in the sky. He makes his sun rise on the malicious and the good, and sends rain on the right and the unright. 
 If you love those who love you, what pay do you have? Don't even the tax collectors do the same? 
 If you only greet your friends, what more do you do than others? Don't even the outsiders do the same? 
 So be complete, just as your Father in the sky is complete. 

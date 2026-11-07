@@ -20,7 +20,7 @@ God said to Moses in Midian, "Go, return into Egypt; for all the men who sought 
 Moses took his wife and his sons, and set them on a donkey, and he returned to the land of Egypt. Moses took God's rod in his hand. 
 God said to Moses, "When you go back into Egypt, see that you do before Pharaoh all the wonders which I have put in your hand, but I'll harden his heart and he won't let the people go. 
 You will tell Pharaoh, 'God says, Israel is my son, my firstborn, 
-and I have said to you, "Let my son go, that he may serve me;" and you have refused to let him go. Look, I'll kill your firstborn son.'" 
+and I have said to you, "Let my son go, that he can serve me;" and you have refused to let him go. Look, I'll kill your firstborn son.'" 
 On the way at a lodging place, God met Moses and wanted to kill him. 
 Then Zipporah took a flint, and cut off the foreskin of her son, and cast it at his feet; and she said, "Surely you're a bridegroom of blood to me." 
 So he let him alone. Then she said, "You're a bridegroom of blood," because of the circumcision. 

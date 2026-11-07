@@ -21,7 +21,7 @@ They, when they heard it, gave honor to God. They said to him, "You see, brother
 They have been informed about you, that you teach all the Jewish people who are among the nations to forsake Moses, telling them not to circumcise their children and not to walk after the customs. 
 What then? The gathering must certainly meet, for they'll hear that you have come. 
 So do what we tell you. We have four men who have taken a vow. 
-Take them and purify yourself with them, and pay their expenses for them, that they may shave their heads. Then all will know that there's no truth in the things that they have been informed about you, but that you yourself also walk keeping the law. 
+Take them and purify yourself with them, and pay their expenses for them, that they can shave their heads. Then all will know that there's no truth in the things that they have been informed about you, but that you yourself also walk keeping the law. 
 But concerning the nations who trust, we have written our decision that they should observe no such thing, except that they should keep themselves from food offered to idols, from blood, from strangled things, and from sleeping around." 
 Then Paul took the men, and the next day purified himself and went with them into the temple courts, declaring the fulfillment of the days of washing, until the offering was offered for every one of them. 
 When the seven days were almost completed, the Jewish leaders from Asia, when they saw him in the temple courts, stirred up all the crowd and laid hands on him, 

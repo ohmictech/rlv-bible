@@ -21,11 +21,11 @@ A certain beggar, named Lazarus, was taken to his gate, full of sores,
 and desiring to be fed with the crumbs that fell from the rich man's table. Yes, even the dogs came and licked his sores. 
 The beggar died, and he was carried away by the messengers to Abraham's side. The rich man also died and was buried. 
 In Hades, he lifted up his eyes, being in anguish, and saw Abraham far off, and Lazarus at his side. 
-He cried and said, 'Father Abraham, have mercy on me, and send Lazarus, that he may dip the tip of his finger in water and cool my tongue! I'm in anguish in this flame.' 
+He cried and said, 'Father Abraham, have mercy on me, and send Lazarus, that he can dip the tip of his finger in water and cool my tongue! I'm in anguish in this flame.' 
 "But Abraham said, 'Son, remember that you, in your lifetime, received your good things, and Lazarus, in the same way, bad things. But here he's now comforted and you're in anguish. 
 Besides all this, between us and you there's a great chasm fixed, that those who want to pass from here to you aren't able, and that no one may cross over from there to us.' 
 "He said, 'I ask you, father, that you'd send him to my father's house, 
-for I have five brothers, that he may warn them, so they won't also come into this place of anguish.' 
+for I have five brothers, that he can warn them, so they won't also come into this place of anguish.' 
 "But Abraham said to him, 'They have Moses and the spokesmen. Let them listen to them.' 
 "He said, 'No, father Abraham, but if one goes to them from the dead, they'll have a change of heart.' 
 "He said to him, 'If they don't listen to Moses and the spokesmen, neither will they be persuaded if one rises from the dead.'" 

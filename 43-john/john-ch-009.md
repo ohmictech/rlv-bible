@@ -33,7 +33,7 @@ Since the world began it has never been heard of that anyone opened the eyes of 
 If this man weren't from God, he could do nothing." 
 They answered him, "You were altogether born in your mistakes, and do you teach us?" Then they threw him out. 
 Jesus heard that they had thrown him out, and finding him, he said, "Do you trust in the Son of God?" 
-He answered, "Who's he, Lord, that I may trust in him?" 
+He answered, "Who's he, Lord, that I can trust in him?" 
 Jesus said to him, "You have both seen him, and it's he who speaks with you." 
 He said, "Lord, I trust!" and he worshiped him. 
 Jesus said, "I came into this world for a verdict, that those who don't see may see; and that those who see may become blind." 

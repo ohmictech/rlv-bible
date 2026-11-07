@@ -7,7 +7,7 @@ If he comes to see me, he speaks falsehood. His heart gathers guilt to itself. W
 Everyone who hates me whisper together against me. They imagine the worst for me. 
 "An bad disease", they say, "has afflicted him. Now that he lies he will rise up no more." 
 Yes, my own familiar friend, in whom I trusted, who ate bread with me, has lifted up his heel against me. 
-But you, God, have mercy on me, and raise me up, that I may repay them. 
+But you, God, have mercy on me, and raise me up, that I can repay them. 
 By this I know that you delight in me, because my enemy doesn't triumph over me. 
 As for me, you uphold me in my integrity, and set me in your presence for the eras. 
 Blessed be the God of Israel, from perpetual and to perpetual! Amen and amen. 

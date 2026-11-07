@@ -33,7 +33,7 @@ And I, if I'm lifted up from the earth, will draw everyone to myself."
 But he said this, signifying by what kind of death he should die. 
 The crowd answered him, "We have heard out of the law that the Christ remains for the eras. How do you say, 'The Human One must be lifted up'? Who's this Human One?" 
 Jesus said to them, "Yet a little while the light is with you. Walk while you have the light, so that darkness doesn't overtake you. Whoever walks in the darkness doesn't know where they're going. 
-While you have the light, trust in the light, that you may become children of light." Jesus said these things, and he departed and hid himself from them. 
+While you have the light, trust in the light, that you can become children of light." Jesus said these things, and he departed and hid himself from them. 
 But though he had done so many signs before them, yet they didn't trust in him, 
 so that the word of Isaiah the spokesman would be fulfilled, which he spoke: "Lord, who has trusted our report? To whom has the arm of the Lord been revealed?" 
 That's why they couldn't trust, for Isaiah said again: 
@@ -43,7 +43,7 @@ Nevertheless, even many of the leaders trusted in him, but because of the strict
 for they loved men's praise more than God's praise. 
 Jesus cried out and said, "Whoever trusts in me, trusts not in me, but in him who sent me. 
 He who sees me sees him who sent me. 
-I have come as a light into the world, that whoever trusts in me may not remain in the darkness. 
+I have come as a light into the world, that whoever trusts in me can't remain in the darkness. 
 If anyone listens to my sayings and doesn't trust, I don't judge him. I came not to judge the world, but to make the world whole. 
 Whoever rejects me, and doesn't receive my sayings, has one who judges them. The word that I spoke will judge them in the last day. 
 I spoke not from myself, but the Father who sent me gave me a commandment, what I should say and what I should speak. 

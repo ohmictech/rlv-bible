@@ -1,10 +1,10 @@
-﻿"Bring Aaron your brother, and his sons with him, near to you from among the children of Israel, that he may minister to me in the priest's office: Aaron, with Nadab, Abihu, Eleazar, and Ithamar, Aaron's sons. 
+﻿"Bring Aaron your brother, and his sons with him, near to you from among the children of Israel, that he can minister to me in the priest's office: Aaron, with Nadab, Abihu, Eleazar, and Ithamar, Aaron's sons. 
 You will make holy garments for Aaron your brother, for glory and for beauty. 
-You will speak to everyone who's wise-hearted, whom I have filled with the spirit of wisdom, that they make Aaron's garments to sanctify him, that he may minister to me in the priest's office. 
-These are the garments which they will make: a breastplate, an ephod, a robe, a fitted tunic, a turban, and a sash. They will make holy garments for Aaron your brother and his sons, that he may minister to me in the priest's office. 
+You will speak to everyone who's wise-hearted, whom I have filled with the spirit of wisdom, that they make Aaron's garments to sanctify him, that he can minister to me in the priest's office. 
+These are the garments which they will make: a breastplate, an ephod, a robe, a fitted tunic, a turban, and a sash. They will make holy garments for Aaron your brother and his sons, that he can minister to me in the priest's office. 
 They will use the gold, and the blue, and the purple, and the scarlet, and the fine linen. 
 "They will make the ephod of gold, blue, purple, scarlet, and fine twined linen, the work of the skillful workman. 
-It will have two shoulder straps joined to the two ends of it, that it may be joined together. 
+It will have two shoulder straps joined to the two ends of it, that it might be joined together. 
 The skillfully woven band, which is on it, will be like its work and of the same piece; of gold, blue, purple, scarlet, and fine twined linen. 
 You will take two onyx stones, and engrave on them the names of the children of Israel. 
 Six of their names on the one stone, and the names of the six that remain on the other stone, in the order of their birth. 
@@ -25,7 +25,7 @@ You will put the two braided chains of gold in the two rings at the ends of the 
 The other two ends of the two braided chains you will put on the two settings, and put them on the shoulder straps of the ephod in its forepart. 
 You will make two rings of gold, and you will put them on the two ends of the breastplate, on its edge, which is toward the side of the ephod inward. 
 You will make two rings of gold, and will put them on the two shoulder straps of the ephod underneath, in its forepart, close by its coupling, above the skillfully woven band of the ephod. 
-They will bind the breastplate by its rings to the rings of the ephod with a lace of blue, that it may be on the skillfully woven band of the ephod, and that the breastplate may not swing out from the ephod. 
+They will bind the breastplate by its rings to the rings of the ephod with a lace of blue, that it might be on the skillfully woven band of the ephod, and that the breastplate can't swing out from the ephod. 
 Aaron will bear the names of the children of Israel in the breastplate of judgment on his heart, when he goes in to the holy place, for a memorial before God continually. 
 You will put in the breastplate of judgment the Urim and the Thummim; and they will be on Aaron's heart, when he goes in before God. Aaron will bear the judgment of the children of Israel on his heart before God continually. 
 "You will make the robe of the ephod all of blue. 
@@ -35,9 +35,9 @@ a golden bell and a pomegranate, a golden bell and a pomegranate, around the hem
 It will be on Aaron to minister: and its sound will be heard when he goes in to the holy place before God, and when he comes out, that he not die. 
 "You will make a plate of pure gold, and engrave on it, like the engravings of a signet, 'HOLY TO THE God.' 
 You will put it on a lace of blue, and it will be on the sash. It will be on the front of the sash. 
-It will be on Aaron's forehead, and Aaron will bear the guilt of the holy things, which the children of Israel will make holy in all their holy gifts; and it will be always on his forehead, that they may be accepted before God. 
+It will be on Aaron's forehead, and Aaron will bear the guilt of the holy things, which the children of Israel will make holy in all their holy gifts; and it will be always on his forehead, that they can be accepted before God. 
 You will weave the tunic with fine linen. You will make a turban of fine linen. You will make a sash, the work of the embroiderer. 
 "You will make tunics for Aaron's sons. You will make sashes for them. You will make headbands for them, for glory and for beauty. 
-You will put them on Aaron your brother, and on his sons with him, and will anoint them, and consecrate them, and sanctify them, that they may minister to me in the priest's office. 
+You will put them on Aaron your brother, and on his sons with him, and will anoint them, and consecrate them, and sanctify them, that they can minister to me in the priest's office. 
 You will make them linen pants to cover their naked flesh. They will reach from the waist even to the thighs. 
 They will be on Aaron and on his sons, when they go in to the Tent of Meeting, or when they come near to the altar to minister in the holy place, that they don't bear guilt, and die. This will be a statute for the eras to him and to his offspring after him. 

@@ -1,9 +1,9 @@
 ﻿Then what advantage does the Jew have? Or what's the profit of circumcision? 
 Much in every way! Because first of all, they were entrusted with the revelations of God. 
 What if some were without trust? Will their lack of trust make useless the faithfulness of God? 
-May it never be! Yes, let God be found true, but every man a liar. As it's written, "so that you'd be made right in your words, and would prevail when you come into the verdict." 
+Not a chance! Yes, let God be found true, but every man a liar. As it's written, "so that you'd be made right in your words, and would prevail when you come into the verdict." 
 But if our wrong commends the rightness of God, what will we say? Is God wrong who inflicts heat? I speak like men do. 
-May it never be! Then how will God judge the world? 
+Not a chance! Then how will God judge the world? 
 If God's truth through my lie overflowed to his weight, why am I also still judged as one who drifts? 
 Why not (as we're slanderously reported, and as some affirm that we say), "Let's do bad, that good may come?" Their sentence is just. 
 What then? Are we better than they? No, in no way. We previously warned both Jewish people and Greeks that they're all under the drift. 
@@ -28,4 +28,4 @@ Where then is the boasting? It's excluded. By what kind of law? Of deeds? No, bu
 We maintain that a man is made right by trust apart from the deeds of the law. 
 Or is God the God of Jewish people only? Isn't he the God of the nations also? Yes, of the nations also, 
 since indeed there's one God who will make right the circumcised by trust and the uncircumcised through trust. 
-Do we then nullify the law through trust? May it never be! No, we establish the law. 
+Do we then nullify the law through trust? Not a chance! No, we establish the law. 

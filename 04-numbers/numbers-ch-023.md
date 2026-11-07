@@ -10,7 +10,7 @@ From the top of the rocks I see him. From the hills I see him. Look, it's a peop
 Who can count the dust of Jacob, or count the fourth part of Israel? Let me die the death of the righteous! Let my last end be like his!" 
 Balak said to Balaam, "What have you done to me? I took you to curse my enemies, and look, you have blessed them altogether." 
 He answered and said, "Must I not take heed to speak that which God puts in my mouth?" 
-Balak said to him, "Please come with me to another place, where you may see them. You will see just part of them, and won't see them all. Curse them from there for me." 
+Balak said to him, "Please come with me to another place, where you can see them. You will see just part of them, and won't see them all. Curse them from there for me." 
 He took him into the field of Zophim, to the top of Pisgah, and built seven altars, and offered up a bull and a ram on every altar. 
 He said to Balak, "Stand here by your burnt offering, while I meet God over there." 
 God met Balaam, and put a word in his mouth, and said, "Return to Balak, and say this." 
@@ -24,7 +24,7 @@ Surely there's no enchantment with Jacob; neither is there any divination with I
 Look, a people rises up as a lioness. As a lion he lifts himself up. He won't lie down until he eats of the prey, and drinks the blood of the slain." 
 Balak said to Balaam, "Neither curse them at all, nor bless them at all." 
 But Balaam answered Balak, "Didn't I tell you, saying, 'All that God speaks, that I must do'?" 
-Balak said to Balaam, "Come now, I'll take you to another place; perhaps it'll please God that you may curse them for me from there." 
+Balak said to Balaam, "Come now, I'll take you to another place; perhaps it'll please God that you can curse them for me from there." 
 Balak took Balaam to the top of Peor, that looks down on the desert. 
 Balaam said to Balak, "Build seven altars for me here, and prepare seven bulls and seven rams for me here." 
 Balak did as Balaam had said, and offered up a bull and a ram on every altar. 

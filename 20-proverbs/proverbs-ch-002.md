@@ -5,7 +5,7 @@ if you seek her as silver, and search for her as for hidden treasures;
 then you'll understand the fear of God, and find the knowledge of God. 
 God gives wisdom. Out of his mouth comes knowledge and understanding. 
 He lays up sound wisdom for the upright. He's a shield to those who walk in integrity, 
-that he may guard the paths of justice, and preserve the way of his saints. 
+that he can guard the paths of justice, and preserve the way of his saints. 
 Then you'll understand righteousness and justice, equity and every good path. 
 Wisdom will enter into your heart. Knowledge will be pleasant to your soul. 
 Discretion will watch over you. Understanding will keep you, 

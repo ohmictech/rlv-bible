@@ -1,6 +1,6 @@
 ﻿In you, God, I take refuge. Never let me be disappointed. 
 Deliver me in your righteousness, and rescue me. Turn your ear to me, and save me. 
-Be to me a rock of refuge to which I may always go. Give the command to save me, for you're my rock and my fortress. 
+Be to me a rock of refuge to which I can always go. Give the command to save me, for you're my rock and my fortress. 
 Rescue me, my God, from the hand of the guilty, from the hand of the unrighteous and cruel man. 
 You're my hope, God, my confidence from my youth. 
 I have relied on you from the womb. You're he who took me out of my mother's womb. I'll always praise you. 

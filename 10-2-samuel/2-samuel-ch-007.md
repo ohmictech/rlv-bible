@@ -7,7 +7,7 @@ I haven't lived in a house since the day that I brought the children of Israel u
 In all places in which I have walked with all the children of Israel, did I say a word to anyone from the tribes of Israel whom I commanded to be shepherd of my people Israel, saying, 'Why have you not built me a house of cedar?'"' 
 Now tell my servant David this: 'The God of Armies says, "I took you from the sheep pen, from following the sheep, to be prince over my people, over Israel. 
 I have been with you wherever you went, and have cut off all your enemies from before you. I'll make you a great name, like the name of the great ones who are on the earth. 
-I'll appoint a place for my people Israel, and will plant them, that they may dwell in their own place and be moved no more. The children of guilt won't afflict them any more, as at the first, 
+I'll appoint a place for my people Israel, and will plant them, that they can dwell in their own place and be moved no more. The children of guilt won't afflict them any more, as at the first, 
 and as from the day that I commanded judges to be over my people Israel. I'll cause you to rest from all your enemies. Moreover God tells you that God will make you a house. 
 When your days are fulfilled and you sleep with your fathers, I'll set up your offspring after you, who will proceed out of your body, and I'll establish his kingdom. 
 He'll build a house for my name, and I'll establish the throne of his kingdom for the eras. 

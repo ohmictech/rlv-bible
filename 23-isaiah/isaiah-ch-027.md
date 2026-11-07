@@ -2,7 +2,7 @@
 In that day, sing to her, "A pleasant vineyard! 
 I, God, am its keeper. I'll water it every moment. Lest anyone damage it, I'll keep it night and day. 
 Wrath isn't in me, but if I should find briers and thorns, I'd do battle! I'd march on them and I'd burn them together. 
-Or else let him take hold of my strength, that he may make peace with me. Let him make peace with me." 
+Or else let him take hold of my strength, that he can make peace with me. Let him make peace with me." 
 In days to come, Jacob will take root. Israel will blossom and bud. They'll fill the surface of the world with fruit. 
 Has he struck them as he struck those who struck them? Or are they killed like those who killed them were killed? 
 In measure, when you send them away, you contend with them. He has removed them with his rough blast in the day of the east wind. 

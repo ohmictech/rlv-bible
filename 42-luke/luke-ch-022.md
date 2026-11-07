@@ -5,10 +5,10 @@ He went away and talked with the chief priests and captains about how he could h
 They were glad, and agreed to give him money. 
 He consented and sought an opportunity to hand him over to them in the absence of the crowd. 
 The day of bread without yeast came, on which the Passover lamb must be sacrificed. 
-Jesus sent Peter and John, saying, "Go and prepare the Passover for us, that we may eat." 
+Jesus sent Peter and John, saying, "Go and prepare the Passover for us, that we can eat." 
 They said to him, "Where do you want us to prepare?" 
 He said to them, "Look, when you have entered into the city, a man carrying a pitcher of water will meet you. Follow him into the house which he enters. 
-Tell the master of the house, 'The Teacher says to you, "Where is the guest room, where I may eat the Passover with my students?"' 
+Tell the master of the house, 'The Teacher says to you, "Where is the guest room, where I can eat the Passover with my students?"' 
 He'll show you a large, furnished upper room. Make preparations there." 
 They went, found things as Jesus had told them, and they prepared the Passover. 
 When the hour had come, he sat down at the table with the twelve. 
@@ -27,7 +27,7 @@ But not so with you. Rather, the one who's greater among you, let him become as 
 Who's greater, one who sits at the table, or one who serves? Isn't it he who sits at the table? But I'm among you as one who serves. 
 "But you're those who have continued with me in my trials. 
 I confer on you a reign, even as my Father conferred one on me, 
-that you may eat and drink at my table in my reign. You'll sit on thrones, passing a verdict on the twelve tribes of Israel." 
+that you can eat and drink at my table in my reign. You'll sit on thrones, passing a verdict on the twelve tribes of Israel." 
 The Lord said, "Simon, Simon, look, the Adversary asked to have all of you, so that he could sift you like wheat, 
 but I prayed for you, that your trust wouldn't fail. And you, once you have turned back, strengthen your brothers." 
 He said to him, "Lord, I'm ready to go with you both to prison and to death!" 
@@ -43,7 +43,7 @@ saying, "Father, if you're willing, take this cup away from me. Yet not what I w
 A messenger from the sky appeared to him, strengthening him. 
 Being in agony, he prayed more earnestly. His sweat became like great drops of blood falling down on the ground. 
 When he rose up from his prayer, he came to the students and found them sleeping because of grief, 
-and said to them, "Why do you sleep? Get up and pray that you may not enter into testing." 
+and said to them, "Why do you sleep? Get up and pray that you can't enter into testing." 
 While he was still speaking, a crowd appeared. The one who was called Judas, one of the twelve, was leading them. He came near to Jesus to kiss him. 
 But Jesus said to him, "Judas, do you hand over the Human One with a kiss?" 
 When those who were around him saw what was about to happen, they said to him, "Lord, should we strike with the sword?" 

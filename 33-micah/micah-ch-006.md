@@ -2,7 +2,7 @@
 Hear, you mountains, God's indictment, and you enduring foundations of the earth; for God has a case against his people, and he'll contend with Israel. 
 My people, what have I done to you? How have I burdened you? Answer me! 
 I brought you up out of the land of Egypt, and bought back you out of the house of bondage. I sent before you Moses, Aaron, and Miriam. 
-My people, remember now what Balak king of Moab devised, and what Balaam the son of Beor answered him from Shittim to Gilgal, that you may know the righteous acts of God." 
+My people, remember now what Balak king of Moab devised, and what Balaam the son of Beor answered him from Shittim to Gilgal, that you can know the righteous acts of God." 
 How will I come before God, and bow myself before the exalted God? Will I come before him with burnt offerings, with calves a year old? 
 Will God be pleased with thousands of rams? With tens of thousands of rivers of oil? Will I give my firstborn for my disobedience? The fruit of my body for the wrongdoing of my soul? 
 He has shown you, O man, what's good. What does God require of you, but to act justly, to love mercy, and to walk humbly with your God? 
@@ -13,4 +13,4 @@ Her rich men are full of violence, her inhabitants speak lies, and their tongue 
 So I also have struck you with a grievous wound. I have made you desolate because of your mistakes. 
 You will eat, but not be satisfied. Your hunger will be within you. You'll store up, but not save, and that which you save I'll give up to the sword. 
 You'll sow, but won't reap. You'll tread the olives, but won't anoint yourself with oil; and crush grapes, but won't drink the wine. 
-The statutes of Omri are kept, and all the works of Ahab's house. You walk in their counsels, that I may make you a ruin, and your inhabitants a hissing. You'll bear the reproach of my people." 
+The statutes of Omri are kept, and all the works of Ahab's house. You walk in their counsels, that I can make you a ruin, and your inhabitants a hissing. You'll bear the reproach of my people." 

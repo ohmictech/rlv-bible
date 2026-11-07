@@ -21,4 +21,4 @@ Joshua set up those twelve stones, which they took out of the Jordan, in Gilgal.
 He spoke to the children of Israel, saying, "When your children ask their fathers in time to come, saying, 'What do these stones mean?' 
 Then you will let your children know, saying, 'Israel came over this Jordan on dry land. 
 Your God dried up the waters of the Jordan from before you until you had crossed over, as your God did to the Red Sea, which he dried up from before us, until we had crossed over, 
-that everyones of the earth may know that God's hand is mighty, and that you may fear your God for the eras.'" 
+that everyones of the earth may know that God's hand is mighty, and that you can fear your God for the eras.'" 

@@ -12,7 +12,7 @@ Saul sent messengers to David's house to watch him and to kill him in the mornin
 So Michal let David down through the window. He went away, fled, and escaped. 
 Michal took the teraphim and laid it in the bed, and put a pillow of goats' hair at its head and covered it with clothes. 
 When Saul sent messengers to take David, she said, "He's sick." 
-Saul sent the messengers to see David, saying, "Bring him up to me in the bed, that I may kill him." 
+Saul sent the messengers to see David, saying, "Bring him up to me in the bed, that I can kill him." 
 When the messengers came in, look, the teraphim was in the bed, with the pillow of goats' hair at its head. 
 Saul said to Michal, "Why have you deceived me like this and let my enemy go, so that he has escaped?" Michal answered Saul, "He said to me, 'Let me go! Why should I kill you?'" 
 Now David fled and escaped, and came to Samuel at Ramah, and told him all that Saul had done to him. He and Samuel went and lived in Naioth. 

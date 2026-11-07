@@ -11,7 +11,7 @@ Not only so, but Rebekah also conceived by one, by our father Isaac.
 Being not yet born, neither having done anything good or bad, so that the purpose of God in choosing would stand, not of deeds, but of him who calls, 
 it was said to her, "The elder will serve the younger." 
 Even as it's written, "Jacob I loved, but Esau I hated." 
-What will we say then? Is there unrighteousness with God? May it never be! 
+What will we say then? Is there unrighteousness with God? Not a chance! 
 He said to Moses, "I'll have mercy on whom I have mercy, and I'll have compassion on whom I have compassion." 
 So then it isn't of him who wills, nor of him who runs, but of God who has mercy. 
 The Scripture says to Pharaoh, "For this very purpose I caused you to be raised up, so that I could show my power in you, and so that my name would be announced in all the land." 

@@ -4,7 +4,7 @@ When she could no longer hide him, she took a papyrus basket for him, and coated
 His sister stood far off, to see what would be done to him. 
 Pharaoh's daughter came down to bathe at the river. Her maidens walked along by the riverside. She saw the basket among the reeds, and sent her servant to get it. 
 She opened it, and saw the child, and look, the baby cried. She had compassion on him, and said, "This is one of the Hebrews' children." 
-Then his sister said to Pharaoh's daughter, "Should I go and call a nurse for you from the Hebrew women, that she may nurse the child for you?" 
+Then his sister said to Pharaoh's daughter, "Should I go and call a nurse for you from the Hebrew women, that she can nurse the child for you?" 
 Pharaoh's daughter said to her, "Go." The young woman went and called the child's mother. 
 Pharaoh's daughter said to her, "Take this child away, and nurse him for me, and I'll give you your wages." The woman took the child, and nursed him. 
 The child grew, and she brought him to Pharaoh's daughter, and he became her son. She named him Moses, and said, "Because I drew him out of the water." 
@@ -17,7 +17,7 @@ Now the priest of Midian had seven daughters. They came and drew water, and fill
 The shepherds came and drove them away; but Moses stood up and helped them, and watered their flock. 
 When they came to Reuel, their father, he said, "How is it that you have returned so early today?" 
 They said, "An Egyptian delivered us out of the hand of the shepherds, and moreover he drew water for us, and watered the flock." 
-He said to his daughters, "Where is he? Why is it that you have left the man? Call him, that he may eat bread." 
+He said to his daughters, "Where is he? Why is it that you have left the man? Call him, that he can eat bread." 
 Moses was content to dwell with the man. He gave Moses Zipporah, his daughter. 
 She bore a son, and he named him Gershom, for he said, "I have lived as a foreigner in a foreign land." 
 In the course of those many days, the king of Egypt died, and the children of Israel sighed because of the bondage, and they cried, and their cry came up to God because of the bondage. 

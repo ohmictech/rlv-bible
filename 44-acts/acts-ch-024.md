@@ -4,7 +4,7 @@ we accept it in all ways and in all places, most excellent Felix, with all thank
 But that I don't delay you, I entreat you to bear with us and hear a few words. 
 We have found this man to be a plague, an instigator of riots among all the Jewish people throughout the world, and a ringleader of the faction of the Nazarenes. 
 He even tried to profane the temple courts, and we arrested him. 
-By examining him yourself you may ascertain all these things of which we accuse him." 
+By examining him yourself you can ascertain all these things of which we accuse him." 
 The Jewish leaders also joined in the attack, affirming that these things were so. 
 When the governor had beckoned to him to speak, Paul answered, "Because I know that you have been a judge of this nation for many years, I cheerfully make my defense, 
 seeing that you can verify that it isn't more than twelve days since I went up to worship at Jerusalem. 

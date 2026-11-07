@@ -4,7 +4,7 @@ God gave the people favor in the sight of the Egyptians. Moreover, the man Moses
 Moses said, "This is what God says: 'About midnight I'll go out into the middle of Egypt, 
 and all the firstborn in the land of Egypt will die, from the firstborn of Pharaoh who sits on his throne, even to the firstborn of the female servant who's behind the mill, and all the firstborn of livestock. 
 There will be a great cry throughout all the land of Egypt, such as there hasn't been, nor will be any more. 
-But against any of the children of Israel a dog won't even bark or move its tongue, against man or animal, that you may know that God makes a distinction between the Egyptians and Israel. 
+But against any of the children of Israel a dog won't even bark or move its tongue, against man or animal, that you can know that God makes a distinction between the Egyptians and Israel. 
 All these servants of yours will come down to me, and bow down themselves to me, saying, "Get out, with everyone who follow you;" and after that I'll go out.'" He went out from Pharaoh in hot anger. 
 God said to Moses, "Pharaoh won't listen to you, that my wonders may be multiplied in the land of Egypt." 
 Moses and Aaron did all these wonders before Pharaoh, but God hardened Pharaoh's heart, and he didn't let the children of Israel go out of his land. 

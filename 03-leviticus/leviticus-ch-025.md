@@ -26,12 +26,12 @@ In all the land of your possession you will grant a buying back for the land.
 If a man has no one to buy it back, and he becomes prosperous and finds sufficient means to buy it back, 
 then let him reckon the years since its sale, and restore the surplus to the man to whom he sold it; and he will return to his property. 
 But if he isn't able to get it back for himself, then what he has sold will remain in the hand of him who has bought it until the Year of Jubilee. In the Jubilee it will be released, and he will return to his property. 
-"'If a man sells a dwelling house in a walled city, then he may buy it back within a whole year after it has been sold. A full year he will have the right of buying back. 
+"'If a man sells a dwelling house in a walled city, then he can buy it back within a whole year after it has been sold. A full year he will have the right of buying back. 
 If it isn't bought back within the space of a full year, then the house that's in the walled city will be made sure in perpetuity to him who bought it, throughout his generations. It won't be released in the Jubilee. 
-But the houses of the villages which have no wall around them will be accounted for with the fields of the country: they may be bought back, and they will be released in the Jubilee. 
+But the houses of the villages which have no wall around them will be accounted for with the fields of the country: they can be bought back, and they will be released in the Jubilee. 
 "'Nevertheless, in the cities of the Levites, the Levites may buy back the houses in the cities of their possession at any time. 
 The Levites may buy back the house that was sold, and the city of his possession, and it will be released in the Jubilee; for the houses of the cities of the Levites are their possession among the children of Israel. 
-But the field of the pasture lands of their cities may not be sold, for it's their perpetual possession. 
+But the field of the pasture lands of their cities can't be sold, for it's their perpetual possession. 
 "'If your brother has become poor, and his hand can't support himself among you, then you will uphold him. He will live with you like an alien and a temporary resident. 
 Take no interest from him or profit; but fear your God, that your brother may live among you. 
 Don't lend him your money at interest, nor give him your food for profit. 
@@ -41,12 +41,12 @@ As a hired servant, and as a temporary resident, he will be with you; he will se
 Then he will go out from you, he and his children with him, and will return to his own family, and to the possession of his fathers. 
 They're my servants, whom I brought out of the land of Egypt. They won't be sold as slaves. 
 Don't rule over him with harshness, but will fear your God. 
-"'As for your male and your female slaves, whom you may have from the nations that are around you, from them you may buy male and female slaves. 
-Moreover, of the children of the aliens who live among you, of them you may buy, and of their families who are with you, which they have conceived in your land; and they'll be your property. 
-You may make them an inheritance for your children after you, to hold for a possession. Of them you may take your slaves for the eras, but over your brothers the children of Israel you won't rule, one over another, with harshness. 
+"'As for your male and your female slaves, whom you can have from the nations that are around you, from them you can buy male and female slaves. 
+Moreover, of the children of the aliens who live among you, of them you can buy, and of their families who are with you, which they have conceived in your land; and they'll be your property. 
+You can make them an inheritance for your children after you, to hold for a possession. Of them you can take your slaves for the eras, but over your brothers the children of Israel you won't rule, one over another, with harshness. 
 "'If an alien or temporary resident with you becomes rich, and your brother beside him has grown poor, and sells himself to the stranger or foreigner living among you, or to a member of the stranger's family, 
-after he's sold he may be bought back. One of his brothers may buy him back; 
-or his uncle, or his uncle's son, may buy him back, or any who's a close relative to him of his family may buy him back; or if he has grown rich, he may buy him backself. 
+after he's sold he can be bought back. One of his brothers may buy him back; 
+or his uncle, or his uncle's son, may buy him back, or any who's a close relative to him of his family may buy him back; or if he has grown rich, he can buy him backself. 
 He will reckon with him who bought him from the year that he sold himself to him to the Year of Jubilee. The price of his sale will be according to the number of years; he will be with him according to the time of a hired servant. 
 If there are yet many years, according to them he will give back the price of his buying back out of the money that he was bought for. 
 If there remain but a few years to the year of jubilee, then he will reckon with him; according to his years of service he will give back the price of his buying back. 

@@ -7,10 +7,10 @@ I took my concubine and cut her in pieces, and sent her throughout all the count
 Look, you children of Israel, all of you, give here your advice and counsel." 
 Everyone arose as one man, saying, "None of us will go to his tent, neither will any of us turn to his house. 
 But now this is the thing which we'll do to Gibeah: we'll go up against it by lot; 
-and we'll take ten men of one hundred throughout all the tribes of Israel, and one hundred of one thousand, and a thousand out of ten thousand to get food for the people, that they may do, when they come to Gibeah of Benjamin, according to all the folly that the men of Gibeah have done in Israel." 
+and we'll take ten men of one hundred throughout all the tribes of Israel, and one hundred of one thousand, and a thousand out of ten thousand to get food for the people, that they can do, when they come to Gibeah of Benjamin, according to all the folly that the men of Gibeah have done in Israel." 
 So all the men of Israel were gathered against the city, knit together as one man. 
 The tribes of Israel sent men through all the tribe of Benjamin, saying, "What guilt is this that has happened among you? 
-Now deliver up the men, the guilty fellows who are in Gibeah, that we may put them to death and put away bad from Israel." But Benjamin wouldn't listen to the voice of their brothers, the children of Israel. 
+Now deliver up the men, the guilty fellows who are in Gibeah, that we can put them to death and put away bad from Israel." But Benjamin wouldn't listen to the voice of their brothers, the children of Israel. 
 The children of Benjamin gathered themselves together out of the cities to Gibeah, to go out to battle against the children of Israel. 
 The children of Benjamin were counted on that day out of the cities twenty-six thousand men who drew the sword, in addition to the inhabitants of Gibeah, who were counted seven hundred chosen men. 
 Among all these soldiers there were seven hundred chosen men who were left-handed. Every one of them could sling a stone at a hair and not miss. 

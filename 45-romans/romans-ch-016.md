@@ -1,5 +1,5 @@
 ﻿I commend to you Phoebe, our sister, who's a servant of the gathering that's at Cenchreae, 
-that you receive her in the Lord in a way worthy of the set-apart ones, and that you assist her in whatever matter she may need from you, for she herself also has been a helper of many, and of my own self. 
+that you receive her in the Lord in a way worthy of the set-apart ones, and that you assist her in whatever matter she can need from you, for she herself also has been a helper of many, and of my own self. 
 Greet Prisca and Aquila, my fellow workers in Christ Jesus, 
 who risked their own necks for my life, to whom not only I give thanks, but also all the gatherings of the nations. 
 Greet the gathering that's in their house. Greet Epaenetus, whom I truly love, who's the firstfruits of Achaia to Christ. 

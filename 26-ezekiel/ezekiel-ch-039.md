@@ -9,12 +9,12 @@ Look, it comes, and it'll be done," says God. "This is the day about which I hav
 "'"Those who dwell in the cities of Israel will go out and will make fires of the weapons and burn them, both the shields and the bucklers, the bows and the arrows, and the war clubs and the spears, and they'll make fires with them for seven years; 
 so that they'll take no wood out of the field, and not cut down any out of the forests; for they'll make fires with the weapons. They'll plunder those who plundered them, and rob those who robbed them," says God. 
 "'"It'll happen in that day, that I'll give to Gog a place for burial in Israel, the valley of those who pass through on the east of the sea; and it'll stop those who pass through. They'll bury Gog and all his multitude there, and they'll call it 'The valley of Hamon Gog'. 
-"'"The house of Israel will be burying them for seven months, that they may cleanse the land. 
+"'"The house of Israel will be burying them for seven months, that they can cleanse the land. 
 Yes, everyone in the land will bury them; and they'll become famous in the day that I'll be glorified," says God. 
 "'"They'll set apart men of continual employment who will pass through the land. Those who pass through will go with those who bury those who remain on the surface of the land, to cleanse it. After the end of seven months they'll search. 
 Those who search through the land will pass through; and when anyone sees a man's bone, then he'll set up a sign by it, until the undertakers have buried it in the valley of Hamon Gog. 
 Hamonah will also be the name of a city. Thus they'll cleanse the land."' 
-"You, son of man, God says: 'Speak to the birds of every sort, and to every animal of the field, "Assemble yourselves, and come; gather yourselves on every side to my sacrifice that I sacrifice for you, even a great sacrifice on the mountains of Israel, that you may eat meat and drink blood. 
+"You, son of man, God says: 'Speak to the birds of every sort, and to every animal of the field, "Assemble yourselves, and come; gather yourselves on every side to my sacrifice that I sacrifice for you, even a great sacrifice on the mountains of Israel, that you can eat meat and drink blood. 
 You will eat the flesh of the mighty, and drink the blood of the princes of the earth, of rams, of lambs, and of goats, of bulls, everyone fatlings of Bashan. 
 You will eat fat until you're full, and drink blood until you're drunk, of my sacrifice which I have sacrificed for you. 
 You will be filled at my table with horses and charioteers, with mighty men, and with everyone of war," says God.' 

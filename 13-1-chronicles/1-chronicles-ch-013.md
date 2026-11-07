@@ -1,5 +1,5 @@
 ﻿David consulted with the captains of thousands and of hundreds, even with every leader. 
-David said to all the assembly of Israel, "If it seems good to you, and if it's of our God, let's send word everywhere to our brothers who are left in all the land of Israel, with whom the priests and Levites are in their cities that have pasture lands, that they may gather themselves to us. 
+David said to all the assembly of Israel, "If it seems good to you, and if it's of our God, let's send word everywhere to our brothers who are left in all the land of Israel, with whom the priests and Levites are in their cities that have pasture lands, that they can gather themselves to us. 
 Also, let's bring the ark of our God back to us again, for we didn't seek it in the days of Saul." 
 All the assembly said that they'd do so, for the thing was right in the eyes of everyone. 
 So David assembled all Israel together, from the Shihor River of Egypt even to the entrance of Hamath, to bring God's ark from Kiriath Jearim. 

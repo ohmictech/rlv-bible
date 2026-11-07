@@ -15,7 +15,7 @@ God will go out like a mighty man. He'll stir up passion like a man of war. He'l
 I'll destroy mountains and hills, and dry up all their herbs. I'll make the rivers islands, and will dry up the pools. 
 I'll bring the blind by a way that they don't know. I'll lead them in paths that they don't know. I'll make darkness light before them, and crooked places straight. I'll do these things, and I won't forsake them. 
 "Those who trust in engraved images, who tell molten images, 'You're our gods,' will be turned back. They'll be utterly disappointed. 
-"Hear, you deaf, and look, you blind, that you may see. 
+"Hear, you deaf, and look, you blind, that you can see. 
 Who's blind, but my servant? Or who's as deaf as my messenger whom I send? Who's as blind as he who's at peace, and as blind as God's servant? 
 You see many things, but don't observe. His ears are open, but he doesn't listen. 
 It pleased God, for his righteousness' sake, to magnify the law and make it honorable. 

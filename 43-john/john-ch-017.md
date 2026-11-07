@@ -8,9 +8,9 @@ Now they have known that all things whatever you have given me are from you,
 for the words which you have given me I have given to them; and they received them, and knew for sure that I came from you. They have trusted that you sent me. 
 I pray for them. I don't pray for the world, but for those whom you have given me, for they're yours. 
 All things that are mine are yours, and yours are mine, and I'm honored in them. 
-I'm no more in the world, but these are in the world, and I'm coming to you. Holy Father, keep them through your name which you have given me, that they may be one, even as we're. 
+I'm no more in the world, but these are in the world, and I'm coming to you. Holy Father, keep them through your name which you have given me, that they can be one, even as we're. 
 While I was with them in the world, I kept them in your name. I have kept those whom you have given me. None of them is lost except the one headed for ruin, so that the Scripture would be fulfilled. 
-But now I come to you, and I say these things in the world, that they may have my joy made complete in themselves. 
+But now I come to you, and I say these things in the world, that they can have my joy made complete in themselves. 
 I have given them your word. The world hated them because they aren't of the world, even as I'm not of the world. 
 I pray not that you'd take them from the world, but that you'd keep them from the Slanderer. 
 They aren't of the world, even as I'm not of the world. 
@@ -18,9 +18,9 @@ Set them apart in your truth. Your word is truth.
 As you sent me into the world, even so I have sent them into the world. 
 Their sakes I set myself apart, that they themselves also may be set apart in truth. 
 "Not for these only do I pray, but for those also who will trust in me through their word, 
-that they may all be one; even as you, Father, are in me, and I in you, that they also may be one in us; that the world may trust that you sent me. 
-The weight which you have given me, I have given to them, that they may be one, even as we're one, 
-I in them, and you in me, that they may be made complete into one, that the world may know that you sent me and loved them, even as you loved me. 
-Father, I desire that they also whom you have given me be with me where I am, that they may see my weight which you have given me, for you loved me before the foundation of the world. 
+that they can all be one; even as you, Father, are in me, and I in you, that they also may be one in us; that the world may trust that you sent me. 
+The weight which you have given me, I have given to them, that they can be one, even as we're one, 
+I in them, and you in me, that they can be made complete into one, that the world may know that you sent me and loved them, even as you loved me. 
+Father, I desire that they also whom you have given me be with me where I am, that they can see my weight which you have given me, for you loved me before the foundation of the world. 
 Upright Father, the world hasn't known you, but I knew you; and these knew that you sent me. 
 I made known to them your name, and will make it known; that the love with which you loved me may be in them, and I in them." 

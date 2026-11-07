@@ -18,5 +18,5 @@ God said to me, "They have well said that which they have spoken.
 I'll raise them up a spokesman from among their brothers, like you. I'll put my words in his mouth, and he will speak to them all that I will command him. 
 It will happen, that whoever won't listen to my words which he will speak in my name, I'll require it of him. 
 But the spokesman who speaks a word presumptuously in my name, which I haven't commanded him to speak, or who speaks in the name of other gods, that same spokesman will die." 
-You may say in your heart, "How will we know the word which God hasn't spoken?" 
+You can say in your heart, "How will we know the word which God hasn't spoken?" 
 When a spokesman speaks in God's name, if the thing doesn't follow, nor happen, that's the thing which God hasn't spoken. The spokesman has spoken it presumptuously. You won't be afraid of him. 

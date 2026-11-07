@@ -9,7 +9,7 @@ Oh taste and see that God is good. Blessed is the man who takes refuge in him.
 Oh fear God, you his saints, for there's no lack with those who fear him. 
 The young lions do lack, and suffer hunger, but those who seek God won't lack any good thing. 
 Come, you children, listen to me. I'll teach you the fear of God. 
-Who's someone who desires life, and loves many days, that he may see good? 
+Who's someone who desires life, and loves many days, that he can see good? 
 Keep your tongue from what's bad, and your lips from speaking lies. 
 Depart from what's bad, and do good. Seek peace, and pursue it. 
 God's eyes are toward the righteous. His ears listen to their cry. 

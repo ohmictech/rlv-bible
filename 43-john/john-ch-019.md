@@ -1,7 +1,7 @@
 ﻿So Pilate then took Jesus and flogged him. 
 The soldiers twisted thorns into a crown and put it on his head, and dressed him in a purple garment. 
 They kept saying, "Hail, King of the Jews!" and they kept slapping him. 
-Then Pilate went out again, and said to them, "Look, I bring him out to you, that you may know that I find no basis for a charge against him." 
+Then Pilate went out again, and said to them, "Look, I bring him out to you, that you can know that I find no basis for a charge against him." 
 Jesus came out, wearing the crown of thorns and the purple garment. Pilate said to them, "Look, the man!" 
 When the chief priests and the temple guards saw him, they shouted, saying, "Crucify! Crucify!" Pilate said to them, "Take him yourselves and crucify him, for I find no basis for a charge against him." 
 The Jewish leaders answered him, "We have a law, and by our law he ought to die, because he made himself the Son of God." 
@@ -32,7 +32,7 @@ So the Jewish leaders, because it was the Preparation Day, so that the bodies wo
 So the soldiers came and broke the legs of the first and of the other who was crucified with him; 
 but when they came to Jesus and saw that he was already dead, they didn't break his legs. 
 However, one of the soldiers pierced his side with a spear, and immediately blood and water came out. 
-He who has seen has testified, and his witness is true. He knows that he tells the truth, that you may trust. 
+He who has seen has testified, and his witness is true. He knows that he tells the truth, that you can trust. 
 These things happened so that the Scripture would be fulfilled, "A bone of him won't be broken." 
 Again another Scripture says, "They'll look on him whom they pierced." 
 After these things, Joseph of Arimathaea, being a student of Jesus, but secretly for fear of the Jewish leaders, asked Pilate if he could take Jesus' body away. Pilate gave him permission. He came and took away his body. 

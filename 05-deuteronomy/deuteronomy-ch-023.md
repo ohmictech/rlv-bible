@@ -11,15 +11,15 @@ If there's among you any man who isn't clean by reason of that which happens to 
 but it will be, when evening comes, he will bathe himself in water. When the sun is down, he will come within the camp. 
 You will have a place also outside of the camp where you go relieve yourself. 
 You will have a trowel among your weapons. It will be, when you relieve yourself, you will dig with it, and will turn back and cover your excrement; 
-for your God walks in the middle of your camp, to deliver you, and to give up your enemies before you. So your camp will be holy, that he may not see an unclean thing in you, and turn away from you. 
+for your God walks in the middle of your camp, to deliver you, and to give up your enemies before you. So your camp will be holy, that he can't see an unclean thing in you, and turn away from you. 
 Don't deliver to his master a servant who has escaped from his master to you. 
 He will dwell with you, among you, in the place which he will choose within one of your gates, where it pleases him best. You won't oppress him. 
 There will be no prostitute of the daughters of Israel, neither will there be a sodomite of the sons of Israel. 
 Don't bring the hire of a prostitute, or the wages of a male prostitute, into the house of your God for any vow; for both of these are an abomination to your God. 
 Don't lend on interest to your brother: interest of money, interest of food, interest of anything that's lent on interest. 
-You may charge a foreigner interest; but you won't charge your brother interest, that your God may bless you in all that you put your hand to, in the land where you go in to possess it. 
+You can charge a foreigner interest; but you won't charge your brother interest, that your God may bless you in all that you put your hand to, in the land where you go in to possess it. 
 When you vow a vow to your God, you won't be slack to pay it, for your God will surely require it of you; and it would be guilt in you. 
 But if you refrain from making a vow, it will be no wrongdoing in you. 
 You will observe and do that which has gone out of your lips. Whatever you have vowed to your God as a free will offering, which you have promised with your mouth, you must do. 
-When you come into your neighbor's vineyard, then you may eat your fill of grapes at your own pleasure; but you won't put any in your container. 
-When you come into your neighbor's standing grain, then you may pluck the ears with your hand; but you won't use a sickle on your neighbor's standing grain. 
+When you come into your neighbor's vineyard, then you can eat your fill of grapes at your own pleasure; but you won't put any in your container. 
+When you come into your neighbor's standing grain, then you can pluck the ears with your hand; but you won't use a sickle on your neighbor's standing grain. 

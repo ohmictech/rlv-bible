@@ -1,4 +1,4 @@
-﻿Then God said to Moses, "Go in to Pharaoh, and tell him, 'This is what the God of the Hebrews, says: "Let my people go, that they may serve me. 
+﻿Then God said to Moses, "Go in to Pharaoh, and tell him, 'This is what the God of the Hebrews, says: "Let my people go, that they can serve me. 
 If you refuse to let them go, and hold them still, 
 Look, God's hand is on your livestock which are in the field, on the horses, on the donkeys, on the camels, on the herds, and on the flocks with a very grievous pestilence. 
 God will make a distinction between the livestock of Israel and the livestock of Egypt; and nothing will die of all that belongs to the children of Israel."'" 
@@ -10,8 +10,8 @@ It will become small dust over all the land of Egypt, and will be boils and blis
 They took ashes of the furnace, and stood before Pharaoh; and Moses sprinkled it up toward the sky; and it became boils and blisters breaking out on man and on animal. 
 The magicians couldn't stand before Moses because of the boils; for the boils were on the magicians and on all the Egyptians. 
 God hardened the heart of Pharaoh, and he didn't listen to them, as God had spoken to Moses. 
-God said to Moses, "Rise up early in the morning, and stand before Pharaoh, and tell him, 'This is what the God of the Hebrews, says: "Let my people go, that they may serve me. 
-This time I'll send all my plagues against your heart, against your officials, and against your people; that you may know that there's no one like me in all the earth. 
+God said to Moses, "Rise up early in the morning, and stand before Pharaoh, and tell him, 'This is what the God of the Hebrews, says: "Let my people go, that they can serve me. 
+This time I'll send all my plagues against your heart, against your officials, and against your people; that you can know that there's no one like me in all the earth. 
 Now I'd have stretched out my hand, and struck you and your people with pestilence, and you'd have been cut off from the earth; 
 but indeed for this cause I have made you stand: to show you my power, and that my name may be declared throughout all the earth, 
 because you still exalt yourself against my people, that you won't let them go. 
@@ -26,7 +26,7 @@ The hail struck throughout all the land of Egypt all that was in the field, both
 Only in the land of Goshen, where the children of Israel were, there was no hail. 
 Pharaoh sent and called for Moses and Aaron, and said to them, "I have drifted this time. God is righteous, and I and my people are guilty. 
 Pray to God; for there has been enough of mighty thunderings and hail. I'll let you go, and you will stay no longer." 
-Moses said to him, "As soon as I have gone out of the city, I'll spread out my hands to God. The thunders will cease, and there won't be any more hail; that you may know that the earth is God's. 
+Moses said to him, "As soon as I have gone out of the city, I'll spread out my hands to God. The thunders will cease, and there won't be any more hail; that you can know that the earth is God's. 
 But as for you and your servants, I know that you don't yet fear God." 
 The flax and the barley were struck, for the barley had ripened and the flax was blooming. 
 But the wheat and the spelt weren't struck, for they hadn't grown up. 

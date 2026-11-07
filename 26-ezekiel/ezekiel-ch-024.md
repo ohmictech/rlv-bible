@@ -8,7 +8,7 @@ Take the choice of the flock, and also a pile of wood for the bones under the ca
 That it may cause wrath to come up to take vengeance, I have set her blood on the bare rock, that it shouldn't be covered." 
 "'Therefore God says: "Woe to the bloody city! I also will make the pile great. 
 Heap on the wood. Make the fire hot. Boil the meat well. Make the broth thick, and let the bones be burned. 
-Then set it empty on its coals, that it may be hot, and its bronze may burn, and that its filthiness may be molten in it, that its rust may be consumed. 
+Then set it empty on its coals, that it might be hot, and its bronze may burn, and that its filthiness may be molten in it, that its rust may be consumed. 
 She's weary with toil; yet her great rust, rust by fire, doesn't leave her. 
 "'"In your filthiness is lewdness. Because I have cleansed you and you weren't cleansed, you won't be cleansed from your filthiness any more, until I have caused my wrath toward you to rest. 
 "'"I, God, have spoken it. It'll happen, and I'll do it. I won't go back. I won't spare. I won't repent. According to your ways and according to your doings, they'll judge you," says God.'" 

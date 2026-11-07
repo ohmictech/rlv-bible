@@ -9,7 +9,7 @@ God hardened the heart of Pharaoh king of Egypt, and he pursued the children of 
 The Egyptians pursued them. All the horses and chariots of Pharaoh, his horsemen, and his army overtook them encamping by the sea, beside Pihahiroth, before Baal Zephon. 
 When Pharaoh came near, the children of Israel lifted up their eyes, and look, the Egyptians were marching after them; and they were very afraid. The children of Israel cried out to God. 
 They said to Moses, "Because there were no graves in Egypt, have you taken us away to die in the wilderness? Why have you treated us this way, to bring us out of Egypt? 
-Isn't this the word that we spoke to you in Egypt, saying, 'Leave us alone, that we may serve the Egyptians'? It would have been better for us to serve the Egyptians than to die in the wilderness." 
+Isn't this the word that we spoke to you in Egypt, saying, 'Leave us alone, that we can serve the Egyptians'? It would have been better for us to serve the Egyptians than to die in the wilderness." 
 Moses said to the people, "Don't be afraid. Stand still, and see the salvation of God, which he'll work for you today; for you'll never again see the Egyptians whom you have seen today. 
 God will fight for you, and you will be still." 
 God said to Moses, "Why do you cry to me? Speak to the children of Israel, that they go forward. 

@@ -10,7 +10,7 @@ Whom will he teach knowledge? To whom will he explain the message? Those who are
 It's precept on precept, precept on precept; line on line, line on line; here a little, there a little. 
 But he'll speak to this nation with stammering lips and in another language, 
 to whom he said, "This is the resting place. Give rest to the weary," and "This is the refreshing;" yet they wouldn't hear. 
-So God's word will be to them precept on precept, precept on precept; line on line, line on line; here a little, there a little; that they may go, fall backward, be broken, be snared, and be taken. 
+So God's word will be to them precept on precept, precept on precept; line on line, line on line; here a little, there a little; that they can go, fall backward, be broken, be snared, and be taken. 
 So hear God's word, you scoffers, that rule this people in Jerusalem: 
 "Because you have said, 'We have made a covenant with death, and we're in agreement with Hades. When the overflowing scourge passes through, it won't come to us; for we have made lies our refuge, and we have hidden ourselves under falsehood.'" 
 So God says, "Look, I lay in Zion for a foundation a stone, a tried stone, a precious cornerstone of a sure foundation. He who believes won't act hastily. 
@@ -18,7 +18,7 @@ I'll make justice the measuring line, and righteousness the plumb line. The hail
 Your covenant with death will be annulled, and your agreement with Hades won't stand. When the overflowing scourge passes through, then you'll be trampled down by it. 
 As often as it passes through, it'll seize you; for morning by morning it'll pass through, by day and by night; and it'll be nothing but terror to understand the message." 
 The bed is too short to stretch out on, and the blanket is too narrow to wrap oneself in. 
-God will rise up as on Mount Perazim. He'll be angry as in the valley of Gibeon; that he may do his work, his unusual work, and bring to pass his act, his extraordinary act. 
+God will rise up as on Mount Perazim. He'll be angry as in the valley of Gibeon; that he can do his work, his unusual work, and bring to pass his act, his extraordinary act. 
 Now don't be scoffers, lest your bonds be made strong; for I have heard a decree of destruction from the Lord, GOD of Armies, on the whole earth. 
 Give ear, and hear my voice! Listen, and hear my speech! 
 Does he who plows to sow plow continually? Does he keep turning the soil and breaking the clods? 

@@ -7,11 +7,11 @@ And if by favor, then it's no longer of deeds; otherwise favor is no longer favo
 What then? That which Israel seeks for, that he didn't obtain, but the chosen ones obtained it, and the rest were hardened. 
 According as it's written, "God gave them a spirit of numbness, eyes that they shouldn't see, and ears that they shouldn't hear, to this very day." 
 David says, "Let their table be made a snare, a trap, a stone in their way, and a payback to them. 
-Let their eyes be darkened, that they may not see. Always keep their backs bent." 
+Let their eyes be darkened, that they can't see. Always keep their backs bent." 
 I ask then, did they stumble so that they'd fall? Not a chance! But by their fall rescue has come to the nations, to provoke them to jealousy. 
 Now if their fall is the riches of the world, and their loss the riches of the nations, how much more their fullness! 
 I'm speaking to you who are nations. Since I'm a sent one to the nations, I make much of my work, 
-if by any means I may provoke to jealousy those who are my flesh, and may rescue some of them. 
+if by any means I can provoke to jealousy those who are my flesh, and may rescue some of them. 
 If the rejection of them is the bringing back of the world, what would their acceptance be, but real life from the dead? 
 If the first fruit is set apart, so is the lump. If the root is set apart, so are the branches. 
 But if some of the branches were broken off, and you, being a wild olive, were grafted in among them and became partaker with them of the root and of the richness of the olive tree, 
@@ -28,7 +28,7 @@ This is my binding arrangement with them, when I'll take away their mistakes."
 Concerning the Good News, they're enemies for your sake. But concerning the choosing, they're truly loved for the ancestors' sake. 
 The gifts and the calling of God can never be backtracked. 
 As you in time past were disobedient to God, but now have obtained mercy by their disobedience, 
-even so these also have now been disobedient, that by the mercy shown to you they may also obtain mercy. 
+even so these also have now been disobedient, that by the mercy shown to you they can also obtain mercy. 
 God has locked everyone into disobedience, so that he could have mercy on everyone. 
 Oh the depth of the riches both of the wisdom and the knowledge of God! How unsearchable are his verdicts, and his ways past tracing out! 
 "For who has known the mind of the Lord? Or who has been his counselor?" 

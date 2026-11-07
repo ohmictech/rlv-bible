@@ -27,7 +27,7 @@ The king answered Daniel, whose name was Belteshazzar, "Are you able to make kno
 Daniel answered before the king, and said, "The secret which the king has demanded can't be shown to the king by wise men, enchanters, magicians, or soothsayers; 
 but there's a God in the sky who reveals secrets, and he has made known to King Nebuchadnezzar what will be in the latter days. Your dream and the visions of your head on your bed are these: 
 "As for you, O king, your thoughts came on your bed, what should happen hereafter; and he who reveals secrets has made known to you what will happen. 
-But as for me, this secret isn't revealed to me for any wisdom that I have more than any living, but to the intent that the interpretation may be made known to the king, and that you may know the thoughts of your heart. 
+But as for me, this secret isn't revealed to me for any wisdom that I have more than any living, but to the intent that the interpretation may be made known to the king, and that you can know the thoughts of your heart. 
 "You, O king, saw, and look, a great image. This image, which was mighty, and whose brightness was excellent, stood before you; and its appearance was terrifying. 
 As for this image, its head was of fine gold, its chest and its arms of silver, its belly and its thighs of bronze, 
 its legs of iron, its feet part of iron and part of clay. 

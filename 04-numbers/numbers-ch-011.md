@@ -10,15 +10,15 @@ When the dew fell on the camp in the night, the manna fell on it.
 Moses heard the people weeping throughout their families, every man at the door of his tent; and God's anger burned greatly; and Moses was displeased. 
 Moses said to God, "Why have you treated your servant so badly? Why haven't I found favor in your sight, that you lay the burden of all this people on me? 
 Have I conceived all this people? Have I brought them out, that you should tell me, 'Carry them in your bosom, as a nurse carries a nursing infant, to the land which you swore to their fathers'? 
-Where could I get meat to give all these people? They weep before me, saying, 'Give us meat, that we may eat.' 
+Where could I get meat to give all these people? They weep before me, saying, 'Give us meat, that we can eat.' 
 I'm not able to bear all this people alone, because it's too heavy for me. 
 If you treat me this way, please kill me right now, if I have found favor in your sight; and don't let me see my wretchedness." 
-God said to Moses, "Gather to me seventy men of the elders of Israel, whom you know to be the elders of the people and officers over them; and bring them to the Tent of Meeting, that they may stand there with you. 
+God said to Moses, "Gather to me seventy men of the elders of Israel, whom you know to be the elders of the people and officers over them; and bring them to the Tent of Meeting, that they can stand there with you. 
 I'll come down and talk with you there. I'll take of the Spirit which is on you, and will put it on them; and they will bear the burden of the people with you, that you don't bear it yourself alone. 
 "Say to the people, 'Sanctify yourselves in preparation for tomorrow, and you'll eat meat; for you have wept in the ears of God, saying, "Who will give us meat to eat? It was well with us in Egypt." Therefore God will give you meat, and you'll eat. 
 Don't eat just one day, or two days, or five days, or ten days, or twenty days, 
 but a whole month, until it comes out at your nostrils, and it's loathsome to you; because you have rejected God who's among you, and have wept before him, saying, "Why did we come out of Egypt?"'" 
-Moses said, "The people, among whom I'm, are six hundred thousand men on foot; and you have said, 'I'll give them meat, that they may eat a whole month.' 
+Moses said, "The people, among whom I'm, are six hundred thousand men on foot; and you have said, 'I'll give them meat, that they can eat a whole month.' 
 Will flocks and herds be slaughtered for them, to be sufficient for them? Will all the fish of the sea be gathered together for them, to be sufficient for them?" 
 God said to Moses, "Has God's hand grown short? Now you'll see whether my word will happen to you or not." 
 Moses went out, and told the people God's words; and he gathered seventy men of the elders of the people, and set them around the Tent. 

@@ -18,7 +18,7 @@ Abner had communication with the elders of Israel, saying, "In times past, you s
 Now then do it! God has spoken of David, saying, 'By the hand of my servant David, I'll save my people Israel out of the hand of the Philistines, and out of the hand of all their enemies.'" 
 Abner also spoke in the ears of Benjamin; and Abner went also to speak in the ears of David in Hebron all that seemed good to Israel and to the whole house of Benjamin. 
 So Abner came to David to Hebron, and twenty men with him. David made Abner and the men who were with him a feast. 
-Abner said to David, "I'll arise and go, and will gather all Israel to my lord the king, that they may make a covenant with you, and that you may reign over all that your soul desires." David sent Abner away; and he went in peace. 
+Abner said to David, "I'll arise and go, and will gather all Israel to my lord the king, that they can make a covenant with you, and that you can reign over all that your soul desires." David sent Abner away; and he went in peace. 
 Look, David's servants and Joab came from a raid and brought in a great plunder with them; but Abner wasn't with David in Hebron, for he had sent him away, and he had gone in peace. 
 When Joab and all the army who was with him had come, they told Joab, "Abner the son of Ner came to the king, and he has sent him away, and he has gone in peace." 
 Then Joab came to the king and said, "What have you done? Look, Abner came to you. Why is it that you have sent him away, and he's already gone? 

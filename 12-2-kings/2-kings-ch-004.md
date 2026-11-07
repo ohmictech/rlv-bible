@@ -19,7 +19,7 @@ When the child was grown, one day he went out to his father to the reapers.
 He said to his father, "My head! My head!" He said to his servant, "Carry him to his mother." 
 When he had taken him and brought him to his mother, he sat on her knees until noon, and then died. 
 She went up and laid him on the man of God's bed, and shut the door on him, and went out. 
-She called to her husband and said, "Please send me one of the servants, and one of the donkeys, that I may run to the man of God and come again." 
+She called to her husband and said, "Please send me one of the servants, and one of the donkeys, that I can run to the man of God and come again." 
 He said, "Why would you want to go to him today? It isn't a new moon or a Sabbath." She said, "It's all right." 
 Then she saddled a donkey, and said to her servant, "Drive, and go forward! Don't slow down for me, unless I ask you to." 
 So she went, and came to the man of God to Mount Carmel. When the man of God saw her afar off, he said to Gehazi his servant, "Look, there's the Shunammite. 
@@ -38,7 +38,7 @@ Then she went in, fell at his feet, and bowed herself to the ground; then she pi
 Elisha came again to Gilgal. There was a famine in the land; and the sons of the spokesmen were sitting before him; and he said to his servant, "Get the large pot, and boil stew for the sons of the spokesmen." 
 One went out into the field to gather herbs, and found a wild vine, and gathered a lap full of wild gourds from it, and came and cut them up into the pot of stew; for they didn't recognize them. 
 So they poured out for the men to eat. As they were eating some of the stew, they cried out and said, "Man of God, there's death in the pot!" And they couldn't eat it. 
-But he said, "Then bring meal." He threw it into the pot; and he said, "Serve it to the people, that they may eat." And there was nothing harmful in the pot. 
-A man from Baal Shalishah came, and brought the man of God some bread of the first fruits: twenty loaves of barley and fresh ears of grain in his sack. Elisha said, "Give to the people, that they may eat." 
-His servant said, "What, should I set this before a hundred men?" But he said, "Give it to the people, that they may eat; for God says, 'They'll eat, and will have some left over.'" 
+But he said, "Then bring meal." He threw it into the pot; and he said, "Serve it to the people, that they can eat." And there was nothing harmful in the pot. 
+A man from Baal Shalishah came, and brought the man of God some bread of the first fruits: twenty loaves of barley and fresh ears of grain in his sack. Elisha said, "Give to the people, that they can eat." 
+His servant said, "What, should I set this before a hundred men?" But he said, "Give it to the people, that they can eat; for God says, 'They'll eat, and will have some left over.'" 
 So he set it before them and they ate and had some left over, according to God's word. 

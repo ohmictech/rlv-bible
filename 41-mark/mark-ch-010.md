@@ -48,5 +48,5 @@ When he heard that it was Jesus of Nazareth, he began to cry out and say, "Jesus
 Many rebuked him and told him to be quiet, but he cried out all the more, "Son of David, have mercy on me!" 
 Jesus stopped and said, "Call him." They called the blind man, saying, "Cheer up! Get up. He's calling you!" 
 He threw off his cloak, sprang up, and came to Jesus. 
-Jesus asked him, "What do you want me to do for you?" The blind man said to him, "Rabboni, that I may see again." 
+Jesus asked him, "What do you want me to do for you?" The blind man said to him, "Rabboni, that I can see again." 
 Jesus said to him, "Go your way. Your trust has healed you and made you whole." Immediately he received his sight and followed Jesus on the way. 

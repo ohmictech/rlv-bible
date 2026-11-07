@@ -2,10 +2,10 @@
 The king said to me, "Why is your face sad, since you aren't sick? This is nothing else but sorrow of heart." Then I was very much afraid. 
 I said to the king, "Let the king live for the eras! Why shouldn't my face be sad, when the city, the place of my fathers' tombs, lies waste, and its gates have been consumed with fire?" 
 Then the king said to me, "What's your request?" So I prayed to the God of the sky. 
-I said to the king, "If it pleases the king, and if your servant has found favor in your sight, I ask that you'd send me to Judah, to the city of my fathers' tombs, that I may build it." 
+I said to the king, "If it pleases the king, and if your servant has found favor in your sight, I ask that you'd send me to Judah, to the city of my fathers' tombs, that I can build it." 
 The king said to me (the queen was also sitting by him), "How long will your journey be? When will you return?" So it pleased the king to send me, and I set a time for him. 
-Moreover I said to the king, "If it pleases the king, let letters be given me to the governors beyond the River, that they may let me pass through until I come to Judah; 
-and a letter to Asaph the keeper of the king's forest, that he may give me timber to make beams for the gates of the citadel by the temple, for the wall of the city, and for the house that I'll occupy." The king granted my requests, because of the good hand of my God on me. 
+Moreover I said to the king, "If it pleases the king, let letters be given me to the governors beyond the River, that they can let me pass through until I come to Judah; 
+and a letter to Asaph the keeper of the king's forest, that he can give me timber to make beams for the gates of the citadel by the temple, for the wall of the city, and for the house that I'll occupy." The king granted my requests, because of the good hand of my God on me. 
 Then I came to the governors beyond the River, and gave them the king's letters. Now the king had sent captains of the army and horsemen with me. 
 When Sanballat the Horonite and Tobiah the Ammonite servant heard of it, it grieved them exceedingly, because a man had come to seek the welfare of the children of Israel. 
 So I came to Jerusalem, and was there three days. 

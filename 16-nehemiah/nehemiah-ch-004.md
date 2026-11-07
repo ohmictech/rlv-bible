@@ -19,5 +19,5 @@ Among the builders, everyone wore his sword at his side, and so built. He who so
 I said to the nobles, and to the rulers and to the rest of the people, "The work is great and widely spread out, and we're separated on the wall, far from one another. 
 Wherever you hear the sound of the trumpet, rally there to us. Our God will fight for us." 
 So we did the work. Half of the people held the spears from the rising of the morning until the stars appeared. 
-Likewise at the same time I said to the people, "Let everyone with his servant lodge within Jerusalem, that in the night they may be a guard to us, and may labor in the day." 
+Likewise at the same time I said to the people, "Let everyone with his servant lodge within Jerusalem, that in the night they can be a guard to us, and may labor in the day." 
 So neither I, nor my brothers, nor my servants, nor the men of the guard who followed me took off our clothes. Everyone took his weapon to the water. 

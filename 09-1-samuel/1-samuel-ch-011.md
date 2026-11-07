@@ -1,6 +1,6 @@
 ﻿Then Nahash the Ammonite came up and encamped against Jabesh Gilead; and all the men of Jabesh said to Nahash, "Make a covenant with us, and we'll serve you." 
 Nahash the Ammonite said to them, "On this condition I'll make it with you, that all your right eyes be gouged out. I'll make this dishonor all Israel." 
-The elders of Jabesh said to him, "Give us seven days, that we may send messengers to all the borders of Israel; and then, if there's no one to save us, we'll come out to you." 
+The elders of Jabesh said to him, "Give us seven days, that we can send messengers to all the borders of Israel; and then, if there's no one to save us, we'll come out to you." 
 Then the messengers came to Gibeah of Saul, and spoke these words in the ears of the people, then everyone lifted up their voice and wept. 
 Look, Saul came following the oxen out of the field; and Saul said, "What ails the people that they weep?" They told him the words of the men of Jabesh. 
 God's Spirit came mightily on Saul when he heard those words, and his anger burned hot. 
@@ -9,7 +9,7 @@ He counted them in Bezek; and the children of Israel were three hundred thousand
 They said to the messengers who came, "Tell the men of Jabesh Gilead, 'Tomorrow, by the time the sun is hot, you'll be rescued.'" The messengers came and told the men of Jabesh; and they were glad. 
 So the men of Jabesh said, "Tomorrow we'll come out to you, and you will do with us all that seems good to you." 
 On the next day, Saul put the people in three companies; and they came into the middle of the camp in the morning watch, and struck the Ammonites until the heat of the day. Those who remained were scattered, so that no two of them were left together. 
-The people said to Samuel, "Who's he who said, 'Will Saul reign over us?' Bring those men, that we may put them to death!" 
+The people said to Samuel, "Who's he who said, 'Will Saul reign over us?' Bring those men, that we can put them to death!" 
 Saul said, "No man will be put to death today; for today God has rescued Israel." 
 Then Samuel said to the people, "Come! Let's go to Gilgal, and renew the kingdom there." 
 Everyone went to Gilgal; and there they made Saul king before God in Gilgal. There they offered sacrifices of offerings for wholeness before God; and there Saul and all the men of Israel rejoiced greatly. 

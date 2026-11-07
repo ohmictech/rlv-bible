@@ -24,7 +24,7 @@ God's word came to me, saying,
 "Son of man, tell her, 'You're a land that isn't cleansed nor rained on in the day of indignation.' 
 There's a conspiracy of her spokesmen within it, like a roaring lion ravening the prey. They have devoured souls. They take treasure and precious things. They have made many widows within it. 
 Her priests have done violence to my law and have profaned my holy things. They have made no distinction between the holy and the common, neither have they caused men to discern between the unclean and the clean, and have hidden their eyes from my Sabbaths. So I'm profaned among them. 
-Her princes within it are like wolves ravening the prey, to shed blood and to destroy souls, that they may get dishonest gain. 
+Her princes within it are like wolves ravening the prey, to shed blood and to destroy souls, that they can get dishonest gain. 
 Her spokesmen have plastered for them with whitewash, seeing false visions, and divining lies to them, saying, 'The God says,' when God hasn't spoken. 
 The people of the land have used oppression and exercised robbery. Yes, they have troubled the poor and needy, and have oppressed the foreigner wrongfully. 
 "I sought for a man among them who would build up the wall and stand in the gap before me for the land, that I wouldn't destroy it; but I found no one. 

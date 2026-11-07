@@ -2,7 +2,7 @@
 Elijah went to show himself to Ahab. The famine was severe in Samaria. 
 Ahab called Obadiah, who was over the household. (Now Obadiah feared God greatly; 
 for when Jezebel cut off God's spokesmen, Obadiah took one hundred spokesmen, and hid them fifty to a cave, and fed them with bread and water.) 
-Ahab said to Obadiah, "Go through the land, to all the springs of water, and to all the brooks. Perhaps we may find grass and save the horses and mules alive, that we not lose all the animals." 
+Ahab said to Obadiah, "Go through the land, to all the springs of water, and to all the brooks. Perhaps we can find grass and save the horses and mules alive, that we not lose all the animals." 
 So they divided the land between them to pass throughout it. Ahab went one way by himself, and Obadiah went another way by himself. 
 As Obadiah was on the way, look, Elijah met him. He recognized him, and fell on his face, and said, "Is it you, my lord Elijah?" 
 He answered him, "It's I. Go, tell your lord, 'Look, Elijah is here!'" 

@@ -12,7 +12,7 @@ This was from the Lord. It's marvelous in our eyes'?"
 They tried to seize him, but they feared the crowd, for they knew that he had spoken the story against them. They left him and went away. 
 They sent some of the strict religious ones and the Herodians to him, to trap him in his words. 
 When they had come, they asked him, "Teacher, we know that you're honest and don't defer to anyone, for you aren't partial to anyone, but truly teach the way of God. Is it allowed to pay taxes to Caesar, or not? 
-Should we pay, or shouldn't we?" But he knew their pretense and said to them, "Why are you testing me? Bring me a silver coin, that I may look at it." 
+Should we pay, or shouldn't we?" But he knew their pretense and said to them, "Why are you testing me? Bring me a silver coin, that I can look at it." 
 They brought it. He said to them, "Whose is this image and inscription?" They said to him, "Caesar's." 
 Jesus answered them, "Give to Caesar what belongs to Caesar, and to God what belongs to God." And they were amazed at him. 
 Some of the religious elite, who say there's no rising from the dead, came to him and asked him, 

@@ -6,7 +6,7 @@ pulling down arguments and every high thing raised against the knowledge of God,
 and being ready to take payback on every disobedience, once your obedience is complete. 
 Do you look at things only as they appear in front of your face? If anyone trusts in himself that he's Christ's, let him consider this again with himself, that even as he's Christ's, so we also are Christ's. 
 Even if I take pride somewhat abundantly in our authority, which the Lord gave for building you up and not for pulling you down, I won't be ashamed, 
-that I may not seem as if I desire to terrify you by my letters. 
+that I can't seem as if I desire to terrify you by my letters. 
 They say, "His letters are weighty and strong, but his bodily presence is weak, and his speech is looked down on." 
 Let such a person consider this, that what we're in word by letters when we're absent, such are we also in deed when we're present. 
 We aren't bold to number or compare ourselves with some of those who commend themselves. But they themselves, measuring themselves by themselves, and comparing themselves with themselves, are without understanding. 

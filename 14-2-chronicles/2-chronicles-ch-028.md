@@ -20,7 +20,7 @@ God brought Judah low because of Ahaz king of Israel, because he acted without r
 Tilgath-pilneser king of Assyria came to him and gave him trouble, but didn't strengthen him. 
 Ahaz took away a portion out of God's house, and out of the house of the king and of the princes, and gave it to the king of Assyria; but it didn't help him. 
 In the time of his distress, he trespassed yet more against God, this same King Ahaz. 
-He sacrificed to the gods of Damascus which had defeated him. He said, "Because the gods of the kings of Syria helped them, I'll sacrifice to them, that they may help me." But they were the ruin of him and of all Israel. 
+He sacrificed to the gods of Damascus which had defeated him. He said, "Because the gods of the kings of Syria helped them, I'll sacrifice to them, that they can help me." But they were the ruin of him and of all Israel. 
 Ahaz gathered together the vessels of God's house, cut the vessels of God's house in pieces, and shut up the doors of God's house; and he made himself altars in every corner of Jerusalem. 
 In every city of Judah he made high places to burn incense to other gods, and provoked the God of his fathers, to anger. 
 Now the rest of his acts, and all his ways, first and last, look, they're written in the book of the kings of Judah and Israel. 

@@ -3,7 +3,7 @@ There's cursing, lying, murder, stealing, and committing adultery; they break bo
 So the land will mourn, and everyone who dwells in it'll waste away, with all living things in her, even the animals of the field and the birds of the sky; yes, the fish of the sea also die. 
 "Yet let no man bring a charge, neither let any man accuse; for your people are like those who bring charges against a priest. 
 You'll stumble in the day, and the spokesman will also stumble with you in the night; and I'll destroy your mother. 
-My people are destroyed for lack of knowledge. Because you have rejected knowledge, I'll also reject you, that you may be no priest to me. Because you have forgotten your God's law, I'll also forget your children. 
+My people are destroyed for lack of knowledge. Because you have rejected knowledge, I'll also reject you, that you can be no priest to me. Because you have forgotten your God's law, I'll also forget your children. 
 As they were multiplied, so they wronged me. I'll change their glory into shame. 
 They feed on the wrongdoing of my people, and set their heart on their guilt. 
 It'll be like people, like priest; and I'll punish them for their ways, and will repay them for their deeds. 

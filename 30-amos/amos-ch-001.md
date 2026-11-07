@@ -10,6 +10,6 @@ God says: "For three rebellion of Tyre, yes, for four, I won't turn away its pun
 but I'll send a fire on the wall of Tyre, and it'll devour its palaces." 
 God says: "For three rebellion of Edom, yes, for four, I won't turn away its punishment, because he pursued his brother with the sword and cast off all pity, and his anger raged continually, and he kept his wrath for the eras; 
 but I'll send a fire on Teman, and it'll devour the palaces of Bozrah." 
-God says: "For three rebellion of the children of Ammon, yes, for four, I won't turn away its punishment, because they have ripped open the pregnant women of Gilead, that they may enlarge their border. 
+God says: "For three rebellion of the children of Ammon, yes, for four, I won't turn away its punishment, because they have ripped open the pregnant women of Gilead, that they can enlarge their border. 
 But I'll kindle a fire in the wall of Rabbah, and it'll devour its palaces, with shouting in the day of battle, with a storm in the day of the whirlwind; 
 and their king will go into captivity, he and his princes together," says God. 

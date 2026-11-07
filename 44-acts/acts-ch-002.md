@@ -26,7 +26,7 @@ David says concerning him, 'I saw the Lord always before my face, for he's on my
 So my heart was glad, and my tongue celebrated. Moreover my flesh also will dwell in hope, 
 because you won't leave my life in Hades, neither will you allow your Holy One to see decay. 
 You made known to me the ways of life. You'll make me full of gladness with your presence.' 
-"Brothers and sisters, I may tell you freely of the patriarch David, that he both died and was buried, and his tomb is with us to this day. 
+"Brothers and sisters, I can tell you freely of the patriarch David, that he both died and was buried, and his tomb is with us to this day. 
 So, being a spokesman, and knowing that God had sworn with an oath to him that of the fruit of his body, according to the flesh, he'd raise up the Christ to sit on his throne, 
 he foreseeing this, spoke about the rising of the Christ, that his life wasn't left in Hades, and his flesh didn't see decay. 
 This Jesus God raised up, to which we all are witnesses. 

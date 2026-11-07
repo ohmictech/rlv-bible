@@ -16,6 +16,6 @@ God, you know. Remember me, visit me, and avenge me of my persecutors. You're pa
 Your words were found, and I ate them. Your words were to me a joy and the rejoicing of my heart, for I'm called by your name, God, God of Armies. 
 I didn't sit in the assembly of those who make merry and rejoice. I sat alone because of your hand, for you have filled me with indignation. 
 Why is my pain perpetual, and my wound incurable, which refuses to be healed? Will you indeed be to me as a deceitful brook, like waters that fail? 
-So God says, "If you return, then I'll bring you again, that you may stand before me; and if you take out the precious from the vile, you'll be as my mouth. They'll return to you, but you won't return to them. 
+So God says, "If you return, then I'll bring you again, that you can stand before me; and if you take out the precious from the vile, you'll be as my mouth. They'll return to you, but you won't return to them. 
 I'll make you to this people a fortified bronze wall. They'll fight against you, but they won't prevail against you; for I'm with you to save you and to deliver you," says God. 
 "I'll deliver you out of the hand of the guilty, and I'll buy you back out of the hand of the terrible." 

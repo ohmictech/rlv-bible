@@ -16,7 +16,7 @@ I have given you an example, that you should also do as I have done to you.
 Truly I tell you, a servant isn't greater than his lord, neither is one who's sent greater than he who sent him. 
 If you know these things, flourishing are you if you do them. 
 I don't speak concerning all of you. I know whom I have chosen; but that the Scripture may be fulfilled, 'He who eats bread with me has lifted up his heel against me.' 
-From now on, I tell you before it happens, that when it happens, you may trust that I am the one. 
+From now on, I tell you before it happens, that when it happens, you can trust that I am the one. 
 Truly I tell you, whoever receives whomever I send receives me; and whoever receives me, receives him who sent me." 
 When Jesus had said this, he was troubled in spirit, and testified, "Truly I tell you that one of you'll hand me over." 
 The students looked at one another, puzzled about whom he meant. 

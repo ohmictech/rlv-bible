@@ -7,7 +7,7 @@ Moreover he said, "I'm the God of your father, the God of Abraham, the God of Is
 God said, "I have surely seen the affliction of my people who are in Egypt, and have heard their cry because of their taskmasters, for I know their sorrows. 
 I have come down to deliver them out of the hand of the Egyptians, and to bring them up out of that land to a good and large land, to a land flowing with milk and honey; to the place of the Canaanite, the Hittite, the Amorite, the Perizzite, the Hivite, and the Jebusite. 
 Now, look, the cry of the children of Israel has come to me. Moreover I have seen the oppression with which the Egyptians oppress them. 
-Come now, and I'll send you to Pharaoh, that you may bring my people, the children of Israel, out of Egypt." 
+Come now, and I'll send you to Pharaoh, that you can bring my people, the children of Israel, out of Egypt." 
 Moses said to God, "Who am I, that I should go to Pharaoh, and that I should bring the children of Israel out of Egypt?" 
 He said, "Certainly I'll be with you. This will be the token to you, that I have sent you: when you have brought the people out of Egypt, you will serve God on this mountain." 
 Moses said to God, "Look, when I come to the children of Israel, and tell them, 'The God of your fathers has sent me to you,' and they ask me, 'What's his name?' what should I tell them?" 
@@ -15,7 +15,7 @@ God said to Moses, "I AM WHO I AM," and he said, "You will tell the children of 
 God said moreover to Moses, "You will tell the children of Israel this, 'The God of your fathers, the God of Abraham, the God of Isaac, and the God of Jacob has sent me to you.' This is my name for the eras, and this is my memorial to all generations. 
 Go and gather the elders of Israel together, and tell them, 'The God of your fathers, the God of Abraham, of Isaac, and of Jacob, has appeared to me, saying, "I have surely visited you, and seen that which is done to you in Egypt. 
 I have said, I'll bring you up out of the affliction of Egypt to the land of the Canaanite, the Hittite, the Amorite, the Perizzite, the Hivite, and the Jebusite, to a land flowing with milk and honey."' 
-They'll listen to your voice. You will come, you and the elders of Israel, to the king of Egypt, and you will tell him, 'The God of the Hebrews, has met with us. Now please let's go three days' journey into the wilderness, that we may sacrifice to God, our God.' 
+They'll listen to your voice. You will come, you and the elders of Israel, to the king of Egypt, and you will tell him, 'The God of the Hebrews, has met with us. Now please let's go three days' journey into the wilderness, that we can sacrifice to God, our God.' 
 I know that the king of Egypt won't give you permission to go, no, not by a mighty hand. 
 I'll reach out my hand and strike Egypt with all my wonders which I'll do among them, and after that he'll let you go. 
 I'll give this people favor in the sight of the Egyptians, and it'll happen that when you go, you won't go empty-handed. 

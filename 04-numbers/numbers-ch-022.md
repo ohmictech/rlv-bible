@@ -3,7 +3,7 @@ Balak the son of Zippor saw all that Israel had done to the Amorites.
 Moab was very afraid of the people, because they were many. Moab was distressed because of the children of Israel. 
 Moab said to the elders of Midian, "Now this multitude will lick up all that's around us, as the ox licks up the grass of the field." Balak the son of Zippor was king of Moab at that time. 
 He sent messengers to Balaam the son of Beor, to Pethor, which is by the River, to the land of the children of his people, to call him, saying, "Look, there's a people who came out of Egypt. Look, they cover the surface of the earth, and they're staying opposite me. 
-Please come now, and curse this people for me; for they're too mighty for me. Perhaps I will prevail, that we may strike them, and that I may drive them out of the land; for I know that he whom you bless is blessed, and he whom you curse is cursed." 
+Please come now, and curse this people for me; for they're too mighty for me. Perhaps I will prevail, that we can strike them, and that I can drive them out of the land; for I know that he whom you bless is blessed, and he whom you curse is cursed." 
 The elders of Moab and the elders of Midian departed with the rewards of divination in their hand. They came to Balaam, and spoke to him the words of Balak. 
 He said to them, "Lodge here this night, and I'll bring you word again, as God will speak to me." The princes of Moab stayed with Balaam. 
 God came to Balaam, and said, "Who are these men with you?" 
@@ -16,7 +16,7 @@ Balak again sent princes, more, and more honorable than they.
 They came to Balaam, and said to him, "Balak the son of Zippor says, 'Please let nothing hinder you from coming to me, 
 for I'll promote you to very great honor, and whatever you say to me I'll do. Please come, and curse this people for me.'" 
 Balaam answered the servants of Balak, "If Balak would give me his house full of silver and gold, I can't go beyond the word of my God, to do less or more. 
-Now please stay here tonight as well, that I may know what else God will speak to me." 
+Now please stay here tonight as well, that I can know what else God will speak to me." 
 God came to Balaam at night, and said to him, "If the men have come to call you, rise up, go with them; but only the word which I speak to you, that you will do." 
 Balaam rose up in the morning, and saddled his donkey, and went with the princes of Moab. 
 God's anger burned because he went; and God's messenger placed himself in the way as an adversary against him. Now he was riding on his donkey, and his two servants were with him. 

@@ -1,6 +1,6 @@
 ﻿If there's a controversy between men, and they come to judgment and the judges judge them, then they will justify the righteous and condemn the guilty. 
 It will be, if the guilty man is worthy to be beaten, that the judge will cause him to lie down and to be beaten before his face, according to his guilt, by number. 
-He may sentence him to no more than forty stripes. He won't give more, lest if he should give more and beat him more than that many stripes, then your brother will be degraded in your sight. 
+He can sentence him to no more than forty stripes. He won't give more, lest if he should give more and beat him more than that many stripes, then your brother will be degraded in your sight. 
 Don't muzzle the ox when he treads out the grain. 
 If brothers dwell together, and one of them dies and has no son, the wife of the dead won't be married outside to a stranger. Her husband's brother will go in to her, and take her as his wife, and perform the duty of a husband's brother to her. 
 It will be that the firstborn whom she bears will succeed in the name of his brother who's dead, that his name not be blotted out of Israel. 

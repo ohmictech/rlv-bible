@@ -20,7 +20,7 @@ So Jesus perceived that they wanted to ask him, and he said to them, "Do you inq
 Truly I tell you that you'll weep and lament, but the world will celebrate. You'll be sorrowful, but your sorrow will be turned into joy. 
 A woman, when she gives birth, has sorrow because her time has come. But when she has delivered the child, she doesn't remember the anguish any more, for the joy that a human being is born into the world. 
 So you now have sorrow, but I'll see you again, and your heart will celebrate, and no one will take your joy away from you. 
-"In that day you'll ask me no questions. Truly I tell you, whatever you may ask of the Father in my name, he'll give it to you. 
+"In that day you'll ask me no questions. Truly I tell you, whatever you can ask of the Father in my name, he'll give it to you. 
 Until now, you have asked nothing in my name. Ask, and you'll receive, that your joy may be made complete. 
 "I have spoken these things to you in figures of speech. But the time is coming when I'll no more speak to you in figures of speech, but will tell you plainly about the Father. 
 In that day you'll ask in my name; and I don't say to you that I'll pray to the Father for you, 
@@ -30,4 +30,4 @@ His students said to him, "Look, now you're speaking plainly, and using no figur
 Now we know that you know all things, and don't need for anyone to question you. By this we trust that you came from God." 
 Jesus answered them, "Do you now trust? 
 Look, the time is coming, yes, and has now come, that you'll be scattered, everyone to his own place, and you'll leave me alone. Yet I'm not alone, because the Father is with me. 
-I have told you these things, that in me you may have wholeness. In the world you have trouble; but cheer up! I have overcome the world." 
+I have told you these things, that in me you can have wholeness. In the world you have trouble; but cheer up! I have overcome the world." 

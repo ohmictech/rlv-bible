@@ -23,5 +23,5 @@ Samuel took Saul and his servant and brought them into the guest room, and made 
 Samuel said to the cook, "Bring the portion which I gave you, of which I said to you, 'Set it aside.'" 
 The cook took up the thigh, and that which was on it, and set it before Saul. Samuel said, "Look, that which has been reserved! Set it before yourself and eat; because it has been kept for you for the appointed time, for I said, 'I have invited the people.'" So Saul ate with Samuel that day. 
 When they had come down from the high place into the city, he talked with Saul on the housetop. 
-They arose early; and about daybreak, Samuel called to Saul on the housetop, saying, "Get up, that I may send you away." Saul arose, and they both went outside, he and Samuel, together. 
-As they were going down at the end of the city, Samuel said to Saul, "Tell the servant to go on ahead of us." He went ahead, then Samuel said, "But stand still first, that I may cause you to hear God's message." 
+They arose early; and about daybreak, Samuel called to Saul on the housetop, saying, "Get up, that I can send you away." Saul arose, and they both went outside, he and Samuel, together. 
+As they were going down at the end of the city, Samuel said to Saul, "Tell the servant to go on ahead of us." He went ahead, then Samuel said, "But stand still first, that I can cause you to hear God's message." 

@@ -1,7 +1,7 @@
 ﻿Josiah was eight years old when he began to reign, and he reigned thirty-one years in Jerusalem. His mother's name was Jedidah the daughter of Adaiah of Bozkath. 
 He did that which was right in God's eyes, and walked in all the ways of David his father, and didn't turn away to the right hand or to the left. 
 In the eighteenth year of King Josiah, the king sent Shaphan, the son of Azaliah the son of Meshullam, the secretary, to God's house, saying, 
-"Go up to Hilkiah the high priest, that he may count the money which is brought into God's house, which the keepers of the threshold have gathered of the people. 
+"Go up to Hilkiah the high priest, that he can count the money which is brought into God's house, which the keepers of the threshold have gathered of the people. 
 Let them deliver it into the hand of the workers who have the oversight of God's house; and let them give it to the workers who are in God's house, to repair the damage to the house, 
 to the carpenters, and to the builders, and to the masons, and for buying timber and cut stone to repair the house. 
 However, no accounting will be asked of them for the money delivered into their hand, for they deal faithfully." 

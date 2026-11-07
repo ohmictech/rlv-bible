@@ -1,4 +1,4 @@
-﻿Moses called to all Israel, and said to them, "Hear, Israel, the statutes and the ordinances which I speak in your ears today, that you may learn them, and observe to do them." 
+﻿Moses called to all Israel, and said to them, "Hear, Israel, the statutes and the ordinances which I speak in your ears today, that you can learn them, and observe to do them." 
 Our God made a covenant with us in Horeb. 
 God didn't make this covenant with our fathers, but with us, even us, who are all of us here alive today. 
 God spoke with you face to face on the mountain out of the middle of the fire, 
@@ -28,6 +28,6 @@ Go near, and hear all that our God will say, and tell us all that our God tells 
 God heard the voice of your words when you spoke to me; and God said to me, "I have heard the voice of the words of this people which they have spoken to you. They have well said all that they have spoken. 
 Oh that there were such a heart in them that they'd fear me and keep all my commandments always, that it might be well with them and with their children for the eras! 
 "Go tell them, 'Return to your tents.' 
-But as for you, stand here by me, and I'll tell you all the commandments, and the statutes, and the ordinances, which you will teach them, that they may do them in the land which I give them to possess." 
+But as for you, stand here by me, and I'll tell you all the commandments, and the statutes, and the ordinances, which you will teach them, that they can do them in the land which I give them to possess." 
 You will observe to do as your God has commanded you. Don't turn away to the right hand or to the left. 
-You will walk in all the way which your God has commanded you, that you may live and that it may be well with you, and that you may prolong your days in the land which you will possess. 
+You will walk in all the way which your God has commanded you, that you can live and that it might be well with you, and that you can prolong your days in the land which you will possess. 

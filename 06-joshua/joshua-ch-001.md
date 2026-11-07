@@ -4,8 +4,8 @@ I have given you every place that the sole of your foot will tread on, as I told
 From the wilderness and this Lebanon even to the great river, the river Euphrates, all the land of the Hittites, and to the great sea toward the going down of the sun, will be your border. 
 No man will be able to stand before you all the days of your life. As I was with Moses, so I'll be with you. I won't fail you nor forsake you. 
 "Be strong and courageous; for you will cause this people to inherit the land which I swore to their fathers to give them. 
-Only be strong and very courageous. Be careful to observe to do according to all the law which Moses my servant commanded you. Don't turn from it to the right hand or to the left, that you may have good success wherever you go. 
-This book of the law won't depart from your mouth, but you will meditate on it day and night, that you may observe to do according to all that's written in it; for then you will make your way prosperous, and then you will have good success. 
+Only be strong and very courageous. Be careful to observe to do according to all the law which Moses my servant commanded you. Don't turn from it to the right hand or to the left, that you can have good success wherever you go. 
+This book of the law won't depart from your mouth, but you will meditate on it day and night, that you can observe to do according to all that's written in it; for then you will make your way prosperous, and then you will have good success. 
 Haven't I commanded you? Be strong and courageous. Don't be afraid. Don't be dismayed, for your God is with you wherever you go." 
 Then Joshua commanded the officers of the people, saying, 
 "Pass through the middle of the camp, and command the people, saying, 'Prepare food; for within three days you're to pass over this Jordan, to go in to possess the land which your God gives you to possess.'" 

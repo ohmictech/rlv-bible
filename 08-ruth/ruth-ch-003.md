@@ -1,4 +1,4 @@
-﻿Naomi her mother-in-law said to her, "My daughter, will I not seek rest for you, that it may be well with you? 
+﻿Naomi her mother-in-law said to her, "My daughter, will I not seek rest for you, that it might be well with you? 
 Now isn't Boaz our kinsman, with whose maidens you were? Look, he'll be winnowing barley tonight on the threshing floor. 
 So wash yourself, anoint yourself, get dressed, and go down to the threshing floor; but don't make yourself known to the man until he has finished eating and drinking. 
 It will be, when he lies down, that you will note the place where he's lying. Then you will go in, uncover his feet, and lie down. Then he'll tell you what to do." 

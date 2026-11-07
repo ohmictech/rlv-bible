@@ -8,7 +8,7 @@ when the morning stars sang together, and all the sons of God shouted for joy?
 "Or who shut up the sea with doors, when it broke out of the womb, 
 when I made clouds its garment, and wrapped it in thick darkness, 
 marked out for it my bound, set bars and doors, 
-and said, 'You may come here, but no further. Your proud waves will be stopped here'? 
+and said, 'You can come here, but no further. Your proud waves will be stopped here'? 
 "Have you commanded the morning in your days, and caused the dawn to know its place, 
 that it might take hold of the ends of the earth, and shake the guilty out of it? 
 It's changed as clay under the seal, and presented as a garment. 
@@ -32,7 +32,7 @@ The waters become hard like stone, when the surface of the deep is frozen.
 Can you lead the constellations out in their season? Or can you guide the Bear with her cubs? 
 Do you know the laws of the sky? Can you establish its dominion over the earth? 
 "Can you lift up your voice to the clouds, that abundance of waters may cover you? 
-Can you send out lightnings, that they may go? Do they report to you, 'Here we're'? 
+Can you send out lightnings, that they can go? Do they report to you, 'Here we're'? 
 Who has put wisdom in the inward parts? Or who has given understanding to the mind? 
 Who can count the clouds by wisdom? Or who can pour out the containers of the sky, 
 when the dust runs into a mass, and the clods of earth stick together? 

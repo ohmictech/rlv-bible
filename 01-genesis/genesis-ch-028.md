@@ -1,7 +1,7 @@
 ﻿Isaac called Jacob, blessed him, and commanded him, "You won't take a wife of the daughters of Canaan. 
 Arise, go to Paddan Aram, to the house of Bethuel your mother's father. Take a wife from there from the daughters of Laban, your mother's brother. 
-May God Almighty bless you, and make you fruitful, and multiply you, that you may be a company of peoples, 
-and give you the blessing of Abraham, to you and to your offspring with you, that you may inherit the land where you travel, which God gave to Abraham." 
+May God Almighty bless you, and make you fruitful, and multiply you, that you can be a company of peoples, 
+and give you the blessing of Abraham, to you and to your offspring with you, that you can inherit the land where you travel, which God gave to Abraham." 
 Isaac sent Jacob away. He went to Paddan Aram to Laban, son of Bethuel the Syrian, the brother of Rebekah, Jacob's and Esau's mother. 
 Now Esau saw that Isaac had blessed Jacob and sent him away to Paddan Aram, to take him a wife from there, and that as he blessed him he gave him a command, saying, "You won't take a wife of the daughters of Canaan;" 
 and that Jacob obeyed his father and his mother, and was gone to Paddan Aram. 

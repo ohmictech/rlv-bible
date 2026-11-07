@@ -11,10 +11,10 @@ When you draw near to a city to fight against it, then proclaim peace to it.
 It will be, if it gives you answer of peace and opens to you, then it will be that everyone who's found therein will become forced laborers to you, and will serve you. 
 If it'll make no peace with you, but will make war against you, then you will besiege it. 
 When your God delivers it into your hand, you will strike every male of it with the edge of the sword; 
-but the women, the little ones, the livestock, and all that's in the city, even all its plunder, you will take for plunder for yourself. You may use the plunder of your enemies, which your God has given you. 
+but the women, the little ones, the livestock, and all that's in the city, even all its plunder, you will take for plunder for yourself. You can use the plunder of your enemies, which your God has given you. 
 Thus you will do to all the cities which are very far off from you, which aren't of the cities of these nations. 
 But of the cities of these peoples that your God gives you for an inheritance, you will save alive nothing that breathes; 
 but you will utterly destroy them: the Hittite, the Amorite, the Canaanite, the Perizzite, the Hivite, and the Jebusite, as your God has commanded you; 
 that they not teach you to follow all their abominations, which they have done for their gods; so would you wrong your God. 
-When you will besiege a city a long time, in making war against it to take it, you won't destroy its trees by wielding an ax against them; for you may eat of them. You won't cut them down, for is the tree of the field man, that it should be besieged by you? 
+When you will besiege a city a long time, in making war against it to take it, you won't destroy its trees by wielding an ax against them; for you can eat of them. You won't cut them down, for is the tree of the field man, that it should be besieged by you? 
 Only the trees that you know aren't trees for food, you will destroy and cut them down. You will build bulwarks against the city that makes war with you, until it falls. 

@@ -11,7 +11,7 @@ Then I said, "Ah, God! Surely you have greatly deceived this people and Jerusale
 At that time it'll be said to this people and to Jerusalem, "A hot wind blows from the bare heights in the wilderness toward the daughter of my people, not to winnow, nor to cleanse. 
 A full wind from these will come for me. Now I'll also utter judgments against them." 
 Look, he'll come up as clouds, and his chariots will be as the whirlwind. His horses are swifter than eagles. Woe to us! We're ruined. 
-Jerusalem, wash your heart from guilt, that you may be saved. How long will your bad thoughts lodge within you? 
+Jerusalem, wash your heart from guilt, that you can be saved. How long will your bad thoughts lodge within you? 
 A voice declares from Dan, and publishes bad from the hills of Ephraim: 
 "Tell the nations, look, publish against Jerusalem, 'Watchers come from a far country, and raise their voice against the cities of Judah. 
 As keepers of a field, they're against her all around, because she has been rebellious against me,'" says God. 

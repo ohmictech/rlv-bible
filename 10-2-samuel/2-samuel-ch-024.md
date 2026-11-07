@@ -1,6 +1,6 @@
 ﻿Again God's anger burned against Israel, and he moved David against them, saying, "Go, count Israel and Judah." 
-The king said to Joab the captain of the army, who was with him, "Now go back and forth through all the tribes of Israel, from Dan even to Beersheba, and count the people, that I may know the sum of the people." 
-Joab said to the king, "Now may your God add to the people, however many they may be, one hundred times; and may the eyes of my lord the king see it. But why does my lord the king delight in this thing?" 
+The king said to Joab the captain of the army, who was with him, "Now go back and forth through all the tribes of Israel, from Dan even to Beersheba, and count the people, that I can know the sum of the people." 
+Joab said to the king, "Now may your God add to the people, however many they can be, one hundred times; and may the eyes of my lord the king see it. But why does my lord the king delight in this thing?" 
 Notwithstanding, the king's word prevailed against Joab and against the captains of the army. Joab and the captains of the army went out from the presence of the king to count the people of Israel. 
 They passed over the Jordan and encamped in Aroer, on the right side of the city that's in the middle of the valley of Gad, and to Jazer; 
 then they came to Gilead and to the land of Tahtim Hodshi; and they came to Dan Jaan and around to Sidon, 
@@ -9,7 +9,7 @@ So when they had gone back and forth through all the land, they came to Jerusale
 Joab gave up the sum of the counting of the people to the king; and there were in Israel eight hundred thousand valiant men who drew the sword, and the men of Judah were five hundred thousand men. 
 David's heart struck him after he had counted the people. David said to God, "I have drifted greatly in that which I have done. But now, God, put away, I beg you, the guilt of your servant; for I have done very foolishly." 
 When David rose up in the morning, God's word came to the spokesman Gad, David's seer, saying, 
-"Go and speak to David, 'God says, "I offer you three things. Choose one of them, that I may do it to you."'" 
+"Go and speak to David, 'God says, "I offer you three things. Choose one of them, that I can do it to you."'" 
 So Gad came to David, and told him, saying, "Will seven years of famine come to you in your land? Or will you flee three months before your foes while they pursue you? Or will there be three days' pestilence in your land? Now answer, and consider what answer I will return to him who sent me." 
 David said to Gad, "I'm in distress. Let's fall now into God's hand, for his mercies are great. Let me not fall into man's hand." 
 So God sent a pestilence on Israel from the morning even to the appointed time; and seventy thousand men died of the people from Dan even to Beersheba. 

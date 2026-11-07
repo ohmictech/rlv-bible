@@ -1,13 +1,13 @@
 ﻿Now Boaz went up to the gate and sat down there. Look, the near kinsman of whom Boaz spoke came by. Boaz said to him, "Come over here, friend, and sit down!" He came over, and sat down. 
 Boaz took ten men of the elders of the city, and said, "Sit down here," and they sat down. 
 He said to the near kinsman, "Naomi, who has come back out of the country of Moab, is selling the parcel of land, which was our brother Elimelech's. 
-I thought I should tell you, saying, 'Buy it before those who sit here, and before the elders of my people.' If you'll buy it back, buy it back; but if you won't buy it back, then tell me, that I may know. There's no one to buy it back besides you; and I'm after you." He said, "I'll buy it back." 
+I thought I should tell you, saying, 'Buy it before those who sit here, and before the elders of my people.' If you'll buy it back, buy it back; but if you won't buy it back, then tell me, that I can know. There's no one to buy it back besides you; and I'm after you." He said, "I'll buy it back." 
 Then Boaz said, "On the day you buy the field from the hand of Naomi, you must buy it also from Ruth the Moabitess, the wife of the dead, to raise up the name of the dead on his inheritance." 
 The near kinsman said, "I can't buy it back for myself, lest I endanger my own inheritance. Take my right of buying back for yourself; for I can't buy it back." 
 Now this was the custom in former time in Israel concerning buy backing and concerning exchanging, to confirm all things: a man took off his sandal, and gave it to his neighbor; and this was the way of formalizing transactions in Israel. 
 So the near kinsman said to Boaz, "Buy it for yourself," then he took off his sandal. 
 Boaz said to the elders and to everyone, "You're witnesses today, that I have bought all that was Elimelech's, and all that was Chilion's and Mahlon's, from the hand of Naomi. 
-Moreover, Ruth the Moabitess, the wife of Mahlon, I have purchased to be my wife, to raise up the name of the dead on his inheritance, that the name of the dead may not be cut off from among his brothers and from the gate of his place. You're witnesses today." 
+Moreover, Ruth the Moabitess, the wife of Mahlon, I have purchased to be my wife, to raise up the name of the dead on his inheritance, that the name of the dead can't be cut off from among his brothers and from the gate of his place. You're witnesses today." 
 Everyone who was in the gate, and the elders, said, "We're witnesses. May God make the woman who has come into your house like Rachel and like Leah, which both built the house of Israel; and treat you worthily in Ephrathah, and be famous in Bethlehem. 
 Let your house be like the house of Perez, whom Tamar bore to Judah, of the offspring which God will give you by this young woman." 
 So Boaz took Ruth and she became his wife; and he went in to her, and God enabled her to conceive, and she bore a son. 

@@ -19,7 +19,7 @@ David recovered all that the Amalekites had taken, and David rescued his two wiv
 There was nothing lacking to them, neither small nor great, neither sons nor daughters, neither plunder, nor anything that they had taken. David brought them all back. 
 David took all the flocks and the herds, which they drove before those other livestock, and said, "This is David's plunder." 
 David came to the two hundred men, who were so faint that they couldn't follow David, whom also they had made to stay at the brook Besor; and they went out to meet David, and to meet the people who were with him. When David came near to the people, he greeted them. 
-Then all the guilty men and worthless fellows of those who went with David answered and said, "Because they didn't go with us, we won't give them anything of the plunder that we have recovered, except to every man his wife and his children, that he may lead them away and depart." 
+Then all the guilty men and worthless fellows of those who went with David answered and said, "Because they didn't go with us, we won't give them anything of the plunder that we have recovered, except to every man his wife and his children, that he can lead them away and depart." 
 Then David said, "Don't do so, my brothers, with that which God has given to us, who has preserved us, and delivered the troop that came against us into our hand. 
 Who will listen to you in this matter? As his share is who goes down to the battle, so will his share be who stays with the baggage. They will share alike." 
 It was so from that day forward that he made it a statute and an ordinance for Israel to this day. 

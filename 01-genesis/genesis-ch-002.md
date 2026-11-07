@@ -13,7 +13,7 @@ and the gold of that land is good. Aromatic resin and onyx stone are also there.
 The name of the second river is Gihon. It winds through the whole land of Cush. 
 The name of the third river is Tigris. It flows east of Assyria. The fourth river is the Euphrates. 
 God took the man and settled him in the garden of Eden to work it and guard it. 
-God commanded the man, "You may eat from any tree in the garden; 
+God commanded the man, "You can eat from any tree in the garden; 
 but you must not eat from the tree of the knowledge of good and bad, because on the day you eat from it, you'll surely die." 
 God said, "It isn't good for the man to be alone. I'll make him a helper who's right for him." 
 God formed every animal of the field and every bird of the sky out of the ground, and brought them to the man to see what he'd call them; and whatever the man called each living creature, that was its name. 

@@ -1,7 +1,7 @@
 ﻿They took their journey from Elim, and all the congregation of the children of Israel came to the wilderness of Sin, which is between Elim and Sinai, on the fifteenth day of the second month after their departing out of the land of Egypt. 
 The whole congregation of the children of Israel murmured against Moses and against Aaron in the wilderness; 
 and the children of Israel said to them, "We wish that we had died by God's hand in the land of Egypt, when we sat by the meat pots, when we ate our fill of bread, for you have brought us out into this wilderness to kill this whole assembly with hunger." 
-Then God said to Moses, "Look, I'll rain bread from the sky for you, and the people will go out and gather a day's portion every day, that I may test them, whether they'll walk in my law or not. 
+Then God said to Moses, "Look, I'll rain bread from the sky for you, and the people will go out and gather a day's portion every day, that I can test them, whether they'll walk in my law or not. 
 It will come to pass on the sixth day, that they will prepare that which they bring in, and it will be twice as much as they gather daily." 
 Moses and Aaron said to all the children of Israel, "At evening, you will know that God has brought you out from the land of Egypt. 
 In the morning, you will see God's glory; because he hears your murmurings against God. Who are we, that you murmur against us?" 
@@ -29,7 +29,7 @@ God said to Moses, "How long do you refuse to keep my commandments and my laws?
 Look, because God has given you the Sabbath, he gives you on the sixth day the bread of two days. Everyone stay in his place. Let no one go out of his place on the seventh day." 
 So the people rested on the seventh day. 
 The house of Israel called its name "Manna", and it was like coriander seed, white; and its taste was like wafers with honey. 
-Moses said, "This is the thing which God has commanded, 'Let an omer-full of it be kept throughout your generations, that they may see the bread with which I fed you in the wilderness, when I brought you out of the land of Egypt.'" 
+Moses said, "This is the thing which God has commanded, 'Let an omer-full of it be kept throughout your generations, that they can see the bread with which I fed you in the wilderness, when I brought you out of the land of Egypt.'" 
 Moses said to Aaron, "Take a pot, and put an omer-full of manna in it, and lay it up before God, to be kept throughout your generations." 
 As God commanded Moses, so Aaron laid it up before the Testimony, to be kept. 
 The children of Israel ate the manna forty years, until they came to an inhabited land. They ate the manna until they came to the borders of the land of Canaan. 

@@ -14,7 +14,7 @@ When you have seen it, you also will be gathered to your people, as Aaron your b
 because in the strife of the congregation, you rebelled against my word in the wilderness of Zin, to honor me as holy at the waters before their eyes." (These are the waters of Meribah of Kadesh in the wilderness of Zin.) 
 Moses spoke to God, saying, 
 "Let the God of the spirits of all flesh, appoint a man over the congregation, 
-who may go out before them, and who may come in before them, and who may lead them out, and who may bring them in, that the congregation of God may not be as sheep which have no shepherd." 
+who may go out before them, and who may come in before them, and who may lead them out, and who may bring them in, that the congregation of God can't be as sheep which have no shepherd." 
 God said to Moses, "Take Joshua the son of Nun, a man in whom is the Spirit, and lay your hand on him. 
 Set him before Eleazar the priest, and before all the congregation; and commission him in their sight. 
 You will give authority to him, that all the congregation of the children of Israel may obey. 

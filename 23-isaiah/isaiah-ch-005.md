@@ -8,7 +8,7 @@ The vineyard of the God of Armies is the house of Israel, and the men of Judah h
 Woe to those who join house to house, who lay field to field, until there's no room, and you're made to dwell alone in the middle of the land! 
 In my ears, the God of Armies says: "Surely many houses will be desolate, even great and beautiful, unoccupied. 
 Ten acres of vineyard will yield one bath, and a homer of seed will yield an ephah." 
-Woe to those who rise up early in the morning, that they may follow strong drink, who stay late into the night, until wine inflames them! 
+Woe to those who rise up early in the morning, that they can follow strong drink, who stay late into the night, until wine inflames them! 
 The harp, lyre, tambourine, and flute, with wine, are at their feasts; but they don't respect the work of God, neither have they considered the operation of his hands. 
 So my people go into captivity for lack of knowledge. Their honorable men are famished, and their multitudes are parched with thirst. 
 So Hades has enlarged its desire, and opened its mouth without measure; and their glory, their multitude, their pomp, and he who rejoices among them, descend into it. 
@@ -16,7 +16,7 @@ So man is brought low, mankind is humbled, and the eyes of the arrogant ones are
 but the God of Armies is exalted in justice, and God the Holy One is sanctified in righteousness. 
 Then the lambs will graze as in their pasture, and strangers will eat the ruins of the rich. 
 Woe to those who draw guilt with cords of falsehood, and guilt as with cart rope, 
-who say, "Let him make haste, let him hasten his work, that we may see it; let the counsel of the Holy One of Israel draw near and come, that we may know it!" 
+who say, "Let him make haste, let him hasten his work, that we can see it; let the counsel of the Holy One of Israel draw near and come, that we can know it!" 
 Woe to those who call bad good, and good bad; who put darkness for light, and light for darkness; who put bitter for sweet, and sweet for bitter! 
 Woe to those who are wise in their own eyes, and prudent in their own sight! 
 Woe to those who are mighty to drink wine, and champions at mixing strong drink; 

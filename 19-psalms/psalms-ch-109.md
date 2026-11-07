@@ -12,7 +12,7 @@ Let the creditor seize all that he has. Let strangers plunder the fruit of his l
 Let there be no one to extend kindness to him, neither let there be anyone to have pity on his fatherless children. 
 Let his posterity be cut off. In the generation following let their name be blotted out. 
 Let the guilt of his fathers be remembered by God. Don't let the wrongdoing of his mother be blotted out. 
-Let them be before God continually, that he may cut off their memory from the earth; 
+Let them be before God continually, that he can cut off their memory from the earth; 
 because he didn't remember to show kindness, but persecuted the poor and needy man, the broken in heart, to kill them. 
 Yes, he loved cursing, and it came to him. He didn't delight in blessing, and it was far from him. 
 He clothed himself also with cursing as with his garment. It came into his inward parts like water, like oil into his bones. 
@@ -24,8 +24,8 @@ I fade away like an evening shadow. I'm shaken off like a locust.
 My knees are weak through fasting. My body is thin and lacks fat. 
 I have also become a reproach to them. When they see me, they shake their head. 
 Help me, God, my God. Save me according to your loving kindness; 
-that they may know that this is your hand; that you, God, have done it. 
-They may curse, but you bless. When they arise, they'll be shamed, but your servant will rejoice. 
+that they can know that this is your hand; that you, God, have done it. 
+They can curse, but you bless. When they arise, they'll be shamed, but your servant will rejoice. 
 Let my adversaries be clothed with dishonor. Let them cover themselves with their own shame as with a robe. 
 I'll give great thanks to God with my mouth. Yes, I'll praise him among the multitude. 
 He'll stand at the right hand of the needy, to save him from those who judge his soul. 

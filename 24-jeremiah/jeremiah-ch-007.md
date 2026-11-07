@@ -7,7 +7,7 @@ if you don't oppress the foreigner, the fatherless, and the widow, and don't she
 then I'll cause you to dwell in this place, in the land that I gave to your fathers, from of old even for the eras more. 
 Look, you trust in lying words that can't profit. 
 Will you steal, murder, commit adultery, swear falsely, burn incense to Baal, and walk after other gods that you haven't known, 
-then come and stand before me in this house, which is called by my name, and say, 'We're delivered,' that you may do all these abominations? 
+then come and stand before me in this house, which is called by my name, and say, 'We're delivered,' that you can do all these abominations? 
 Has this house, which is called by my name, become a den of robbers in your eyes? Look, I myself have seen it," says God. 
 "But go now to my place which was in Shiloh, where I caused my name to dwell at the first, and see what I did to it for the guilt of my people Israel. 
 Now, because you have done all these works," says God, "and I spoke to you, rising up early and speaking, but you didn't hear; and I called you, but you didn't answer; 
@@ -15,12 +15,12 @@ So I'll do to the house which is called by my name, in which you trust, and to t
 I'll cast you out of my sight, as I have cast out all your brothers, even the whole offspring of Ephraim. 
 "So don't pray for this people. Don't lift up a cry or prayer for them or make intercession to me; for I won't hear you. 
 Don't you see what they do in the cities of Judah and in the streets of Jerusalem? 
-The children gather wood, and the fathers kindle the fire, and the women knead the dough, to make cakes to the queen of the sky, and to pour out drink offerings to other gods, that they may provoke me to anger. 
+The children gather wood, and the fathers kindle the fire, and the women knead the dough, to make cakes to the queen of the sky, and to pour out drink offerings to other gods, that they can provoke me to anger. 
 Do they provoke me to anger?" says God. "Don't they provoke themselves, to the confusion of their own faces?" 
 So God says: "Look, my anger and my wrath will be poured out on this place, on man, on animal, on the trees of the field, and on the fruit of the ground; and it'll burn and won't be quenched." 
 The God of Armies, the God of Israel says: "Add your burnt offerings to your sacrifices and eat meat. 
 I didn't speak to your fathers or command them in the day that I brought them out of the land of Egypt concerning burnt offerings or sacrifices; 
-but this thing I commanded them, saying, 'Listen to my voice, and I'll be your God, and you will be my people. Walk in all the way that I command you, that it may be well with you.' 
+but this thing I commanded them, saying, 'Listen to my voice, and I'll be your God, and you will be my people. Walk in all the way that I command you, that it might be well with you.' 
 But they didn't listen or turn their ear, but walked in their own counsels and in the stubbornness of their bad heart, and went backward, and not forward. 
 Since the day that your fathers came out of the land of Egypt to this day, I have sent to you all my servants the spokesmen, daily rising up early and sending them. 
 Yet they didn't listen to me or incline their ear, but made their neck stiff. They did worse than their fathers. 

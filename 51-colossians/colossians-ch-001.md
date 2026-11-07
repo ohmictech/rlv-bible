@@ -6,7 +6,7 @@ because of the expectation stored up for you in the sky, the one you heard about
 that has come to you, just as it's in the whole world, bearing fruit and growing, as it has among you too, from the day you heard it and came to know God's gift in truth, 
 just as you learned it from Epaphras, our truly loved fellow slave, who's a trustworthy servant of Christ on your behalf. 
 He also told us about your love in the Spirit. 
-That's why, from the day we heard it, we haven't stopped praying and asking for you, that you may be filled with knowing what he wants, in all spiritual wisdom and understanding, 
+That's why, from the day we heard it, we haven't stopped praying and asking for you, that you can be filled with knowing what he wants, in all spiritual wisdom and understanding, 
 so that you live in a way that's worthy of the Lord and please him in every way, bearing fruit in every good deed and growing in knowing God, 
 made strong with all power, out of his weight-filled might, so that you have all staying power and patience, with joy, 
 giving thanks to the Father, who has made us fit to share in the portion that belongs to the set-apart ones in the light. 

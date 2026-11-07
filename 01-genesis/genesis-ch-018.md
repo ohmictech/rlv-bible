@@ -2,7 +2,7 @@
 He looked up and saw three men standing near him. When he saw them, he ran from the tent entrance to meet them and bowed low to the ground, 
 and said, "My lord, if I have found favor with you, please don't pass by your servant. 
 Let a little water be brought so you can wash your feet, and rest under the tree. 
-Let me bring a piece of bread so you can refresh yourselves. After that you may go your way, now that you have come to your servant." They said, "Very well, do as you have said." 
+Let me bring a piece of bread so you can refresh yourselves. After that you can go your way, now that you have come to your servant." They said, "Very well, do as you have said." 
 Abraham hurried into the tent to Sarah, and said, "Quickly prepare three seahs of fine meal, knead it, and make cakes." 
 Abraham ran to the herd, took a tender choice calf, and gave it to the servant, who hurried to prepare it. 
 He took curds, milk, and the calf he had prepared, and set it before them. He stood by them under the tree, and they ate. 

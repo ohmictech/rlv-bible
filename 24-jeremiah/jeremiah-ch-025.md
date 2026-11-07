@@ -4,7 +4,7 @@ From the thirteenth year of Josiah the son of Amon, king of Judah, even to this 
 God has sent to you all his servants the spokesmen, rising up early and sending them (but you haven't listened or inclined your ear to hear), 
 saying, "Return now everyone from his bad way, and from the bad of your doings, and dwell in the land that God has given to you and to your fathers, from of old and even for the eras more. 
 Don't go after other gods to serve them or worship them, and don't provoke me to anger with the work of your hands; then I'll do you no harm." 
-"Yet you haven't listened to me," says God, "that you may provoke me to anger with the work of your hands to your own hurt." 
+"Yet you haven't listened to me," says God, "that you can provoke me to anger with the work of your hands to your own hurt." 
 So the God of Armies says: "Because you haven't heard my words, 
 Look, I'll send and take all the families of the north," says God, "and I'll send to Nebuchadnezzar the king of Babylon, my servant, and will bring them against this land, and against its inhabitants, and against all these nations around. I'll utterly destroy them, and make them an astonishment, and a hissing, and perpetual desolations. 
 Moreover I'll take from them the voice of mirth and the voice of gladness, the voice of the bridegroom and the voice of the bride, the sound of the millstones, and the light of the lamp. 

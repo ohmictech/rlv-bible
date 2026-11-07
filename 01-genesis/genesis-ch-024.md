@@ -11,7 +11,7 @@ The servant took ten of his master's camels, and departed, having a variety of g
 He made the camels kneel down outside the city by the well of water at the time of evening, the time that women go out to draw water. 
 He said, "the God of my master Abraham, please give me success today, and show kindness to my master Abraham. 
 Look, I'm standing by the spring of water. The daughters of the men of the city are coming out to draw water. 
-Let it happen, that the young lady to whom I'll say, 'Please let down your pitcher, that I may drink,' then she says, 'Drink, and I'll also give your camels a drink,', let her be the one you have appointed for your servant Isaac. By this I'll know that you have shown kindness to my master." 
+Let it happen, that the young lady to whom I'll say, 'Please let down your pitcher, that I can drink,' then she says, 'Drink, and I'll also give your camels a drink,', let her be the one you have appointed for your servant Isaac. By this I'll know that you have shown kindness to my master." 
 Before he had finished speaking, look, Rebekah came out, who was born to Bethuel the son of Milcah, the wife of Nahor, Abraham's brother, with her pitcher on her shoulder. 
 The young lady was very beautiful to look at, a virgin. No man had known her. She went down to the spring, filled her pitcher, and came up. 
 The servant ran to meet her, and said, "Please give me a drink, a little water from your pitcher." 
@@ -46,14 +46,14 @@ Before I had finished speaking in my heart, look, Rebekah came out with her pitc
 She hurried and let down her pitcher from her shoulder, and said, 'Drink, and I'll also give your camels a drink.' So I drank, and she also gave the camels a drink. 
 I asked her, and said, 'Whose daughter are you?' She said, 'The daughter of Bethuel, Nahor's son, whom Milcah bore to him.' I put the ring on her nose, and the bracelets on her hands. 
 I bowed my head, and worshiped God, and blessed the God of my master Abraham, who had led me in the right way to take my master's brother's daughter for his son. 
-Now if you'll deal kindly and truly with my master, tell me. If not, tell me, that I may turn to the right hand, or to the left." 
+Now if you'll deal kindly and truly with my master, tell me. If not, tell me, that I can turn to the right hand, or to the left." 
 Then Laban and Bethuel answered, "The thing proceeds from God. We can't speak to you bad or good. 
 Look, Rebekah is before you. Take her, and go, and let her be your master's son's wife, as God has spoken." 
 When Abraham's servant heard their words, he bowed himself down to the earth to God. 
 The servant brought out jewels of silver, and jewels of gold, and clothing, and gave them to Rebekah. He also gave precious things to her brother and her mother. 
 They ate and drank, he and the men who were with him, and stayed all night. They rose up in the morning, and he said, "Send me away to my master." 
 Her brother and her mother said, "Let the young lady stay with us a few days, at least ten. After that she'll go." 
-He said to them, "Don't hinder me, since God has prospered my way. Send me away that I may go to my master." 
+He said to them, "Don't hinder me, since God has prospered my way. Send me away that I can go to my master." 
 They said, "We'll call the young lady, and ask her." 
 They called Rebekah, and said to her, "Will you go with this man?" She said, "I'll go." 
 They sent away Rebekah, their sister, with her nurse, Abraham's servant, and his men. 

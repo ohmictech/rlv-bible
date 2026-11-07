@@ -1,5 +1,5 @@
 ﻿Now the serpent was craftier than any animal of the field that God had made. He said to the woman, "Did God really say, 'You must not eat from any tree in the garden'?" 
-The woman said to the serpent, "We may eat fruit from the trees of the garden, 
+The woman said to the serpent, "We can eat fruit from the trees of the garden, 
 but not the fruit of the tree in the middle of the garden. God said, 'You must not eat from it. You must not touch it, or you'll die.'" 
 The serpent said to the woman, "You won't really die, 
 for God knows that in the day you eat it, your eyes will be opened, and you'll be like God, knowing good and bad." 

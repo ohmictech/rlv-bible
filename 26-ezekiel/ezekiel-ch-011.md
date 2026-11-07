@@ -17,7 +17,7 @@ God's word came to me, saying,
 "Therefore say, 'The God says: "I'll gather you from the peoples, and assemble you out of the countries where you have been scattered, and I'll give you the land of Israel." 
 "'They'll come there, and they'll take away all its detestable things and all its abominations from there. 
 I'll give them one heart, and I'll put a new spirit within them. I'll take the stony heart out of their flesh, and will give them a heart of flesh, 
-that they may walk in my statutes, and keep my ordinances, and do them. They'll be my people, and I'll be their God. 
+that they can walk in my statutes, and keep my ordinances, and do them. They'll be my people, and I'll be their God. 
 But as for them whose heart walks after the heart of their detestable things and their abominations, I'll bring their way on their own heads,' says God." 
 Then the cherubim lifted up their wings, and the wheels were beside them. The glory of the God of Israel was over them above. 
 God's glory went up from the middle of the city, and stood on the mountain which is on the east side of the city. 

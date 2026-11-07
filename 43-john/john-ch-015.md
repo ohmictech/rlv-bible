@@ -1,5 +1,5 @@
 ﻿"I am the true vine, and my Father is the farmer. 
-Every branch in me that doesn't bear fruit, he takes away. Every branch that bears fruit, he prunes, that it may bear more fruit. 
+Every branch in me that doesn't bear fruit, he takes away. Every branch that bears fruit, he prunes, that it might bear more fruit. 
 You're already pruned clean because of the word which I have spoken to you. 
 Make your home in me, and I in you. As the branch can't bear fruit by itself unless it stays in the vine, so neither can you, unless you make your home in me. 
 I'm the vine. You're the branches. Whoever makes their home in me and I in them bears much fruit, for apart from me you can do nothing. 
@@ -13,8 +13,8 @@ I have spoken these things to you, that my joy may make its home in you, and tha
 Greater love has no one than this, that someone lay down his life for his friends. 
 You're my friends if you do whatever I command you. 
 No longer do I call you slaves, for the slave doesn't know what his lord does. But I have called you friends, for everything that I heard from my Father, I have made known to you. 
-You didn't choose me, but I chose you and appointed you, that you should go and bear fruit, and that your fruit should remain; that whatever you'll ask of the Father in my name, he may give it to you. 
-"I command these things to you, that you may love one another. 
+You didn't choose me, but I chose you and appointed you, that you should go and bear fruit, and that your fruit should remain; that whatever you'll ask of the Father in my name, he can give it to you. 
+"I command these things to you, that you can love one another. 
 If the world hates you, you know that it has hated me before it hated you. 
 If you were of the world, the world would love its own. But because you aren't of the world, since I chose you out of the world, the world hates you. 
 Remember the word that I said to you: 'A slave isn't greater than his lord.' If they hunted me down, they'll also hunt you down. If they kept my word, they'll also keep yours. 

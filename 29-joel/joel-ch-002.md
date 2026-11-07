@@ -11,7 +11,7 @@ The earth quakes before them. The sky tremble. The sun and the moon are darkened
 God thunders his voice before his army, for his forces are very great; for he's strong who obeys his command; for the day of God is great and very awesome, and who can endure it? 
 "Yet even now," says God, "turn to me with all your heart, and with fasting, and with weeping, and with mourning." 
 Tear your heart and not your garments, and turn to God, your God; for he's gracious and merciful, slow to anger, and abundant in loving kindness, and relents from sending calamity. 
-Who knows? He may turn and relent, and leave a blessing behind him, even a meal offering and a drink offering to God, your God. 
+Who knows? He can turn and relent, and leave a blessing behind him, even a meal offering and a drink offering to God, your God. 
 Blow the trumpet in Zion! Sanctify a fast. Call a solemn assembly. 
 Gather the people. Sanctify the assembly. Assemble the elders. Gather the children, and those who nurse from breasts. Let the bridegroom go out of his room, and the bride out of her chamber. 
 Let the priests, the ministers of God, weep between the porch and the altar, and let them say, "Spare your people, God, and don't give your heritage to reproach, that the nations should rule over them. Why should they say among the peoples, 'Where is their God?'" 

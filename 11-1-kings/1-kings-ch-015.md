@@ -16,7 +16,7 @@ He brought into God's house the things that his father had dedicated, and the th
 There was war between Asa and Baasha king of Israel all their days. 
 Baasha king of Israel went up against Judah, and built Ramah, that he might not allow anyone to go out or come in to Asa king of Judah. 
 Then Asa took all the silver and the gold that was left in the treasures of God's house, and the treasures of the king's house, and delivered it into the hand of his servants. Then King Asa sent them to Ben Hadad, the son of Tabrimmon, the son of Hezion, king of Syria, who lived at Damascus, saying, 
-"Let there be a treaty between me and you, like that between my father and your father. Look, I have sent to you a present of silver and gold. Go, break your treaty with Baasha king of Israel, that he may depart from me." 
+"Let there be a treaty between me and you, like that between my father and your father. Look, I have sent to you a present of silver and gold. Go, break your treaty with Baasha king of Israel, that he can depart from me." 
 Ben Hadad listened to King Asa, and sent the captains of his armies against the cities of Israel, and struck Ijon, and Dan, and Abel Beth Maacah, and all Chinneroth, with all the land of Naphtali. 
 When Baasha heard of it, he stopped building Ramah, and lived in Tirzah. 
 Then King Asa made a proclamation to all Judah. No one was exempted. They carried away the stones of Ramah, and its timber, with which Baasha had built; and King Asa used it to build Geba of Benjamin, and Mizpah. 

@@ -6,7 +6,7 @@ Your eyes will see, and you'll say, "God is great, even beyond the border of Isr
 "A son honors his father, and a servant his master. If I'm a father, then where is my honor? And if I'm a master, where is the respect due me?" says the God of Armies to you priests who despise my name. "You say, 'How have we despised your name?' 
 You offer polluted bread on my altar. You say, 'How have we polluted you?' In that you say, 'God's table is contemptible.' 
 When you offer the blind for sacrifice, isn't that bad? And when you offer the lame and sick, isn't that bad? Present it now to your governor! Will he be pleased with you? Or will he accept your person?" says the God of Armies. 
-"Now, please entreat the favor of God, that he may be gracious to us. With this, will he accept any of you?" says the God of Armies. 
+"Now, please entreat the favor of God, that he can be gracious to us. With this, will he accept any of you?" says the God of Armies. 
 "Oh that there were one among you who would shut the doors, that you might not kindle fire on my altar in vain! I have no pleasure in you," says the God of Armies, "neither will I accept an offering at your hand. 
 From the rising of the sun even to its going down, my name is great among the nations, and in every place incense will be offered to my name, and a pure offering; for my name is great among the nations," says the God of Armies. 
 "But you profane it when you say, 'God's table is polluted, and its fruit, even its food, is contemptible.' 

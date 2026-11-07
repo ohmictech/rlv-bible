@@ -23,7 +23,7 @@ David said, "What have I to do with you, you sons of Zeruiah, that you should be
 The king said to Shimei, "You won't die." The king swore to him. 
 Mephibosheth the son of Saul came down to meet the king; and he had neither groomed his feet, nor trimmed his beard, nor washed his clothes, from the day the king departed until the day he came home in peace. 
 When he had come to Jerusalem to meet the king, the king said to him, "Why didn't you go with me, Mephibosheth?" 
-He answered, "My lord, O king, my servant deceived me. Your servant said, 'I'll saddle a donkey for myself, that I may ride on it and go with the king,' because your servant is lame. 
+He answered, "My lord, O king, my servant deceived me. Your servant said, 'I'll saddle a donkey for myself, that I can ride on it and go with the king,' because your servant is lame. 
 He has slandered your servant to my lord the king, but my lord the king is as an messenger of God. So do what's good in your eyes. 
 All my father's house were but dead men before my lord the king; yet you set your servant among those who ate at your own table. What right have I yet that I should appeal any more to the king?" 
 The king said to him, "Why do you speak any more of your matters? I say, you and Ziba divide the land." 
@@ -34,7 +34,7 @@ The king said to Barzillai, "Come over with me, and I'll sustain you with me in 
 Barzillai said to the king, "How many are the days of the years of my life, that I should go up with the king to Jerusalem? 
 I'm eighty years old, today. Can I discern between good and bad? Can your servant taste what I eat or what I drink? Can I hear the voice of singing men and driftsging women any more? Why then should your servant be a burden to my lord the king? 
 Your servant will just go over the Jordan with the king. Why should the king repay me with such a reward? 
-Please let your servant turn back again, that I may die in my own city, by the grave of my father and my mother. But look, your servant Chimham; let him go over with my lord the king; and do to him what will seem good to you." 
+Please let your servant turn back again, that I can die in my own city, by the grave of my father and my mother. But look, your servant Chimham; let him go over with my lord the king; and do to him what will seem good to you." 
 The king answered, "Chimham will go over with me, and I'll do to him that which will seem good to you. Whatever you request of me, that I'll do for you." 
 Everyone went over the Jordan, and the king went over. Then the king kissed Barzillai and blessed him; and he returned to his own place. 
 So the king went over to Gilgal, and Chimham went over with him. Everyone in Judah brought the king over, and also half the people of Israel. 

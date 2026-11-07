@@ -4,8 +4,8 @@ The king of Israel said to his servants, "You know that Ramoth Gilead is ours, a
 He said to Jehoshaphat, "Will you go with me to battle to Ramoth Gilead?" Jehoshaphat said to the king of Israel, "I'm as you're, my people as your people, my horses as your horses." 
 Jehoshaphat said to the king of Israel, "Please inquire first for God's word." 
 Then the king of Israel gathered the spokesmen together, about four hundred men, and said to them, "Should I go against Ramoth Gilead to battle, or should I refrain?" They said, "Go up; for the Lord will deliver it into the hand of the king." 
-But Jehoshaphat said, "Isn't there here a spokesman of God, that we may inquire of him?" 
-The king of Israel said to Jehoshaphat, "There's yet one man by whom we may inquire of God, Micaiah the son of Imlah; but I hate him, for he doesn't prophesy good concerning me, but bad." Jehoshaphat said, "Don't let the king say so." 
+But Jehoshaphat said, "Isn't there here a spokesman of God, that we can inquire of him?" 
+The king of Israel said to Jehoshaphat, "There's yet one man by whom we can inquire of God, Micaiah the son of Imlah; but I hate him, for he doesn't prophesy good concerning me, but bad." Jehoshaphat said, "Don't let the king say so." 
 Then the king of Israel called an officer, and said, "Quickly get Micaiah the son of Imlah." 
 Now the king of Israel and Jehoshaphat the king of Judah were sitting each on his throne, arrayed in their robes, in an open place at the entrance of the gate of Samaria; and all the spokesmen were prophesying before them. 
 Zedekiah the son of Chenaanah made himself horns of iron, and said, "God says, 'With these you'll push the Syrians, until they're consumed.'" 
@@ -17,7 +17,7 @@ The king said to him, "How many times do I have to adjure you that you speak to 
 He said, "I saw all Israel scattered on the mountains, as sheep that have no shepherd. God said, 'These have no master. Let them each return to his house in peace.'" 
 The king of Israel said to Jehoshaphat, "Didn't I tell you that he wouldn't prophesy good concerning me, but bad?" 
 Micaiah said, "Therefore hear God's word. I saw God sitting on his throne, and all the army of the sky standing by him on his right hand and on his left. 
-God said, 'Who will entice Ahab, that he may go up and fall at Ramoth Gilead?' One said one thing, and another said another. 
+God said, 'Who will entice Ahab, that he can go up and fall at Ramoth Gilead?' One said one thing, and another said another. 
 A spirit came out and stood before God, and said, 'I'll entice him.' 
 God said to him, 'How?' He said, 'I'll go out and will be a lying spirit in the mouth of all his spokesmen.' He said, 'You'll entice him, and will also prevail. Go out and do so.' 
 Now, look, God has put a lying spirit in the mouth of all these your spokesmen; and God has spoken bad concerning you." 

@@ -9,7 +9,7 @@ Moses took the blood, and sprinkled it on the people, and said, "Look, this is t
 Then Moses, Aaron, Nadab, Abihu, and seventy of the elders of Israel went up. 
 They saw the God of Israel. Under his feet was like a paved work of sapphire stone, like the skies for clearness. 
 He didn't lay his hand on the nobles of the children of Israel. They saw God, and ate and drank. 
-God said to Moses, "Come up to me on the mountain, and stay here, and I'll give you the stone tablets with the law and the commands that I have written, that you may teach them." 
+God said to Moses, "Come up to me on the mountain, and stay here, and I'll give you the stone tablets with the law and the commands that I have written, that you can teach them." 
 Moses rose up with Joshua, his servant, and Moses went up onto God's Mountain. 
 He said to the elders, "Wait here for us, until we come again to you. Look, Aaron and Hur are with you. Whoever is involved in a dispute can go to them." 
 Moses went up on the mountain, and the cloud covered the mountain. 

@@ -9,7 +9,7 @@ If your God enlarges your border, as he has sworn to your fathers, and gives you
 and if you keep all this commandment to do it, which I command you today, to love your God, and to walk ever in his ways, then you will add three cities more for yourselves, in addition to these three. 
 This is so that innocent blood won't be shed in the middle of your land which your God gives you for an inheritance, leaving blood guilt on you. 
 But if any man hates his neighbor, lies in wait for him, rises up against him, strikes him mortally so that he dies, and he flees into one of these cities; 
-then the elders of his city will send and bring him there, and deliver him into the hand of the avenger of blood, that he may die. 
+then the elders of his city will send and bring him there, and deliver him into the hand of the avenger of blood, that he can die. 
 Your eye won't pity him, but you will purge the innocent blood from Israel that it may go well with you. 
 Don't remove your neighbor's landmark, which they of old time have set, in your inheritance which you will inherit, in the land that your God gives you to possess. 
 One witness won't rise up against a man for any guilt, or for any wrong that someone does. At the mouth of two witnesses, or at the mouth of three witnesses, will a matter be established. 

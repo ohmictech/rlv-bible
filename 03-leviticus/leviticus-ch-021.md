@@ -1,6 +1,6 @@
 ﻿God said to Moses, "Speak to the priests, the sons of Aaron, and say to them, 'A priest won't defile himself for the dead among his people, 
 except for his relatives that are near to him: for his mother, for his father, for his son, for his daughter, for his brother, 
-and for his virgin sister who's near to him, who has had no husband; for her he may defile himself. 
+and for his virgin sister who's near to him, who has had no husband; for her he can defile himself. 
 He won't defile himself, being a chief man among his people, to profane himself. 
 "'They won't shave their heads or shave off the corners of their beards or make any cuttings in their flesh. 
 They will be holy to their God, and not profane the name of their God, for they offer the offerings of God made by fire, the bread of their God. So they will be holy. 
@@ -20,5 +20,5 @@ or a man who has an injured foot, or an injured hand,
 or hunchbacked, or a dwarf, or one who has a defect in his eye, or an itching disease, or scabs, or who has damaged testicles. 
 No man of the offspring of Aaron the priest who has a defect will come near to offer the offerings of God made by fire. Since he has a defect, he won't come near to offer the bread of his God. 
 He will eat the bread of his God, both of the most holy, and of the holy. 
-He won't come near to the veil, nor come near to the altar, because he has a defect; that he may not profane my sanctuaries, for I'm God who sanctifies them.'" 
+He won't come near to the veil, nor come near to the altar, because he has a defect; that he can't profane my sanctuaries, for I'm God who sanctifies them.'" 
 So Moses spoke to Aaron, and to his sons, and to all the children of Israel. 

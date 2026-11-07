@@ -5,5 +5,5 @@ God is high above all nations, his glory above the sky.
 Who's like God, our God, who has his seat on high, 
 who stoops down to see in the sky and on the earth? 
 He raises up the poor out of the dust, and lifts up the needy from the ash heap, 
-that he may set him with princes, even with the princes of his people. 
+that he can set him with princes, even with the princes of his people. 
 He settles the barren woman in her home as a joyful mother of children. Praise God! 

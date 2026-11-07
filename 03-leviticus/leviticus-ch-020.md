@@ -19,7 +19,7 @@ You will keep my statutes, and do them. I'm God who sanctifies you.
 "'Don't uncover the nakedness of your mother's sister, nor of your father's sister, for he has made his close relative naked. They will bear their guilt. 
 If a man lies with his uncle's wife, he has uncovered his uncle's nakedness. They will bear their guilt. They will die childless. 
 "'If a man takes his brother's wife, it's an impurity. He has uncovered his brother's nakedness. They will be childless. 
-"'You will keep all my statutes and all my ordinances, and do them, that the land where I am bringing you to dwell may not vomit you out. 
+"'You will keep all my statutes and all my ordinances, and do them, that the land where I am bringing you to dwell can't vomit you out. 
 Don't walk in the customs of the nation which I'm casting out before you; for they did all these things, and so I abhorred them. 
 But I have said to you, "You will inherit their land, and I'll give it to you to possess it, a land flowing with milk and honey." I'm your God, who has separated you from the peoples. 
 "'You will make a distinction between the clean animal and the unclean, and between the unclean fowl and the clean. You won't make yourselves abominable by animal, or by bird, or by anything with which the ground teems, which I have separated from you as unclean for you. 

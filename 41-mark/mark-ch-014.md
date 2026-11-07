@@ -11,7 +11,7 @@ Judas Iscariot, who was one of the twelve, went to the chief priests to hand him
 When they heard it, they were glad and promised to give him money. And he looked for a way to hand him over at the right time. 
 On the first day of the festival of bread without yeast, when they sacrificed the Passover lamb, his students asked him, "Where do you want us to go and prepare for you to eat the Passover?" 
 He sent two of his students and said to them, "Go into the city, and a man carrying a pitcher of water will meet you. Follow him, 
-and wherever he goes in, tell the master of the house, 'The Teacher says, "Where is the guest room, where I may eat the Passover with my students?"' 
+and wherever he goes in, tell the master of the house, 'The Teacher says, "Where is the guest room, where I can eat the Passover with my students?"' 
 He'll show you a large upper room, furnished and ready. Get it ready for us there." 
 His students went out, came into the city, and found everything as he had said to them, and they prepared the Passover. 
 When it was evening he came with the twelve. 

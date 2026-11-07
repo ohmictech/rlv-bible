@@ -1,5 +1,5 @@
 ﻿The burden of Babylon, which Isaiah the son of Amoz saw. 
-Set up a banner on the bare mountain! Lift up your voice to them! Wave your hand, that they may go into the gates of the nobles. 
+Set up a banner on the bare mountain! Lift up your voice to them! Wave your hand, that they can go into the gates of the nobles. 
 I have commanded my consecrated ones; yes, I have called my mighty men for my anger, even my proudly exulting ones. 
 The noise of a multitude is in the mountains, as of a great people; the noise of an uproar of the kingdoms of the nations gathered together! The God of Armies is mustering the army for the battle. 
 They come from a far country, from the uttermost part of the sky, even God, and the weapons of his indignation, to destroy the whole land. 

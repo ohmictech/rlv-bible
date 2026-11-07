@@ -25,7 +25,7 @@ If a reign is divided against itself, that reign can't stand.
 If a house is divided against itself, that house can't stand. 
 If the Adversary has risen up against himself and is divided, he can't stand, but his end has come. 
 But no one can enter a strong man's house and plunder it unless he first ties up the strong man. Then he can plunder his house. 
-"Truly I tell you, all the mistakes of the children of people will be released, including their slanders, however they may slander, 
+"Truly I tell you, all the mistakes of the children of people will be released, including their slanders, however they can slander, 
 but whoever slanders the Holy Spirit doesn't have release for the eras, but is subject to the verdict of the era." 
 Because they said, "He has an unclean spirit." 
 His mother and his brothers came and stood outside and sent someone in to call him. 

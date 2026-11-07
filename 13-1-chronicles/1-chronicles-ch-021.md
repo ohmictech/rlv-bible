@@ -1,5 +1,5 @@
 ﻿Satan stood up against Israel, and moved David to take a census of Israel. 
-David said to Joab and to the princes of the people, "Go, count Israel from Beersheba even to Dan; and bring me word, that I may know how many there are." 
+David said to Joab and to the princes of the people, "Go, count Israel from Beersheba even to Dan; and bring me word, that I can know how many there are." 
 Joab said, "May God make his people a hundred times as many as they're. But, my lord the king, aren't they all my lord's servants? Why does my lord require this thing? Why will he be a cause of guilt to Israel?" 
 Nevertheless the king's word prevailed against Joab. So Joab departed and went throughout all Israel, then came to Jerusalem. 
 Joab gave the sum of the census of the people to David. All those of Israel were one million one hundred thousand men who drew a sword; and in Judah were four hundred seventy thousand men who drew a sword. 
@@ -7,7 +7,7 @@ But he didn't count Levi and Benjamin among them, for the king's word was abomin
 God was displeased with this thing; he struck Israel. 
 David said to God, "I have drifted greatly, in that I have done this thing. But now put away, I beg you, the guilt of your servant, for I have done very foolishly." 
 God spoke to Gad, David's seer, saying, 
-"Go and speak to David, saying, 'God says, "I offer you three things. Choose one of them, that I may do it to you."'" 
+"Go and speak to David, saying, 'God says, "I offer you three things. Choose one of them, that I can do it to you."'" 
 So Gad came to David and said to him, "God says, 'Take your choice: 
 either three years of famine; or three months to be consumed before your foes, while the sword of your enemies overtakes you; or else three days of the sword of God, even pestilence in the land, and God's messenger destroying throughout all the borders of Israel. Now consider what answer I will return to him who sent me.'" 
 David said to Gad, "I'm in distress. Let me fall, I pray, into God's hand, for his mercies are very great. Don't let me fall into man's hand." 
@@ -19,7 +19,7 @@ Then God's messenger commanded Gad to tell David that David should go up and rai
 David went up at the saying of Gad, which he spoke in God's name. 
 Ornan turned back and saw the messenger; and his four sons who were with him hid themselves. Now Ornan was threshing wheat. 
 As David came to Ornan, Ornan looked and saw David, and went out of the threshing floor, and bowed himself to David with his face to the ground. 
-Then David said to Ornan, "Sell me the place of this threshing floor, that I may build an altar to God on it. You will sell it to me for the full price, that the plague may be stopped from afflicting the people." 
+Then David said to Ornan, "Sell me the place of this threshing floor, that I can build an altar to God on it. You will sell it to me for the full price, that the plague may be stopped from afflicting the people." 
 Ornan said to David, "Take it for yourself, and let my lord the king do that which is good in his eyes. Look, I give the oxen for burnt offerings, and the threshing instruments for wood, and the wheat for the meal offering. I give it all." 
 King David said to Ornan, "No, but I'll most certainly buy it for the full price. I won't take that which is yours for God, nor offer a burnt offering that costs me nothing." 
 So David gave to Ornan six hundred shekels of gold by weight for the place. 

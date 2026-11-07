@@ -20,7 +20,7 @@ Blessed be the Lord, who daily bears our burdens, even the God who's our salvati
 God is to us a God of deliverance. To GOD, the Lord, belongs escape from death. 
 But God will strike through the head of his enemies, the hairy scalp of such a one as still continues in his guiltiness. 
 The Lord said, "I'll bring you again from Bashan, I'll bring you again from the depths of the sea, 
-that you may crush them, dipping your foot in blood, that the tongues of your dogs may have their portion from your enemies." 
+that you can crush them, dipping your foot in blood, that the tongues of your dogs may have their portion from your enemies." 
 They have seen your processions, God, even the processions of my God, my King, into the sanctuary. 
 The singers went before, the minstrels followed after, among the ladies playing with tambourines, 
 "Bless God in the congregations, even the Lord in the assembly of Israel!" 

@@ -3,7 +3,7 @@ Let each one of us please his neighbor for that which is good, to be building hi
 Even Christ didn't please himself. But, as it's written, "The reproaches of those who reproached you fell on me." 
 Whatever things were written before were written for our learning, that through perseverance and through encouragement of the Scriptures we'd have expectation. 
 Now the God of perseverance and of encouragement grant you to be of the same mind with one another according to Christ Jesus, 
-that with one accord you may with one mouth give honor to the God and Father of our Lord Jesus Christ. 
+that with one accord you can with one mouth give honor to the God and Father of our Lord Jesus Christ. 
 So accept one another, even as Christ also accepted you, to the weight of God. 
 Now I say that Christ has become a servant of the circumcision for God's truth, to confirm the promises given to the ancestors, 
 so that the nations would give honor to God for his mercy. As it's written, "Therefore I'll give praise to you among the nations and sing to your name." 
@@ -21,13 +21,13 @@ yes, making it my aim to announce the Good News, not where Christ was already na
 But, as it's written, "They'll see, to whom no news of him came. They who haven't heard will understand." 
 So also I was hindered these many times from coming to you, 
 but now, no longer having any place in these regions, and having these many years a longing to come to you, 
-whenever I travel to Spain, I'll come to you. I hope to see you on my journey, and to be helped on my way there by you, if first I may enjoy your company for a while. 
+whenever I travel to Spain, I'll come to you. I hope to see you on my journey, and to be helped on my way there by you, if first I can enjoy your company for a while. 
 But now, I say, I'm going to Jerusalem, serving the set-apart ones. 
 It has been the good pleasure of Macedonia and Achaia to make a certain contribution for the poor among the set-apart ones who are at Jerusalem. 
 Yes, it has been their good pleasure, and they're their debtors. If the nations have been made partakers of their spiritual things, they owe it to them also to serve them in material things. 
 When I have accomplished this, and have sealed to them this fruit, I'll go on by way of you to Spain. 
 I know that when I come to you, I'll come in the fullness of the blessing of the Good News of Christ. 
 Now I beg you, brothers, by our Lord Jesus Christ and by the love of the Spirit, that you strive together with me in your prayers to God for me, 
-that I may be delivered from those who are disobedient in Judea, and that my service which I have for Jerusalem may be acceptable to the set-apart ones, 
-that I may come to you in joy through the will of God, and together with you, find rest. 
+that I can be delivered from those who are disobedient in Judea, and that my service which I have for Jerusalem may be acceptable to the set-apart ones, 
+that I can come to you in joy through the will of God, and together with you, find rest. 
 Now may the God of wholeness be with you all. Amen. 

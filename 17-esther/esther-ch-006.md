@@ -6,7 +6,7 @@ The king's servants said to him, "Look, Haman stands in the court." The king sai
 So Haman came in. The king said to him, "What will be done to the man whom the king delights to honor?" Now Haman said in his heart, "Who would the king delight to honor more than myself?" 
 Haman said to the king, "For the man whom the king delights to honor, 
 let royal clothing be brought which the king uses to wear, and the horse that the king rides on, and on the head of which a royal crown is set. 
-Let the clothing and the horse be delivered to the hand of one of the king's most noble princes, that they may array the man whom the king delights to honor with them, and have him ride on horseback through the city square, and proclaim before him, 'Thus it will be done to the man whom the king delights to honor!'" 
+Let the clothing and the horse be delivered to the hand of one of the king's most noble princes, that they can array the man whom the king delights to honor with them, and have him ride on horseback through the city square, and proclaim before him, 'Thus it will be done to the man whom the king delights to honor!'" 
 Then the king said to Haman, "Hurry and take the clothing and the horse, as you have said, and do this for Mordecai the Jew, who sits at the king's gate. Let nothing fail of all that you have spoken." 
 Then Haman took the clothing and the horse, and arrayed Mordecai, and had him ride through the city square, and proclaimed before him, "Thus it will be done to the man whom the king delights to honor!" 
 Mordecai came back to the king's gate, but Haman hurried to his house, mourning and having his head covered. 

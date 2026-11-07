@@ -27,7 +27,7 @@ He strikes them as guilty men in the open sight of others;
 because they turned away from following him, and wouldn't pay attention to any of his ways, 
 so that they caused the cry of the poor to come to him. He heard the cry of the afflicted. 
 When he gives quietness, who then can condemn? When he hides his face, who then can see him? He's over a nation or a man alike, 
-that the godless man may not reign, that there be no one to ensnare the people. 
+that the godless man can't reign, that there be no one to ensnare the people. 
 "Has any said to God, 'I'm guilty, but I won't offend any more. 
 Teach me that which I don't see. If I have done guilt, I'll do it no more'? 
 Will his recompense be as you desire, that you refuse it? You must choose, and not I. So speak what you know. 

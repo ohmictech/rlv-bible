@@ -7,7 +7,7 @@ They rose up early on the next day, and offered burnt offerings, and brought off
 God spoke to Moses, "Go, get down; for your people, whom you brought up out of the land of Egypt, have corrupted themselves! 
 They have turned away quickly out of the way which I commanded them. They have made themselves a molded calf, and have worshiped it, and have sacrificed to it, and said, 'These are your gods, Israel, which brought you up out of the land of Egypt.'" 
 God said to Moses, "I have seen these people, and look, they're a stiff-necked people. 
-Now leave me alone, that my wrath may burn hot against them, and that I may consume them; and I'll make of you a great nation." 
+Now leave me alone, that my wrath may burn hot against them, and that I can consume them; and I'll make of you a great nation." 
 Moses begged his God, and said, "God, why does your wrath burn hot against your people, that you have brought out of the land of Egypt with great power and with a mighty hand? 
 Why should the Egyptians talk, saying, 'He brought them out for bad, to kill them in the mountains, and to consume them from the surface of the earth'? Turn from your fierce wrath, and turn away from this bad against your people. 
 Remember Abraham, Isaac, and Israel, your servants, to whom you swore by your own self, and said to them, 'I'll multiply your offspring as the stars of the sky, and all this land that I have spoken of I'll give to your offspring, and they will inherit it for the eras.'" 
@@ -26,7 +26,7 @@ When Moses saw that the people were out of control, (for Aaron had let them lose
 then Moses stood in the gate of the camp, and said, "Whoever is on God's side, come to me!" All the sons of Levi gathered themselves together to him. 
 He said to them, "The God of Israel says, 'Every man put his sword on his thigh, and go back and forth from gate to gate throughout the camp, and every man kill his brother, and every man his companion, and every man his neighbor.'" 
 The sons of Levi did according to the word of Moses. About three thousand men fell of the people that day. 
-Moses said, "Consecrate yourselves today to God, for every man was against his son and against his brother, that he may give you a blessing today." 
+Moses said, "Consecrate yourselves today to God, for every man was against his son and against his brother, that he can give you a blessing today." 
 On the next day, Moses said to the people, "You have done a great wrong. Now I'll go up to God. Perhaps I will make things right for your wrongdoing." 
 Moses returned to God, and said, "Oh, this people have done a great wrong, and have made themselves gods of gold. 
 Yet now, if you'll, forgive their wrongdoing, and if not, please blot me out of your book which you have written." 

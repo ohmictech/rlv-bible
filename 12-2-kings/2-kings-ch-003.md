@@ -8,7 +8,7 @@ He went and sent to Jehoshaphat the king of Judah, saying, "The king of Moab has
 Then he said, "Which way will we go up?" Jehoram answered, "The way of the wilderness of Edom." 
 So the king of Israel went with the king of Judah and the king of Edom, and they marched for seven days along a circuitous route. There was no water for the army or for the animals that followed them. 
 The king of Israel said, "Alas! God has called these three kings together to deliver them into the hand of Moab." 
-But Jehoshaphat said, "Isn't there a spokesman of God here, that we may inquire of God by him?" One of the king of Israel's servants answered, "Elisha the son of Shaphat, who poured water on the hands of Elijah, is here." 
+But Jehoshaphat said, "Isn't there a spokesman of God here, that we can inquire of God by him?" One of the king of Israel's servants answered, "Elisha the son of Shaphat, who poured water on the hands of Elijah, is here." 
 Jehoshaphat said, "God's word is with him." So the king of Israel and Jehoshaphat and the king of Edom went down to him. 
 Elisha said to the king of Israel, "What have I to do with you? Go to the spokesmen of your father, and to the spokesmen of your mother." The king of Israel said to him, "No, for God has called these three kings together to deliver them into the hand of Moab." 
 Elisha said, "As the God of Armies lives, before whom I stand, surely, were it not that I respect the presence of Jehoshaphat the king of Judah, I wouldn't look toward you, nor see you. 

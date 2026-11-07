@@ -3,7 +3,7 @@ Why do you spend money for that which isn't bread, and your labor for that which
 Turn your ear, and come to me. Hear, and your soul will live. I'll make an perpetual covenant with you, even the sure mercies of David. 
 Look, I have given him for a witness to the peoples, a leader and commander to the peoples. 
 Look, you will call a nation that you don't know; and a nation that didn't know you will run to you, because of your God, and for the Holy One of Israel; for he has glorified you." 
-Seek God while he may be found. Call on him while he's near. 
+Seek God while he can be found. Call on him while he's near. 
 Let the guilty forsake his way, and the unrighteous man his thoughts. Let him return to God, and he'll have mercy on him, to our God, for he'll freely pardon. 
 "My thoughts aren't your thoughts, and your ways aren't my ways," says God. 
 "As the sky are higher than the earth, so are my ways higher than your ways, and my thoughts than your thoughts. 

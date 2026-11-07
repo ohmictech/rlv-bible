@@ -1,6 +1,6 @@
 ﻿When Jeremiah had finished speaking to everyone all the words of their God, with which their God had sent him to them, even all these words, 
 then Azariah the son of Hoshaiah, Johanan the son of Kareah, and all the proud men spoke, saying to Jeremiah, "You speak falsely. Our God hasn't sent you to say, 'You won't go into Egypt to live there;' 
-but Baruch the son of Neriah has turned you against us, to deliver us into the hand of the Chaldeans, that they may put us to death or carry us away captive to Babylon." 
+but Baruch the son of Neriah has turned you against us, to deliver us into the hand of the Chaldeans, that they can put us to death or carry us away captive to Babylon." 
 So Johanan the son of Kareah, and all the captains of the forces, and everyone, didn't obey God's voice, to dwell in the land of Judah. 
 But Johanan the son of Kareah and all the captains of the forces took all the remnant of Judah, who had returned from all the nations where they had been driven, to live in the land of Judah 
 the men, the women, the children, the king's daughters, and every person who Nebuzaradan the captain of the guard had left with Gedaliah the son of Ahikam, the son of Shaphan; and Jeremiah the spokesman, and Baruch the son of Neriah. 

@@ -1,4 +1,4 @@
-﻿Where has your beloved gone, you fairest among women? Where has your beloved turned, that we may seek him with you? 
+﻿Where has your beloved gone, you fairest among women? Where has your beloved turned, that we can seek him with you? 
 My beloved has gone down to his garden, to the beds of spices, to pasture his flock in the gardens, and to gather lilies. 
 I'm my beloved's, and my beloved is mine. He browses among the lilies. 
 You're beautiful, my love, as Tirzah, lovely as Jerusalem, awesome as an army with banners. 
@@ -10,4 +10,4 @@ My dove, my perfect one, is unique. She's her mother's only daughter. She's the 
 Who's she who looks out as the morning, beautiful as the moon, clear as the sun, and awesome as an army with banners? 
 I went down into the nut tree grove, to see the green plants of the valley, to see whether the vine budded, and the pomegranates were in flower. 
 Without realizing it, my desire set me with my royal people's chariots. 
-Return, return, Shulammite! Return, return, that we may gaze at you. Lover Why do you desire to gaze at the Shulammite, as at the dance of Mahanaim? 
+Return, return, Shulammite! Return, return, that we can gaze at you. Lover Why do you desire to gaze at the Shulammite, as at the dance of Mahanaim? 

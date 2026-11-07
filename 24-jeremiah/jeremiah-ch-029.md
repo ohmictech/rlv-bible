@@ -3,7 +3,7 @@
 by the hand of Elasah the son of Shaphan and Gemariah the son of Hilkiah, (whom Zedekiah king of Judah sent to Babylon to Nebuchadnezzar king of Babylon). It said: 
 The God of Armies, the God of Israel says to all the captives whom I have caused to be carried away captive from Jerusalem to Babylon: 
 "Build houses and dwell in them. Plant gardens and eat their fruit. 
-Take wives and father sons and daughters. Take wives for your sons, and give your daughters to husbands, that they may bear sons and daughters. Multiply there, and don't be diminished. 
+Take wives and father sons and daughters. Take wives for your sons, and give your daughters to husbands, that they can bear sons and daughters. Multiply there, and don't be diminished. 
 Seek the peace of the city where I have caused you to be carried away captive, and pray to God for it; for in its peace you'll have peace." 
 The God of Armies, the God of Israel says: "Don't let your spokesmen who are among you and your diviners deceive you. Don't listen to your dreams which you cause to be dreamed. 
 They prophesy falsely to you in my name. I haven't sent them," says God. 

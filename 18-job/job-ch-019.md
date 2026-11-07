@@ -26,4 +26,4 @@ But as for me, I know that the one who buys me back lives. In the end, he'll sta
 After my skin is destroyed, then I'll see God in my flesh, 
 whom I, even I, will see on my side. My eyes will see, and not as a stranger. "My heart is consumed within me. 
 If you say, 'How we'll persecute him!' because the root of the matter is found in me, 
-be afraid of the sword, for wrath brings the punishments of the sword, that you may know there's a judgment." 
+be afraid of the sword, for wrath brings the punishments of the sword, that you can know there's a judgment." 

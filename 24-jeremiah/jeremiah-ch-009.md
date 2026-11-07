@@ -14,7 +14,7 @@ God says, "Because they have forsaken my law which I set before them, and haven'
 but have walked after the stubbornness of their own heart and after the Baals, which their fathers taught them." 
 So the God of Armies, the God of Israel says, "Look, I'll feed them, even this people, with wormwood and give them poisoned water to drink. 
 I'll scatter them also among the nations, whom neither they nor their fathers have known. I'll send the sword after them, until I have consumed them." 
-The God of Armies says, "Consider, and call for the mourning women, that they may come. Send for the skillful women, that they may come. 
+The God of Armies says, "Consider, and call for the mourning women, that they can come. Send for the skillful women, that they can come. 
 Let them make haste and take up a wailing for us, that our eyes may run down with tears and our eyelids gush out with waters. 
 A voice of wailing is heard out of Zion, 'How we're ruined! We're greatly confounded because we have forsaken the land, because they have cast down our dwellings.'" 
 Yet hear God's word, you women. Let your ear receive the word of his mouth. Teach your daughters wailing. Everyone teach her neighbor a lamentation. 

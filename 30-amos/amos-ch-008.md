@@ -2,8 +2,8 @@
 He said, "Amos, what do you see?" I said, "A basket of summer fruit." Then God said to me, "The end has come on my people Israel. I won't again pass by them any more. 
 The songs of the temple will be wailing in that day," says God. "The dead bodies will be many. In every place they'll throw them out with silence. 
 Hear this, you who desire to swallow up the needy, and cause the poor of the land to fail, 
-saying, 'When will the new moon be gone, that we may sell grain? And the Sabbath, that we may market wheat, making the ephah small, and the shekel large, and dealing falsely with balances of deceit; 
-that we may buy the poor for silver, and the needy for a pair of sandals, and sell the sweepings with the wheat?'" 
+saying, 'When will the new moon be gone, that we can sell grain? And the Sabbath, that we can market wheat, making the ephah small, and the shekel large, and dealing falsely with balances of deceit; 
+that we can buy the poor for silver, and the needy for a pair of sandals, and sell the sweepings with the wheat?'" 
 God has sworn by the pride of Jacob, "Surely I'll never forget any of their works. 
 Won't the land tremble for this, and everyone mourn who dwells in it? Yes, it'll rise up wholly like the River; and it'll be stirred up and driftsk again, like the River of Egypt. 
 It'll happen in that day," says God, "that I'll cause the sun to go down at noon, and I'll darken the earth in the clear day. 

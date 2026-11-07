@@ -1,8 +1,8 @@
 ﻿Observe the month of Abib, and keep the Passover to your God; for in the month of Abib your God brought you out of Egypt by night. 
 You will sacrifice the Passover to your God, of the flock and the herd, in the place which God will choose to cause his name to dwell there. 
-You will eat no leavened bread with it. You will eat unleavened bread with it seven days, even the bread of affliction (for you came out of the land of Egypt in haste) that you may remember the day when you came out of the land of Egypt all the days of your life. 
+You will eat no leavened bread with it. You will eat unleavened bread with it seven days, even the bread of affliction (for you came out of the land of Egypt in haste) that you can remember the day when you came out of the land of Egypt all the days of your life. 
 No yeast will be seen with you in all your borders seven days; neither will any of the meat, which you sacrifice the first day at evening, remain all night until the morning. 
-You may not sacrifice the Passover within any of your gates which your God gives you; 
+You can't sacrifice the Passover within any of your gates which your God gives you; 
 but at the place which your God will choose to cause his name to dwell in, there you will sacrifice the Passover at evening, at the going down of the sun, at the season that you came out of Egypt. 
 You will roast and eat it in the place which your God chooses. In the morning you will return to your tents. 
 Six days you will eat unleavened bread. On the seventh day will be a solemn assembly to your God. You will do no work. 
@@ -17,6 +17,6 @@ Three times in a year all of your males will appear before your God in the place
 Every man will give as he's able, according to your God's blessing which he has given you. 
 You will make judges and officers in all your gates, which your God gives you, according to your tribes; and they will judge the people with righteous judgment. 
 Don't pervert justice. You won't show partiality. You won't take a bribe, for a bribe blinds the eyes of the wise and perverts the words of the righteous. 
-You will follow that which is altogether just, that you may live and inherit the land which your God gives you. 
+You will follow that which is altogether just, that you can live and inherit the land which your God gives you. 
 Don't plant for yourselves an Asherah of any kind of tree beside your God's altar, which you will make for yourselves. 
 Neither will you set yourself up a sacred stone which your God hates. 

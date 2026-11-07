@@ -5,7 +5,7 @@ blue, purple, scarlet, fine linen, goats' hair,
 rams' skins dyed red, sea cow hides, acacia wood, 
 oil for the light, spices for the anointing oil and for the sweet incense, 
 onyx stones, and stones to be set for the ephod and for the breastplate. 
-Let them make me a sanctuary, that I may dwell among them. 
+Let them make me a sanctuary, that I can dwell among them. 
 According to all that I show you, the pattern of the tabernacle, and the pattern of all of its furniture, even so you will make it. 
 "They will make an ark of acacia wood. Its length will be two and a half cubits, its width a cubit and a half, and a cubit and a half its height. 
 You will overlay it with pure gold. You will overlay it inside and outside, and you will make a gold molding around it. 

@@ -1,6 +1,6 @@
 ﻿Now the days of David came near that he should die; and he commanded Solomon his son, saying, 
 "I'm going the way of all the earth. You be strong, and show yourself a man; 
-and keep the instruction of your God, to walk in his ways, to keep his statutes, his commandments, his ordinances, and his testimonies, according to that which is written in the law of Moses, that you may prosper in all that you do and wherever you turn yourself. 
+and keep the instruction of your God, to walk in his ways, to keep his statutes, his commandments, his ordinances, and his testimonies, according to that which is written in the law of Moses, that you can prosper in all that you do and wherever you turn yourself. 
 Then God may establish his word which he spoke concerning me, saying, 'If your children are careful of their way, to walk before me in truth with all their heart and with all their soul, there won't fail you,' he said, 'a man on the throne of Israel.' 
 "Moreover you know also what Joab the son of Zeruiah did to me, even what he did to the two captains of the armies of Israel, to Abner the son of Ner and to Amasa the son of Jether, whom he killed, and shed the blood of war in peace, and put the blood of war on his sash that was around his waist and in his sandals that were on his feet. 
 Do according to your wisdom, and don't let his gray head go down to Hades in peace. 
@@ -28,7 +28,7 @@ So Solomon thrust Abiathar out from being priest to God, that he might fulfill G
 This news came to Joab; for Joab had followed Adonijah, although he didn't follow Absalom. Joab fled to God's Tent, and held onto the horns of the altar. 
 King Solomon was told, "Joab has fled to God's Tent; and look, he's by the altar." Then Solomon sent Benaiah the son of Jehoiada, saying, "Go, fall on him." 
 Benaiah came to God's Tent, and said to him, "The king says, 'Come out!'" He said, "No; but I'll die here." Benaiah brought the king word again, saying, "This is what Joab said, and this is how he answered me." 
-The king said to him, "Do as he has said, and fall on him, and bury him, that you may take away the blood, which Joab shed without cause, from me and from my father's house. 
+The king said to him, "Do as he has said, and fall on him, and bury him, that you can take away the blood, which Joab shed without cause, from me and from my father's house. 
 God will return his blood on his own head, because he fell on two men more righteous and better than he, and killed them with the sword, and my father David didn't know it: Abner the son of Ner, captain of the army of Israel, and Amasa the son of Jether, captain of the army of Judah. 
 So their blood will return on the head of Joab and on the head of his offspring for the eras. But for David, for his offspring, for his house, and for his throne, there will be peace for the eras from God." 
 Then Benaiah the son of Jehoiada went up and fell on him, and killed him; and he was buried in his own house in the wilderness. 

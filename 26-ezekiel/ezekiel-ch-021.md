@@ -7,8 +7,8 @@ All flesh will know that I, God, have drawn my sword out of its sheath. It won't
 It will be, when they ask you, 'Why do you sigh?' that you will say, 'Because of the news, for it comes! Every heart will melt, all hands will be feeble, every spirit will faint, and all knees will be weak as water. Look, it comes, and it will be done, says God.'" 
 God's word came to me, saying, 
 "Son of man, prophesy, and say, 'God says: "A sword! A sword! It's sharpened, and also polished. 
-It's sharpened that it may make a slaughter. It's polished that it may be as lightning. Should we then make mirth? The rod of my son condemns every tree. 
-It's given to be polished, that it may be handled. The sword is sharpened. Yes, it's polished to give it into the hand of the killer."' 
+It's sharpened that it may make a slaughter. It's polished that it might be as lightning. Should we then make mirth? The rod of my son condemns every tree. 
+It's given to be polished, that it might be handled. The sword is sharpened. Yes, it's polished to give it into the hand of the killer."' 
 Cry and wail, son of man; for it's on my people. It's on all the princes of Israel. They're delivered over to the sword with my people. So beat your thigh. 
 "There's a trial. What if even the rod that condemns will be no more?" says God. 
 "You, son of man, prophesy, and strike your hands together. Let the sword be doubled the third time, the sword of the fatally wounded. It's the sword of the great one who's fatally wounded, which enters into their rooms. 
@@ -20,12 +20,12 @@ God's word came to me again, saying,
 You will appoint a way for the sword to come to Rabbah of the children of Ammon, and to Judah in Jerusalem the fortified. 
 The king of Babylon stood at the parting of the way, at the head of the two ways, to use divination. He shook the arrows back and forth. He consulted the teraphim. He looked in the liver. 
 In his right hand was the lot for Jerusalem, to set battering rams, to open the mouth in the slaughter, to lift up the voice with shouting, to set battering rams against the gates, to cast up mounds, and to build forts. 
-It'll be to them as a false divination in their sight, who have sworn oaths to them; but he brings guilt to memory, that they may be taken. 
+It'll be to them as a false divination in their sight, who have sworn oaths to them; but he brings guilt to memory, that they can be taken. 
 "So God says: 'Because you have caused your guilt to be remembered, in that your rebellion are uncovered, so that in all your doings your mistakes appear; because you have come to memory, you'll be taken with the hand. 
 "'You, deadly wounded guilty one, the prince of Israel, whose day has come, in the time of the guilt of the end, 
 God says: "Remove the turban, and take off the crown. This won't be as it was. Exalt that which is low, and humble that which is high. 
 I'll overturn, overturn, overturn it. This also will be no more, until he comes whose right it's; and I'll give it."' 
-"You, son of man, prophesy and say, 'The God says this concerning the children of Ammon, and concerning their reproach: "A sword! A sword is drawn! It's polished for the slaughter, to cause it to devour, that it may be as lightning; 
+"You, son of man, prophesy and say, 'The God says this concerning the children of Ammon, and concerning their reproach: "A sword! A sword is drawn! It's polished for the slaughter, to cause it to devour, that it might be as lightning; 
 while they see for you false visions, while they divine lies to you, to lay you on the necks of the guilty who are deadly wounded, whose day has come in the time of the guilt of the end. 
 Cause it to return into its sheath. In the place where you were created, in the land of your birth, I'll judge you. 
 I'll pour out my indignation on you. I'll blow on you with the fire of my wrath. I'll deliver you into the hand of brutish men, skillful to destroy. 

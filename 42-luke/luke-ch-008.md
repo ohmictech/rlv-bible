@@ -7,9 +7,9 @@ Some seed fell on the rock, and as soon as it grew, it withered away, because it
 Some fell amid the thorns, and the thorns grew with it and choked it. 
 Some fell into the good ground and grew and produced one hundred times as much fruit." As he said these things, he called out, "Whoever has ears to hear, let him hear!" 
 Then his students asked him, "What does this story mean?" 
-He said, "To you it's given to know the secrets of God's reign, but to the rest it's given in stories, that 'seeing they may not see, and hearing they may not understand.' 
+He said, "To you it's given to know the secrets of God's reign, but to the rest it's given in stories, that 'seeing they can't see, and hearing they can't understand.' 
 "Now the story is this: The seed is the word of God. 
-Those along the road are those who hear; then the Slanderer comes and takes away the word from their heart, that they may not trust and be rescued. 
+Those along the road are those who hear; then the Slanderer comes and takes away the word from their heart, that they can't trust and be rescued. 
 Those on the rock are they who, when they hear, receive the word with joy; but these have no root. They trust for a while, then fall away in a time of testing. 
 What fell among the thorns, these are those who have heard, and as they go on their way they're choked with worries, riches, and pleasures of life; and they bring no fruit to maturity. 
 Those in the good ground, these are those who with an honest and good heart, having heard the word, hold on to it, and produce fruit with patience. 

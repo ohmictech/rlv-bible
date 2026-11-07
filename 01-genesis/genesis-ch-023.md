@@ -1,12 +1,12 @@
 ﻿Sarah lived one hundred twenty-seven years. This was the length of Sarah's life. 
 Sarah died in Kiriath Arba (also called Hebron), in the land of Canaan. Abraham came to mourn for Sarah, and to weep for her. 
 Abraham rose up from before his dead and spoke to the children of Heth, saying, 
-"I'm a stranger and a foreigner living with you. Give me a possession of a burying-place with you, that I may bury my dead out of my sight." 
+"I'm a stranger and a foreigner living with you. Give me a possession of a burying-place with you, that I can bury my dead out of my sight." 
 The children of Heth answered Abraham, saying to him, 
 "Hear us, my lord. You're a prince of God among us. Bury your dead in the best of our tombs. None of us will withhold from you his tomb. Bury your dead." 
 Abraham rose up, and bowed himself to the people of the land, to the children of Heth. 
 He talked with them, saying, "If you agree that I should bury my dead out of my sight, hear me, and entreat for me to Ephron the son of Zohar, 
-that he may sell me the cave of Machpelah, which he has, which is in the end of his field. The full price let him sell it to me among you as a possession for a burial place." 
+that he can sell me the cave of Machpelah, which he has, which is in the end of his field. The full price let him sell it to me among you as a possession for a burial place." 
 Now Ephron was sitting in the middle of the children of Heth. Ephron the Hittite answered Abraham in the hearing of the children of Heth, even of everyone who went in at the gate of his city, saying, 
 "No, my lord, hear me. I give you the field, and I give you the cave that's in it. In the presence of the children of my people I give it to you. Bury your dead." 
 Abraham bowed himself down before the people of the land. 

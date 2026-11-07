@@ -18,7 +18,7 @@ I love those who love me. Those who seek me diligently will find me.
 With me are riches, honor, enduring wealth, and prosperity. 
 My fruit is better than gold, yes, than fine gold, my yield than choice silver. 
 I walk in the way of righteousness, in the middle of the paths of justice, 
-that I may give wealth to those who love me. I fill their treasuries. 
+that I can give wealth to those who love me. I fill their treasuries. 
 "God possessed me in the beginning of his work, before his deeds of old. 
 I was set up from perpetual, from the beginning, before the earth existed. 
 When there were no depths, I was born, when there were no springs abounding with water. 

@@ -31,13 +31,13 @@ I can of myself do nothing. As I hear, I pass a verdict; and my verdict is right
 "If I testify about myself, my witness isn't valid. 
 It's another who testifies about me. I know that the witness which he testifies about me is true. 
 You have sent to John, and he has testified to the truth. 
-But the witness which I receive isn't from people. However, I say these things that you may be made whole. 
+But the witness which I receive isn't from people. However, I say these things that you can be made whole. 
 He was the burning and shining lamp, and you were willing to celebrate for a while in his light. 
 But the witness which I have is greater than that of John; for the deeds which the Father gave me to finish, the very deeds that I do, testify about me, that the Father has sent me. 
 The Father himself, who sent me, has testified about me. You have neither heard his voice at any time, nor seen his shape. 
 You don't have his word making a home in you, because you don't trust him whom he sent. 
 "You search the Scriptures, because you think that in them you have the real life of the era; and these are they which testify about me. 
-Yet you refuse to come to me, that you may have life. 
+Yet you refuse to come to me, that you can have life. 
 I don't receive honor from people. 
 But I know you, that you don't have God's love in yourselves. 
 I have come in my Father's name, and you don't welcome me. If another comes in his own name, you'll welcome him. 

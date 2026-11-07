@@ -13,7 +13,7 @@ and he's the father of the circumcised, for those who aren't only circumcised, b
 The promise to Abraham and to his offspring that he'd be heir of the world wasn't through the law, but through the rightness of trust. 
 If those who are of the law are heirs, trust is made void, and the promise is made of no effect. 
 The law produces heat; for where there's no law, neither is there disobedience. 
-That's why it's of trust, that it may be according to favor, to the end that the promise may be sure to all the offspring, not to that only which is of the law, but to that also which is of the trust of Abraham, who's the father of us all. 
+That's why it's of trust, that it might be according to favor, to the end that the promise may be sure to all the offspring, not to that only which is of the law, but to that also which is of the trust of Abraham, who's the father of us all. 
 As it's written, "I have made you a father of many nations." This is in the presence of him whom he trusted: God, who gives life to the dead, and calls the things that aren't, as though they were. 
 Against expectation, Abraham in expectation trusted, so that he'd become a father of many nations, according to that which had been spoken, "So will your offspring be." 
 Without being weakened in trust, he didn't consider his own body, already having been worn out, (he being about a hundred years old), and the deadness of Sarah's womb. 

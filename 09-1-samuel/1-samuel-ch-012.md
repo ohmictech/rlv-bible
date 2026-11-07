@@ -4,7 +4,7 @@ Here I'm. Witness against me before God and before his anointed. Whose ox have I
 They said, "You haven't defrauded us, nor oppressed us, neither have you taken anything from anyone's hand." 
 He said to them, "God is witness against you, and his anointed is witness today, that you haven't found anything in my hand." They said, "He's witness." 
 Samuel said to the people, "It's God who appointed Moses and Aaron, and that brought your fathers up out of the land of Egypt. 
-Now stand still, that I may plead with you before God concerning all the righteous acts of God, which he did to you and to your fathers. 
+Now stand still, that I can plead with you before God concerning all the righteous acts of God, which he did to you and to your fathers. 
 "When Jacob had come into Egypt, and your fathers cried to God, then God sent Moses and Aaron, who brought your fathers out of Egypt, and made them to dwell in this place. 
 But they forgot their God; and he sold them into the hand of Sisera, captain of the army of Hazor, and into the hand of the Philistines, and into the hand of the king of Moab; and they fought against them. 
 They cried to God, and said, 'We have drifted, because we have forsaken God and have served the Baals and the Ashtaroth; but now deliver us out of the hand of our enemies, and we'll serve you.' 
@@ -14,7 +14,7 @@ Now see the king whom you have chosen and whom you have asked for. Look, God has
 If you'll fear God, and serve him, and listen to his voice, and not rebel against the commandment of God, then both you and also the king who reigns over you're followers of your God. 
 But if you won't listen to God's voice, but rebel against the commandment of God, then God's hand will be against you, as it was against your fathers. 
 "Now stand still and see this great thing, which God will do before your eyes. 
-Isn't it wheat harvest today? I'll call to God, that he may send thunder and rain; and you'll know and see that your guilt is great, which you have done in God's sight, in asking for a king." 
+Isn't it wheat harvest today? I'll call to God, that he can send thunder and rain; and you'll know and see that your guilt is great, which you have done in God's sight, in asking for a king." 
 So Samuel called to God, and God sent thunder and rain that day. Then everyone greatly feared God and Samuel. 
 Everyone said to Samuel, "Pray for your servants to your God, that we not die; for we have added to all our mistakes this bad, to ask for a king." 
 Samuel said to the people, "Don't be afraid. You have indeed done all this bad; yet don't turn away from following God, but serve God with all your heart. 

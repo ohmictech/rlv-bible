@@ -5,13 +5,13 @@ and what he did to the army of Egypt, to their horses, and to their chariots; ho
 and what he did to you in the wilderness until you came to this place; 
 and what he did to Dathan and Abiram, the sons of Eliab, the son of Reuben, how the earth opened its mouth and swallowed them up, with their households, their tents, and every living thing that followed them, in the middle of all Israel; 
 but your eyes have seen all of God's great work which he did. 
-So you will keep the entire commandment which I command you today, that you may be strong, and go in and possess the land that you go over to possess; 
-and that you may prolong your days in the land which God swore to your fathers to give to them and to their offspring, a land flowing with milk and honey. 
+So you will keep the entire commandment which I command you today, that you can be strong, and go in and possess the land that you go over to possess; 
+and that you can prolong your days in the land which God swore to your fathers to give to them and to their offspring, a land flowing with milk and honey. 
 The land, where you go in to possess isn't like the land of Egypt that you came out of, where you sowed your seed and watered it with your foot, as a garden of herbs; 
 but the land that you go over to possess is a land of hills and valleys which drinks water from the rain of the sky, 
 a land which your God cares for. Your God's eyes are always on it, from the beginning of the year even to the end of the year. 
 It will happen, if you will listen diligently to my commandments which I command you today, to love your God, and to serve him with all your heart and with all your soul, 
-that I'll give the rain for your land in its season, the early rain and the latter rain, that you may gather in your grain, your new wine, and your oil. 
+that I'll give the rain for your land in its season, the early rain and the latter rain, that you can gather in your grain, your new wine, and your oil. 
 I'll give grass in your fields for your livestock, and you will eat and be full. 
 Be careful, lest your heart be deceived, and you turn away to serve other gods and worship them; 
 and God's anger be kindled against you, and he shut up the sky so that there's no rain, and the land doesn't yield its fruit; and you perish quickly from off the good land which God gives you. 

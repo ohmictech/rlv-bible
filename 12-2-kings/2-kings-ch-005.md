@@ -3,7 +3,7 @@ The Syrians had gone out in bands, and had brought away captive out of the land 
 She said to her mistress, "I wish that my lord were with the spokesman who's in Samaria! Then he'd heal him of his leprosy." 
 Someone went in and told his lord, saying, "The girl who's from the land of Israel said this." 
 The king of Syria said, "Go now, and I'll send a letter to the king of Israel." He departed, and took with him ten talents of silver, six thousand pieces of gold, and ten changes of clothing. 
-He brought the letter to the king of Israel, saying, "Now when this letter has come to you, look, I have sent Naaman my servant to you, that you may heal him of his leprosy." 
+He brought the letter to the king of Israel, saying, "Now when this letter has come to you, look, I have sent Naaman my servant to you, that you can heal him of his leprosy." 
 When the king of Israel had read the letter, he tore his clothes and said, "Am I God, to kill and to make alive, that this man sends to me to heal a man of his leprosy? But please consider and see how he seeks a quarrel against me." 
 It was so, when Elisha the man of God heard that the king of Israel had torn his clothes, that he sent to the king, saying, "Why have you torn your clothes? Let him come now to me, and he will know that there's a spokesman in Israel." 
 So Naaman came with his horses and with his chariots, and stood at the door of the house of Elisha. 

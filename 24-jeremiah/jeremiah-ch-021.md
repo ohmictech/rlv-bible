@@ -1,5 +1,5 @@
 ﻿The word which came to Jeremiah from God, when King Zedekiah sent to him Pashhur the son of Malchijah, and Zephaniah the son of Maaseiah, the priest, saying, 
-"Please inquire of God for us; for Nebuchadnezzar king of Babylon makes war against us. Perhaps God will deal with us according to all his wondrous works, that he may withdraw from us." 
+"Please inquire of God for us; for Nebuchadnezzar king of Babylon makes war against us. Perhaps God will deal with us according to all his wondrous works, that he can withdraw from us." 
 Then Jeremiah said to them, "Tell Zedekiah: 
 'The God of Israel says, "Look, I'll turn back the weapons of war that are in your hands, with which you fight against the king of Babylon, and against the Chaldeans who besiege you outside the walls; and I'll gather them into the middle of this city. 
 I myself will fight against you with an outstretched hand and with a strong arm, even in anger, in wrath, and in great indignation. 

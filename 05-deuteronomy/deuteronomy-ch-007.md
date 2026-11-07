@@ -1,7 +1,7 @@
 ﻿When your God brings you into the land where you go to possess it, and casts out many nations before you, the Hittite, the Girgashite, the Amorite, the Canaanite, the Perizzite, the Hivite, and the Jebusite, seven nations greater and mightier than you; 
 and when your God delivers them up before you, and you strike them, then you will utterly destroy them. You will make no covenant with them, nor show mercy to them. 
 Don't make marriages with them. You won't give your daughter to his son, nor will you take his daughter for your son. 
-That would turn away your sons from following me, that they may serve other gods. So God's anger would be kindled against you, and he'd destroy you quickly. 
+That would turn away your sons from following me, that they can serve other gods. So God's anger would be kindled against you, and he'd destroy you quickly. 
 But you will deal with them like this: you will break down their altars, dash their pillars in pieces, cut down their Asherah poles, and burn their engraved images with fire. 
 You're a holy people to your God. Your God has chosen you to be a people for his own possession, above all peoples who are on the face of the earth. 
 God didn't set his love on you nor choose you, because you were more in number than any people; for you were the fewest of all peoples; 
@@ -19,7 +19,7 @@ you won't be afraid of them. You will remember well what your God did to Pharaoh
 the great trials which your eyes saw, the signs, the wonders, the mighty hand, and the outstretched arm, by which your God brought you out. So will your God do to everyones of whom you're afraid. 
 Moreover your God will send the hornet among them, until those who are left, and hide themselves, perish from before you. 
 Don't be scared of them; for your God is among you, a great and awesome God. 
-Your God will cast out those nations before you little by little. You may not consume them at once, lest the animals of the field increase on you. 
+Your God will cast out those nations before you little by little. You can't consume them at once, lest the animals of the field increase on you. 
 But your God will deliver them up before you, and will confuse them with a great confusion, until they're destroyed. 
 He'll deliver their kings into your hand, and you will make their name perish from under the sky. No one will be able to stand before you until you have destroyed them. 
 You will burn the engraved images of their gods with fire. You won't covet the silver or the gold that's on them, nor take it for yourself, lest you be snared in it; for it's an abomination to your God. 

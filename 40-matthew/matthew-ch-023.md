@@ -32,7 +32,7 @@ So you witness to yourselves that you're children of those who killed the spokes
 Fill up, then, the measure of your fathers. 
 You snakes, you offspring of vipers, how will you escape the verdict of Gehenna? 
 So, look, I send to you spokesmen, wise men, and Bible teachers. Some of them you'll kill and crucify, and some of them you'll whip in your gathering places and hunt from city to city, 
-that on you may come all the blood of the upright shed on the earth, from the blood of upright Abel to the blood of Zachariah son of Barachiah, whom you killed between the temple and the altar. 
+that on you can come all the blood of the upright shed on the earth, from the blood of upright Abel to the blood of Zachariah son of Barachiah, whom you killed between the temple and the altar. 
 Truly I tell you, all these things will come upon this generation. 
 "Jerusalem, Jerusalem, who kills the spokesmen and stones those who are sent to her! How often I'd have gathered your children together, the way a hen gathers her chicks under her wings, and you wouldn't! 
 Look, your house is left to you desolate. 

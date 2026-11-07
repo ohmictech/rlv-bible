@@ -5,7 +5,7 @@ Then Job answered God,
 I have spoken once, and I won't answer; Yes, twice, but I'll proceed no further." 
 Then God answered Job out of the whirlwind: 
 "Now brace yourself like a man. I'll question you, and you'll answer me. 
-Will you even annul my judgment? Will you condemn me, that you may be justified? 
+Will you even annul my judgment? Will you condemn me, that you can be justified? 
 Or do you have an arm like God? Can you thunder with a voice like him? 
 "Now deck yourself with excellency and dignity. Array yourself with honor and majesty. 
 Pour out the fury of your anger. Look at everyone who's proud, and bring him low. 

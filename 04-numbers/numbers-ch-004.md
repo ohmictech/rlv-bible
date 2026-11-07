@@ -16,7 +16,7 @@ They will put on it all its vessels with which they minister about it, the fire 
 "The duty of Eleazar the son of Aaron the priest will be the oil for the light, the sweet incense, the continual meal offering, and the anointing oil, the requirements of all the tabernacle, and of all that's in it, the sanctuary, and its furnishings." 
 God spoke to Moses and to Aaron, saying, 
 "Don't cut off the tribe of the families of the Kohathites from among the Levites; 
-but do this to them, that they may live, and not die, when they approach the most holy things: Aaron and his sons will go in and appoint everyone to his service and to his burden; 
+but do this to them, that they can live, and not die, when they approach the most holy things: Aaron and his sons will go in and appoint everyone to his service and to his burden; 
 but they won't go in to see the sanctuary even for a moment, lest they die." 
 God spoke to Moses, saying, 
 "Take a census of the sons of Gershon also, by their fathers' houses, by their families; 

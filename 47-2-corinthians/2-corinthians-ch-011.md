@@ -9,7 +9,7 @@ I robbed other gatherings, taking pay from them so that I could serve you.
 When I was present with you and was in need, I wasn't a burden on anyone, for the brothers, when they came from Macedonia, supplied the measure of my need. In everything I kept myself from being burdensome to you, and I'll continue to do so. 
 As the truth of Christ is in me, no one will stop me from this pride in the regions of Achaia. 
 Why? Because I don't love you? God knows. 
-But what I do, that I'll continue to do, that I may cut off opportunity from those who desire an opportunity, that in which they boast, they may be recognized just like us. 
+But what I do, that I'll continue to do, that I can cut off opportunity from those who desire an opportunity, that in which they boast, they can be recognized just like us. 
 Such people are false sent ones, dishonest workers, dressing up as Christ's sent ones. 
 And no wonder, for even the Adversary dresses up as a messenger of light. 
 So it's no great thing if his servants also dress up as servants of rightness, and their end will be what their deeds deserve. 

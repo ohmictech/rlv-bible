@@ -18,7 +18,7 @@ Hadad fled, he and certain Edomites of his father's servants with him, to go int
 They arose out of Midian and came to Paran; and they took men with them out of Paran, and they came to Egypt, to Pharaoh king of Egypt, who gave him a house, and appointed him food, and gave him land. 
 Hadad found great favor in the sight of Pharaoh, so that he gave him as wife the sister of his own wife, the sister of Tahpenes the queen. 
 The sister of Tahpenes bore him Genubath his son, whom Tahpenes weaned in Pharaoh's house; and Genubath was in Pharaoh's house among the sons of Pharaoh. 
-When Hadad heard in Egypt that David slept with his fathers, and that Joab the captain of the army was dead, Hadad said to Pharaoh, "Let me depart, that I may go to my own country." 
+When Hadad heard in Egypt that David slept with his fathers, and that Joab the captain of the army was dead, Hadad said to Pharaoh, "Let me depart, that I can go to my own country." 
 Then Pharaoh said to him, "But what have you lacked with me, that look, you seek to go to your own country?" He answered, "Nothing, however only let me depart." 
 God raised up an adversary to him, Rezon the son of Eliada, who had fled from his lord, Hadadezer king of Zobah. 
 He gathered men to himself, and became captain over a troop, when David killed them of Zobah. They went to Damascus and lived there, and reigned in Damascus. 

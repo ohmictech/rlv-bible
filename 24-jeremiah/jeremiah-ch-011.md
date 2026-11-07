@@ -2,7 +2,7 @@
 "Hear the words of this covenant, and speak to the men of Judah, and to the inhabitants of Jerusalem; 
 and say to them, the God of Israel says: 'Cursed is the man who doesn't hear the words of this covenant, 
 which I commanded your fathers in the day that I brought them out of the land of Egypt, out of the iron furnace,' saying, 'Obey my voice and do them, according to all which I command you; so you will be my people, and I'll be your God; 
-that I may establish the oath which I swore to your fathers, to give them a land flowing with milk and honey,' as it's today." Then I answered, and said, "Amen, God." 
+that I can establish the oath which I swore to your fathers, to give them a land flowing with milk and honey,' as it's today." Then I answered, and said, "Amen, God." 
 God said to me, "Proclaim all these words in the cities of Judah, and in the streets of Jerusalem, saying, 'Hear the words of this covenant, and do them. 
 I earnestly protested to your fathers in the day that I brought them up out of the land of Egypt, even to this day, rising early and protesting, saying, "Obey my voice." 
 Yet they didn't obey, nor turn their ear, but everyone walked in the stubbornness of their bad heart. So I brought on them all the words of this covenant, which I commanded them to do, but they didn't do them.'" 

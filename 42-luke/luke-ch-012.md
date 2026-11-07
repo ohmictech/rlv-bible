@@ -33,7 +33,7 @@ But seek God's reign, and all these things will be added to you.
 Sell what you have and give gifts to the needy. Make for yourselves purses which don't grow old, a treasure in the sky that doesn't fail, where no thief approaches and no moth destroys. 
 Where your treasure is, there will your heart be also. 
 "Be dressed and ready, with your lamps burning. 
-Be like men watching for their lord when he returns from the wedding feast, that when he comes and knocks, they may immediately open to him. 
+Be like men watching for their lord when he returns from the wedding feast, that when he comes and knocks, they can immediately open to him. 
 Flourishing are those slaves whom the lord will find watching when he comes. Truly I tell you that he'll dress himself, make them sit at the table, and will come and serve them. 
 They'll be flourishing if he comes in the middle of the night or before dawn and finds them so. 
 But know this, that if the master of the house had known in what hour the thief was coming, he'd have watched and not allowed his house to be broken into. 

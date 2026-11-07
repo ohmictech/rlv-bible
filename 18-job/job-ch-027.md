@@ -14,7 +14,7 @@ Look, all of you have seen it yourselves; why then have you become altogether va
 If his children are multiplied, it's for the sword. His offspring won't be satisfied with bread. 
 Those who remain of him will be buried in death. His widows will make no lamentation. 
 Though he heap up silver as the dust, and prepare clothing as the clay; 
-he may prepare it, but the just will put it on, and the innocent will divide the silver. 
+he can prepare it, but the just will put it on, and the innocent will divide the silver. 
 He builds his house as the moth, as a booth which the watchman makes. 
 He lies down rich, but he won't do so again. He opens his eyes, and he isn't. 
 Terrors overtake him like waters. A storm steals him away in the night. 

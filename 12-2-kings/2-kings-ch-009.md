@@ -4,7 +4,7 @@ Then take the vial of oil, and pour it on his head, and say, 'God says, "I have 
 So the young man, the young spokesman, went to Ramoth Gilead. 
 When he came, look, the captains of the army were sitting. Then he said, "I have a message for you, captain." Jehu said, "To which one of us?" He said, "To you, O captain." 
 He arose, and went into the house. Then he poured the oil on his head, and said to him, "The God of Israel says, 'I have anointed you king over the people of God, even over Israel. 
-You must strike your master Ahab's house, that I may avenge the blood of my servants the spokesmen, and the blood of all the servants of God, at the hand of Jezebel. 
+You must strike your master Ahab's house, that I can avenge the blood of my servants the spokesmen, and the blood of all the servants of God, at the hand of Jezebel. 
 The whole house of Ahab will perish. I'll cut off from Ahab everyone who urinates against a wall, both him who's shut up and him who's left at large in Israel. 
 I'll make Ahab's house like the house of Jeroboam the son of Nebat, and like the house of Baasha the son of Ahijah. 
 The dogs will eat Jezebel on the plot of ground of Jezreel, and there will be no one to bury her.'" Then he opened the door and fled. 

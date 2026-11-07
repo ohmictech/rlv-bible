@@ -33,6 +33,6 @@ Truly I tell you, this generation won't pass away until all things are accomplis
 The sky and the land will pass away, but my words will by no means pass away. 
 "So be careful, or your hearts will be loaded down with carousing, drunkenness, and cares of this life, and that day will come on you suddenly. 
 It'll come like a snare on everyone who dwells on the surface of all the earth. 
-So be watchful all the time, praying that you may be counted worthy to escape all these things that will happen, and to stand before the Human One." 
+So be watchful all the time, praying that you can be counted worthy to escape all these things that will happen, and to stand before the Human One." 
 Every day Jesus was teaching in the temple courts, and every night he'd go out and spend the night on the mountain that's called Olivet. 
 Everyone came early in the morning to him in the temple courts to hear him. 

@@ -2,7 +2,7 @@
 I'll send an messenger before you; and I'll drive out the Canaanite, the Amorite, and the Hittite, and the Perizzite, the Hivite, and the Jebusite. 
 Go to a land flowing with milk and honey; but I won't go up among you, for you're a stiff-necked people, lest I consume you on the way." 
 When the people heard this bad news, they mourned; and no one put on his jewelry. 
-God had said to Moses, "Tell the children of Israel, 'You're a stiff-necked people. If I were to go up among you for one moment, I'd consume you. So now take off your jewelry from you, that I may know what to do to you.'" 
+God had said to Moses, "Tell the children of Israel, 'You're a stiff-necked people. If I were to go up among you for one moment, I'd consume you. So now take off your jewelry from you, that I can know what to do to you.'" 
 The children of Israel stripped themselves of their jewelry from Mount Horeb onward. 
 Now Moses used to take the tent and pitch it outside the camp, far away from the camp, and he called it "The Tent of Meeting." Everyone who sought God went out to the Tent of Meeting, which was outside the camp. 
 When Moses went out to the Tent, everyone rose up, and stood, everyone at their tent door, and watched Moses, until he had gone into the Tent. 
@@ -17,7 +17,7 @@ How would people know that I have found favor in your sight, I and your people? 
 God said to Moses, "I'll do this thing also that you have spoken; for you have found favor in my sight, and I know you by name." 
 Moses said, "Please show me your glory." 
 He said, "I'll make all my goodness pass before you, and will proclaim God's name before you. I'll be gracious to whom I'll be gracious, and will show mercy on whom I'll show mercy." 
-He said, "You can't see my face, for man may not see me and live." 
+He said, "You can't see my face, for man can't see me and live." 
 God also said, "Look, there's a place by me, and you will stand on the rock. 
 It'll happen, while my glory passes by, that I'll put you in a cleft of the rock, and will cover you with my hand until I have passed by; 
 then I'll take away my hand, and you'll see my back; but my face won't be seen." 

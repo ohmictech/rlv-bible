@@ -1,6 +1,6 @@
 ﻿After these things, when the wrath of King Ahasuerus was pacified, he remembered Vashti, and what she had done, and what was decreed against her. 
 Then the king's servants who served him said, "Let beautiful young virgins be sought for the king. 
-Let the king appoint officers in all the provinces of his kingdom, that they may gather together all the beautiful young virgins to the citadel of Susa, to the women's house, to the custody of Hegai the king's eunuch, keeper of the women. Let cosmetics be given them; 
+Let the king appoint officers in all the provinces of his kingdom, that they can gather together all the beautiful young virgins to the citadel of Susa, to the women's house, to the custody of Hegai the king's eunuch, keeper of the women. Let cosmetics be given them; 
 and let the maiden who pleases the king be queen instead of Vashti." The thing pleased the king, and he did so. 
 There was a certain Jew in the citadel of Susa whose name was Mordecai, the son of Jair, the son of Shimei, the son of Kish, a Benjamite, 
 who had been carried away from Jerusalem with the captives who had been carried away with Jeconiah king of Judah, whom Nebuchadnezzar the king of Babylon had carried away. 

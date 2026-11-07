@@ -27,7 +27,7 @@ Then build an altar to your God on the top of this stronghold, in an orderly way
 Then Gideon took ten men of his servants, and did as God had spoken to him. Because he feared his father's household and the men of the city, he couldn't do it by day, but he did it by night. 
 When the men of the city arose early in the morning, look, the altar of Baal was broken down, and the Asherah was cut down that was by it, and the second bull was offered on the altar that was built. 
 They said to one another, "Who has done this thing?" When they inquired and asked, they said, "Gideon the son of Joash has done this thing." 
-Then the men of the city said to Joash, "Bring out your son, that he may die, because he has broken down the altar of Baal, and because he has cut down the Asherah that was by it." 
+Then the men of the city said to Joash, "Bring out your son, that he can die, because he has broken down the altar of Baal, and because he has cut down the Asherah that was by it." 
 Joash said to everyone who stood against him, "Will you contend for Baal? Or will you save him? He who will contend for him, let him be put to death by morning! If he's a god, let him contend for himself, because someone has broken down his altar!" 
 So on that day he named him Jerub-Baal, saying, "Let Baal contend against him, because he has broken down his altar." 
 Then all the Midianites and the Amalekites and the children of the east assembled themselves together; and they passed over, and encamped in the valley of Jezreel. 

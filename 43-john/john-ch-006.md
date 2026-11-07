@@ -25,9 +25,9 @@ When the crowd saw that Jesus wasn't there, nor his students, they themselves go
 When they found him on the other side of the sea, they asked him, "Rabbi, when did you come here?" 
 Jesus answered them, "Truly I tell you, you seek me, not because you saw signs, but because you ate of the loaves and were filled. 
 Don't work for the food which goes bad, but for the food which remains to the real life of the era, which the Human One will give to you. God the Father has sealed him." 
-They said to him, "What must we do, that we may do the deeds of God?" 
+They said to him, "What must we do, that we can do the deeds of God?" 
 Jesus answered them, "This is the deed of God, that you trust in him whom he has sent." 
-They said to him, "What then do you do for a sign, that we may see and trust you? What deed do you do? 
+They said to him, "What then do you do for a sign, that we can see and trust you? What deed do you do? 
 Our fathers ate the manna in the wilderness. As it's written, 'He gave them bread out of the sky to eat.'" 
 Jesus said to them, "Truly I tell you, it wasn't Moses who gave you the bread out of the sky, but my Father gives you the true bread out of the sky. 
 The bread of God is that which comes down out of the sky and gives life to the world." 

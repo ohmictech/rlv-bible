@@ -16,7 +16,7 @@ What's the Almighty, that we should serve him? What profit should we have, if we
 Look, their prosperity isn't in their hand. The counsel of the guilty is far from me. 
 "How often is it that the lamp of the guilty is put out, that their calamity comes on them, that God distributes sorrows in his anger? 
 How often is it that they're as stubble before the wind, as chaff that the storm carries away? 
-You say, 'God lays up his guilt for his children.' Let him recompense it to himself, that he may know it. 
+You say, 'God lays up his guilt for his children.' Let him recompense it to himself, that he can know it. 
 Let his own eyes see his destruction. Let him drink of the wrath of the Almighty. 
 What does he care for his house after him, when the number of his months is cut off? 
 "Will any teach God knowledge, since he judges those who are high? 

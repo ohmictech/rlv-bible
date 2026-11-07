@@ -16,7 +16,7 @@ Joshua made peace with them, and made a covenant with them, to let them live. Th
 At the end of three days after they had made a covenant with them, they heard that they were their neighbors, and that they lived among them. 
 The children of Israel traveled and came to their cities on the third day. Now their cities were Gibeon, Chephirah, Beeroth, and Kiriath Jearim. 
 The children of Israel didn't strike them, because the princes of the congregation had sworn to them by the God of Israel. All the congregation murmured against the princes. 
-But all the princes said to all the congregation, "We have sworn to them by the God of Israel. Now we may not touch them. 
+But all the princes said to all the congregation, "We have sworn to them by the God of Israel. Now we can't touch them. 
 We'll do this to them, and let them live; lest wrath be on us, because of the oath which we swore to them." 
 The princes said to them, "Let them live." So they became wood cutters and drawers of water for all the congregation, as the princes had spoken to them. 
 Joshua called for them, and he spoke to them, saying, "Why have you deceived us, saying, 'We're very far from you,' when you live among us? 

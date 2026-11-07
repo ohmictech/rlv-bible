@@ -11,7 +11,7 @@ I signed the deed, sealed it, called witnesses, and weighed the money in the bal
 So I took the deed of the purchase, both that which was sealed, containing the terms and conditions, and that which was open; 
 and I delivered the deed of the purchase to Baruch the son of Neriah, the son of Mahseiah, in the presence of Hanamel my uncle's son, and in the presence of the witnesses who signed the deed of the purchase, before all the Jews who sat in the court of the guard. 
 "I commanded Baruch before them, saying, 
-the God of Armies, the God of Israel says: 'Take these deeds, this deed of the purchase which is sealed, and this deed which is open, and put them in an earthen vessel, that they may last many days.' 
+the God of Armies, the God of Israel says: 'Take these deeds, this deed of the purchase which is sealed, and this deed which is open, and put them in an earthen vessel, that they can last many days.' 
 For the God of Armies, the God of Israel says: 'Houses and fields and vineyards will yet again be bought in this land.' 
 Now after I had delivered the deed of the purchase to Baruch the son of Neriah, I prayed to God, saying, 
 "Ah God! Look, you have made the sky and the earth by your great power and by your outstretched arm. There's nothing too hard for you. 
@@ -36,8 +36,8 @@ They built the high places of Baal, which are in the valley of the son of Hinnom
 Now the God of Israel says concerning this city, about which you say, "It's given into the hand of the king of Babylon by the sword, by the famine, and by the pestilence:" 
 "Look, I'll gather them out of all the countries where I have driven them in my anger, and in my wrath, and in great indignation; and I'll bring them again to this place. I'll cause them to dwell safely. 
 Then they'll be my people, and I'll be their God. 
-I'll give them one heart and one way, that they may fear me for the eras, for their good and the good of their children after them. 
-I'll make an perpetual covenant with them, that I won't turn away from following them, to do them good. I'll put my fear in their hearts, that they may not depart from me. 
+I'll give them one heart and one way, that they can fear me for the eras, for their good and the good of their children after them. 
+I'll make an perpetual covenant with them, that I won't turn away from following them, to do them good. I'll put my fear in their hearts, that they can't depart from me. 
 Yes, I'll rejoice over them to do them good, and I'll plant them in this land assuredly with my whole heart and with my whole soul." 
 God says: "Just as I have brought all this great bad on this people, so I'll bring on them all the good that I have promised them. 
 Fields will be bought in this land, about which you say, 'It's desolate, without man or animal. It's given into the hand of the Chaldeans.' 

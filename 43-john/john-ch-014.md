@@ -1,6 +1,6 @@
 ﻿"Don't let your heart be troubled. Trust in God. Trust also in me. 
 In my Father's house are many homes. If it weren't so, I'd have told you. I'm going to prepare a place for you. 
-If I go and prepare a place for you, I'll come again and will take you to myself; that where I am, you may be there also. 
+If I go and prepare a place for you, I'll come again and will take you to myself; that where I am, you can be there also. 
 You know where I go, and you know the way." 
 Thomas said to him, "Lord, we don't know where you're going. How can we know the way?" 
 Jesus said to him, "I am the way, the truth, and the life. No one comes to the Father, except through me. 
@@ -13,7 +13,7 @@ Truly I tell you, whoever trusts in me, the deeds that I do, they'll do also; an
 Whatever you'll ask in my name, I'll do it, that the Father may be honored in the Son. 
 If you'll ask anything in my name, I'll do it. 
 If you love me, keep my commandments. 
-I'll ask the Father, and he'll give you another one who comes alongside, that he may be with you for the eras: 
+I'll ask the Father, and he'll give you another one who comes alongside, that he can be with you for the eras: 
 the Spirit of truth, whom the world can't receive, for it doesn't see him and doesn't know him. You know him, for he makes his home with you and will be in you. 
 I won't leave you orphans. I'll come to you. 
 Yet a little while, and the world will see me no more; but you'll see me. Because I live, you'll live also. 

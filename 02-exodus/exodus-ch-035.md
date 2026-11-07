@@ -31,5 +31,5 @@ Moses said to the children of Israel, "Look, God has called by name Bezalel the 
 He has filled him with the Spirit of God, in wisdom, in understanding, in knowledge, and in all kinds of workmanship; 
 and to make skillful works, to work in gold, in silver, in bronze, 
 in cutting of stones for setting, and in carving of wood, to work in all kinds of skillful workmanship. 
-He has put in his heart that he may teach, both he and Oholiab, the son of Ahisamach, of the tribe of Dan. 
+He has put in his heart that he can teach, both he and Oholiab, the son of Ahisamach, of the tribe of Dan. 
 He has filled them with wisdom of heart to work all kinds of workmanship, of the engraver, of the skillful workman, and of the embroiderer, in blue, in purple, in scarlet, and in fine linen, and of the weaver, even of those who do any workmanship, and of those who make skillful works. 

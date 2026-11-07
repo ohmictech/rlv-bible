@@ -1,5 +1,5 @@
 ﻿God spoke to Moses, saying, 
-"Send men, that they may spy out the land of Canaan, which I give to the children of Israel. Of every tribe of their fathers, you will send a man, every one a prince among them." 
+"Send men, that they can spy out the land of Canaan, which I give to the children of Israel. Of every tribe of their fathers, you will send a man, every one a prince among them." 
 Moses sent them from the wilderness of Paran according to the commandment of God. All of them were men who were heads of the children of Israel. 
 These were their names: Of the tribe of Reuben, Shammua the son of Zaccur. 
 Of the tribe of Simeon, Shaphat the son of Hori. 

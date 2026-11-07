@@ -1,5 +1,5 @@
 ﻿Woe to those who decree unrighteous decrees, and to the writers who write oppressive decrees 
-to deprive the needy of justice, and to rob the poor among my people of their rights, that widows may be their plunder, and that they may make the fatherless their prey! 
+to deprive the needy of justice, and to rob the poor among my people of their rights, that widows may be their plunder, and that they can make the fatherless their prey! 
 What will you do in the day of visitation, and in the desolation which will come from afar? To whom will you flee for help? Where will you leave your wealth? 
 They'll only bow down under the prisoners, and will fall under the slain. All this his anger isn't turned away, but his hand is stretched out still. 
 Alas Assyrian, the rod of my anger, the staff in whose hand is my indignation! 

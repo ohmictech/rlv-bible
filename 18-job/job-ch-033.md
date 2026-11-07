@@ -14,7 +14,7 @@ Why do you strive against him, because he doesn't give account of any of his mat
 God speaks once, yes twice, though man pays no attention. 
 In a dream, in a vision of the night, when deep sleep falls on men, in slumbering on the bed, 
 then he opens the ears of men, and seals their instruction, 
-that he may withdraw man from his purpose, and hide pride from man. 
+that he can withdraw man from his purpose, and hide pride from man. 
 He keeps back his soul from the pit, and his life from perishing by the sword. 
 "He's chastened also with pain on his bed, with continual strife in his bones, 
 so that his life abhors bread, and his soul dainty food. 
@@ -27,7 +27,7 @@ He prays to God, and he's favorable to him, so that he sees his face with joy. H
 He sings before men, and says, 'I have drifted, and perverted that which was right, and it didn't profit me. 
 He has bought back my soul from going into the pit. My life will see the light.' 
 "Look, God does all these things, twice, yes three times, with a man, 
-to bring back his soul from the pit, that he may be enlightened with the light of the living. 
+to bring back his soul from the pit, that he can be enlightened with the light of the living. 
 Mark well, Job, and listen to me. Hold your peace, and I'll speak. 
 If you have anything to say, answer me. Speak, for I desire to justify you. 
 If not, listen to me. Hold your peace, and I'll teach you wisdom." 

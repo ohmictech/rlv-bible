@@ -7,8 +7,8 @@ Solomon went up there to the bronze altar before God, which was at the Tent of M
 That night, God appeared to Solomon and said to him, "Ask for what you want me to give you." 
 Solomon said to God, "You have shown great loving kindness to David my father, and have made me king in his place. 
 Now, God, let your promise to David my father be established; for you have made me king over a people like the dust of the earth in multitude. 
-Now give me wisdom and knowledge, that I may go out and come in before this people; for who can judge this great people of yours?" 
-God said to Solomon, "Because this was in your heart, and you haven't asked riches, wealth, honor, or the life of those who hate you, nor yet have you asked for long life; but have asked for wisdom and knowledge for yourself, that you may judge my people, over whom I have made you king, 
+Now give me wisdom and knowledge, that I can go out and come in before this people; for who can judge this great people of yours?" 
+God said to Solomon, "Because this was in your heart, and you haven't asked riches, wealth, honor, or the life of those who hate you, nor yet have you asked for long life; but have asked for wisdom and knowledge for yourself, that you can judge my people, over whom I have made you king, 
 So wisdom and knowledge is granted to you. I'll give you riches, wealth, and honor, such as none of the kings have had who have been before you, and none after you'll have." 
 So Solomon came from the high place that was at Gibeon, from before the Tent of Meeting, to Jerusalem; and he reigned over Israel. 
 Solomon gathered chariots and horsemen. He had one thousand four hundred chariots and twelve thousand horsemen that he placed in the chariot cities, and with the king at Jerusalem. 

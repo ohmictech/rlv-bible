@@ -27,7 +27,7 @@ Abimelech said, "I don't know who has done this thing. You didn't tell me, and I
 Abraham took sheep and cattle, and gave them to Abimelech. Those two made a covenant. 
 Abraham set seven ewe lambs of the flock by themselves. 
 Abimelech said to Abraham, "What do these seven ewe lambs, which you have set by themselves, mean?" 
-He said, "You will take these seven ewe lambs from my hand, that it may be a witness to me, that I have dug this well." 
+He said, "You will take these seven ewe lambs from my hand, that it might be a witness to me, that I have dug this well." 
 So he called that place Beersheba, because they both swore an oath there. 
 So they made a covenant at Beersheba. Abimelech rose up with Phicol, the captain of his army, and they returned into the land of the Philistines. 
 Abraham planted a tamarisk tree in Beersheba, and there he called on the name of the God of the eras. 

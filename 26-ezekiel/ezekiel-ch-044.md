@@ -22,7 +22,7 @@ None of the priests will drink wine when they enter into the inner court.
 They won't take for their wives a widow, or her who's put away; but they will take virgins of the offspring of the house of Israel, or a widow who's the widow of a priest. 
 They will teach my people the difference between the holy and the common, and cause them to discern between the unclean and the clean. 
 "'"In a controversy they will stand to judge. They will judge it according to my ordinances. They will keep my laws and my statutes in all my appointed feasts. They will make my Sabbaths holy. 
-"'"They will go in to no dead person to defile themselves; but for father, or for mother, or for son, or for daughter, for brother, or for sister who has had no husband, they may defile themselves. 
+"'"They will go in to no dead person to defile themselves; but for father, or for mother, or for son, or for daughter, for brother, or for sister who has had no husband, they can defile themselves. 
 After he's cleansed, they will reckon to him seven days. 
 In the day that he goes into the sanctuary, into the inner court, to minister in the sanctuary, he will offer his offering for wrongdoing," says God. 
 "'They will have an inheritance: I'm their inheritance; and you will give them no possession in Israel. I'm their possession. 

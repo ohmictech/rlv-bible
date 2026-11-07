@@ -13,7 +13,7 @@ then you will bring her home to your house. She will shave her head and trim her
 She will take off the clothing of her captivity, and will remain in your house, and bewail her father and her mother a full month. After that you will go in to her and be her husband, and she will be your wife. 
 It will be, if you have no delight in her, then you will let her go where she desires; but you won't sell her at all for money. You won't deal with her as a slave, because you have humbled her. 
 If a man has two wives, the one beloved and the other hated, and they have borne him children, both the beloved and the hated, and if the firstborn son is hers who was hated, 
-then it will be, in the day that he causes his sons to inherit that which he has, that he may not give the son of the beloved the rights of the firstborn before the son of the hated, who's the firstborn; 
+then it will be, in the day that he causes his sons to inherit that which he has, that he can't give the son of the beloved the rights of the firstborn before the son of the hated, who's the firstborn; 
 but he will acknowledge the firstborn, the son of the hated, by giving him a double portion of all that he has; for he's the beginning of his strength. The right of the firstborn is his. 
 If a man has a stubborn and rebellious son who won't obey the voice of his father or the voice of his mother, and though they chasten him, won't listen to them, 
 then his father and his mother will take hold of him and bring him out to the elders of his city and to the gate of his place. 

@@ -1,10 +1,10 @@
 ﻿When Isaac was old, and his eyes were dim, so that he couldn't see, he called Esau his elder son, and said to him, "My son?" He said to him, "Here I'm." 
 He said, "See now, I'm old. I don't know the day of my death. 
 Now, please take your weapons, your quiver and your bow, and go out to the field, and get me venison. 
-Make me savory food, such as I love, and bring it to me, that I may eat, and that my soul may bless you before I die." 
+Make me savory food, such as I love, and bring it to me, that I can eat, and that my soul may bless you before I die." 
 Rebekah heard when Isaac spoke to Esau his son. Esau went to the field to hunt for venison, and to bring it. 
 Rebekah spoke to Jacob her son, saying, "Look, I heard your father speak to Esau your brother, saying, 
-'Bring me venison, and make me savory food, that I may eat, and bless you before God before my death.' 
+'Bring me venison, and make me savory food, that I can eat, and bless you before God before my death.' 
 Now, my son, obey my voice according to that which I command you. 
 Go now to the flock and get me two good young goats from there. I'll make them savory food for your father, such as he loves. 
 You will bring it to your father, that he can eat, so that he can bless you before his death." 
@@ -18,7 +18,7 @@ She gave the savory food and the bread, which she had prepared, into the hand of
 He came to his father, and said, "My father?" He said, "Here I'm. Who are you, my son?" 
 Jacob said to his father, "I'm Esau your firstborn. I have done what you asked me to do. Please arise, sit and eat of my venison, that your soul may bless me." 
 Isaac said to his son, "How is it that you have found it so quickly, my son?" He said, "Because your God gave me success." 
-Isaac said to Jacob, "Please come near, that I may feel you, my son, whether you're really my son Esau or not." 
+Isaac said to Jacob, "Please come near, that I can feel you, my son, whether you're really my son Esau or not." 
 Jacob went near to Isaac his father. He felt him, and said, "The voice is Jacob's voice, but the hands are the hands of Esau." 
 He didn't recognize him, because his hands were hairy, like his brother Esau's hands. So he blessed him. 
 He said, "Are you really my son Esau?" He said, "I'm." 

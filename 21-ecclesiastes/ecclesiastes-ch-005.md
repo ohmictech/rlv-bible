@@ -12,7 +12,7 @@ When goods increase, those who eat them are increased; and what advantage is the
 The sleep of a laboring man is sweet, whether he eats little or much; but the abundance of the rich won't allow him to sleep. 
 There's a grievous bad which I have seen under the sun: wealth kept by its owner to his harm. 
 Those riches perish by misfortune, and if he has fathered a son, there's nothing in his hand. 
-As he came out of his mother's womb, naked will he go again as he came, and will take nothing for his labor, which he may carry away in his hand. 
+As he came out of his mother's womb, naked will he go again as he came, and will take nothing for his labor, which he can carry away in his hand. 
 This also is a grievous bad, that in all points as he came, so will he go. And what profit does he have who labors for the wind? 
 All his days he also eats in darkness, he's frustrated, and has sickness and wrath. 
 Look, that which I have seen to be good and proper is for one to eat and to drink, and to enjoy good in all his labor, in which he labors under the sun, all the days of his life which God has given him; for this is his portion. 

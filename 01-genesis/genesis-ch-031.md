@@ -34,7 +34,7 @@ Laban went into Jacob's tent, into Leah's tent, and into the tent of the two fem
 Now Rachel had taken the teraphim, put them in the camel's saddle, and sat on them. Laban felt around all the tent, but didn't find them. 
 She said to her father, "Don't let my lord be angry that I can't rise up before you; for I'm having my period." He searched, but didn't find the teraphim. 
 Jacob was angry, and argued with Laban. Jacob answered Laban, "What's my trespass? What's my wrongdoing, that you have hotly pursued me? 
-Now that you have felt around in all my stuff, what have you found of all your household stuff? Set it here before my relatives and your relatives, that they may judge between us two. 
+Now that you have felt around in all my stuff, what have you found of all your household stuff? Set it here before my relatives and your relatives, that they can judge between us two. 
 "These twenty years I have been with you. Your ewes and your female goats haven't cast their young, and I haven't eaten the rams of your flocks. 
 That which was torn of animals, I didn't bring to you. I bore its loss. Of my hand you required it, whether stolen by day or stolen by night. 
 This was my situation: in the day the drought consumed me, and the frost by night; and my sleep fled from my eyes. 

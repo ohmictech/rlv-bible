@@ -2,7 +2,7 @@
 the princes of Israel, the heads of their fathers' houses, gave offerings. These were the princes of the tribes. These are they who were over those who were counted; 
 and they brought their offering before God, six covered wagons and twelve oxen; a wagon for every two of the princes, and for each one an ox. They presented them before the tabernacle. 
 God spoke to Moses, saying, 
-"Accept these from them, that they may be used in doing the service of the Tent of Meeting; and you will give them to the Levites, to every man according to his service." 
+"Accept these from them, that they can be used in doing the service of the Tent of Meeting; and you will give them to the Levites, to every man according to his service." 
 Moses took the wagons and the oxen, and gave them to the Levites. 
 He gave two wagons and four oxen to the sons of Gershon, according to their service. 
 He gave four wagons and eight oxen to the sons of Merari, according to their service, under the direction of Ithamar the son of Aaron the priest. 

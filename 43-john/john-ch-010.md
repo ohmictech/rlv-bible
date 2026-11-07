@@ -7,14 +7,14 @@ Jesus spoke this story to them, but they didn't understand what he was telling t
 Jesus said to them again, "Truly I tell you, I am the sheep's door. 
 Everyone who came before me are thieves and robbers, but the sheep didn't listen to them. 
 I am the door. If anyone enters in by me, they'll be made whole, and will go in and go out and will find pasture. 
-The thief only comes to steal, kill, and ruin. I came that they may have life, and may have it overflowing. 
+The thief only comes to steal, kill, and ruin. I came that they can have life, and may have it overflowing. 
 "I am the good shepherd. The good shepherd lays down his life for the sheep. 
 He who's a hired hand, and not a shepherd, who doesn't own the sheep, sees the wolf coming, leaves the sheep, and flees. The wolf snatches the sheep and scatters them. 
 The hired hand flees because he's a hired hand and doesn't care for the sheep. 
 I am the good shepherd. I know my own, and I'm known by my own; 
 even as the Father knows me, and I know the Father. I lay down my life for the sheep. 
 I have other sheep which aren't of this fold. I must bring them also, and they'll hear my voice. They'll become one flock with one shepherd. 
-So the Father loves me, because I lay down my life, that I may take it again. 
+So the Father loves me, because I lay down my life, that I can take it again. 
 No one takes it away from me, but I lay it down by myself. I have authority to lay it down, and I have authority to take it again. I received this commandment from my Father." 
 So a division arose again among the Jewish leaders because of these words. 
 Many of them said, "He has an unclean spirit and is out of his mind! Why do you listen to him?" 
@@ -35,7 +35,7 @@ Jesus answered them, "Isn't it written in your law, 'I said, you're gods'?
 If he called them gods, to whom the word of God came (and the Scripture can't be broken), 
 do you say of him whom the Father set apart and sent into the world, 'You're slandering,' because I said, 'I'm the Son of God'? 
 If I don't do the deeds of my Father, don't trust me. 
-But if I do them, though you don't trust me, trust the deeds, that you may know and trust that the Father is in me, and I in the Father." 
+But if I do them, though you don't trust me, trust the deeds, that you can know and trust that the Father is in me, and I in the Father." 
 They sought again to seize him, and he escaped out of their grasp. 
 He went away again beyond the Jordan into the place where John was immersing at first, and he stayed there. 
 Many came to him. They said, "John indeed did no sign, but everything that John said about this man is true." 

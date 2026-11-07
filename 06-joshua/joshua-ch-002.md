@@ -2,7 +2,7 @@
 The king of Jericho was told, "Look, men of the children of Israel came in here tonight to spy out the land." 
 Jericho's king sent to Rahab, saying, "Bring out the men who have come to you, who have entered into your house; for they have come to spy out all the land." 
 The woman took the two men and hid them. Then she said, "Yes, the men came to me, but I didn't know where they came from. 
-About the time of the shutting of the gate, when it was dark, the men went out. Where the men went, I don't know. Pursue them quickly. You may catch up with them." 
+About the time of the shutting of the gate, when it was dark, the men went out. Where the men went, I don't know. Pursue them quickly. You can catch up with them." 
 But she had brought them up to the roof, and hidden them under the stalks of flax which she had laid in order on the roof. 
 The men pursued them along the way to the fords of the Jordan River. As soon as those who pursued them had gone out, they shut the gate. 
 Before they had lain down, she came up to them on the roof. 
@@ -13,7 +13,7 @@ Now, please swear to me by God, since I have dealt kindly with you, that you als
 and that you'll save alive my father, my mother, my brothers, and my sisters, and all that they have, and will deliver our lives from death." 
 The men said to her, "Our life for yours, if you don't talk about this business of ours; and it will be, when God gives us the land, that we'll deal kindly and truly with you." 
 Then she let them down by a cord through the window; for her house was on the side of the wall, and she lived on the wall. 
-She said to them, "Go to the mountain, lest the pursuers find you. Hide yourselves there three days, until the pursuers have returned. Afterward, you may go your way." 
+She said to them, "Go to the mountain, lest the pursuers find you. Hide yourselves there three days, until the pursuers have returned. Afterward, you can go your way." 
 The men said to her, "We'll be guiltless of this your oath which you've made us to swear. 
 Look, when we come into the land, tie this line of scarlet thread in the window which you used to let's down. Gather to yourself into the house your father, your mother, your brothers, and all your father's household. 
 It will be that whoever goes out of the doors of your house into the street, his blood will be on his head, and we'll be guiltless. Whoever is with you in the house, his blood will be on our head, if any hand is on him. 

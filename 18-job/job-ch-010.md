@@ -17,6 +17,6 @@ If my head is held high, you hunt me like a lion. Again you show yourself powerf
 You renew your witnesses against me, and increase your indignation on me. Changes and warfare are with me. 
 "'Why, then, have you brought me out of the womb? I wish I had given up the spirit, and no eye had seen me. 
 I should have been as though I hadn't been. I should have been carried from the womb to the grave. 
-Aren't my days few? Stop! Leave me alone, that I may find a little comfort, 
+Aren't my days few? Stop! Leave me alone, that I can find a little comfort, 
 before I go where I won't return from, to the land of darkness and of the shadow of death; 
 the land dark as midnight, of the shadow of death, without any order, where the light is as midnight.'" 

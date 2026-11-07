@@ -1,5 +1,5 @@
 ﻿Now after these things, the Lord also appointed seventy others, and sent them two by two ahead of him into every city and place where he was about to come. 
-Then he said to them, "The harvest is indeed plentiful, but the workers are few. So pray to the Lord of the harvest, that he may send out workers into his harvest. 
+Then he said to them, "The harvest is indeed plentiful, but the workers are few. So pray to the Lord of the harvest, that he can send out workers into his harvest. 
 Go your ways. Look, I send you out as lambs among wolves. 
 Carry no purse, nor wallet, nor sandals. Greet no one on the way. 
 Into whatever house you enter, first say, 'Wholeness be to this house.' 

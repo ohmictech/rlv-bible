@@ -7,9 +7,9 @@ among whom you're also called to belong to Jesus Christ;
 to everyone who's in Rome, truly loved by God, called to be set-apart ones: Favor and wholeness to you from God our Father and the Lord Jesus Christ. 
 First, I thank my God through Jesus Christ for all of you, that your trust is announced throughout the whole world. 
 God is my witness, whom I serve in my spirit in the Good News of his Son, how I never stop mentioning you in my prayers, 
-always asking that somehow, by the will of God, I may finally find my way to you. 
+always asking that somehow, by the will of God, I can finally find my way to you. 
 I long to see you, so that I can share with you some gift of the Spirit, to make you strong; 
-that's, that we may be encouraged together, you and I, by each other's trust. 
+that's, that we can be encouraged together, you and I, by each other's trust. 
 Now I don't want you to be unaware, brothers, that I often planned to come to you (and was prevented until now), so that I could have some fruit among you too, just as among the rest of the nations. 
 I'm a debtor both to Greeks and to foreigners, both to the wise and to the foolish. 
 So, for my part, I'm eager to announce the Good News to you also who are in Rome. 

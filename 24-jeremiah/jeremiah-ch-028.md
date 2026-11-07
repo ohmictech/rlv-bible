@@ -11,7 +11,7 @@ Then Hananiah the spokesman took the bar from off the spokesman Jeremiah's neck,
 Hananiah spoke in the presence of everyone, saying, "God says: 'Even so I'll break the yoke of Nebuchadnezzar king of Babylon from off the neck of all the nations within two full years.'" Then the spokesman Jeremiah went his way. 
 Then God's word came to Jeremiah, after Hananiah the spokesman had broken the bar from off the neck of the spokesman Jeremiah, saying, 
 "Go, and tell Hananiah, saying, 'God says, "You have broken the bars of wood, but you have made in their place bars of iron." 
-The God of Armies, the God of Israel says, "I have put a yoke of iron on the neck of all these nations, that they may serve Nebuchadnezzar king of Babylon; and they'll serve him. I have also given him the animals of the field."'" 
+The God of Armies, the God of Israel says, "I have put a yoke of iron on the neck of all these nations, that they can serve Nebuchadnezzar king of Babylon; and they'll serve him. I have also given him the animals of the field."'" 
 Then the spokesman Jeremiah said to Hananiah the spokesman, "Listen, Hananiah! God hasn't sent you, but you make this people trust in a lie. 
 So God says, 'Look, I'll send you away from off the surface of the earth. This year you'll die, because you have spoken rebellion against God.'" 
 So Hananiah the spokesman died the same year in the seventh month. 

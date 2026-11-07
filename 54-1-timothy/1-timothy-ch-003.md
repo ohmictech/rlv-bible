@@ -3,7 +3,7 @@ So an overseer must be above reproach, faithful to one wife, clear-headed, sensi
 not a heavy drinker, not a fighter, not out for money, but gentle, not quarrelsome, and not a lover of money. 
 someone who leads his own household well, with children who put themselves under him, respectfully; 
 (after all, if someone doesn't know how to lead his own household, how will he take care of God's gathering?) 
-He must not be new to the trust, or he may swell up with pride and come under the same verdict as the Slanderer. 
+He must not be new to the trust, or he can swell up with pride and come under the same verdict as the Slanderer. 
 He must also have a good name with those outside, so that he doesn't fall into insult and into the Slanderer's trap. 
 Servants must be serious in the same way, not saying one thing to one person and another to the next, not drinking too much wine, and not out for money. 
 They must hold the secret of the trust with a clean conscience. 

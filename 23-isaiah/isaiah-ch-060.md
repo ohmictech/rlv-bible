@@ -18,5 +18,5 @@ Bronze I'll bring gold; for iron I'll bring silver; for wood, bronze, and for st
 Violence will no more be heard in your land, nor desolation or destruction within your borders; but you'll call your walls Salvation, and your gates Praise. 
 The sun will be no more your light by day, nor will the brightness of the moon give light to you, but God will be your perpetual light, and your God will be your glory. 
 Your sun won't go down any more, nor will your moon withdraw itself; for God will be your perpetual light, and the days of your mourning will end. 
-Then your people will all be righteous. They'll inherit the land for the eras, the branch of my planting, the work of my hands, that I may be glorified. 
+Then your people will all be righteous. They'll inherit the land for the eras, the branch of my planting, the work of my hands, that I can be glorified. 
 The little one will become a thousand, and the small one a strong nation. I, God, will do this quickly in its time." 

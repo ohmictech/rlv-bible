@@ -3,7 +3,7 @@ God spoke to me, saying,
 "You have encircled this mountain long enough. Turn northward. 
 Command the people, saying, 'You're to pass through the border of your brothers, the children of Esau, who dwell in Seir; and they'll be afraid of you. So be careful. 
 Don't contend with them; for I won't give you any of their land, no, not so much as for the sole of the foot to tread on, because I have given Mount Seir to Esau for a possession. 
-You will purchase food from them for money, that you may eat. You will also buy water from them for money, that you may drink.'" 
+You will purchase food from them for money, that you can eat. You will also buy water from them for money, that you can drink.'" 
 Your God has blessed you in all the work of your hands. He has known your walking through this great wilderness. These forty years, your God has been with you. You have lacked nothing. 
 So we passed by from our brothers, the children of Esau, who dwell in Seir, from the way of the Arabah from Elath and from Ezion Geber. We turned and passed by the way of the wilderness of Moab. 
 God said to me, "Don't bother Moab, neither contend with them in battle; for I won't give you any of his land for a possession, because I have given Ar to the children of Lot for a possession." 
@@ -25,10 +25,10 @@ Then the Avvim, who lived in villages as far as Gaza: the Caphtorim, who came ou
 Today I'll begin to put the dread of you and the fear of you on the peoples who are under the whole sky, who will hear the report of you, and will tremble and be in anguish because of you." 
 I sent messengers out of the wilderness of Kedemoth to Sihon king of Heshbon with words of peace, saying, 
 "Let me pass through your land. I'll go along by the highway. I'll turn neither to the right hand nor to the left. 
-You will sell me food for money, that I may eat; and give me water for money, that I may drink. Just let me pass through on my feet, 
+You will sell me food for money, that I can eat; and give me water for money, that I can drink. Just let me pass through on my feet, 
 as the children of Esau who dwell in Seir, and the Moabites who dwell in Ar, did to me, until I pass over the Jordan into the land which our God gives us." 
 But Sihon king of Heshbon wouldn't let's pass by him, for your God hardened his spirit and made his heart obstinate, that he might deliver him into your hand, as it's today. 
-God said to me, "Look, I have begun to deliver up Sihon and his land before you. Begin to possess, that you may inherit his land." 
+God said to me, "Look, I have begun to deliver up Sihon and his land before you. Begin to possess, that you can inherit his land." 
 Then Sihon came out against us, he and all his people, to battle at Jahaz. 
 Our God delivered him up before us; and we struck him, his sons, and all his people. 
 We took all his cities at that time, and utterly destroyed every inhabited city, with the women and the little ones. We left no one remaining. 

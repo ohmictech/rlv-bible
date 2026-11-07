@@ -9,7 +9,7 @@ Then the animals take cover, and remain in their dens.
 Out of its room comes the storm, and cold out of the north. 
 By the breath of God, ice is given, and the width of the waters is frozen. 
 Yes, he loads the thick cloud with moisture. He spreads abroad the cloud of his lightning. 
-It's turned around by his guidance, that they may do whatever he commands them on the surface of the habitable world, 
+It's turned around by his guidance, that they can do whatever he commands them on the surface of the habitable world, 
 whether it's for correction, or for his land, or for loving kindness, that he causes it to come. 
 "Listen to this, Job. Stand still, and consider the wondrous works of God. 
 Do you know how God controls them, and causes the lightning of his cloud to shine? 

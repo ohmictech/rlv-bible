@@ -12,9 +12,9 @@ According to the decisions of the law which they will teach you, and according t
 The man who does presumptuously in not listening to the priest who stands to minister there before your God, or to the judge, even that man will die. You will put away the bad from Israel. 
 Everyone will hear and fear, and do no more presumptuously. 
 When you have come to the land which your God gives you, and possess it and dwell in it, and say, "I'll set a king over me, like all the nations that are around me," 
-you will surely set him whom your God chooses as king over yourselves. You will set as king over you one from among your brothers. You may not put a foreigner over you, who isn't your brother. 
-Only he won't multiply horses to himself, nor cause the people to return to Egypt, to the end that he may multiply horses; because God has said to you, "You won't go back that way again." 
+you will surely set him whom your God chooses as king over yourselves. You will set as king over you one from among your brothers. You can't put a foreigner over you, who isn't your brother. 
+Only he won't multiply horses to himself, nor cause the people to return to Egypt, to the end that he can multiply horses; because God has said to you, "You won't go back that way again." 
 He won't multiply wives to himself, that his heart not turn away. He won't greatly multiply to himself silver and gold. 
 It will be, when he sits on the throne of his kingdom, that he will write himself a copy of this law in a book, out of that which is before the Levitical priests. 
-It will be with him, and he will read from it all the days of his life, that he may learn to fear his God, to keep all the words of this law and these statutes, to do them; 
-that his heart not be lifted up above his brothers, and that he not turn away from the commandment to the right hand, or to the left, to the end that he may prolong his days in his kingdom, he and his children, in the middle of Israel. 
+It will be with him, and he will read from it all the days of his life, that he can learn to fear his God, to keep all the words of this law and these statutes, to do them; 
+that his heart not be lifted up above his brothers, and that he not turn away from the commandment to the right hand, or to the left, to the end that he can prolong his days in his kingdom, he and his children, in the middle of Israel. 

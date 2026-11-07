@@ -1,6 +1,6 @@
 ﻿In the beginning of the reign of Jehoiakim the son of Josiah, king of Judah, this word came from God: 
 "God says: 'Stand in the court of God's house, and speak to all the cities of Judah which come to worship in God's house, all the words that I command you to speak to them. Don't omit a word. 
-It may be they'll listen, and every man turn from his bad way, that I may relent from the bad which I intend to do to them because of the bad of their doings.'" 
+It may be they'll listen, and every man turn from his bad way, that I can relent from the bad which I intend to do to them because of the bad of their doings.'" 
 You will tell them, "God says: 'If you won't listen to me, to walk in my law which I have set before you, 
 to listen to the words of my servants the spokesmen whom I send to you, even rising up early and sending them, but you haven't listened 
 then I'll make this house like Shiloh, and will make this city a curse to all the nations of the earth.'" 

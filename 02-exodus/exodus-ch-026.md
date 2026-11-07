@@ -8,7 +8,7 @@ You will make fifty clasps of gold, and couple the curtains to one another with 
 The length of each curtain will be thirty cubits, and the width of each curtain four cubits: the eleven curtains will have one measure. 
 You will couple five curtains by themselves, and six curtains by themselves, and will double over the sixth curtain in the forefront of the tent. 
 You will make fifty loops on the edge of the one curtain that's outermost in the coupling, and fifty loops on the edge of the curtain which is outermost in the second coupling. 
-You will make fifty clasps of bronze, and put the clasps into the loops, and couple the tent together, that it may be one. 
+You will make fifty clasps of bronze, and put the clasps into the loops, and couple the tent together, that it might be one. 
 The overhanging part that remains of the curtains of the tent, the half curtain that remains, will hang over the back of the tabernacle. 
 The cubit on the one side and the cubit on the other side, of that which remains in the length of the curtains of the tent, will hang over the sides of the tabernacle on this side and on that side, to cover it. 
 You will make a covering for the tent of rams' skins dyed red, and a covering of sea cow hides above. 

@@ -27,7 +27,7 @@ I'll also give you a new heart, and I'll put a new spirit within you. I'll take 
 I'll put my Spirit within you, and cause you to walk in my statutes. You'll keep my ordinances and do them. 
 You'll dwell in the land that I gave to your fathers. You'll be my people, and I'll be your God. 
 I'll save you from all your uncleanness. I'll call for the grain and will multiply it, and lay no famine on you. 
-I'll multiply the fruit of the tree and the increase of the field, that you may receive no more the reproach of famine among the nations. 
+I'll multiply the fruit of the tree and the increase of the field, that you can receive no more the reproach of famine among the nations. 
 "'"Then you'll remember your bad ways, and your deeds that weren't good; and you'll loathe yourselves in your own sight for your guilt and for your abominations. 
 I don't do this for your sake," says God. "Let it be known to you. Be ashamed and confounded for your ways, house of Israel." 
 "'The God says: "In the day that I cleanse you from all your guilt, I'll cause the cities to be inhabited and the waste places will be built. 

@@ -3,7 +3,7 @@ He grows up like a flower, and is cut down. He also flees like a shadow, and doe
 Do you open your eyes on such a one, and bring me into judgment with you? 
 Who can bring a clean thing out of an unclean? Not one. 
 Seeing his days are determined, the number of his months is with you, and you have appointed his bounds that he can't pass. 
-Look away from him, that he may rest, until he accomplishes, as a hireling, his day. 
+Look away from him, that he can rest, until he accomplishes, as a hireling, his day. 
 "There's hope for a tree if it's cut down, that it'll sprout again, that the tender branch of it won't cease. 
 Though its root grows old in the earth, and its stock dies in the ground, 
 yet through the scent of water it'll bud, and sprout boughs like a plant. 

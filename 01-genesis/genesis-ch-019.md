@@ -2,10 +2,10 @@
 and he said, "See now, my lords, please come into your servant's house, stay all night, wash your feet, and you can rise up early, and go on your way." They said, "No, but we'll stay in the street all night." 
 He urged them greatly, and they came in with him, and entered into his house. He made them a feast, and baked unleavened bread, and they ate. 
 But before they lay down, the men of the city, the men of Sodom, surrounded the house, both young and old, everyone from every quarter. 
-They called to Lot, and said to him, "Where are the men who came in to you this night? Bring them out to us, that we may have sex with them." 
+They called to Lot, and said to him, "Where are the men who came in to you this night? Bring them out to us, that we can have sex with them." 
 Lot went out to them through the door, and shut the door after himself. 
 He said, "Please, my brothers, don't act so guiltily. 
-See now, I have two virgin daughters. Please let me bring them out to you, and you may do to them what seems good to you. Only don't do anything to these men, because they have come under the shadow of my roof." 
+See now, I have two virgin daughters. Please let me bring them out to you, and you can do to them what seems good to you. Only don't do anything to these men, because they have come under the shadow of my roof." 
 They said, "Stand back!" Then they said, "This one fellow came in to live as a foreigner, and he appoints himself a judge. Now we'll deal worse with you than with them!" They pressed hard on the man Lot, and came near to break the door. 
 But the men reached out their hand, and brought Lot into the house to them, and shut the door. 
 They struck the men who were at the door of the house with blindness, both small and great, so that they wearied themselves to find the door. 
@@ -29,9 +29,9 @@ He looked toward Sodom and Gomorrah, and toward all the land of the plain, and s
 When God destroyed the cities of the plain, God remembered Abraham, and sent Lot out of the middle of the overthrow, when he overthrew the cities in which Lot lived. 
 Lot went up out of Zoar, and lived in the mountain, and his two daughters with him; for he was afraid to live in Zoar. He lived in a cave with his two daughters. 
 The firstborn said to the younger, "Our father is old, and there isn't a man on the earth to come in to us in the way of all the earth. 
-Come, let's make our father drink wine, and we'll lie with him, that we may preserve our father's family line." 
+Come, let's make our father drink wine, and we'll lie with him, that we can preserve our father's family line." 
 They made their father drink wine that night: and the firstborn went in, and lay with her father. He didn't know when she lay down, nor when she arose. 
-It came to pass on the next day, that the firstborn said to the younger, "Look, I lay last night with my father. Let's make him drink wine again tonight. You go in, and lie with him, that we may preserve our father's family line." 
+It came to pass on the next day, that the firstborn said to the younger, "Look, I lay last night with my father. Let's make him drink wine again tonight. You go in, and lie with him, that we can preserve our father's family line." 
 They made their father drink wine that night also. The younger went and lay with him. He didn't know when she lay down, nor when she got up. 
 Thus both of Lot's daughters were with child by their father. 
 The firstborn bore a son, and named him Moab. He's the father of the Moabites to this day. 

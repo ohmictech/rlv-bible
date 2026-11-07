@@ -10,7 +10,7 @@ Is it good that he should search you out? Or as one deceives a man, will you dec
 He'll surely reprove you if you secretly show partiality. 
 Won't his majesty make you afraid and his dread fall on you? 
 Your memorable sayings are proverbs of ashes. Your defenses are defenses of clay. 
-"Be silent! Leave me alone, that I may speak. Let come on me what will. 
+"Be silent! Leave me alone, that I can speak. Let come on me what will. 
 Why should I take my flesh in my teeth, and put my life in my hand? 
 Look, he'll kill me. I have no hope. Nevertheless, I'll maintain my ways before him. 
 This also will be my salvation, that a godless man won't come before him. 

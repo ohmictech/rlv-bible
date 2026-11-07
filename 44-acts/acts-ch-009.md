@@ -14,7 +14,7 @@ But Ananias answered, "Lord, I have heard from many about this man, how much har
 Here he has authority from the chief priests to bind everyone who calls on your name." 
 But the Lord said to him, "Go your way, for he's my chosen vessel to bear my name before the nations and kings, and the children of Israel. 
 I'll show him how many things he must suffer for my name's sake." 
-Ananias departed and entered into the house. Laying his hands on him, he said, "Brother Saul, the Lord, who appeared to you on the road by which you came, has sent me that you may receive your sight and be filled with the Holy Spirit." 
+Ananias departed and entered into the house. Laying his hands on him, he said, "Brother Saul, the Lord, who appeared to you on the road by which you came, has sent me that you can receive your sight and be filled with the Holy Spirit." 
 Immediately something like scales fell from his eyes, and he received his sight. He got up and was immersed. 
 He took food and was strengthened. Saul stayed several days with the students who were at Damascus. 
 Immediately in the gathering places he proclaimed the Christ, that he's the Son of God. 

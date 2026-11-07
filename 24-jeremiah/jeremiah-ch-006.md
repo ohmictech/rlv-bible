@@ -7,7 +7,7 @@ The God of Armies said, "Cut down trees, and cast up a mound against Jerusalem. 
 As a well produces its waters, so she produces her guilt. Violence and destruction is heard in her. Sickness and wounds are continually before me. 
 Be instructed, Jerusalem, lest my soul be alienated from you, lest I make you a desolation, an uninhabited land." 
 The God of Armies says, "They'll thoroughly glean the remnant of Israel like a vine. Turn again your hand as a grape gatherer into the baskets." 
-To whom should I speak and testify, that they may hear? Look, their ear is uncircumcised, and they can't listen. Look, God's word has become a reproach to them. They have no delight in it. 
+To whom should I speak and testify, that they can hear? Look, their ear is uncircumcised, and they can't listen. Look, God's word has become a reproach to them. They have no delight in it. 
 So I'm full of God's wrath. I'm weary with holding it in. "Pour it out on the children in the street, and on the assembly of young men together; for even the husband with the wife will be taken, the aged with him who's full of days. 
 Their houses will be turned to others, their fields and their wives together; for I'll stretch out my hand on the inhabitants of the land, says God." 
 "From their least even to their greatest, everyone is given to covetousness. From the spokesman even to the priest, everyone deals falsely. 
@@ -24,7 +24,7 @@ They take hold of bow and spear. They're cruel, and have no mercy. Their voice r
 We have heard its report. Our hands become feeble. Anguish has taken hold of us, and pains as of a woman in labor. 
 Don't go out into the field or walk by the way; for the sword of the enemy and terror are on every side. 
 Daughter of my people, clothe yourself with sackcloth, and wallow in ashes! Mourn, as for an only son, most bitter lamentation, for the destroyer will suddenly come on us. 
-"I have made you a tester of metals and a fortress among my people, that you may know and try their way. 
+"I have made you a tester of metals and a fortress among my people, that you can know and try their way. 
 They're all grievous rebels, going around to slander. They're bronze and iron. All of them deal corruptly. 
 The bellows blow fiercely. The lead is consumed in the fire. In vain they go on refining, for the guilty aren't plucked away. 
 Men will call them rejected silver, because God has rejected them." 

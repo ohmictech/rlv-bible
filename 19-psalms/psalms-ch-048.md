@@ -10,5 +10,5 @@ We have thought about your loving kindness, God, in the middle of your temple.
 As is your name, God, so is your praise to the ends of the earth. Your right hand is full of righteousness. 
 Let Mount Zion be glad! Let the daughters of Judah rejoice because of your judgments. 
 Walk about Zion, and go around her. Number its towers. 
-Notice her bulwarks. Consider her palaces, that you may tell it to the next generation. 
+Notice her bulwarks. Consider her palaces, that you can tell it to the next generation. 
 This God is our God for all the eras. He'll be our guide even to death. 

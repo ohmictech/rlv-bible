@@ -1,31 +1,31 @@
-﻿Moses answered, "But, look, they won't believe me, nor listen to my voice; for they'll say, 'God hasn't appeared to you.'" 
-God said to him, "What's that in your hand?" He said, "A rod." 
-He said, "Throw it on the ground." He threw it on the ground, and it became a snake; and Moses ran away from it. 
-God said to Moses, "Stretch out your hand, and take it by the tail." He stretched out his hand, and took hold of it, and it became a rod in his hand. 
-"This is so that they can believe that the God of their fathers, the God of Abraham, the God of Isaac, and the God of Jacob has appeared to you." 
-God said furthermore to him, "Now put your hand inside your cloak." He put his hand inside his cloak, and when he took it out, look, his hand was leprous, as white as snow. 
-He said, "Put your hand inside your cloak again." He put his hand inside his cloak again, and when he took it out of his cloak, look, it had turned again as his other flesh. 
-"It'll happen, if they won't believe you or listen to the voice of the first sign, that they'll believe the voice of the latter sign. 
-It'll happen, if they won't believe even these two signs or listen to your voice, that you will take of the water of the river, and pour it on the dry land. The water which you take out of the river will become blood on the dry land." 
-Moses said to God, "O Lord, I'm not eloquent, neither before now, nor since you have spoken to your servant; for I'm slow of speech, and of a slow tongue." 
-God said to him, "Who made man's mouth? Or who makes one mute, or deaf, or seeing, or blind? Isn't it I, God? 
-Now go, and I'll be with your mouth, and teach you what you will speak." 
-Moses said, "Oh, Lord, please send someone else." 
-God's anger burned against Moses, and he said, "What about Aaron, your brother, the Levite? I know that he can speak well. Also, look, he's coming out to meet you. When he sees you, he'll be glad in his heart. 
-You will speak to him, and put the words in his mouth. I'll be with your mouth, and with his mouth, and will teach you what you will do. 
-He'll be your spokesman to the people. It'll happen that he'll be to you a mouth, and you'll be to him as God. 
-You will take this rod in your hand, with which you will do the signs." 
-Moses went and returned to Jethro his father-in-law, and said to him, "Please let me go and return to my brothers who are in Egypt, and see whether they're still alive." Jethro said to Moses, "Go in peace." 
-God said to Moses in Midian, "Go, return into Egypt; for all the men who sought your life are dead." 
-Moses took his wife and his sons, and set them on a donkey, and he returned to the land of Egypt. Moses took God's rod in his hand. 
-God said to Moses, "When you go back into Egypt, see that you do before Pharaoh all the wonders which I have put in your hand, but I'll harden his heart and he won't let the people go. 
-You will tell Pharaoh, 'God says, Israel is my son, my firstborn, 
-and I have said to you, "Let my son go, that he can serve me;" and you have refused to let him go. Look, I'll kill your firstborn son.'" 
-On the way at a lodging place, God met Moses and wanted to kill him. 
-Then Zipporah took a flint, and cut off the foreskin of her son, and cast it at his feet; and she said, "Surely you're a bridegroom of blood to me." 
-So he let him alone. Then she said, "You're a bridegroom of blood," because of the circumcision. 
-God said to Aaron, "Go into the wilderness to meet Moses." He went, and met him on God's mountain, and kissed him. 
-Moses told Aaron all God's words with which he had sent him, and all the signs with which he had instructed him. 
-Moses and Aaron went and gathered together all the elders of the children of Israel. 
-Aaron spoke all the words which God had spoken to Moses, and did the signs in the sight of the people. 
-The people believed, and when they heard that God had visited the children of Israel, and that he had seen their affliction, then they bowed their heads and worshiped. 
+﻿Moses answered, "But they won't believe me or listen to me. They'll say, 'God never appeared to you.'" 
+God said to him, "What's that in your hand?" He said, "A staff." 
+God said, "Throw it on the ground." Moses threw it down and it turned into a snake, and he ran from it. 
+God said to Moses, "Reach out and grab it by the tail." So he reached out and caught it, and it turned back into a staff in his hand. 
+"This is so they will believe that the God of their fathers, the God of Abraham, the God of Isaac and the God of Jacob, has appeared to you." 
+God said, "Now put your hand inside your cloak." He did, and when he pulled it out his hand was white with a skin disease, like snow. 
+God said, "Put it back inside your cloak." He did, and when he pulled it out it was healthy again, like the rest of his skin. 
+"If they don't believe you or pay attention to the first sign, they will believe the second. 
+And if they don't believe even these two signs or listen to you, take some water from the river and pour it on the dry ground, and it will turn to blood there." 
+Moses said to God, "Lord, I've never been a good speaker, and I'm no better now that you have spoken to me. I'm slow with words and slow with my tongue." 
+God said to him, "Who gave a person a mouth? Who makes someone unable to speak, or deaf, or able to see, or blind? Isn't it I, God? 
+Now go, and I will be with your mouth and teach you what to say." 
+But Moses said, "Lord, please send someone else." 
+Then God's anger burned against Moses, and he said, "Isn't your brother Aaron the Levite? I know he speaks well. In fact he's already on his way to meet you, and he'll be glad to see you. 
+You will speak to him and put the words in his mouth. I will be with your mouth and with his, and I will teach you what to do. 
+He will speak to the people for you. He will be your mouth, and you will be like God to him. 
+Take this staff in your hand, and use it to do the signs." 
+Moses went back to his father-in-law Jethro and said, "Let me go back to my own people in Egypt and see whether they're still alive." Jethro said, "Go, and peace be with you." 
+God said to Moses in Midian, "Go back to Egypt. Everyone who wanted to kill you is dead." 
+So Moses took his wife and sons, put them on a donkey, and headed back to Egypt, with the staff of God in his hand. 
+God said to Moses, "When you get back to Egypt, do all the wonders I have given you power to do in front of Pharaoh. But I will make his heart stubborn, and he won't let the people go. 
+Then you will say to Pharaoh, 'God says this: Israel is my son, my firstborn. 
+I told you to let my son go so he can serve me, and you refused. So I'm going to kill your firstborn son.'" 
+At a place where they stopped for the night on the way, God met Moses and tried to kill him. 
+Then Zipporah took a sharp stone and cut off her son's foreskin and threw it at Moses' feet. "You're a bridegroom of blood to me," she said. 
+So God left him alone. She had said "bridegroom of blood" because of the circumcision. 
+God said to Aaron, "Go into the wilderness to meet Moses." So he went and met him at the mountain of God and kissed him. 
+Moses told Aaron everything God had said in sending him, and about all the signs he had been told to do. 
+Then Moses and Aaron went and gathered all the elders of Israel. 
+Aaron told them everything God had said to Moses, and did the signs while the people watched. 
+And the people believed. When they heard that God had come to the Israelites and had seen their misery, they bowed down and worshiped. 

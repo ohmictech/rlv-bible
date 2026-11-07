@@ -1,25 +1,25 @@
-﻿A man of the house of Levi went and took a daughter of Levi as his wife. 
-The woman conceived and bore a son. When she saw that he was a fine child, she hid him three months. 
-When she could no longer hide him, she took a papyrus basket for him, and coated it with tar and with pitch. She put the child in it, and laid it in the reeds by the river's bank. 
-His sister stood far off, to see what would be done to him. 
-Pharaoh's daughter came down to bathe at the river. Her maidens walked along by the riverside. She saw the basket among the reeds, and sent her servant to get it. 
-She opened it, and saw the child, and look, the baby cried. She had compassion on him, and said, "This is one of the Hebrews' children." 
-Then his sister said to Pharaoh's daughter, "Should I go and call a nurse for you from the Hebrew women, that she can nurse the child for you?" 
-Pharaoh's daughter said to her, "Go." The young woman went and called the child's mother. 
-Pharaoh's daughter said to her, "Take this child away, and nurse him for me, and I'll give you your wages." The woman took the child, and nursed him. 
-The child grew, and she brought him to Pharaoh's daughter, and he became her son. She named him Moses, and said, "Because I drew him out of the water." 
-In those days, when Moses had grown up, he went out to his brothers and saw their burdens. He saw an Egyptian striking a Hebrew, one of his brothers. 
-He looked this way and that way, and when he saw that there was no one, he killed the Egyptian, and hid him in the sand. 
-He went out the second day, and look, two men of the Hebrews were fighting with each other. He said to him who did the wrong, "Why do you strike your fellow?" 
-He said, "Who made you a prince and a judge over us? Do you plan to kill me, as you killed the Egyptian?" Moses was afraid, and said, "Surely this thing is known." 
-Now when Pharaoh heard this thing, he sought to kill Moses. But Moses fled from the face of Pharaoh, and lived in the land of Midian, and he sat down by a well. 
-Now the priest of Midian had seven daughters. They came and drew water, and filled the troughs to water their father's flock. 
-The shepherds came and drove them away; but Moses stood up and helped them, and watered their flock. 
-When they came to Reuel, their father, he said, "How is it that you have returned so early today?" 
-They said, "An Egyptian delivered us out of the hand of the shepherds, and moreover he drew water for us, and watered the flock." 
-He said to his daughters, "Where is he? Why is it that you have left the man? Call him, that he can eat bread." 
-Moses was content to dwell with the man. He gave Moses Zipporah, his daughter. 
-She bore a son, and he named him Gershom, for he said, "I have lived as a foreigner in a foreign land." 
-In the course of those many days, the king of Egypt died, and the children of Israel sighed because of the bondage, and they cried, and their cry came up to God because of the bondage. 
-God heard their groaning, and God remembered his covenant with Abraham, with Isaac, and with Jacob. 
-God saw the children of Israel, and God understood. 
+﻿A man from the tribe of Levi married a woman from the same tribe. 
+She became pregnant and had a son. When she saw what a fine child he was, she hid him for three months. 
+When she could hide him no longer, she got a basket made of papyrus, coated it with tar and pitch, put the child in it, and set it among the reeds on the riverbank. 
+His sister stood some distance away to see what would happen to him. 
+Pharaoh's daughter came down to bathe in the river, with her maids walking along the bank. She saw the basket among the reeds and sent her servant to fetch it. 
+When she opened it she saw the baby, and he was crying. She felt sorry for him and said, "This is one of the Hebrew children." 
+Then his sister said to Pharaoh's daughter, "Should I go and find a Hebrew woman to nurse the baby for you?" 
+"Go," said Pharaoh's daughter, and the girl went and got the child's mother. 
+Pharaoh's daughter told her, "Take this child and nurse him for me, and I'll pay you." So the woman took the child and nursed him. 
+When the child was grown she brought him to Pharaoh's daughter, and he became her son. She named him Moses, saying, "Because I drew him up out of the water." 
+Years later, when Moses was a man, he went out to his own people and watched them at their hard labor. He saw an Egyptian beating a Hebrew, one of his own people. 
+He looked around, and seeing no one, he killed the Egyptian and hid him in the sand. 
+The next day he went out and saw two Hebrew men fighting. He said to the one in the wrong, "Why are you hitting your neighbor?" 
+The man said, "Who put you in charge of us? Are you going to kill me the way you killed the Egyptian?" Moses was afraid and thought, "So this is known." 
+When Pharaoh heard about it he tried to kill Moses, but Moses ran away from Pharaoh and went to live in Midian, where he sat down by a well. 
+The priest of Midian had seven daughters. They came to draw water and fill the troughs for their father's flock. 
+Some shepherds came along and drove them off, but Moses got up and helped them, and watered their flock. 
+When they got back to their father Reuel, he asked, "How is it you're back so early today?" 
+They said, "An Egyptian rescued us from the shepherds. He even drew water for us and watered the flock." 
+He asked his daughters, "Where is he? Why did you leave him there? Invite him to eat with us." 
+Moses was glad to stay with the man, and he gave Moses his daughter Zipporah. 
+She had a son, and Moses named him Gershom, because, he said, "I have been a foreigner in a foreign land." 
+Time passed and the king of Egypt died. The Israelites groaned under their slavery and cried out, and their cry for help went up to God. 
+God heard their groaning and remembered his covenant with Abraham, Isaac and Jacob. 
+God looked on the Israelites and understood. 

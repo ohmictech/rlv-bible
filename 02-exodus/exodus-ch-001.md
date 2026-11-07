@@ -1,22 +1,22 @@
-﻿Now these are the names of the sons of Israel, who came into Egypt (every man and his household came with Jacob): 
-Reuben, Simeon, Levi, and Judah, 
-Issachar, Zebulun, and Benjamin, 
+﻿These are the names of the sons of Israel who came to Egypt, each with his household, along with Jacob: 
+Reuben, Simeon, Levi and Judah, 
+Issachar, Zebulun and Benjamin, 
 Dan and Naphtali, Gad and Asher. 
-All the souls who came out of Jacob's body were seventy souls, and Joseph was in Egypt already. 
-Joseph died, as did all his brothers, and all that generation. 
-The children of Israel were fruitful, and increased abundantly, and multiplied, and grew exceedingly mighty; and the land was filled with them. 
-Now there arose a new king over Egypt, who didn't know Joseph. 
-He said to his people, "Look, the people of the children of Israel are more and mightier than we. 
-Come, let's deal wisely with them, lest they multiply, and it happen that when any war breaks out, they also join themselves to our enemies and fight against us, and escape out of the land." 
-So they set taskmasters over them to afflict them with their burdens. They built storage cities for Pharaoh: Pithom and Raamses. 
-But the more they afflicted them, the more they multiplied and the more they spread out. They started to dread the children of Israel. 
-The Egyptians ruthlessly made the children of Israel serve, 
-and they made their lives bitter with hard service in mortar and in brick, and in all kinds of service in the field, all their service, in which they ruthlessly made them serve. 
-The king of Egypt spoke to the Hebrew midwives, of whom the name of the one was Shiphrah, and the name of the other Puah, 
-and he said, "When you perform the duty of a midwife to the Hebrew women, and see them on the birth stool, if it's a son, then you will kill him; but if it's a daughter, then she will live." 
-But the midwives feared God, and didn't do what the king of Egypt commanded them, but saved the baby boys alive. 
-The king of Egypt called for the midwives, and said to them, "Why have you done this thing and saved the boys alive?" 
-The midwives said to Pharaoh, "Because the Hebrew women aren't like the Egyptian women; for they're vigorous and give birth before the midwife comes to them." 
-God dealt well with the midwives, and the people multiplied, and grew very mighty. 
-Because the midwives feared God, he gave them families. 
-Pharaoh commanded all his people, saying, "You will cast every son who's born into the river, and every daughter you will save alive." 
+Seventy people came from Jacob's own body, and Joseph was already in Egypt. 
+Then Joseph died, and so did all his brothers and everyone of that generation. 
+But the Israelites had children, grew more and more numerous, and became so strong that the land was full of them. 
+Then a new king came to power in Egypt who knew nothing about Joseph. 
+He said to his people, "The Israelites are now more numerous and stronger than we are. 
+Come on, let's outsmart them before they multiply any further. If war breaks out, they might join our enemies and fight against us and then leave the country." 
+So they put slave drivers over them to wear them down with hard work, and the Israelites built store cities for Pharaoh, Pithom and Raamses. 
+But the harder they were worked, the more they multiplied and spread out, until the Egyptians came to dread the Israelites. 
+The Egyptians worked the Israelites ruthlessly 
+and made their lives bitter with hard labor in mortar and brick and every kind of field work. Every bit of it was ruthless. 
+The king of Egypt spoke to the Hebrew midwives, one named Shiphrah and the other Puah. 
+He said, "When you deliver the Hebrew women and see them on the birth stool, kill the boy if it's a son, but let the girl live." 
+But the midwives feared God and did not do what the king of Egypt told them. They let the boys live. 
+So the king of Egypt called the midwives in and asked, "Why have you done this? Why have you let the boys live?" 
+The midwives answered Pharaoh, "Hebrew women aren't like Egyptian women. They're strong and give birth before the midwife gets there." 
+God was good to the midwives, and the people multiplied and grew very strong. 
+And because the midwives feared God, he gave them families of their own. 
+Then Pharaoh gave this order to all his people: "Throw every newborn boy into the river, and let every girl live." 

@@ -1,43 +1,43 @@
-﻿When Rachel saw that she bore Jacob no children, Rachel envied her sister. She said to Jacob, "Give me children, or else I'll die." 
-Jacob's anger burned against Rachel, and he said, "Am I in God's place, who has withheld from you the fruit of the womb?" 
-She said, "Look, my maid Bilhah. Go in to her, that she can bear on my knees, and I also may obtain children by her." 
-She gave him Bilhah her servant as wife, and Jacob went in to her. 
-Bilhah conceived, and bore Jacob a son. 
-Rachel said, "God has judged me, and has also heard my voice, and has given me a son." So she called his name Dan. 
-Bilhah, Rachel's servant, conceived again, and bore Jacob a second son. 
-Rachel said, "I have wrestled with my sister with mighty wrestlings, and have prevailed." She named him Naphtali. 
-When Leah saw that she had finished bearing, she took Zilpah, her servant, and gave her to Jacob as a wife. 
-Zilpah, Leah's servant, bore Jacob a son. 
-Leah said, "How fortunate!" She named him Gad. 
-Zilpah, Leah's servant, bore Jacob a second son. 
-Leah said, "Happy am I, for the daughters will call me happy." She named him Asher. 
-Reuben went in the days of wheat harvest, and found mandrakes in the field, and brought them to his mother, Leah. Then Rachel said to Leah, "Please give me some of your son's mandrakes." 
-Leah said to her, "Is it a small matter that you have taken away my husband? Would you take away my son's mandrakes, also?" Rachel said, "So he'll lie with you tonight for your son's mandrakes." 
-Jacob came from the field in the evening, and Leah went out to meet him, and said, "You must come in to me; for I have surely hired you with my son's mandrakes." He lay with her that night. 
-God listened to Leah, and she conceived, and bore Jacob a fifth son. 
-Leah said, "God has given me my hire, because I gave my servant to my husband." She named him Issachar. 
-Leah conceived again, and bore a sixth son to Jacob. 
-Leah said, "God has endowed me with a good dowry. Now my husband will live with me, because I have borne him six sons." She named him Zebulun. 
-Afterwards, she bore a daughter, and named her Dinah. 
-God remembered Rachel, and God listened to her, and opened her womb. 
-She conceived, bore a son, and said, "God has taken away my reproach." 
-She named him Joseph, saying, "May God add another son to me." 
-When Rachel had borne Joseph, Jacob said to Laban, "Send me away, that I can go to my own place, and to my country. 
-Give me my wives and my children for whom I have served you, and let me go; for you know my service with which I have served you." 
-Laban said to him, "If now I have found favor in your eyes, stay here, for I have divined that God has blessed me for your sake." 
-He said, "Appoint me your wages, and I'll give it." 
-Jacob said to him, "You know how I have served you, and how your livestock have fared with me. 
-It was little which you had before I came, and it has increased to a multitude. God has blessed you wherever I turned. Now when will I provide for my own house also?" 
-Laban said, "What will I give you?" Jacob said, "You won't give me anything. If you'll do this thing for me, I'll again feed your flock and keep it. 
-I'll pass through all your flock today, removing from there every speckled and spotted one, and every black one among the sheep, and the spotted and speckled among the goats. This will be my hire. 
-So my righteousness will answer for me hereafter, when you come concerning my hire that's before you. Every one that isn't speckled and spotted among the goats, and black among the sheep, that might be with me, will be considered stolen." 
-Laban said, "Look, let it be according to your word." 
-That day, he removed the male goats that were streaked and spotted, and all the female goats that were speckled and spotted, every one that had white in it, and all the black ones among the sheep, and gave them into the hand of his sons. 
-He set three days' journey between himself and Jacob, and Jacob fed the rest of Laban's flocks. 
-Jacob took to himself rods of fresh poplar, almond, and plane tree, peeled white streaks in them, and made the white appear which was in the rods. 
-He set the rods which he had peeled opposite the flocks in the watering troughs where the flocks came to drink. They conceived when they came to drink. 
-The flocks conceived before the rods, and the flocks produced streaked, speckled, and spotted. 
-Jacob separated the lambs, and set the faces of the flocks toward the streaked and all the black in Laban's flock. He put his own droves apart, and didn't put them into Laban's flock. 
-Whenever the stronger of the flock conceived, Jacob laid the rods in front of the eyes of the flock in the watering troughs, that they might conceive among the rods; 
-but when the flock were feeble, he didn't put them in. So the feebler were Laban's, and the stronger Jacob's. 
-The man increased exceedingly, and had large flocks, female servants and male servants, and camels and donkeys. 
+﻿When Rachel saw she wasn't having children for Jacob, she became jealous of her sister and said to Jacob, "Give me children or I'll die." 
+Jacob got angry with Rachel and said, "Am I God? He's the one who's kept you from having children." 
+She said, "Here's my servant Bilhah. Sleep with her, so she can have children for me, and I can build a family through her." 
+So she gave him her servant Bilhah as a wife, and Jacob slept with her. 
+Bilhah became pregnant and had a son for Jacob. 
+Rachel said, "God has judged in my favor. He heard me and gave me a son." So she named him Dan. 
+Then Bilhah, Rachel's servant, became pregnant again and had a second son for Jacob. 
+Rachel said, "I've fought a hard fight with my sister, and I've won." So she named him Naphtali. 
+When Leah saw she had stopped having children, she took her servant Zilpah and gave her to Jacob as a wife. 
+Zilpah, Leah's servant, had a son for Jacob. 
+Leah said, "What luck!" So she named him Gad. 
+Zilpah, Leah's servant, had a second son for Jacob. 
+Leah said, "How happy I am! The women will call me blessed." So she named him Asher. 
+During the wheat harvest Reuben went out and found some mandrakes in the field, and he brought them to his mother Leah. Rachel said to Leah, "Please give me some of your son's mandrakes." 
+Leah said to her, "Isn't it enough that you took my husband? Now you want my son's mandrakes too?" Rachel said, "Fine. He can sleep with you tonight in exchange for your son's mandrakes." 
+When Jacob came in from the field that evening, Leah went out to meet him and said, "You're coming to me tonight. I've paid for you with my son's mandrakes." So he slept with her that night. 
+God listened to Leah, and she became pregnant and had a fifth son for Jacob. 
+Leah said, "God has given me my wages, because I gave my servant to my husband." So she named him Issachar. 
+Leah became pregnant again and had a sixth son for Jacob. 
+Leah said, "God has given me a good gift. Now my husband will stay with me, because I've given him six sons." So she named him Zebulun. 
+After that she had a daughter and named her Dinah. 
+Then God remembered Rachel, listened to her, and let her have children. 
+She became pregnant and had a son, and said, "God has taken away my shame." 
+She named him Joseph, saying, "May God give me another son." 
+After Rachel had Joseph, Jacob said to Laban, "Let me go home to my own country. 
+Give me my wives and my children, since I earned them by working for you, and let me go. You know how hard I've worked for you." 
+Laban said to him, "If you'll do me a favor, stay. I've learned by divination that God has blessed me because of you." 
+He said, "Name your wages, and I'll pay them." 
+Jacob said to him, "You know how I've worked for you, and how your livestock have done under my care. 
+You had very little before I came, and it has grown into a huge herd. God has blessed you wherever I went. Now when do I get to provide for my own household?" 
+Laban said, "What should I give you?" Jacob said, "Don't give me anything. If you'll do one thing for me, I'll keep on tending and guarding your flock. 
+Let me go through your whole flock today and take out every speckled and spotted animal, every dark-colored sheep, and every spotted or speckled goat. That will be my wages. 
+Later, when you check on what I've earned, my honesty will speak for itself. Any goat that isn't speckled or spotted, or any sheep that isn't dark, that you find with me will count as stolen." 
+Laban said, "Agreed. Let it be just as you say." 
+That same day Laban removed the streaked and spotted male goats, and all the speckled and spotted female goats, every one with white on it, and all the dark sheep, and handed them over to his sons. 
+Then he put a three-day journey between himself and Jacob, and Jacob went on tending the rest of Laban's flocks. 
+Then Jacob cut fresh branches of poplar, almond, and plane tree, and peeled white stripes in them, exposing the white wood underneath. 
+He set the peeled branches in front of the flocks, in the watering troughs where the flocks came to drink, and they mated when they came to drink. 
+So the flocks mated in front of the branches, and they produced young that were streaked, speckled, and spotted. 
+Jacob kept the lambs separate, and turned the flocks toward the streaked and dark animals in Laban's flock. He kept his own animals apart and didn't mix them into Laban's flock. 
+Whenever the stronger animals were mating, Jacob laid the branches in the troughs in front of them, so they would mate near the branches. 
+But when the weaker animals came, he didn't put them there. So the weak ones went to Laban and the strong ones to Jacob. 
+Jacob grew very rich, and he owned large flocks, male and female servants, camels, and donkeys. 

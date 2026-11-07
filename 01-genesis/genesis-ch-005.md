@@ -1,32 +1,32 @@
-﻿This is the book of the generations of Adam. In the day that God created man, he made him in God's likeness. 
+﻿This is the record of Adam's line. When God created human beings, he made them in his likeness. 
 He created them male and female, and blessed them. On the day they were created, he named them Adam. 
-Adam lived one hundred thirty years, and became the father of a son in his own likeness, after his image, and named him Seth. 
-The days of Adam after he became the father of Seth were eight hundred years, and he became the father of other sons and daughters. 
-All the days that Adam lived were nine hundred thirty years, then he died. 
-Seth lived one hundred five years, then became the father of Enosh. 
-Seth lived after he became the father of Enosh eight hundred seven years, and became the father of other sons and daughters. 
-All of the days of Seth were nine hundred twelve years, then he died. 
-Enosh lived ninety years, and became the father of Kenan. 
-Enosh lived after he became the father of Kenan eight hundred fifteen years, and became the father of other sons and daughters. 
-All of the days of Enosh were nine hundred five years, then he died. 
-Kenan lived seventy years, then became the father of Mahalalel. 
-Kenan lived after he became the father of Mahalalel eight hundred forty years, and became the father of other sons and daughters 
-and all of the days of Kenan were nine hundred ten years, then he died. 
-Mahalalel lived sixty-five years, then became the father of Jared. 
-Mahalalel lived after he became the father of Jared eight hundred thirty years, and became the father of other sons and daughters. 
-All of the days of Mahalalel were eight hundred ninety-five years, then he died. 
-Jared lived one hundred sixty-two years, then became the father of Enoch. 
-Jared lived after he became the father of Enoch eight hundred years, and became the father of other sons and daughters. 
-All of the days of Jared were nine hundred sixty-two years, then he died. 
-Enoch lived sixty-five years, then became the father of Methuselah. 
-After Methuselah's birth, Enoch walked with God for three hundred years, and became the father of more sons and daughters. 
-All the days of Enoch were three hundred sixty-five years. 
-Enoch walked with God, and he was not found, for God took him. 
-Methuselah lived one hundred eighty-seven years, then became the father of Lamech. 
-Methuselah lived after he became the father of Lamech seven hundred eighty-two years, and became the father of other sons and daughters. 
-All the days of Methuselah were nine hundred sixty-nine years, then he died. 
-Lamech lived one hundred eighty-two years, then became the father of a son. 
-He named him Noah, saying, "This one will comfort us in our work and in the toil of our hands, caused by the ground which God has cursed." 
-Lamech lived after he became the father of Noah five hundred ninety-five years, and became the father of other sons and daughters. 
-All the days of Lamech were seven hundred seventy-seven years, then he died. 
-Noah was five hundred years old, then Noah became the father of Shem, Ham, and Japheth. 
+Adam was one hundred thirty years old when he fathered a son in his own likeness, after his image, and named him Seth. 
+After he fathered Seth, Adam lived eight hundred more years and fathered other sons and daughters. 
+Adam lived nine hundred thirty years in all, and then he died. 
+Seth was one hundred five years old when he fathered Enosh. 
+After he fathered Enosh, Seth lived eight hundred seven more years and fathered other sons and daughters. 
+Seth lived nine hundred twelve years in all, and then he died. 
+Enosh was ninety years old when he fathered Kenan. 
+After he fathered Kenan, Enosh lived eight hundred fifteen more years and fathered other sons and daughters. 
+Enosh lived nine hundred five years in all, and then he died. 
+Kenan was seventy years old when he fathered Mahalalel. 
+After he fathered Mahalalel, Kenan lived eight hundred forty more years and fathered other sons and daughters 
+and Kenan lived nine hundred ten years in all, and then he died. 
+Mahalalel was sixty-five years old when he fathered Jared. 
+After he fathered Jared, Mahalalel lived eight hundred thirty more years and fathered other sons and daughters. 
+Mahalalel lived eight hundred ninety-five years in all, and then he died. 
+Jared was one hundred sixty-two years old when he fathered Enoch. 
+After he fathered Enoch, Jared lived eight hundred more years and fathered other sons and daughters. 
+Jared lived nine hundred sixty-two years in all, and then he died. 
+Enoch was sixty-five years old when he fathered Methuselah. 
+After Methuselah was born, Enoch walked with God for three hundred years and fathered more sons and daughters. 
+Enoch lived three hundred sixty-five years in all. 
+Enoch walked with God, and then he was gone, because God took him. 
+Methuselah was one hundred eighty-seven years old when he fathered Lamech. 
+After he fathered Lamech, Methuselah lived seven hundred eighty-two more years and fathered other sons and daughters. 
+Methuselah lived nine hundred sixty-nine years in all, and then he died. 
+Lamech was one hundred eighty-two years old when he fathered a son. 
+He named him Noah, saying, "He will comfort us in our work and in the hard labor of our hands, because of the ground God has cursed." 
+After he fathered Noah, Lamech lived five hundred ninety-five more years and fathered other sons and daughters. 
+Lamech lived seven hundred seventy-seven years in all, and then he died. 
+Noah was five hundred years old when he fathered Shem, Ham, and Japheth. 

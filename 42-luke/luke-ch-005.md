@@ -29,11 +29,11 @@ He left everything, and rose up and followed him.
 Levi made a great feast for him in his house. There was a great crowd of tax collectors and others who were sitting at the table with them. 
 Their Bible teachers and the strict religious ones grumbled against his students, saying, "Why do you eat and drink with the tax collectors and those who have drifted?" 
 Jesus answered them, "Those who are healthy have no need for a doctor, but those who are sick do. 
-I have not come to call the ones in the right, but to call those who have drifted to a change of heart." 
+I haven't come to call the ones in the right, but to call those who have drifted to a change of heart." 
 They said to him, "Why do John's students go without food often and pray, and likewise also the students of the strict religious ones, but yours eat and drink?" 
 He said to them, "Can you make the friends of the bridegroom go without food while the bridegroom is with them? 
 But the days will come when the bridegroom will be taken away from them. Then they will go without food in those days." 
-He also told them a story. "No one tears a piece from a new garment and puts it on an old garment, or else he will tear the new, and also the piece from the new will not match the old. 
+He also told them a story. "No one tears a piece from a new garment and puts it on an old garment, or else he will tear the new, and also the piece from the new won't match the old. 
 No one puts new wine into old wineskins, or else the new wine will burst the skins, and it will be spilled and the skins will be ruined. 
 But new wine must be put into fresh wineskins, and both are preserved. 
 No one who has drunk old wine immediately wants the new, for he says, 'The old is better.'" 

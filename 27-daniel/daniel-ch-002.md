@@ -7,15 +7,15 @@ But if you show the dream and its interpretation, you will receive from me gifts
 They answered the second time and said, "Let the king tell his servants the dream, and we will show the interpretation." 
 The king answered, "I know of a certainty that you are trying to gain time, because you see the thing has gone from me. 
 But if you don't make known to me the dream, there is but one law for you; for you have prepared lying and corrupt words to speak before me, until the situation changes. So tell me the dream, and I will know that you can show me its interpretation." 
-The Chaldeans answered the king and said, "There is not a man on the earth who can show the king's matter, because no king, lord, or ruler has asked such a thing of any magician, enchanter, or Chaldean. 
-It is a rare thing that the king requires, and there is no other who can show it before the king except the gods, whose dwelling is not with flesh." 
+The Chaldeans answered the king and said, "There isn't a man on the earth who can show the king's matter, because no king, lord, or ruler has asked such a thing of any magician, enchanter, or Chaldean. 
+It is a rare thing that the king requires, and there is no other who can show it before the king except the gods, whose dwelling isn't with flesh." 
 Because of this, the king was angry and very furious, and commanded that all the wise men of Babylon be destroyed. 
 So the decree went out, and the wise men were to be slain. They sought Daniel and his companions to be slain. 
 Then Daniel returned answer with counsel and prudence to Arioch the captain of the king's guard, who had gone out to kill the wise men of Babylon. 
 He answered Arioch the king's captain, "Why is the decree so urgent from the king?" Then Arioch made the thing known to Daniel. 
 Daniel went in, and desired of the king that he would appoint him a time, and he would show the king the interpretation. 
 Then Daniel went to his house and made the thing known to Hananiah, Mishael, and Azariah, his companions: 
-that they would desire mercies of the God of the sky concerning this secret, that Daniel and his companions would not perish with the rest of the wise men of Babylon. 
+that they would desire mercies of the God of the sky concerning this secret, that Daniel and his companions wouldn't perish with the rest of the wise men of Babylon. 
 Then the secret was revealed to Daniel in a vision of the night. Then Daniel blessed the God of the sky. 
 Daniel answered, "Blessed be the name of God for all the eras; for wisdom and might are his. 
 He changes the times and the seasons. He removes kings and sets up kings. He gives wisdom to the wise, and knowledge to those who have understanding. 
@@ -27,7 +27,7 @@ The king answered Daniel, whose name was Belteshazzar, "Are you able to make kno
 Daniel answered before the king, and said, "The secret which the king has demanded can't be shown to the king by wise men, enchanters, magicians, or soothsayers; 
 but there is a God in the sky who reveals secrets, and he has made known to King Nebuchadnezzar what will be in the latter days. Your dream and the visions of your head on your bed are these: 
 "As for you, O king, your thoughts came on your bed, what should happen hereafter; and he who reveals secrets has made known to you what will happen. 
-But as for me, this secret is not revealed to me for any wisdom that I have more than any living, but to the intent that the interpretation may be made known to the king, and that you may know the thoughts of your heart. 
+But as for me, this secret isn't revealed to me for any wisdom that I have more than any living, but to the intent that the interpretation may be made known to the king, and that you may know the thoughts of your heart. 
 "You, O king, saw, and look, a great image. This image, which was mighty, and whose brightness was excellent, stood before you; and its appearance was terrifying. 
 As for this image, its head was of fine gold, its chest and its arms of silver, its belly and its thighs of bronze, 
 its legs of iron, its feet part of iron and part of clay. 
@@ -40,7 +40,7 @@ Wherever the children of men dwell, he has given the animals of the field and th
 The fourth kingdom will be strong as iron, because iron breaks in pieces and subdues all things; and as iron that crushes all these, it will break in pieces and crush. 
 Whereas you saw the feet and toes, part of potters' clay and part of iron, it will be a divided kingdom; but there will be in it of the strength of the iron, because you saw the iron mixed with miry clay. 
 As the toes of the feet were part of iron, and part of clay, so the kingdom will be partly strong and partly brittle. 
-Whereas you saw the iron mixed with miry clay, they will mingle themselves with the seed of men; but they won't cling to one another, even as iron does not mix with clay. 
+Whereas you saw the iron mixed with miry clay, they will mingle themselves with the seed of men; but they won't cling to one another, even as iron doesn't mix with clay. 
 "In the days of those kings the God of the sky will set up a kingdom which will never be destroyed, nor will its sovereignty be left to another people; but it will break in pieces and consume all these kingdoms, and it will stand for the eras. 
 Because you saw that a stone was cut out of the mountain without hands, and that it broke in pieces the iron, the bronze, the clay, the silver, and the gold, the great God has made known to the king what will happen hereafter. The dream is certain, and its interpretation sure." 
 Then King Nebuchadnezzar fell on his face, worshiped Daniel, and commanded that they should offer an offering and sweet odors to him. 

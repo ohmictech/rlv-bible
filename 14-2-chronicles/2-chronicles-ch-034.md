@@ -18,11 +18,11 @@ They have emptied out the money that was found in God's house, and have delivere
 Shaphan the secretary told the king, saying, "Hilkiah the priest has delivered me a book." Shaphan read from it to the king. 
 When the king had heard the words of the law, he tore his clothes. 
 The king commanded Hilkiah, Ahikam the son of Shaphan, Abdon the son of Micah, Shaphan the secretary, and Asaiah the king's servant, saying, 
-"Go inquire of God for me, and for those who are left in Israel and in Judah, concerning the words of the book that is found; for great is God's wrath that is poured out on us, because our fathers have not kept God's word, to do according to all that is written in this book." 
+"Go inquire of God for me, and for those who are left in Israel and in Judah, concerning the words of the book that is found; for great is God's wrath that is poured out on us, because our fathers haven't kept God's word, to do according to all that is written in this book." 
 So Hilkiah and those whom the king had commanded went to Huldah the prophetess, the wife of Shallum the son of Tokhath, the son of Hasrah, keeper of the wardrobe (now she lived in Jerusalem in the second quarter), and they spoke to her to that effect. 
 She said to them, "The God of Israel says: 'Tell the man who sent you to me, 
 "God says, 'Look, I will bring bad on this place and on its inhabitants, even all the curses that are written in the book which they have read before the king of Judah. 
-Because they have forsaken me, and have burned incense to other gods, that they might provoke me to anger with all the works of their hands, my wrath is poured out on this place, and it will not be quenched.'"' 
+Because they have forsaken me, and have burned incense to other gods, that they might provoke me to anger with all the works of their hands, my wrath is poured out on this place, and it won't be quenched.'"' 
 But to the king of Judah, who sent you to inquire of God, you shall tell him this, 'The God of Israel says: "About the words which you have heard, 
 because your heart was tender, and you humbled yourself before God when you heard his words against this place and against its inhabitants, and have humbled yourself before me, and have torn your clothes and wept before me, I also have heard you," says God. 
 "Look, I will gather you to your fathers, and you will be gathered to your grave in peace. Your eyes won't see all the bad that I will bring on this place and on its inhabitants."'" They brought back this message to the king. 

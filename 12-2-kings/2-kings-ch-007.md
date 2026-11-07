@@ -1,5 +1,5 @@
 ﻿Elisha said, "Hear God's word. God says, 'Tomorrow about this time a seah of fine flour will be sold for a shekel, and two seahs of barley for a shekel, in the gate of Samaria.'" 
-Then the captain on whose hand the king leaned answered the man of God, and said, "Look, if God made windows in the sky, could this thing be?" He said, "Look, you will see it with your eyes, but will not eat of it." 
+Then the captain on whose hand the king leaned answered the man of God, and said, "Look, if God made windows in the sky, could this thing be?" He said, "Look, you will see it with your eyes, but won't eat of it." 
 Now there were four leprous men at the entrance of the gate. They said to one another, "Why do we sit here until we die? 
 If we say, 'We will enter into the city,' then the famine is in the city, and we will die there. If we sit still here, we also die. Now come, and let's surrender to the army of the Syrians. If they save us alive, we will live; and if they kill us, we will only die." 
 They rose up in the twilight to go to the camp of the Syrians. When they had come to the outermost part of the camp of the Syrians, look, no man was there. 
@@ -16,5 +16,5 @@ They went after them to the Jordan; and look, all the path was full of garments 
 The people went out and plundered the camp of the Syrians. So a seah of fine flour was sold for a shekel, and two measures of barley for a shekel, according to God's word. 
 The king had appointed the captain on whose hand he leaned to be in charge of the gate; and the people trampled over him in the gate, and he died as the man of God had said, who spoke when the king came down to him. 
 It happened as the man of God had spoken to the king, saying, "Two seahs of barley for a shekel, and a seah of fine flour for a shekel, shall be tomorrow about this time in the gate of Samaria;" 
-and that captain answered the man of God, and said, "Now, look, if God made windows in the sky, might such a thing be?" and he said, "Look, you will see it with your eyes, but will not eat of it." 
+and that captain answered the man of God, and said, "Now, look, if God made windows in the sky, might such a thing be?" and he said, "Look, you will see it with your eyes, but won't eat of it." 
 It happened like that to him, for the people trampled over him in the gate, and he died. 

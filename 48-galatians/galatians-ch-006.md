@@ -4,7 +4,7 @@ If a man thinks himself to be something when he is nothing, he leads himself ast
 But let each man examine his own work, and then he will have something to take real pride in, and not about someone else. 
 Each person will carry his own burden. 
 But let him who is taught in the word share all good things with him who teaches. 
-Don't be led astray. God is not mocked, for whatever a person sows, that is what he will reap. 
+Don't be led astray. God isn't mocked, for whatever a person sows, that is what he will reap. 
 The one who sows to his own flesh will reap decay from the flesh. But the one who sows to the Spirit will reap real life for the eras from the Spirit. 
 Let's not be weary in doing good, for we will reap in due season if we don't give up. 
 So then, as we have opportunity, let's do good to everyone, and especially to those of the household of trust. 

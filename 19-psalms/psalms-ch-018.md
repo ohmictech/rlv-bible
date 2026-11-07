@@ -18,7 +18,7 @@ He delivered me from my strong enemy, from those who hated me; for they were too
 They came on me in the day of my calamity, but God was my support. 
 He brought me out also into a large place. He delivered me, because he delighted in me. 
 God has rewarded me according to my righteousness. According to the cleanness of my hands, he has recompensed me. 
-I have kept the ways of God, and have not guiltily departed from my God. 
+I have kept the ways of God, and haven't guiltily departed from my God. 
 All his ordinances were before me. I didn't put away his statutes from me. 
 I was also blameless with him. I kept myself from my guilt. 
 So God has rewarded me according to my righteousness, according to the cleanness of my hands in his eyesight. 
@@ -33,14 +33,14 @@ the God who arms me with strength, and makes my way perfect?
 He makes my feet like deer's feet, and sets me on my high places. 
 He teaches my hands to war, so that my arms bend a bow of bronze. 
 You have also given me the shield of your salvation. Your right hand sustains me. Your gentleness has made me great. 
-You have enlarged my steps under me, My feet have not slipped. 
+You have enlarged my steps under me, My feet haven't slipped. 
 I will pursue my enemies, and overtake them. I won't turn away until they are consumed. 
-I will strike them through, so that they will not be able to rise. They shall fall under my feet. 
+I will strike them through, so that they won't be able to rise. They shall fall under my feet. 
 You have armed me with strength to the battle. You have subdued under me those who rose up against me. 
 You have also made my enemies turn their backs to me, that I might cut off those who hate me. 
 They cried, but there was no one to save; even to God, but he didn't answer them. 
 Then I beat them small as the dust before the wind. I cast them out as the mire of the streets. 
-You have delivered me from the strivings of the people. You have made me the head of the nations. A people whom I have not known shall serve me. 
+You have delivered me from the strivings of the people. You have made me the head of the nations. A people whom I haven't known shall serve me. 
 As soon as they hear of me they shall obey me. The foreigners shall submit themselves to me. 
 The foreigners shall fade away, and shall come trembling out of their strongholds. 
 God lives! Blessed be my rock. Exalted be the God of my salvation, 

@@ -34,17 +34,17 @@ He came to Capernaum, and when he was in the house he asked them, "What were you
 But they were silent, for they had argued with one another on the way about who was the greatest. 
 He sat down and called the twelve, and said to them, "If anyone wants to be first, he must be last of all and slave of all." 
 He took a little child and set him in the middle of them. Taking him in his arms, he said to them, 
-"Whoever welcomes one such little child in my name welcomes me, and whoever welcomes me does not welcome me, but the one who sent me." 
+"Whoever welcomes one such little child in my name welcomes me, and whoever welcomes me doesn't welcome me, but the one who sent me." 
 John said to him, "Teacher, we saw someone who doesn't follow us driving out unclean spirits in your name, and we told him to stop, because he doesn't follow us." 
 But Jesus said, "Don't stop him, because no one who does a powerful work in my name will soon speak maliciously of me. 
-Whoever is not against us is on our side. 
+Whoever isn't against us is on our side. 
 Whoever gives you a cup of water to drink in my name because you belong to Christ, truly I tell you, he will in no way lose his earned result. 
 "Whoever causes one of these little ones who trust in me to be trapped would be better off to have a millstone hung around his neck and be thrown into the sea. 
 If your hand traps you, cut it off. It is better for you to enter real life maimed than to have two hands and go into Gehenna, into the fire that can't be put out, 
-'where their worm doesn't die, and the fire is not put out.' 
+'where their worm doesn't die, and the fire isn't put out.' 
 If your foot traps you, cut it off. It is better for you to enter real life lame than to have two feet and be thrown into Gehenna, into the fire that never goes out, 
-'where their worm doesn't die, and the fire is not put out.' 
+'where their worm doesn't die, and the fire isn't put out.' 
 If your eye traps you, throw it out. It is better for you to enter God's reign with one eye than to have two eyes and be thrown into the Gehenna of fire, 
-'where their worm doesn't die, and the fire is not put out.' 
+'where their worm doesn't die, and the fire isn't put out.' 
 Everyone will be salted with fire, and every sacrifice will be seasoned with salt. 
 Salt is good, but if the salt has lost its saltiness, what will you season it with? Have salt in yourselves, and keep wholeness with one another." 

@@ -9,18 +9,18 @@ Again he stooped down and wrote on the ground with his finger.
 When they heard it, they were convicted by their conscience and went out one by one, beginning from the oldest, even to the last. Jesus was left alone with the woman where she was, in the middle. 
 Jesus stood up and saw her, and said, "Woman, where are your accusers? Did no one judge you?" 
 She said, "No one, Lord." Jesus said, "Neither do I judge you. Go your way. From now on, stop drifting." 
-Again, Jesus spoke to them, saying, "I am the light of the world. Whoever follows me will not walk in the darkness, but will have the light of real life." 
-The strict religious ones said to him, "You testify about yourself. Your witness is not valid." 
+Again, Jesus spoke to them, saying, "I am the light of the world. Whoever follows me won't walk in the darkness, but will have the light of real life." 
+The strict religious ones said to him, "You testify about yourself. Your witness isn't valid." 
 Jesus answered them, "Even if I testify about myself, my witness is true, for I know where I came from, and where I am going; but you don't know where I came from, or where I am going. 
 You judge according to the flesh. I judge no one. 
-Even if I do judge, my verdict is right, for I am not alone, but I am with the Father who sent me. 
+Even if I do judge, my verdict is right, for I'm not alone, but I am with the Father who sent me. 
 It's also written in your law that the witness of two people is valid. 
 I am one who testifies about myself, and the Father who sent me testifies about me." 
 They said to him, "Where is your Father?" Jesus answered, "You know neither me nor my Father. If you knew me, you would know my Father also." 
-Jesus spoke these words in the treasury, as he taught in the temple courts. Yet no one arrested him, because his time had not yet come. 
+Jesus spoke these words in the treasury, as he taught in the temple courts. Yet no one arrested him, because his time hadn't yet come. 
 Jesus said again to them, "I am going away, and you will seek me, and you will die in your mistakes. Where I go, you can't come." 
 The Jewish leaders said, "Will he kill himself, because he says, 'Where I am going, you can't come'?" 
-He said to them, "You are from beneath. I am from above. You are of this world. I am not of this world. 
+He said to them, "You are from beneath. I am from above. You are of this world. I'm not of this world. 
 I said to you that you will die in your mistakes; for unless you trust that I am the one, you will die in your mistakes." 
 They said to him, "Who are you?" Jesus said to them, "Just what I have been saying to you from the beginning. 
 I have many things to speak and to judge concerning you. However, he who sent me is true; and the things which I heard from him, these I say to the world." 
@@ -38,13 +38,13 @@ I know that you are Abraham's descendants, yet you seek to kill me, because my w
 I say the things which I have seen with my Father; and you also do the things which you have seen with your father." 
 They answered him, "Our father is Abraham." Jesus said to them, "If you were Abraham's children, you would do the deeds of Abraham. 
 But now you seek to kill me, a man who has told you the truth which I heard from God. Abraham didn't do this. 
-You do the deeds of your father." They said to him, "We were not born out of wedlock. We have one Father, God." 
+You do the deeds of your father." They said to him, "We weren't born out of wedlock. We have one Father, God." 
 So Jesus said to them, "If God were your father, you would love me, for I came out and have come from God. I haven't come of myself, but he sent me. 
 Why don't you understand my speech? Because you can't hear my word. 
 You are of your father the Slanderer, and you want to do the desires of your father. He was a murderer from the beginning, and doesn't stand in the truth, because there is no truth in him. When he speaks a lie, he speaks on his own; for he is a liar, and the father of lies. 
 But because I tell the truth, you don't trust me. 
 Which of you convicts me of drifting? If I tell the truth, why do you not trust me? 
-Whoever is of God hears the words of God. That is why you don't hear, because you are not of God." 
+Whoever is of God hears the words of God. That is why you don't hear, because you aren't of God." 
 Then the Jewish leaders answered him, "Aren't we right in saying that you are a Samaritan, and have an unclean spirit?" 
 Jesus answered, "I don't have an unclean spirit, but I honor my Father and you dishonor me. 
 But I don't seek my own weight. There is one who seeks and judges. 
@@ -52,8 +52,8 @@ Truly I tell you, if a person keeps my word, they will never see death."
 Then the Jewish leaders said to him, "Now we know that you have an unclean spirit. Abraham died, as did the spokesmen; and you say, 'If anyone keeps my word, they will never taste of death.' 
 Are you greater than our father Abraham, who died? The spokesmen died. Who do you make yourself out to be?" 
 Jesus answered, "If I give myself weight, my weight is nothing. It is my Father who gives me weight, of whom you say that he is our God. 
-You have not known him, but I know him. If I said, 'I don't know him,' I would be like you, a liar. But I know him and keep his word. 
+You haven't known him, but I know him. If I said, 'I don't know him,' I would be like you, a liar. But I know him and keep his word. 
 Your father Abraham celebrated to see my day. He saw it and was glad." 
-The Jewish leaders said to him, "You are not yet fifty years old! Have you seen Abraham?" 
+The Jewish leaders said to him, "You aren't yet fifty years old! Have you seen Abraham?" 
 Jesus said to them, "Truly I tell you, before Abraham came into existence, I am." 
 So they took up stones to throw at him, but Jesus hid himself and went out of the temple courts, passing right through the middle of them. 

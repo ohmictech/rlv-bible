@@ -9,13 +9,13 @@ Lord, to us belongs confusion of face, to our kings, to our princes, and to our 
 To the Lord our God belong mercies and forgiveness, for we have rebelled against him. 
 We haven't obeyed our God's voice, to walk in his laws, which he set before us by his servants the spokesmen. 
 Yes, all Israel have transgressed your law, turning aside, and not obeying your voice. "Therefore the curse and the oath written in the law of Moses the servant of God has been poured out on us, for we have wronged him. 
-He has confirmed his words, which he spoke against us and against our judges who judged us, by bringing on us a great bad; for under the whole sky, such has not been done as has been done to Jerusalem. 
-As it is written in the law of Moses, all this bad has come on us. Yet we have not entreated the favor of our God, that we should turn from our guilt and have discernment in your truth. 
-So God has watched over the bad, and brought it on us; for our God is righteous in all his works which he does, and we have not obeyed his voice. 
+He has confirmed his words, which he spoke against us and against our judges who judged us, by bringing on us a great bad; for under the whole sky, such hasn't been done as has been done to Jerusalem. 
+As it is written in the law of Moses, all this bad has come on us. Yet we haven't entreated the favor of our God, that we should turn from our guilt and have discernment in your truth. 
+So God has watched over the bad, and brought it on us; for our God is righteous in all his works which he does, and we haven't obeyed his voice. 
 "Now, Lord our God, who has brought your people out of the land of Egypt with a mighty hand, and have gotten yourself renown, as it is today, we have drifted. We have done guiltily. 
 Lord, according to all your righteousness, please let your anger and your wrath be turned away from your city Jerusalem, your holy mountain; because for our mistakes and for the guilt of our fathers, Jerusalem and your people have become a reproach to everyone who is around us. 
 "Now, our God, listen to the prayer of your servant and to his petitions, and cause your face to shine on your sanctuary that is desolate, for the Lord's sake. 
-My God, turn your ear and hear. Open your eyes and see our desolations, and the city which is called by your name; for we do not present our petitions before you for our righteousness, but for your great mercies' sake. 
+My God, turn your ear and hear. Open your eyes and see our desolations, and the city which is called by your name; for we don't present our petitions before you for our righteousness, but for your great mercies' sake. 
 Lord, hear. Lord, forgive. Lord, listen and do. Don't defer, for your own sake, my God, because your city and your people are called by your name." 
 While I was speaking, praying, and confessing my wrongdoing and the wrongdoing of my people Israel, and presenting my supplication before my God for the holy mountain of my God 
 yes, while I was speaking in prayer, the man Gabriel, whom I had seen in the vision at the beginning, being caused to fly swiftly, touched me about the time of the evening offering. 

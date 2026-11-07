@@ -27,4 +27,4 @@ You shall keep my statutes and my ordinances, and shall not do any of these abom
 (for the men of the land that were before you had done all these abominations, and the land became defiled), 
 that the land not vomit you out also, when you defile it, as it vomited out the nation that was before you. 
 "'For whoever shall do any of these abominations, even the souls that do them shall be cut off from among their people. 
-So you shall keep my requirements, that you do not practice any of these abominable customs which were practiced before you, and that you do not defile yourselves with them. I am your God.'" 
+So you shall keep my requirements, that you don't practice any of these abominable customs which were practiced before you, and that you don't defile yourselves with them. I am your God.'" 

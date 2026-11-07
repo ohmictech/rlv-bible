@@ -15,9 +15,9 @@ I myself am also persuaded about you, my brothers, that you yourselves are full 
 But I write the more boldly to you in part as reminding you, because of the gift that was given to me by God, 
 that I should be a servant of Christ Jesus to the nations, serving as a priest of the Good News of God, so that the offering up of the nations would be acceptable, set apart by the Holy Spirit. 
 So I have reason to take pride in Christ Jesus in the things that belong to God. 
-I will not dare to speak of any things except those which Christ worked through me for the obedience of the nations, by word and deed, 
+I won't dare to speak of any things except those which Christ worked through me for the obedience of the nations, by word and deed, 
 in the power of signs and wonders, in the power of God's Spirit; so that from Jerusalem and around as far as to Illyricum, I have fully announced the Good News of Christ; 
-yes, making it my aim to announce the Good News, not where Christ was already named, so that I would not build on another's foundation. 
+yes, making it my aim to announce the Good News, not where Christ was already named, so that I wouldn't build on another's foundation. 
 But, as it is written, "They will see, to whom no news of him came. They who haven't heard will understand." 
 So also I was hindered these many times from coming to you, 
 but now, no longer having any place in these regions, and having these many years a longing to come to you, 

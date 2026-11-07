@@ -11,9 +11,9 @@ All things that are mine are yours, and yours are mine, and I am honored in them
 I am no more in the world, but these are in the world, and I am coming to you. Holy Father, keep them through your name which you have given me, that they may be one, even as we are. 
 While I was with them in the world, I kept them in your name. I have kept those whom you have given me. None of them is lost except the one headed for ruin, so that the Scripture would be fulfilled. 
 But now I come to you, and I say these things in the world, that they may have my joy made complete in themselves. 
-I have given them your word. The world hated them because they are not of the world, even as I am not of the world. 
+I have given them your word. The world hated them because they aren't of the world, even as I'm not of the world. 
 I pray not that you would take them from the world, but that you would keep them from the Slanderer. 
-They are not of the world, even as I am not of the world. 
+They aren't of the world, even as I'm not of the world. 
 Set them apart in your truth. Your word is truth. 
 As you sent me into the world, even so I have sent them into the world. 
 Their sakes I set myself apart, that they themselves also may be set apart in truth. 

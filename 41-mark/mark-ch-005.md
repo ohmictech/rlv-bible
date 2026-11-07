@@ -36,7 +36,7 @@ While he was still speaking, people came from the gathering place leader's house
 But Jesus, overhearing what was said, immediately said to the gathering place leader, "Don't be afraid, just trust." 
 He allowed no one to follow him except Peter, James, and John the brother of James. 
 He came to the gathering place leader's house, and he saw an uproar, crying, and great wailing. 
-When he had gone in, he said to them, "Why are you making an uproar and crying? The child is not dead, but asleep." 
+When he had gone in, he said to them, "Why are you making an uproar and crying? The child isn't dead, but asleep." 
 They laughed at him. But he put them all out and took the child's father and mother, and those who were with him, and went in where the child was lying. 
 Taking the child by the hand, he said to her, "Talitha cumi!" which means, "Girl, I tell you, get up!" 
 Immediately the girl got up and walked, for she was twelve years old. They were overcome with amazement. 

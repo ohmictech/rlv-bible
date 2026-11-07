@@ -7,7 +7,7 @@ You shall not seek their peace nor their prosperity all your days for the eras.
 You shall not abhor an Edomite, for he is your brother. You shall not abhor an Egyptian, because you lived as a foreigner in his land. 
 The children of the third generation who are born to them may enter into God's assembly. 
 When you go out and camp against your enemies, then you shall keep yourselves from every bad thing. 
-If there is among you any man who is not clean by reason of that which happens to him by night, then shall he go outside of the camp. He shall not come within the camp; 
+If there is among you any man who isn't clean by reason of that which happens to him by night, then shall he go outside of the camp. He shall not come within the camp; 
 but it shall be, when evening comes, he shall bathe himself in water. When the sun is down, he shall come within the camp. 
 You shall have a place also outside of the camp where you go relieve yourself. 
 You shall have a trowel among your weapons. It shall be, when you relieve yourself, you shall dig with it, and shall turn back and cover your excrement; 

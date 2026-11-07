@@ -8,8 +8,8 @@ Then he said to another, 'How much do you owe?' He said, 'A hundred measures of 
 "His lord commended the dishonest manager because he had done wisely, for the children of this world are, in their own generation, more sensible than the children of the light. 
 I tell you, make for yourselves friends by means of dishonest wealth, so that when you fail, they may receive you into the tents of the era. 
 He who is faithful in a very little is faithful also in much. He who is dishonest in a very little is also dishonest in much. 
-If you have not been faithful in the dishonest wealth, who will commit to your trust the true riches? 
-If you have not been faithful in that which is another's, who will give you that which is your own? 
+If you haven't been faithful in the dishonest wealth, who will commit to your trust the true riches? 
+If you haven't been faithful in that which is another's, who will give you that which is your own? 
 No slave can serve two masters, for either he will hate the one and love the other; or else he will hold to one and despise the other. You aren't able to serve God and Mammon." 
 The strict religious ones, who were lovers of money, also heard all these things, and they scoffed at him. 
 He said to them, "You are the ones who make yourselves look right in people's sight, but God knows your hearts. That which is exalted among men is detestable in the sight of God. 
@@ -23,7 +23,7 @@ The beggar died, and he was carried away by the messengers to Abraham's side. Th
 In Hades, he lifted up his eyes, being in anguish, and saw Abraham far off, and Lazarus at his side. 
 He cried and said, 'Father Abraham, have mercy on me, and send Lazarus, that he may dip the tip of his finger in water and cool my tongue! I am in anguish in this flame.' 
 "But Abraham said, 'Son, remember that you, in your lifetime, received your good things, and Lazarus, in the same way, bad things. But here he is now comforted and you are in anguish. 
-Besides all this, between us and you there is a great chasm fixed, that those who want to pass from here to you are not able, and that no one may cross over from there to us.' 
+Besides all this, between us and you there is a great chasm fixed, that those who want to pass from here to you aren't able, and that no one may cross over from there to us.' 
 "He said, 'I ask you, father, that you would send him to my father's house, 
 for I have five brothers, that he may warn them, so they won't also come into this place of anguish.' 
 "But Abraham said to him, 'They have Moses and the spokesmen. Let them listen to them.' 

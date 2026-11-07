@@ -1,5 +1,5 @@
 ﻿There was a famine in the days of David for three years, year after year; and David sought the face of God. God said, "It is for Saul, and for his bloody house, because he put the Gibeonites to death." 
-The king called the Gibeonites and said to them (now the Gibeonites were not of the children of Israel, but of the remnant of the Amorites, and the children of Israel had sworn to them; and Saul sought to kill them in his passion for the children of Israel and Judah); 
+The king called the Gibeonites and said to them (now the Gibeonites weren't of the children of Israel, but of the remnant of the Amorites, and the children of Israel had sworn to them; and Saul sought to kill them in his passion for the children of Israel and Judah); 
 and David said to the Gibeonites, "What should I do for you? And with what should I make things right, that you may bless God's inheritance?" 
 The Gibeonites said to him, "It is no matter of silver or gold between us and Saul or his house; neither is it for us to put any man to death in Israel." He said, "I will do for you whatever you say." 
 They said to the king, "The man who consumed us and who plotted against us, that we should be destroyed from remaining in any of the borders of Israel, 

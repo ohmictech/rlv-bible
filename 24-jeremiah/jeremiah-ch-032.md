@@ -2,7 +2,7 @@
 Now at that time the king of Babylon's army was besieging Jerusalem. Jeremiah the spokesman was shut up in the court of the guard, which was in the king of Judah's house. 
 Zedekiah king of Judah had shut him up, saying, "Why do you prophesy, and say, 'God says, "Look, I will give this city into the hand of the king of Babylon, and he will take it; 
 and Zedekiah king of Judah won't escape out of the hand of the Chaldeans, but will surely be delivered into the hand of the king of Babylon, and will speak with him mouth to mouth, and his eyes will see his eyes; 
-and he will bring Zedekiah to Babylon, and he will be there until I visit him," says God, "though you fight with the Chaldeans, you will not prosper"'?" 
+and he will bring Zedekiah to Babylon, and he will be there until I visit him," says God, "though you fight with the Chaldeans, you won't prosper"'?" 
 Jeremiah said, "God's word came to me, saying, 
 'Look, Hanamel the son of Shallum your uncle will come to you, saying, "Buy my field that is in Anathoth; for the right of buying back is yours to buy it."'" 
 "So Hanamel my uncle's son came to me in the court of the guard according to God's word, and said to me, 'Please buy my field that is in Anathoth, which is in the land of Benjamin; for the right of inheritance is yours, and the buying back is yours. Buy it for yourself.' "Then I knew that this was God's word. 
@@ -30,14 +30,14 @@ The Chaldeans, who fight against this city, will come and set this city on fire,
 "The children of Israel and the children of Judah have done only that which was bad in my sight from their youth; for the children of Israel have only provoked me to anger with the work of their hands, says God. 
 This city has been to me a provocation of my anger and of my wrath from the day that they built it even to this day, so that I should remove it from before my face, 
 because of all the bad of the children of Israel and of the children of Judah, which they have done to provoke me to anger, they, their kings, their princes, their priests, their spokesmen, the men of Judah, and the inhabitants of Jerusalem. 
-They have turned their backs to me, and not their faces. Although I taught them, rising up early and teaching them, yet they have not listened to receive instruction. 
+They have turned their backs to me, and not their faces. Although I taught them, rising up early and teaching them, yet they haven't listened to receive instruction. 
 But they set their abominations in the house which is called by my name, to defile it. 
 They built the high places of Baal, which are in the valley of the son of Hinnom, to cause their sons and their daughters to pass through fire to Molech, which I didn't command them. It didn't even come into my mind, that they should do this abomination, to cause Judah to drift." 
 Now the God of Israel says concerning this city, about which you say, "It is given into the hand of the king of Babylon by the sword, by the famine, and by the pestilence:" 
 "Look, I will gather them out of all the countries where I have driven them in my anger, and in my wrath, and in great indignation; and I will bring them again to this place. I will cause them to dwell safely. 
 Then they will be my people, and I will be their God. 
 I will give them one heart and one way, that they may fear me for the eras, for their good and the good of their children after them. 
-I will make an perpetual covenant with them, that I will not turn away from following them, to do them good. I will put my fear in their hearts, that they may not depart from me. 
+I will make an perpetual covenant with them, that I won't turn away from following them, to do them good. I will put my fear in their hearts, that they may not depart from me. 
 Yes, I will rejoice over them to do them good, and I will plant them in this land assuredly with my whole heart and with my whole soul." 
 God says: "Just as I have brought all this great bad on this people, so I will bring on them all the good that I have promised them. 
 Fields will be bought in this land, about which you say, 'It is desolate, without man or animal. It is given into the hand of the Chaldeans.' 

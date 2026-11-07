@@ -1,13 +1,13 @@
-﻿Moses answered, "But, look, they will not believe me, nor listen to my voice; for they will say, 'God has not appeared to you.'" 
+﻿Moses answered, "But, look, they won't believe me, nor listen to my voice; for they will say, 'God hasn't appeared to you.'" 
 God said to him, "What is that in your hand?" He said, "A rod." 
 He said, "Throw it on the ground." He threw it on the ground, and it became a snake; and Moses ran away from it. 
 God said to Moses, "Stretch out your hand, and take it by the tail." He stretched out his hand, and took hold of it, and it became a rod in his hand. 
 "This is so that they may believe that the God of their fathers, the God of Abraham, the God of Isaac, and the God of Jacob has appeared to you." 
 God said furthermore to him, "Now put your hand inside your cloak." He put his hand inside his cloak, and when he took it out, look, his hand was leprous, as white as snow. 
 He said, "Put your hand inside your cloak again." He put his hand inside his cloak again, and when he took it out of his cloak, look, it had turned again as his other flesh. 
-"It will happen, if they will not believe you or listen to the voice of the first sign, that they will believe the voice of the latter sign. 
-It will happen, if they will not believe even these two signs or listen to your voice, that you shall take of the water of the river, and pour it on the dry land. The water which you take out of the river will become blood on the dry land." 
-Moses said to God, "O Lord, I am not eloquent, neither before now, nor since you have spoken to your servant; for I am slow of speech, and of a slow tongue." 
+"It will happen, if they won't believe you or listen to the voice of the first sign, that they will believe the voice of the latter sign. 
+It will happen, if they won't believe even these two signs or listen to your voice, that you shall take of the water of the river, and pour it on the dry land. The water which you take out of the river will become blood on the dry land." 
+Moses said to God, "O Lord, I'm not eloquent, neither before now, nor since you have spoken to your servant; for I am slow of speech, and of a slow tongue." 
 God said to him, "Who made man's mouth? Or who makes one mute, or deaf, or seeing, or blind? Isn't it I, God? 
 Now go, and I will be with your mouth, and teach you what you shall speak." 
 Moses said, "Oh, Lord, please send someone else." 
@@ -18,7 +18,7 @@ You shall take this rod in your hand, with which you shall do the signs."
 Moses went and returned to Jethro his father-in-law, and said to him, "Please let me go and return to my brothers who are in Egypt, and see whether they are still alive." Jethro said to Moses, "Go in peace." 
 God said to Moses in Midian, "Go, return into Egypt; for all the men who sought your life are dead." 
 Moses took his wife and his sons, and set them on a donkey, and he returned to the land of Egypt. Moses took God's rod in his hand. 
-God said to Moses, "When you go back into Egypt, see that you do before Pharaoh all the wonders which I have put in your hand, but I will harden his heart and he will not let the people go. 
+God said to Moses, "When you go back into Egypt, see that you do before Pharaoh all the wonders which I have put in your hand, but I will harden his heart and he won't let the people go. 
 You shall tell Pharaoh, 'God says, Israel is my son, my firstborn, 
 and I have said to you, "Let my son go, that he may serve me;" and you have refused to let him go. Look, I will kill your firstborn son.'" 
 On the way at a lodging place, God met Moses and wanted to kill him. 

@@ -9,6 +9,6 @@ The fields of Heshbon languish with the vine of Sibmah. The lords of the nations
 So I will weep with the weeping of Jazer for the vine of Sibmah. I will water you with my tears, Heshbon, and Elealeh: for on your summer fruits and on your harvest the battle shout has fallen. 
 Gladness is taken away, and joy out of the fruitful field; and in the vineyards there will be no singing, neither joyful noise. Nobody will tread out wine in the presses. I have made the shouting stop. 
 So my heart sounds like a harp for Moab, and my inward parts for Kir Heres. 
-It will happen that when Moab presents himself, when he wearies himself on the high place, and comes to his sanctuary to pray, that he will not prevail. 
+It will happen that when Moab presents himself, when he wearies himself on the high place, and comes to his sanctuary to pray, that he won't prevail. 
 This is the word that God spoke concerning Moab in time past. 
 But now God has spoken, saying, "Within three years, as a worker bound by contract would count them, the glory of Moab shall be brought into contempt, with all his great multitude; and the remnant will be very small and feeble." 

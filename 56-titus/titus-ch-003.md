@@ -11,5 +11,5 @@ Warn a divider once, and warn him a second time; after that, have nothing to do 
 You know that a person like that has turned off the road and keeps on drifting, and he has passed sentence on himself. 
 When I send Artemas or Tychicus to you, do your best to come to me at Nicopolis, because I have decided to spend the winter there. 
 Do everything you can to help Zenas the expert in the law and Apollos on their way, and see that they lack nothing. 
-Our people must learn to do good deeds and meet whatever needs come up, so that they are not fruitless. 
+Our people must learn to do good deeds and meet whatever needs come up, so that they aren't fruitless. 
 Everyone with me sends you greetings. Greet those who love us in the trust. Favor be with you all. Amen. 

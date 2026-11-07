@@ -13,6 +13,6 @@ Yet the children of Manasseh couldn't drive out the inhabitants of those cities;
 When the children of Israel had grown strong, they put the Canaanites to forced labor, and didn't utterly drive them out. 
 The children of Joseph spoke to Joshua, saying, "Why have you given me just one lot and one part for an inheritance, since we are a numerous people, because God has blessed us so far?" 
 Joshua said to them, "If you are a numerous people, go up to the forest, and clear land for yourself there in the land of the Perizzites and of the Rephaim, since the hill country of Ephraim is too narrow for you." 
-The children of Joseph said, "The hill country is not enough for us. All the Canaanites who dwell in the land of the valley have chariots of iron, both those who are in Beth Shean and its towns, and those who are in the valley of Jezreel." 
+The children of Joseph said, "The hill country isn't enough for us. All the Canaanites who dwell in the land of the valley have chariots of iron, both those who are in Beth Shean and its towns, and those who are in the valley of Jezreel." 
 Joshua spoke to the house of Joseph, that is, to Ephraim and to Manasseh, saying, "You are a numerous people, and have great power. You shall not have one lot only; 
 but the hill country shall be yours. Although it is a forest, you shall cut it down, and it's farthest extent shall be yours; for you shall drive out the Canaanites, though they have chariots of iron, and though they are strong." 

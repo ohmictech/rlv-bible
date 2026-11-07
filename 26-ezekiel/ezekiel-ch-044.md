@@ -5,7 +5,7 @@ Then he brought me by the way of the north gate before the house; and I looked, 
 God said to me, "Son of man, mark well, and see with your eyes, and hear with your ears all that I tell you concerning all the ordinances of God's house and all its laws; and mark well the entrance of the house, with every exit of the sanctuary. 
 You shall tell the rebellious, even the house of Israel, 'The God says: "You house of Israel, let that be enough of all your abominations, 
 in that you have brought in foreigners, uncircumcised in heart and uncircumcised in flesh, to be in my sanctuary, to profane it, even my house, when you offer my bread, the fat and the blood; and they have broken my covenant, to add to all your abominations. 
-You have not performed the duty of my holy things; but you have set performers of my duty in my sanctuary for yourselves." 
+You haven't performed the duty of my holy things; but you have set performers of my duty in my sanctuary for yourselves." 
 The God says, "No foreigner, uncircumcised in heart and uncircumcised in flesh, shall enter into my sanctuary, of any foreigners who are among the children of Israel. 
 "'"But the Levites who went far from me when Israel went astray, who went astray from me after their idols, they will bear their guilt. 
 Yet they shall be ministers in my sanctuary, having oversight at the gates of the house, and ministering in the house. They shall kill the burnt offering and the sacrifice for the people, and they shall stand before them to minister to them. 

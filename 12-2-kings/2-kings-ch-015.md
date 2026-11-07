@@ -1,7 +1,7 @@
 ﻿In the twenty-seventh year of Jeroboam king of Israel, Azariah son of Amaziah king of Judah began to reign. 
 He was sixteen years old when he began to reign, and he reigned fifty-two years in Jerusalem. His mother's name was Jecoliah of Jerusalem. 
 He did that which was right in God's eyes, according to all that his father Amaziah had done. 
-However, the high places were not taken away. The people still sacrificed and burned incense in the high places. 
+However, the high places weren't taken away. The people still sacrificed and burned incense in the high places. 
 God struck the king, so that he was a leper to the day of his death, and lived in a separate house. Jotham, the king's son, was over the household, judging the people of the land. 
 Now the rest of the acts of Azariah, and all that he did, aren't they written in the book of the chronicles of the kings of Judah? 
 Azariah slept with his fathers; and they buried him with his fathers in David's city; and Jotham his son reigned in his place. 
@@ -32,7 +32,7 @@ Now the rest of the acts of Pekah, and all that he did, look, they are written i
 In the second year of Pekah the son of Remaliah king of Israel, Jotham the son of Uzziah king of Judah began to reign. 
 He was twenty-five years old when he began to reign, and he reigned sixteen years in Jerusalem. His mother's name was Jerusha the daughter of Zadok. 
 He did that which was right in God's eyes. He did according to all that his father Uzziah had done. 
-However the high places were not taken away. The people still sacrificed and burned incense in the high places. He built the upper gate of God's house. 
+However the high places weren't taken away. The people still sacrificed and burned incense in the high places. He built the upper gate of God's house. 
 Now the rest of the acts of Jotham, and all that he did, aren't they written in the book of the chronicles of the kings of Judah? 
 In those days, God began to send Rezin the king of Syria and Pekah the son of Remaliah against Judah. 
 Jotham slept with his fathers, and was buried with his fathers in his father David's city; and Ahaz his son reigned in his place. 

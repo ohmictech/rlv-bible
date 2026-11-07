@@ -39,4 +39,4 @@ As they went on their way, he entered into a certain village, and a certain woma
 She had a sister called Mary, who also sat at Jesus' feet and heard his word. 
 But Martha was distracted with all the serving, and she came up to him and said, "Lord, don't you care that my sister left me to serve alone? Ask her to help me." 
 Jesus answered her, "Martha, Martha, you are anxious and troubled about many things, 
-but one thing is needed. Mary has chosen the good part, which will not be taken away from her." 
+but one thing is needed. Mary has chosen the good part, which won't be taken away from her." 

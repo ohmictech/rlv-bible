@@ -1,7 +1,7 @@
 ﻿When we had escaped, then they learned that the island was called Malta. 
 The islanders showed us uncommon kindness; for they kindled a fire and received us all, because of the present rain and because of the cold. 
 But when Paul had gathered a bundle of sticks and laid them on the fire, a viper came out because of the heat and fastened on his hand. 
-When the natives saw the creature hanging from his hand, they said to one another, "No doubt this man is a murderer, whom, though he has escaped from the sea, yet Justice has not allowed to live." 
+When the natives saw the creature hanging from his hand, they said to one another, "No doubt this man is a murderer, whom, though he has escaped from the sea, yet Justice hasn't allowed to live." 
 However he shook off the creature into the fire, and wasn't harmed. 
 But they expected that he would have swollen or fallen down dead suddenly, but when they watched for a long time and saw nothing bad happen to him, they changed their minds and said that he was a god. 
 Now in the neighborhood of that place were lands belonging to the chief man of the island, named Publius, who received us and courteously entertained us for three days. 
@@ -21,7 +21,7 @@ That is why I asked to see you and to speak with you. Because of the hope of Isr
 They said to him, "We neither received letters from Judea concerning you, nor did any of the brothers come here and report or say anything bad about you. 
 But we desire to hear from you what you think. For, as concerning this faction, it is known to us that everywhere it is spoken against." 
 When they had appointed him a day, many people came to him at his lodging. He explained to them, witnessing about God's reign, and persuading them concerning Jesus, both from the law of Moses and from the spokesmen, from morning until evening. 
-Some trusted the things which were spoken, and some did not trust. 
+Some trusted the things which were spoken, and some didn't trust. 
 When they didn't agree among themselves, they departed after Paul had spoken one message: "The Holy Spirit spoke rightly through Isaiah the spokesman to our fathers, 
 saying, 'Go to this people and say, in hearing, you will hear, but will in no way understand. In seeing, you will see, but will in no way perceive. 
 This people's heart has grown callous. Their ears are dull of hearing. Their eyes they have closed. So that they can't see with their eyes, hear with their ears, understand with their heart, and turn again, and I would heal them.' 

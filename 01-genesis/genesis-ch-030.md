@@ -30,7 +30,7 @@ Jacob said to him, "You know how I have served you, and how your livestock have 
 It was little which you had before I came, and it has increased to a multitude. God has blessed you wherever I turned. Now when will I provide for my own house also?" 
 Laban said, "What shall I give you?" Jacob said, "You shall not give me anything. If you will do this thing for me, I will again feed your flock and keep it. 
 I will pass through all your flock today, removing from there every speckled and spotted one, and every black one among the sheep, and the spotted and speckled among the goats. This will be my hire. 
-So my righteousness will answer for me hereafter, when you come concerning my hire that is before you. Every one that is not speckled and spotted among the goats, and black among the sheep, that might be with me, will be considered stolen." 
+So my righteousness will answer for me hereafter, when you come concerning my hire that is before you. Every one that isn't speckled and spotted among the goats, and black among the sheep, that might be with me, will be considered stolen." 
 Laban said, "Look, let it be according to your word." 
 That day, he removed the male goats that were streaked and spotted, and all the female goats that were speckled and spotted, every one that had white in it, and all the black ones among the sheep, and gave them into the hand of his sons. 
 He set three days' journey between himself and Jacob, and Jacob fed the rest of Laban's flocks. 

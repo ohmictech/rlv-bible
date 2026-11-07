@@ -30,9 +30,9 @@ I will also make his offspring endure for the eras, and his throne as the days o
 If his children forsake my law, and don't walk in my ordinances; 
 if they break my statutes, and don't keep my commandments; 
 then I will punish their wrongdoing with the rod, and their guilt with stripes. 
-But I will not completely take my loving kindness from him, nor allow my faithfulness to fail. 
-I will not break my covenant, nor alter what my lips have uttered. 
-Once I have sworn by my holiness, I will not lie to David. 
+But I won't completely take my loving kindness from him, nor allow my faithfulness to fail. 
+I won't break my covenant, nor alter what my lips have uttered. 
+Once I have sworn by my holiness, I won't lie to David. 
 His offspring will endure for the eras, his throne like the sun before me. 
 It will be established for the eras like the moon, the faithful witness in the sky." Selah. 
 But you have rejected and spurned. You have been angry with your anointed. 

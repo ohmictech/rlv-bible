@@ -12,17 +12,17 @@ So Ebedmelech took the men with him, and went into the house of the king under t
 Ebedmelech the Ethiopian said to Jeremiah, "Now put these rags and worn-out garments under your armpits under the cords." Jeremiah did so. 
 So they lifted Jeremiah up with the cords, and took him up out of the dungeon; and Jeremiah remained in the court of the guard. 
 Then Zedekiah the king sent and took Jeremiah the spokesman to himself into the third entry that is in God's house. Then the king said to Jeremiah, "I will ask you something. Hide nothing from me." 
-Then Jeremiah said to Zedekiah, "If I declare it to you, will you not surely put me to death? If I give you counsel, you will not listen to me." 
-So Zedekiah the king swore secretly to Jeremiah, saying, "As God lives, who made our souls, I will not put you to death, neither will I give you into the hand of these men who seek your life." 
-Then Jeremiah said to Zedekiah, "The God of Armies, the God of Israel says: 'If you will go out to the king of Babylon's princes, then your soul will live, and this city will not be burned with fire. You will live, along with your house. 
-But if you will not go out to the king of Babylon's princes, then this city will be given into the hand of the Chaldeans, and they will burn it with fire, and you won't escape out of their hand.'" 
+Then Jeremiah said to Zedekiah, "If I declare it to you, will you not surely put me to death? If I give you counsel, you won't listen to me." 
+So Zedekiah the king swore secretly to Jeremiah, saying, "As God lives, who made our souls, I won't put you to death, neither will I give you into the hand of these men who seek your life." 
+Then Jeremiah said to Zedekiah, "The God of Armies, the God of Israel says: 'If you will go out to the king of Babylon's princes, then your soul will live, and this city won't be burned with fire. You will live, along with your house. 
+But if you won't go out to the king of Babylon's princes, then this city will be given into the hand of the Chaldeans, and they will burn it with fire, and you won't escape out of their hand.'" 
 Zedekiah the king said to Jeremiah, "I am afraid of the Jews who have defected to the Chaldeans, lest they deliver me into their hand, and they mock me." 
 But Jeremiah said, "They won't deliver you. Obey, I beg you, God's voice, in that which I speak to you; so it will be well with you, and your soul will live. 
 But if you refuse to go out, this is the word that God has shown me: 
 'Look, all the women who are left in the king of Judah's house will be brought out to the king of Babylon's princes, and those women will say, "Your familiar friends have turned on you, and have prevailed over you. Your feet are sunk in the mire, they have turned away from you." 
 They will bring out all your wives and your children to the Chaldeans. You won't escape out of their hand, but will be taken by the hand of the king of Babylon. You will cause this city to be burned with fire.'" 
 Then Zedekiah said to Jeremiah, "Let no man know of these words, and you won't die. 
-But if the princes hear that I have talked with you, and they come to you, and tell you, 'Declare to us now what you have said to the king; don't hide it from us, and we will not put you to death; also tell us what the king said to you;' 
-then you shall tell them, 'I presented my supplication before the king, that he would not cause me to return to Jonathan's house, to die there.'" 
-Then all the princes came to Jeremiah, and asked him; and he told them according to all these words that the king had commanded. So they stopped speaking with him, for the matter was not perceived. 
+But if the princes hear that I have talked with you, and they come to you, and tell you, 'Declare to us now what you have said to the king; don't hide it from us, and we won't put you to death; also tell us what the king said to you;' 
+then you shall tell them, 'I presented my supplication before the king, that he wouldn't cause me to return to Jonathan's house, to die there.'" 
+Then all the princes came to Jeremiah, and asked him; and he told them according to all these words that the king had commanded. So they stopped speaking with him, for the matter wasn't perceived. 
 So Jeremiah stayed in the court of the guard until the day that Jerusalem was taken. 

@@ -21,5 +21,5 @@ Araunah looked out, and saw the king and his servants coming on toward him. Then
 Araunah said, "Why has my lord the king come to his servant?" David said, "To buy your threshing floor, to build an altar to God, that the plague may be stopped from afflicting the people." 
 Araunah said to David, "Let my lord the king take and offer up what seems good to him. Look, the cattle for the burnt offering, and the threshing sledges and the yokes of the oxen for the wood. 
 All this, O king, does Araunah give to the king." Araunah said to the king, "May your God accept you." 
-The king said to Araunah, "No, but I will most certainly buy it from you for a price. I will not offer burnt offerings to my God which cost me nothing." So David bought the threshing floor and the oxen for fifty shekels of silver. 
+The king said to Araunah, "No, but I will most certainly buy it from you for a price. I won't offer burnt offerings to my God which cost me nothing." So David bought the threshing floor and the oxen for fifty shekels of silver. 
 David built an altar to God there, and offered burnt offerings and offerings for wholeness. So God was entreated for the land, and the plague was removed from Israel. 

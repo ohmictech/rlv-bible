@@ -7,7 +7,7 @@ The foot shall tread it down, even the feet of the poor and the steps of the nee
 The way of the just is uprightness. You who are upright make the path of the righteous level. 
 Yes, in the way of your judgments, God, we have waited for you. Your name and your renown are the desire of our soul. 
 With my soul I have desired you in the night. Yes, with my spirit within me I will seek you earnestly; for when your judgments are on the earth, the inhabitants of the world learn righteousness. 
-Let favor be shown to the guilty, yet he will not learn righteousness. In the land of uprightness he will deal wrongfully, and will not see God's majesty. 
+Let favor be shown to the guilty, yet he won't learn righteousness. In the land of uprightness he will deal wrongfully, and won't see God's majesty. 
 God, your hand is lifted up, yet they don't see; but they will see your passion for the people and be disappointed. Yes, fire will consume your adversaries. 
 God, you will ordain peace for us, for you have also done all our work for us. 
 God our God, other lords besides you have had dominion over us, but we will only acknowledge your name. 
@@ -15,7 +15,7 @@ The dead shall not live. The departed spirits shall not rise. So you have visite
 You have increased the nation, O God. You have increased the nation! You are glorified! You have enlarged all the borders of the land. 
 God, in trouble they have visited you. They poured out a prayer when your chastening was on them. 
 Just as a woman with child, who draws near the time of her delivery, is in pain and cries out in her pangs, so we have been before you, God. 
-We have been with child. We have been in pain. We gave birth, it seems, only to wind. We have not worked any deliverance on the earth; neither have the inhabitants of the world fallen. 
+We have been with child. We have been in pain. We gave birth, it seems, only to wind. We haven't worked any deliverance on the earth; neither have the inhabitants of the world fallen. 
 Your dead shall live. Their dead bodies shall arise. Awake and driftsg, you who dwell in the dust; for your dew is like the dew of herbs, and the earth will cast out the departed spirits. 
 Come, my people, enter into your rooms, and shut your doors behind you. Hide yourself for a little moment, until the indignation is past. 
 For, look, God comes out of his place to punish the inhabitants of the earth for their guilt. The earth also will disclose her blood, and will no longer cover her slain. 

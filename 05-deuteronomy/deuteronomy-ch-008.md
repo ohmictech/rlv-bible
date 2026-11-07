@@ -1,6 +1,6 @@
 ﻿You shall observe to do all the commandments which I command you today, that you may live, and multiply, and go in and possess the land which God swore to your fathers. 
 You shall remember all the way which your God has led you these forty years in the wilderness, that he might humble you, to test you, to know what was in your heart, whether you would keep his commandments or not. 
-He humbled you, allowed you to be hungry, and fed you with manna, which you didn't know, neither did your fathers know, that he might teach you that man does not live by bread only, but man lives by every word that proceeds out of God's mouth. 
+He humbled you, allowed you to be hungry, and fed you with manna, which you didn't know, neither did your fathers know, that he might teach you that man doesn't live by bread only, but man lives by every word that proceeds out of God's mouth. 
 Your clothing didn't grow old on you, neither did your foot swell, these forty years. 
 You shall consider in your heart that as a man disciplines his son, so your God disciplines you. 
 You shall keep the commandments of your God, to walk in his ways, and to fear him. 

@@ -1,8 +1,8 @@
 ﻿Jacob heard Laban's sons' words, saying, "Jacob has taken away all that was our father's. He has obtained all this wealth from that which was our father's." 
-Jacob saw the expression on Laban's face, and, look, it was not toward him as before. 
+Jacob saw the expression on Laban's face, and, look, it wasn't toward him as before. 
 God said to Jacob, "Return to the land of your fathers, and to your relatives, and I will be with you." 
 Jacob sent and called Rachel and Leah to the field to his flock, 
-and said to them, "I see the expression on your father's face, that it is not toward me as before; but the God of my father has been with me. 
+and said to them, "I see the expression on your father's face, that it isn't toward me as before; but the God of my father has been with me. 
 You know that I have served your father with all of my strength. 
 Your father has deceived me, and changed my wages ten times, but God didn't allow him to hurt me. 
 If he said, 'The speckled will be your wages,' then all the flock bore speckled. If he said, 'The streaked will be your wages,' then all the flock bore streaked. 
@@ -35,7 +35,7 @@ Now Rachel had taken the teraphim, put them in the camel's saddle, and sat on th
 She said to her father, "Don't let my lord be angry that I can't rise up before you; for I'm having my period." He searched, but didn't find the teraphim. 
 Jacob was angry, and argued with Laban. Jacob answered Laban, "What is my trespass? What is my wrongdoing, that you have hotly pursued me? 
 Now that you have felt around in all my stuff, what have you found of all your household stuff? Set it here before my relatives and your relatives, that they may judge between us two. 
-"These twenty years I have been with you. Your ewes and your female goats have not cast their young, and I haven't eaten the rams of your flocks. 
+"These twenty years I have been with you. Your ewes and your female goats haven't cast their young, and I haven't eaten the rams of your flocks. 
 That which was torn of animals, I didn't bring to you. I bore its loss. Of my hand you required it, whether stolen by day or stolen by night. 
 This was my situation: in the day the drought consumed me, and the frost by night; and my sleep fled from my eyes. 
 These twenty years I have been in your house. I served you fourteen years for your two daughters, and six years for your flock, and you have changed my wages ten times. 
@@ -49,7 +49,7 @@ Laban said, "This heap is witness between me and you today." Therefore it was na
 and Mizpah, for he said, "God watch between me and you, when we are absent one from another. 
 If you afflict my daughters, or if you take wives in addition to my daughters, no man is with us; look, God is witness between me and you." 
 Laban said to Jacob, "See this heap, and see the pillar, which I have set between me and you. 
-May this heap be a witness, and the pillar be a witness, that I will not pass over this heap to you, and that you will not pass over this heap and this pillar to me, for harm. 
+May this heap be a witness, and the pillar be a witness, that I won't pass over this heap to you, and that you won't pass over this heap and this pillar to me, for harm. 
 The God of Abraham, and the God of Nahor, the God of their father, judge between us." Then Jacob swore by the fear of his father, Isaac. 
 Jacob offered a sacrifice in the mountain, and called his relatives to eat bread. They ate bread, and stayed all night in the mountain. 
 Early in the morning, Laban rose up, and kissed his sons and his daughters, and blessed them. Laban departed and returned to his place. 

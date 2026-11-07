@@ -9,7 +9,7 @@ Servants rule over us. There is no one to deliver us out of their hand.
 We get our bread at the peril of our lives, because of the sword in the wilderness. 
 Our skin is black like an oven, because of the burning heat of famine. 
 They ravished the women in Zion, the virgins in the cities of Judah. 
-Princes were hanged up by their hands. The faces of elders were not honored. 
+Princes were hanged up by their hands. The faces of elders weren't honored. 
 The young men carry millstones. The children stumbled under loads of wood. 
 The elders have ceased from the gate, and the young men from their music. 
 The joy of our heart has ceased. Our dance is turned into mourning. 

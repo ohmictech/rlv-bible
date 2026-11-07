@@ -12,4 +12,4 @@ Depart! Depart! Go out from there! Touch no unclean thing! Go out from among her
 You shall not go out in haste, neither shall you go by flight; for God will go before you, and the God of Israel will be your rear guard. 
 Look, my servant will deal wisely. He will be exalted and lifted up, and will be very high. 
 Just as many were astonished at you, his appearance was marred more than any man, and his form more than the sons of men 
-so he will cleanse many nations. Kings will shut their mouths at him; for they will see that which had not been told them, and they will understand that which they had not heard. 
+so he will cleanse many nations. Kings will shut their mouths at him; for they will see that which hadn't been told them, and they will understand that which they hadn't heard. 

@@ -2,12 +2,12 @@
 He who walks in his uprightness fears God, but he who is perverse in his ways despises him. 
 The fool's talk brings a rod to his back, but the lips of the wise protect them. 
 Where no oxen are, the crib is clean, but much increase is by the strength of the ox. 
-A truthful witness will not lie, but a false witness pours out lies. 
+A truthful witness won't lie, but a false witness pours out lies. 
 A scoffer seeks wisdom, and doesn't find it, but knowledge comes easily to a discerning person. 
 Stay away from a foolish man, for you won't find knowledge on his lips. 
 The wisdom of the prudent is to think about his way, but the folly of fools is deceit. 
 Fools mock at making things right for wrongdoing, but among the upright there is good will. 
-The heart knows its own bitterness and joy; he will not share these with a stranger. 
+The heart knows its own bitterness and joy; he won't share these with a stranger. 
 The house of the guilty will be overthrown, but the tent of the upright will flourish. 
 There is a way which seems right to a man, but in the end it leads to death. 
 Even in laughter the heart may be sorrowful, and mirth may end in heaviness. 

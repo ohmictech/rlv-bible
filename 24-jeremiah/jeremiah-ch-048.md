@@ -8,7 +8,7 @@ For, because you have trusted in your works and in your treasures, you also will
 The destroyer will come on every city, and no city will escape; the valley also will perish, and the plain will be destroyed, as God has spoken. 
 Give wings to Moab, that she may fly and get herself away: and her cities will become a desolation, without anyone to dwell in them. 
 "Cursed is he who does the work of God negligently; and cursed is he who keeps back his sword from blood. 
-"Moab has been at ease from his youth, and he has settled on his dregs, and has not been emptied from vessel to vessel, neither has he gone into captivity; his taste remains in him, and his scent is not changed. 
+"Moab has been at ease from his youth, and he has settled on his dregs, and hasn't been emptied from vessel to vessel, neither has he gone into captivity; his taste remains in him, and his scent isn't changed. 
 Look, the days come," says God, "that I will send to him those who pour off, and they will pour him off; and they will empty his vessels, and break their containers in pieces. 
 Moab will be ashamed of Chemosh, as the house of Israel was ashamed of Bethel, their confidence. 
 "How do you say, 'We are mighty men, and valiant men for the war'? 

@@ -20,4 +20,4 @@ though these three men were in it, as I live," says God, "they would deliver nei
 though Noah, Daniel, and Job, were in it, as I live," says God, "they would deliver neither son nor daughter; they would deliver only their own souls by their righteousness." 
 God says: "How much more when I send my four severe judgments on Jerusalem, the sword, the famine, the bad animals, and the pestilence, to cut off from it man and animal! 
 Yet, look, there will be left a remnant in it that will be carried out, both sons and daughters. Look, they will come out to you, and you will see their way and their doings. Then you will be comforted concerning the bad that I have brought on Jerusalem, even concerning all that I have brought on it. 
-They will comfort you, when you see their way and their doings; then you will know that I have not done all that I have done in it without cause," says God. 
+They will comfort you, when you see their way and their doings; then you will know that I haven't done all that I have done in it without cause," says God. 

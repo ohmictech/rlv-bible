@@ -5,7 +5,7 @@ They bowed down to the dragon because he had given his authority to the beast, a
 It was given a mouth to speak great things and slander, and it was given authority to act for forty-two months. 
 It opened its mouth to slander God, to slander his name, his dwelling, and those who live in the sky. 
 It was allowed to make war on the set-apart ones and to defeat them, and it was given authority over every tribe, people, language, and nation. 
-Everyone who lives on the land will bow down to it, everyone whose name has not been written, from the founding of the world, in the book of real life that belongs to the Lamb who was killed. 
+Everyone who lives on the land will bow down to it, everyone whose name hasn't been written, from the founding of the world, in the book of real life that belongs to the Lamb who was killed. 
 If anyone has an ear, let him hear. 
 If anyone is to be taken captive, into captivity they go. If anyone is to be killed with the sword, with the sword they will be killed. This is where the set-apart ones need staying power and trust. 
 Then I saw another beast coming up out of the land. It had two horns like a lamb, but it spoke like a dragon. 

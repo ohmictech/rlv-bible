@@ -12,7 +12,7 @@ Hear God's word, you rulers of Sodom! Listen to the law of our God, you people o
 When you come to appear before me, who has required this at your hand, to trample my courts? 
 Bring no more vain offerings. Incense is an abomination to me. New moons, Sabbaths, and convocations, I can't stand bad assemblies. 
 My soul hates your New Moons and your appointed feasts. They are a burden to me. I am weary of bearing them. 
-When you spread out your hands, I will hide my eyes from you. Yes, when you make many prayers, I will not hear. Your hands are full of blood. 
+When you spread out your hands, I will hide my eyes from you. Yes, when you make many prayers, I won't hear. Your hands are full of blood. 
 Wash yourselves. Make yourself clean. Put away the bad of your doings from before my eyes. Cease to do bad things. 
 Learn to do well. Seek justice. Relieve the oppressed. Defend the fatherless. Plead for the widow." 
 "Come now, and let's reason together," says God: "Though your mistakes are as scarlet, they shall be as white as snow. Though they are red like crimson, they shall be as wool. 

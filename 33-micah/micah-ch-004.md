@@ -1,6 +1,6 @@
 ﻿But in the latter days, it will happen that the mountain of God's temple will be established on the top of the mountains, and it will be exalted above the hills; and peoples will stream to it. 
 Many nations will go and say, "Come! Let's go up to the mountain of God, and to the house of the God of Jacob; and he will teach us of his ways, and we will walk in his paths." For the law will go out of Zion, and God's word from Jerusalem; 
-and he will judge between many peoples, and will decide concerning strong nations afar off. They will beat their swords into plowshares, and their spears into pruning hooks. Nation will not lift up sword against nation, neither will they learn war any more. 
+and he will judge between many peoples, and will decide concerning strong nations afar off. They will beat their swords into plowshares, and their spears into pruning hooks. Nation won't lift up sword against nation, neither will they learn war any more. 
 But every man will sit under his vine and under his fig tree. No one will make them afraid, for the mouth of the God of Armies has spoken. 
 Indeed all the nations may walk in the name of their gods, but we will walk in the name of our God for all the eras. 
 "In that day," says God, "I will assemble that which is lame, and I will gather that which is driven away, and that which I have afflicted; 

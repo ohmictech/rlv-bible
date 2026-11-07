@@ -1,14 +1,14 @@
 ﻿In the second year of Joash, son of Joahaz, king of Israel, Amaziah the son of Joash king of Judah began to reign. 
 He was twenty-five years old when he began to reign; and he reigned twenty-nine years in Jerusalem. His mother's name was Jehoaddin of Jerusalem. 
 He did that which was right in God's eyes, yet not like David his father. He did according to all that Joash his father had done. 
-However the high places were not taken away. The people still sacrificed and burned incense in the high places. 
+However the high places weren't taken away. The people still sacrificed and burned incense in the high places. 
 As soon as the kingdom was established in his hand, he killed his servants who had slain the king his father, 
 but the children of the murderers he didn't put to death, according to that which is written in the book of the law of Moses, as God commanded, saying, "The fathers shall not be put to death for the children, nor the children be put to death for the fathers; but every man shall die for his own wrongdoing." 
 He killed ten thousand Edomites in the Valley of Salt, and took Sela by war, and called its name Joktheel, to this day. 
 Then Amaziah sent messengers to Jehoash, the son of Jehoahaz son of Jehu, king of Israel, saying, "Come, let's look one another in the face." 
 Jehoash the king of Israel sent to Amaziah king of Judah, saying, "The thistle that was in Lebanon sent to the cedar that was in Lebanon, saying, 'Give your daughter to my son as wife.' Then a wild animal that was in Lebanon passed by, and trampled down the thistle. 
 You have indeed struck Edom, and your heart has lifted you up. Enjoy the glory of it, and stay at home; for why should you meddle to your harm, that you fall, even you, and Judah with you?" 
-But Amaziah would not listen. So Jehoash king of Israel went up; and he and Amaziah king of Judah looked one another in the face at Beth Shemesh, which belongs to Judah. 
+But Amaziah wouldn't listen. So Jehoash king of Israel went up; and he and Amaziah king of Judah looked one another in the face at Beth Shemesh, which belongs to Judah. 
 Judah was defeated by Israel; and each man fled to his tent. 
 Jehoash king of Israel took Amaziah king of Judah, the son of Jehoash the son of Ahaziah, at Beth Shemesh and came to Jerusalem, then broke down the wall of Jerusalem from the gate of Ephraim to the corner gate, four hundred cubits. 
 He took all the gold and silver and all the vessels that were found in God's house and in the treasures of the king's house, the hostages also, and returned to Samaria. 

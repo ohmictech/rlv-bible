@@ -2,20 +2,20 @@
 put a knife to your throat if you are a man given to appetite. 
 Don't be desirous of his dainties, since they are deceitful food. 
 Don't weary yourself to be rich. In your wisdom, show restraint. 
-Why do you set your eyes on that which is not? It certainly sprouts wings like an eagle and flies in the sky. 
+Why do you set your eyes on that which isn't? It certainly sprouts wings like an eagle and flies in the sky. 
 Don't eat the food of him who has a stingy eye, and don't crave his delicacies, 
-for as he thinks about the cost, so he is. "Eat and drink!" he says to you, but his heart is not with you. 
+for as he thinks about the cost, so he is. "Eat and drink!" he says to you, but his heart isn't with you. 
 You will vomit up the morsel which you have eaten and waste your pleasant words. 
 Don't speak in the ears of a fool, for he will despise the wisdom of your words. 
 Don't move the ancient boundary stone. Don't encroach on the fields of the fatherless, 
 for their Defender is strong. He will plead their case against you. 
 Apply your heart to instruction, and your ears to the words of knowledge. 
-Don't withhold correction from a child. If you punish him with the rod, he will not die. 
+Don't withhold correction from a child. If you punish him with the rod, he won't die. 
 Punish him with the rod, and save his soul from Hades. 
 My son, if your heart is wise, then my heart will be glad, even mine. 
 Yes, my heart will rejoice when your lips speak what is right. 
 Don't let your heart envy those who have drifted, but rather fear God all day long. 
-Indeed surely there is a future hope, and your hope will not be cut off. 
+Indeed surely there is a future hope, and your hope won't be cut off. 
 Listen, my son, and be wise, and keep your heart on the right path! 
 Don't be among ones drinking too much wine, or those who gorge themselves on meat; 
 for the drunkard and the glutton shall become poor; and drowsiness clothes them in rags. 
@@ -32,4 +32,4 @@ Don't look at the wine when it is red, when it sparkles in the cup, when it goes
 In the end, it bites like a snake, and poisons like a viper. 
 Your eyes will see strange things, and your mind will imagine confusing things. 
 Yes, you will be as he who lies down in the middle of the sea, or as he who lies on top of the rigging: 
-"They hit me, and I was not hurt! They beat me, and I don't feel it! When will I wake up? I can do it again. I will look for more." 
+"They hit me, and I wasn't hurt! They beat me, and I don't feel it! When will I wake up? I can do it again. I will look for more." 

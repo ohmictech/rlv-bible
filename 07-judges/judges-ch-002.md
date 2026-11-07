@@ -1,6 +1,6 @@
 ﻿God's messenger came up from Gilgal to Bochim. He said, "I brought you out of Egypt, and have brought you to the land which I swore to give your fathers. I said, 'I will never break my covenant with you. 
-You shall make no covenant with the inhabitants of this land. You shall break down their altars.' But you have not listened to my voice. Why have you done this? 
-So I also said, 'I will not drive them out from before you; but they shall be in your sides, and their gods will be a snare to you.'" 
+You shall make no covenant with the inhabitants of this land. You shall break down their altars.' But you haven't listened to my voice. Why have you done this? 
+So I also said, 'I won't drive them out from before you; but they shall be in your sides, and their gods will be a snare to you.'" 
 When God's messenger spoke these words to all the children of Israel, the people lifted up their voice and wept. 
 They called the name of that place Bochim, and they sacrificed there to God. 
 Now when Joshua had sent the people away, the children of Israel each went to his inheritance to possess the land. 
@@ -17,7 +17,7 @@ God raised up judges, who saved them out of the hand of those who plundered them
 Yet they didn't listen to their judges; for they prostituted themselves to other gods, and bowed themselves down to them. They quickly turned away from the way in which their fathers walked, obeying God's commandments. They didn't do so. 
 When God raised up judges for them, then God was with the judge, and saved them out of the hand of their enemies all the days of the judge; for it grieved God because of their groaning by reason of those who oppressed them and troubled them. 
 But when the judge was dead, they turned back, and dealt more corruptly than their fathers in following other gods to serve them and to bow down to them. They didn't cease what they were doing, or give up their stubborn ways. 
-God's anger burned against Israel; and he said, "Because this nation transgressed my covenant which I commanded their fathers, and has not listened to my voice, 
+God's anger burned against Israel; and he said, "Because this nation transgressed my covenant which I commanded their fathers, and hasn't listened to my voice, 
 I also will no longer drive out any of the nations that Joshua left when he died from before them; 
 that by them I may test Israel, to see if they will keep God's way to walk therein, as their fathers kept it, or not." 
 So God left those nations, without driving them out hastily. He didn't deliver them into Joshua's hand. 

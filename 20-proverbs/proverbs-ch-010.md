@@ -1,6 +1,6 @@
 ﻿The proverbs of Solomon. A wise son makes a glad father; but a foolish son brings grief to his mother. 
 Treasures of guilt profit nothing, but righteousness delivers from death. 
-God will not allow the soul of the righteous to go hungry, but he thrusts away the desire of the guilty. 
+God won't allow the soul of the righteous to go hungry, but he thrusts away the desire of the guilty. 
 He becomes poor who works with a lazy hand, but the hand of the diligent brings wealth. 
 He who gathers in summer is a wise son, but he who sleeps during the harvest is a son who causes shame. 
 Blessings are on the head of the righteous, but violence covers the mouth of the guilty. 
@@ -27,6 +27,6 @@ As vinegar to the teeth, and as smoke to the eyes, so is the sluggard to those w
 The fear of God prolongs days, but the years of the guilty shall be shortened. 
 The prospect of the righteous is joy, but the hope of the guilty will perish. 
 The way of God is a stronghold to the upright, but it is a destruction to the workers of guilt. 
-The righteous will never be removed, but the guilty will not dwell in the land. 
+The righteous will never be removed, but the guilty won't dwell in the land. 
 The mouth of the righteous produces wisdom, but the perverse tongue will be cut off. 
 The lips of the righteous know what is acceptable, but the mouth of the guilty is perverse. 

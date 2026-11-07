@@ -19,7 +19,7 @@ Zacharias said to the messenger, "How can I be sure of this? I am an old man, an
 The messenger answered him, "I am Gabriel, who stands in the presence of God. I was sent to speak to you and to bring you this good news. 
 Look, you will be silent and unable to speak until the day that these things will happen, because you didn't trust my words, which will be fulfilled in their proper time." 
 The people were waiting for Zacharias, and they were amazed that he stayed so long in the temple. 
-When he came out, he could not speak to them. They realized that he had seen a vision in the temple. He kept making signs to them and stayed unable to speak. 
+When he came out, he couldn't speak to them. They realized that he had seen a vision in the temple. He kept making signs to them and stayed unable to speak. 
 When the days of his service were over, he went home. 
 After these days Elizabeth his wife conceived, and she hid herself five months, saying, 
 "This is what the Lord has done for me in the days when he looked on me, to take away my disgrace among people." 

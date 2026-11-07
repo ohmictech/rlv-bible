@@ -1,13 +1,13 @@
 ﻿When God was about to take Elijah up by a whirlwind into the sky, Elijah went with Elisha from Gilgal. 
-Elijah said to Elisha, "Please wait here, for God has sent me as far as Bethel." Elisha said, "As God lives, and as your soul lives, I will not leave you." So they went down to Bethel. 
+Elijah said to Elisha, "Please wait here, for God has sent me as far as Bethel." Elisha said, "As God lives, and as your soul lives, I won't leave you." So they went down to Bethel. 
 The sons of the spokesmen who were at Bethel came out to Elisha, and said to him, "Do you know that God will take away your master from over you today?" He said, "Yes, I know it. Hold your peace." 
-Elijah said to him, "Elisha, please wait here, for God has sent me to Jericho." He said, "As God lives, and as your soul lives, I will not leave you." So they came to Jericho. 
+Elijah said to him, "Elisha, please wait here, for God has sent me to Jericho." He said, "As God lives, and as your soul lives, I won't leave you." So they came to Jericho. 
 The sons of the spokesmen who were at Jericho came near to Elisha, and said to him, "Do you know that God will take away your master from over you today?" He answered, "Yes, I know it. Hold your peace." 
-Elijah said to him, "Please wait here, for God has sent me to the Jordan." He said, "As God lives, and as your soul lives, I will not leave you." Then they both went on. 
+Elijah said to him, "Please wait here, for God has sent me to the Jordan." He said, "As God lives, and as your soul lives, I won't leave you." Then they both went on. 
 Fifty men of the sons of the spokesmen went and stood opposite them at a distance; and they both stood by the Jordan. 
 Elijah took his mantle, and rolled it up, and struck the waters; and they were divided here and there, so that they both went over on dry ground. 
 When they had gone over, Elijah said to Elisha, "Ask what I shall do for you, before I am taken from you." Elisha said, "Please let a double portion of your spirit be on me." 
-He said, "You have asked a hard thing. If you see me when I am taken from you, it will be so for you; but if not, it will not be so." 
+He said, "You have asked a hard thing. If you see me when I am taken from you, it will be so for you; but if not, it won't be so." 
 As they continued on and talked, look, a chariot of fire and horses of fire separated them; and Elijah went up by a whirlwind into the sky. 
 Elisha saw it, and he cried, "My father, my father, the chariots of Israel and its horsemen!" He saw him no more. Then he took hold of his own clothes and tore them in two pieces. 
 He also took up Elijah's mantle that fell from him, and went back and stood by the bank of the Jordan. 

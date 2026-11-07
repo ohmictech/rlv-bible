@@ -19,8 +19,8 @@ the well, which the princes dug, which the nobles of the people dug, with the sc
 and from Mattanah to Nahaliel; and from Nahaliel to Bamoth; 
 and from Bamoth to the valley that is in the field of Moab, to the top of Pisgah, which looks down on the desert. 
 Israel sent messengers to Sihon king of the Amorites, saying, 
-"Let me pass through your land. We will not turn away into field or vineyard. We will not drink of the water of the wells. We will go by the king's highway, until we have passed your border." 
-Sihon would not allow Israel to pass through his border, but Sihon gathered all his people together, and went out against Israel into the wilderness, and came to Jahaz. He fought against Israel. 
+"Let me pass through your land. We won't turn away into field or vineyard. We won't drink of the water of the wells. We will go by the king's highway, until we have passed your border." 
+Sihon wouldn't allow Israel to pass through his border, but Sihon gathered all his people together, and went out against Israel into the wilderness, and came to Jahaz. He fought against Israel. 
 Israel struck him with the edge of the sword, and possessed his land from the Arnon to the Jabbok, even to the children of Ammon; for the border of the children of Ammon was fortified. 
 Israel took all these cities. Israel lived in all the cities of the Amorites, in Heshbon, and in all its villages. 
 Heshbon was the city of Sihon the king of the Amorites, who had fought against the former king of Moab, and taken all his land out of his hand, even to the Arnon. 

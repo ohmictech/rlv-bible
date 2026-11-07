@@ -4,7 +4,7 @@ God, how long will the guilty, how long will the guilty triumph?
 They pour out arrogant words. All the those who do bad boast. 
 They break your people in pieces, God, and afflict your heritage. 
 They kill the widow and the alien, and murder the fatherless. 
-They say, "God will not see, neither will Jacob's God consider." 
+They say, "God won't see, neither will Jacob's God consider." 
 Consider, you senseless among the people; you fools, when will you be wise? 
 He who implanted the ear, won't he hear? He who formed the eye, won't he see? 
 He who disciplines the nations, won't he punish? He who teaches man knows. 

@@ -3,9 +3,9 @@ So his servants said to him, "Let a young virgin be sought for my lord the king.
 So they sought for a beautiful young lady throughout all the borders of Israel, and found Abishag the Shunammite, and brought her to the king. 
 The young lady was very beautiful; and she cherished the king, and served him; but the king didn't know her intimately. 
 Then Adonijah the son of Haggith exalted himself, saying, "I will be king." Then he prepared him chariots and horsemen, and fifty men to run before him. 
-His father had not displeased him at any time in saying, "Why have you done so?" and he was also a very handsome man; and he was born after Absalom. 
+His father hadn't displeased him at any time in saying, "Why have you done so?" and he was also a very handsome man; and he was born after Absalom. 
 He conferred with Joab the son of Zeruiah and with Abiathar the priest; and they followed Adonijah and helped him. 
-But Zadok the priest, Benaiah the son of Jehoiada, Nathan the spokesman, Shimei, Rei, and the mighty men who belonged to David, were not with Adonijah. 
+But Zadok the priest, Benaiah the son of Jehoiada, Nathan the spokesman, Shimei, Rei, and the mighty men who belonged to David, weren't with Adonijah. 
 Adonijah killed sheep, cattle, and fatlings by the stone of Zoheleth, which is beside En Rogel; and he called all his brothers, the king's sons, and all the men of Judah, the king's servants; 
 but he didn't call Nathan the spokesman, and Benaiah, and the mighty men, and Solomon his brother. 
 Then Nathan spoke to Bathsheba the mother of Solomon, saying, "Haven't you heard that Adonijah the son of Haggith reigns, and David our lord doesn't know it? 
@@ -48,6 +48,6 @@ Moreover the king's servants came to bless our lord King David, saying, 'May you
 Also thus said the king, 'Blessed be the God of Israel, who has given one to sit on my throne today, my eyes even seeing it.'" 
 All the guests of Adonijah were afraid, and rose up, and each man went his way. 
 Adonijah was afraid because of Solomon; and he arose, and went, and hung onto the horns of the altar. 
-Solomon was told, "Look, Adonijah fears King Solomon; for, look, he is hanging onto the horns of the altar, saying, 'Let King Solomon swear to me first that he will not kill his servant with the sword.'" 
+Solomon was told, "Look, Adonijah fears King Solomon; for, look, he is hanging onto the horns of the altar, saying, 'Let King Solomon swear to me first that he won't kill his servant with the sword.'" 
 Solomon said, "If he shows himself a worthy man, not a hair of his shall fall to the earth; but if guilt is found in him, he shall die." 
 So King Solomon sent, and they brought him down from the altar. He came and bowed down to King Solomon; and Solomon said to him, "Go to your house." 

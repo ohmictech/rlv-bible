@@ -3,7 +3,7 @@ Abram was very rich in livestock, in silver, and in gold.
 He journeyed from the south as far as Bethel, to the place where his tent had been at first, between Bethel and Ai, 
 to the place of the altar he had built there at first. There Abram called on God's name. 
 Lot also, who went with Abram, had flocks, herds, and tents. 
-The land could not support them both, because their possessions were so great that they could not stay together. 
+The land couldn't support them both, because their possessions were so great that they couldn't stay together. 
 There was quarreling between Abram's herdsmen and Lot's herdsmen. The Canaanites and the Perizzites lived in the land at that time. 
 Abram said to Lot, "Please, let there be no quarreling between you and me, or between your herdsmen and mine, because we are relatives. 
 Isn't the whole land open before you? Please separate from me. If you go to the left, I will go to the right. If you go to the right, I will go to the left." 

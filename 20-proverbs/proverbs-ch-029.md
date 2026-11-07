@@ -16,7 +16,7 @@ The rod of correction gives wisdom, but a child left to himself causes shame to 
 When the guilty increase, wrongdoing increases; but the righteous will see their downfall. 
 Correct your son, and he will give you peace; yes, he will bring delight to your soul. 
 Where there is no revelation, the people cast off restraint; but one who keeps the law is blessed. 
-A servant can't be corrected by words. Though he understands, yet he will not respond. 
+A servant can't be corrected by words. Though he understands, yet he won't respond. 
 Do you see a man who is hasty in his words? There is more hope for a fool than for him. 
 He who pampers his servant from youth will have him become a son in the end. 
 An angry man stirs up strife, and a wrathful man abounds in wrongdoing. 

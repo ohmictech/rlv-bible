@@ -14,9 +14,9 @@ Those on the rock are they who, when they hear, receive the word with joy; but t
 What fell among the thorns, these are those who have heard, and as they go on their way they are choked with worries, riches, and pleasures of life; and they bring no fruit to maturity. 
 Those in the good ground, these are those who with an honest and good heart, having heard the word, hold on to it, and produce fruit with patience. 
 "No one who lights a lamp covers it with a container or puts it under a bed. He puts it on a stand, so that those who come in can see the light. 
-Nothing is hidden that will not be revealed, nor anything secret that will not be known and come to light. 
+Nothing is hidden that won't be revealed, nor anything secret that won't be known and come to light. 
 So be careful how you hear. Whoever has, more will be given to him; and whoever doesn't have, even that which he thinks he has will be taken away from him." 
-His mother and brothers came to him, and they could not come near him because of the crowd. 
+His mother and brothers came to him, and they couldn't come near him because of the crowd. 
 Someone told him, "Your mother and your brothers stand outside, wanting to see you." 
 But he answered them, "My mother and my brothers are those who hear the word of God and do it." 
 Now on one of those days, he entered into a boat, himself and his students, and he said to them, "Let's go over to the other side of the lake." So they launched out. 
@@ -28,7 +28,7 @@ When Jesus stepped ashore, a certain man out of the city who had unclean spirits
 When he saw Jesus, he cried out and fell down before him, and with a loud voice said, "What do I have to do with you, Jesus, you Son of the Most High God? I beg you, don't put me in anguish!" 
 Jesus was commanding the unclean spirit to come out of the man. The unclean spirit had often seized the man. He was kept under guard and bound with chains and shackles. Breaking the shackles apart, he was driven by the unclean spirit into the wilderness. 
 Jesus asked him, "What is your name?" He said, "Legion," for many unclean spirits had entered into him. 
-They begged him that he would not command them to go into the abyss. 
+They begged him that he wouldn't command them to go into the abyss. 
 Now a large herd of pigs was feeding on the mountain there, and they begged him that he would allow them to enter into those. Then he allowed them. 
 The unclean spirits came out of the man and entered the pigs, and the herd rushed down the steep bank into the lake and were drowned. 
 When those who fed them saw what had happened, they fled and told it in the city and in the country. 
@@ -40,11 +40,11 @@ But the man from whom the unclean spirits had gone out begged him to let him go 
 When Jesus returned, the crowd welcomed him, for they were all waiting for him. 
 Look, a man named Jairus came. He was a leader of the gathering place. He fell down at Jesus' feet and begged him to come into his house, 
 for he had an only daughter, about twelve years of age, and she was dying. But as he went, the crowds pressed against him. 
-A woman who had a flow of blood for twelve years, who had spent all her living on doctors and could not be healed by any, 
+A woman who had a flow of blood for twelve years, who had spent all her living on doctors and couldn't be healed by any, 
 came behind him and touched the fringe of his cloak. Immediately the flow of her blood stopped. 
 Jesus said, "Who touched me?" When all denied it, Peter and those with him said, "Master, the crowds press and jostle you, and you say, 'Who touched me?'" 
 But Jesus said, "Someone did touch me, for I perceived that power has gone out of me." 
-When the woman saw that she was not hidden, she came trembling; and falling down before him declared to him in the presence of everyone the reason why she had touched him, and how she was healed immediately. 
+When the woman saw that she wasn't hidden, she came trembling; and falling down before him declared to him in the presence of everyone the reason why she had touched him, and how she was healed immediately. 
 He said to her, "Daughter, cheer up. Your trust has healed you and made you whole. Go in wholeness." 
 While he still spoke, one from the gathering place leader's house came, saying to him, "Your daughter is dead. Don't trouble the Teacher." 
 But Jesus hearing it, answered him, "Don't be afraid. Just trust, and she will be healed." 

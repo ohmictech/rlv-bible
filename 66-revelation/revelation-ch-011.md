@@ -6,7 +6,7 @@ If anyone wants to harm them, fire comes out of their mouths and burns up their 
 These have the power to shut up the sky so that no rain falls during the days they speak for God. They also have power over the waters, to turn them into blood, and to strike the land with every kind of plague, as often as they want. 
 When they have finished giving their witness, the beast that comes up out of the deep will make war on them, defeat them, and kill them. 
 Their bodies will lie in the street of the great city, which in picture-language is called Sodom and Egypt, where their Lord was also crucified. 
-Three and a half days, people from every tribe, language, and nation will stare at their bodies and will not allow them to be put in a tomb. 
+Three and a half days, people from every tribe, language, and nation will stare at their bodies and won't allow them to be put in a tomb. 
 Those who live on the land will celebrate over them and be glad. They will send each other gifts, because these two spokesmen had caused anguish to those who live on the land. 
 But after the three and a half days, the breath of life from God entered them, and they stood up on their feet. Great fear fell on everyone who saw them. 
 Then I heard a loud voice from the sky saying to them, "Come up here!" And they went up into the sky in a cloud while their enemies watched. 

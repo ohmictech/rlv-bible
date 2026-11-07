@@ -7,7 +7,7 @@ Sons were also born to Shemaiah his son, who ruled over the house of their fathe
 The sons of Shemaiah: Othni, Rephael, Obed, and Elzabad, whose relatives were valiant men, Elihu, and Semachiah. 
 All these were of the sons of Obed-Edom with their sons and their brothers, able men in strength for the service: sixty-two of Obed-Edom. 
 Meshelemiah had sons and brothers, eighteen valiant men. 
-Also Hosah, of the children of Merari, had sons: Shimri the chief (for though he was not the firstborn, yet his father made him chief), 
+Also Hosah, of the children of Merari, had sons: Shimri the chief (for though he wasn't the firstborn, yet his father made him chief), 
 Hilkiah the second, Tebaliah the third, and Zechariah the fourth. All the sons and brothers of Hosah were thirteen. 
 Of these were the divisions of the doorkeepers, even of the chief men, having offices like their brothers, to minister in God's house. 
 They cast lots, the small as well as the great, according to their fathers' houses, for every gate. 

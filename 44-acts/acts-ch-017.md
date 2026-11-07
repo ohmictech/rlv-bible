@@ -24,7 +24,7 @@ As I passed along and observed the objects of your worship, I also found an alta
 The God who made the world and all things in it, he, being Lord of the sky and the land, doesn't dwell in temples made with hands. 
 He isn't served by men's hands, as though he needed anything, seeing he himself gives to all life and breath and all things. 
 He made from one blood every nation of people to dwell on all the surface of the land, having determined appointed seasons and the boundaries of their dwellings, 
-that they should seek the Lord, if perhaps they could reach out for him and find him, though he is not far from each one of us. 
+that they should seek the Lord, if perhaps they could reach out for him and find him, though he isn't far from each one of us. 
 'For in him we live, move, and have our being.' As some of your own poets have said, 'For we are also his offspring.' 
 Being then the offspring of God, we ought not to think that the Divine Nature is like gold, or silver, or stone, engraved by art and design of man. 
 The times of ignorance God overlooked. But now he commands that everyone everywhere should have a change of heart, 

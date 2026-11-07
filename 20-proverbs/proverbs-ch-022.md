@@ -3,7 +3,7 @@ The rich and the poor have this in common: God is the maker of them all.
 A prudent man sees danger and hides himself; but the simple pass on, and suffer for it. 
 The result of humility and the fear of God is wealth, honor, and life. 
 Thorns and snares are in the path of the guilty; whoever guards his soul stays far from them. 
-Train up a child in the way he should go, and when he is old he will not depart from it. 
+Train up a child in the way he should go, and when he is old he won't depart from it. 
 The rich rule over the poor. The borrower is servant to the lender. 
 He who sows guilt reaps trouble, and the rod of his fury will be destroyed. 
 He who has a generous eye will be blessed, for he shares his food with the poor. 

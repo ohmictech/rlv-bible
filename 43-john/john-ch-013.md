@@ -8,12 +8,12 @@ Jesus answered him, "You don't know what I am doing now, but you will understand
 Peter said to him, "You will never wash my feet!" Jesus answered him, "If I don't wash you, you have no part with me." 
 Simon Peter said to him, "Lord, not my feet only, but also my hands and my head!" 
 Jesus said to him, "Someone who has bathed only needs to have his feet washed, but is completely clean. You are clean, but not all of you." 
-He knew him who would hand him over; he said, "You are not all clean." 
+He knew him who would hand him over; he said, "You aren't all clean." 
 So when he had washed their feet, put his outer garment back on, and sat down again, he said to them, "Do you know what I have done to you? 
 You call me, 'Teacher' and 'Lord.' You say so correctly, for so I am. 
 If I then, the Lord and the Teacher, have washed your feet, you also ought to wash one another's feet. 
 I have given you an example, that you should also do as I have done to you. 
-Truly I tell you, a servant is not greater than his lord, neither is one who is sent greater than he who sent him. 
+Truly I tell you, a servant isn't greater than his lord, neither is one who is sent greater than he who sent him. 
 If you know these things, flourishing are you if you do them. 
 I don't speak concerning all of you. I know whom I have chosen; but that the Scripture may be fulfilled, 'He who eats bread with me has lifted up his heel against me.' 
 From now on, I tell you before it happens, that when it happens, you may trust that I am the one. 

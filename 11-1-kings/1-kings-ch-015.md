@@ -1,6 +1,6 @@
 ﻿Now in the eighteenth year of King Jeroboam the son of Nebat, Abijam began to reign over Judah. 
 He reigned three years in Jerusalem. His mother's name was Maacah the daughter of Abishalom. 
-He walked in all the drifts of his father, which he had done before him; and his heart was not perfect with his God, as the heart of David his father. 
+He walked in all the drifts of his father, which he had done before him; and his heart wasn't perfect with his God, as the heart of David his father. 
 Nevertheless for David's sake, his God gave him a lamp in Jerusalem, to set up his son after him and to establish Jerusalem; 
 because David did that which was right in God's eyes, and didn't turn away from anything that he commanded him all the days of his life, except only in the matter of Uriah the Hittite. 
 Now there was war between Rehoboam and Jeroboam all the days of his life. 
@@ -11,7 +11,7 @@ He reigned forty-one years in Jerusalem. His mother's name was Maacah the daught
 Asa did that which was right in God's eyes, as David his father did. 
 He put away the sodomites out of the land, and removed all the idols that his fathers had made. 
 He also removed Maacah his mother from being queen, because she had made an abominable image for an Asherah. Asa cut down her image and burned it at the brook Kidron. 
-But the high places were not taken away. Nevertheless the heart of Asa was perfect with God all his days. 
+But the high places weren't taken away. Nevertheless the heart of Asa was perfect with God all his days. 
 He brought into God's house the things that his father had dedicated, and the things that he himself had dedicated: silver, gold, and utensils. 
 There was war between Asa and Baasha king of Israel all their days. 
 Baasha king of Israel went up against Judah, and built Ramah, that he might not allow anyone to go out or come in to Asa king of Judah. 

@@ -16,17 +16,17 @@ When we had all fallen to the earth, I heard a voice saying to me in the Hebrew 
 But arise, and stand on your feet, for I have appeared to you for this purpose: to appoint you a servant and a witness both of the things which you have seen and of the things which I will reveal to you; 
 delivering you from the people and from the nations, to whom I send you, 
 to open their eyes, that they may turn from darkness to light and from the power of the Adversary to God, that they may receive release of mistakes and an inheritance among those who are set apart by trust in me.' 
-"Therefore, King Agrippa, I was not disobedient to the vision from the sky, 
+"Therefore, King Agrippa, I wasn't disobedient to the vision from the sky, 
 but declared first to them of Damascus, at Jerusalem, and throughout all the country of Judea, and also to the nations, that they should have a change of heart and turn to God, doing deeds that go with a change of heart. 
 That is why the Jewish people seized me in the temple courts and tried to kill me. 
 Having obtained the help that is from God, I stand to this day testifying both to small and great, saying nothing but what the spokesmen and Moses said would happen, 
 how the Christ must suffer, and how, by the rising of the dead, he would be first to proclaim light both to these people and to the nations." 
 As he thus made his defense, Festus said with a loud voice, "Paul, you are out of your mind! Your great learning is driving you insane!" 
-But he said, "I am not out of my mind, most excellent Festus, but boldly declare words of truth and reasonableness. 
-The king knows of these things, to whom also I speak freely. I am persuaded that none of these things is hidden from him, for this has not been done in a corner. 
+But he said, "I'm not out of my mind, most excellent Festus, but boldly declare words of truth and reasonableness. 
+The king knows of these things, to whom also I speak freely. I am persuaded that none of these things is hidden from him, for this hasn't been done in a corner. 
 King Agrippa, do you trust the spokesmen? I know that you trust." 
 Agrippa said to Paul, "With a little persuasion are you trying to make me a Christian?" 
 Paul said, "I pray to God, that whether with little or with much, not only you, but also all that hear me today, would become such as I am, except for these bonds." 
 The king rose up with the governor and Bernice, and those who sat with them. 
 When they had withdrawn, they spoke to one another, saying, "This man does nothing worthy of death or of bonds." 
-Agrippa said to Festus, "This man could have been set free if he had not appealed to Caesar." 
+Agrippa said to Festus, "This man could have been set free if he hadn't appealed to Caesar." 

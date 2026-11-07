@@ -1,9 +1,9 @@
 ﻿I will stand at my watch and set myself on the ramparts, and will look out to see what he will say to me, and what I will answer concerning my complaint. 
 God answered me, "Write the vision, and make it plain on tablets, that he who runs may read it. 
 The vision is yet for the appointed time, and it hurries toward the end, and won't prove false. Though it takes time, wait for it, because it will surely come. It won't delay. 
-Look, his soul is puffed up. It is not upright in him, but the righteous will live by his faith. 
+Look, his soul is puffed up. It isn't upright in him, but the righteous will live by his faith. 
 Yes, moreover, wine is treacherous: an arrogant man who doesn't stay at home, who enlarges his desire as Hades; he is like death and can't be satisfied, but gathers to himself all nations and heaps to himself all peoples. 
-Won't all these take up a parable against him, and a taunting proverb against him, and say, 'Woe to him who increases that which is not his, and who enriches himself by extortion! How long?' 
+Won't all these take up a parable against him, and a taunting proverb against him, and say, 'Woe to him who increases that which isn't his, and who enriches himself by extortion! How long?' 
 Won't your debtors rise up suddenly, and wake up those who make you tremble, and you will be their victim? 
 Because you have plundered many nations, all the remnant of the peoples will plunder you because of men's blood, and for the violence done to the land, to the city and to everyone who dwells in it. 
 Woe to him who gets an bad gain for his house, that he may set his nest on high, that he may be delivered from the hand of bad! 

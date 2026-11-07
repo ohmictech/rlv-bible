@@ -5,7 +5,7 @@ To whom have you uttered words? Whose spirit came out of you?
 "The departed spirits tremble, those beneath the waters and all that live in them. 
 Hades is naked before God, and Abaddon has no covering. 
 He stretches out the north over empty space, and hangs the earth on nothing. 
-He binds up the waters in his thick clouds, and the cloud is not burst under them. 
+He binds up the waters in his thick clouds, and the cloud isn't burst under them. 
 He encloses the face of his throne, and spreads his cloud on it. 
 He has described a boundary on the surface of the waters, and to the confines of light and darkness. 
 The pillars of the sky tremble and are astonished at his rebuke. 

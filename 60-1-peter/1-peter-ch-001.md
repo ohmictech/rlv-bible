@@ -5,13 +5,13 @@ into a charge handed down that can never decay, be spoiled, or fade, kept in the
 who through trust are guarded by God's power for a rescue that is ready to be unveiled in the last stretch of time. 
 In this you celebrate, even though for a little while now you have had to be saddened by all kinds of hard times. 
 These have come so that the proof of your trust, worth far more than gold, which wears out even though it is tested by fire, may be found to bring praise, weight, and honor when Jesus Christ is unveiled. 
-You have not seen him, yet you love him. You do not see him now, yet you trust him, and you celebrate with a joy too great for words, a joy full of weight, 
+You haven't seen him, yet you love him. You don't see him now, yet you trust him, and you celebrate with a joy too great for words, a joy full of weight, 
 as you receive what your trust is working toward, the rescue of your life. 
 The spokesmen searched carefully and asked hard questions about this rescue. They spoke of the gift that was going to come to you, 
 trying to find out what person or what time the Spirit of Christ, who was in them, was pointing to, when he told ahead of time about the sufferings of Christ and the weight that would follow. 
 It was shown to them that they were serving, not themselves, but you, in these things, which have now been announced to you by those who brought you the Good News through the Holy Spirit sent from the sky, things the messengers long to look into. 
 So get your minds ready for action. Stay clear-headed, and set your expectation completely on the gift that will be brought to you when Jesus Christ is unveiled, 
-As obedient children, do not let your lives be shaped by the cravings you used to have when you did not know any better, 
+As obedient children, don't let your lives be shaped by the cravings you used to have when you didn't know any better, 
 but just as he who called you is holy, you yourselves also be holy in all of your behavior, 
 because it is written, "You shall be holy, for I am holy." 
 You call on him as Father, and he judges each person's work without playing favorites. So live out your time as foreigners here in awe of him, 

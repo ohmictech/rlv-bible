@@ -8,7 +8,7 @@ Others fell among thorns. The thorns grew up and choked them.
 Others fell on good soil and yielded fruit: some one hundred times as much, some sixty, and some thirty. 
 He who has ears to hear, let him hear." 
 The students came, and said to him, "Why do you speak to them in stories?" 
-He answered them, "To you it is given to know the secrets of the reign of the sky, but it is not given to them. 
+He answered them, "To you it is given to know the secrets of the reign of the sky, but it isn't given to them. 
 Whoever has, to him will be given, and he will have more than enough, but whoever doesn't have, from him will be taken away even that which he has. 
 So I speak to them in stories, because seeing they don't see, and hearing, they don't hear, neither do they understand. 
 What Isaiah spoke for God is coming true in them. He said, 'By hearing you will hear, and will in no way understand. Seeing you will see, and will in no way perceive. 
@@ -54,5 +54,5 @@ When Jesus had finished these stories, he departed from there.
 Coming to his hometown, he taught them in their gathering place, so that they were astonished and said, "Where did this man get this wisdom and these powerful works? 
 Isn't this the carpenter's son? Isn't his mother called Mary, and his brothers James, Joses, Simon, and Judas? 
 Aren't all of his sisters with us? Where then did this man get all of these things?" 
-They were trapped by him. But Jesus said to them, "A spokesman is not without honor, except in his own country and in his own house." 
+They were trapped by him. But Jesus said to them, "A spokesman isn't without honor, except in his own country and in his own house." 
 He didn't do many powerful works there because of their lack of trust. 

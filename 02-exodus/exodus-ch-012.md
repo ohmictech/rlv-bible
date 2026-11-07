@@ -20,14 +20,14 @@ There shall be no yeast found in your houses for seven days, for whoever eats th
 You shall eat nothing leavened. In all your habitations you shall eat unleavened bread.'" 
 Then Moses called for all the elders of Israel, and said to them, "Draw out, and take lambs according to your families, and kill the Passover. 
 You shall take a bunch of hyssop, and dip it in the blood that is in the bamistake, and strike the lintel and the two door posts with the blood that is in the bamistake. None of you shall go out of the door of his house until the morning. 
-God will pass through to strike the Egyptians; and when he sees the blood on the lintel, and on the two door posts, God will pass over the door, and will not allow the destroyer to come in to your houses to strike you. 
+God will pass through to strike the Egyptians; and when he sees the blood on the lintel, and on the two door posts, God will pass over the door, and won't allow the destroyer to come in to your houses to strike you. 
 You shall observe this thing for an ordinance to you and to your sons for the eras. 
 It shall happen when you have come to the land which God will give you, as he has promised, that you shall keep this service. 
 It will happen, when your children ask you, 'What do you mean by this service?' 
 that you shall say, 'It is the sacrifice of God's Passover, who passed over the houses of the children of Israel in Egypt, when he struck the Egyptians, and spared our houses.'" The people bowed their heads and worshiped. 
 The children of Israel went and did so; as God had commanded Moses and Aaron, so they did. 
 At midnight, God struck all the firstborn in the land of Egypt, from the firstborn of Pharaoh who sat on his throne to the firstborn of the captive who was in the dungeon, and all the firstborn of livestock. 
-Pharaoh rose up in the night, he, and all his servants, and all the Egyptians; and there was a great cry in Egypt, for there was not a house where there was not one dead. 
+Pharaoh rose up in the night, he, and all his servants, and all the Egyptians; and there was a great cry in Egypt, for there wasn't a house where there wasn't one dead. 
 He called for Moses and Aaron by night, and said, "Rise up, get out from among my people, both you and the children of Israel; and go, serve God, as you have said! 
 Take both your flocks and your herds, as you have said, and be gone; and bless me also!" 
 The Egyptians were urgent with the people, to send them out of the land in haste, for they said, "We are all dead men." 
@@ -36,14 +36,14 @@ The children of Israel did according to the word of Moses; and they asked of the
 God gave the people favor in the sight of the Egyptians, so that they let them have what they asked. They plundered the Egyptians. 
 The children of Israel traveled from Rameses to Succoth, about six hundred thousand on foot who were men, in addition to children. 
 A mixed multitude went up also with them, with flocks, herds, and even very much livestock. 
-They baked unleavened cakes of the dough which they brought out of Egypt; for it wasn't leavened, because they were thrust out of Egypt, and couldn't wait, and they had not prepared any food for themselves. 
+They baked unleavened cakes of the dough which they brought out of Egypt; for it wasn't leavened, because they were thrust out of Egypt, and couldn't wait, and they hadn't prepared any food for themselves. 
 Now the time that the children of Israel lived in Egypt was four hundred thirty years. 
 At the end of four hundred thirty years, to the day, all of God's armies went out from the land of Egypt. 
 It is a night to be much observed to God for bringing them out from the land of Egypt. This is that night of God, to be much observed by all the children of Israel throughout their generations. 
 God said to Moses and Aaron, "This is the ordinance of the Passover. No foreigner shall eat of it, 
 but every man's servant who is bought for money, when you have circumcised him, then shall he eat of it. 
 A foreigner and a hired servant shall not eat of it. 
-It must be eaten in one house. You shall not carry any of the meat outside of the house. Do not break any of its bones. 
+It must be eaten in one house. You shall not carry any of the meat outside of the house. Don't break any of its bones. 
 All the congregation of Israel shall keep it. 
 When a stranger lives as a foreigner with you, and would like to keep the Passover to God, let all his males be circumcised, and then let him come near and keep it. He shall be as one who is born in the land; but no uncircumcised person shall eat of it. 
 One law shall be to him who is born at home, and to the stranger who lives as a foreigner among you." 

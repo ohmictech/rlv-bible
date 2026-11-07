@@ -1,8 +1,8 @@
 ﻿Every high priest is chosen from among people and appointed to act for people in matters that concern God, so that he may offer gifts and sacrifices for wrongdoing. 
-He can be gentle with those who do not know any better and are going astray, because he himself is also weak. 
+He can be gentle with those who don't know any better and are going astray, because he himself is also weak. 
 That is why he has to offer sacrifices for his own mistakes as well as for the people's. 
 And no one takes this honor on himself; he receives it when God calls him, just as Aaron did. 
-In the same way, Christ did not give himself the weight of being high priest. It was God who said to him, "You are my Son. Today I have become your father." 
+In the same way, Christ didn't give himself the weight of being high priest. It was God who said to him, "You are my Son. Today I have become your father." 
 And he says in another place, "You are a priest for the eras, in the order of Melchizedek." 
 During his life on earth, he offered up prayers and pleas, with loud cries and tears, to the one who could rescue him from death, and he was heard because of his devotion to God. 
 Even though he was a Son, he learned what it means to obey through the things he suffered. 

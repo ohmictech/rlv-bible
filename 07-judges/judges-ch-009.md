@@ -38,7 +38,7 @@ Gaal spoke again and said, "Look, people are coming down by the middle of the la
 Then Zebul said to him, "Now where is your mouth, that you said, 'Who is Abimelech, that we should serve him?' Isn't this the people that you have despised? Please go out now and fight with them." 
 Gaal went out before the men of Shechem, and fought with Abimelech. 
 Abimelech chased him, and he fled before him, and many fell wounded, even to the entrance of the gate. 
-Abimelech lived at Arumah; and Zebul drove out Gaal and his brothers, that they should not dwell in Shechem. 
+Abimelech lived at Arumah; and Zebul drove out Gaal and his brothers, that they shouldn't dwell in Shechem. 
 On the next day, the people went out into the field; and they told Abimelech. 
 He took the people and divided them into three companies, and laid wait in the field; and he looked, and look, the people came out of the city. So, he rose up against them and struck them. 
 Abimelech and the companies that were with him rushed forward and stood in the entrance of the gate of the city; and the two companies rushed on everyone who was in the field and struck them. 

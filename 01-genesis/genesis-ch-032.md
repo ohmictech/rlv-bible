@@ -7,7 +7,7 @@ The messengers returned to Jacob, saying, "We came to your brother Esau. He is c
 Then Jacob was greatly afraid and was distressed. He divided the people who were with him, along with the flocks, the herds, and the camels, into two companies. 
 He said, "If Esau comes to the one company, and strikes it, then the company which is left will escape." 
 Jacob said, "God of my father Abraham, and God of my father Isaac, God, who said to me, 'Return to your country, and to your relatives, and I will do you good,' 
-I am not worthy of the least of all the loving kindnesses, and of all the truth, which you have shown to your servant; for with just my staff I crossed over this Jordan; and now I have become two companies. 
+I'm not worthy of the least of all the loving kindnesses, and of all the truth, which you have shown to your servant; for with just my staff I crossed over this Jordan; and now I have become two companies. 
 Please deliver me from the hand of my brother, from the hand of Esau; for I fear him, lest he come and strike me and the mothers with the children. 
 You said, 'I will surely do you good, and make your offspring as the sand of the sea, which can't be counted because there are so many.'" 
 He stayed there that night, and took from that which he had with him a present for Esau, his brother: 

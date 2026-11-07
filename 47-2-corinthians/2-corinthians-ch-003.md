@@ -4,7 +4,7 @@ shown to be a letter of Christ, delivered by us, written not with ink but with t
 Such confidence we have through Christ toward God, 
 not that we are sufficient of ourselves to account anything as from ourselves; but our sufficiency is from God, 
 who also made us able as servants of a new binding arrangement, not of the letter but of the Spirit. The letter kills, but the Spirit makes alive. 
-But if the service of death, engraved in letters on stones, came with weight, so that the people of Israel could not look steadily at Moses' face because of the weight of his face, which was passing away, 
+But if the service of death, engraved in letters on stones, came with weight, so that the people of Israel couldn't look steadily at Moses' face because of the weight of his face, which was passing away, 
 won't the service of the Spirit be with much more weight? 
 If the service that sentences has weight, the service of rightness has far more weight. 
 What was given weight in that case has no weight at all in this respect, because of the weight that surpasses it. 

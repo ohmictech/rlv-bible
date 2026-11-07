@@ -26,7 +26,7 @@ He built an altar there, and called on God's name, and pitched his tent there. T
 Then Abimelech went to him from Gerar with Ahuzzath his friend, and Phicol the captain of his army. 
 Isaac said to them, "Why have you come to me, since you hate me, and have sent me away from you?" 
 They said, "We saw plainly that God was with you. We said, 'Let there now be an oath between us, even between us and you, and let's make a covenant with you, 
-that you will do us no harm, as we have not touched you, and as we have done to you nothing but good, and have sent you away in peace.' You are now the blessed of God." 
+that you will do us no harm, as we haven't touched you, and as we have done to you nothing but good, and have sent you away in peace.' You are now the blessed of God." 
 He made them a feast, and they ate and drank. 
 They rose up some time in the morning, and swore an oath to one another. Isaac sent them away, and they departed from him in peace. 
 The same day, Isaac's servants came, and told him concerning the well which they had dug, and said to him, "We have found water." 

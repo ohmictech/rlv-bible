@@ -28,6 +28,6 @@ Whoever touches these things shall be unclean, and shall wash his clothes and ba
 "'But if she is cleansed of her discharge, then she shall count to herself seven days, and after that she shall be clean. 
 On the eighth day she shall take two turtledoves, or two young pigeons, and bring them to the priest, to the door of the Tent of Meeting. 
 The priest shall offer the one for an offering for wrongdoing, and the other for a burnt offering; and the priest shall make things right for her before God for the uncleanness of her discharge. 
-"'Thus you shall separate the children of Israel from their uncleanness, so they will not die in their uncleanness when they defile my tabernacle that is among them.'" 
+"'Thus you shall separate the children of Israel from their uncleanness, so they won't die in their uncleanness when they defile my tabernacle that is among them.'" 
 This is the law of him who has a discharge, and of him who has an emission of semen, so that he is unclean by it; 
 and of her who has her period, and of a man or woman who has a discharge, and of him who lies with her who is unclean. 

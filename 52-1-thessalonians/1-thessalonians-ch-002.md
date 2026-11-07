@@ -1,4 +1,4 @@
-﻿You yourselves know, brothers and sisters, that our visit to you was not wasted. 
+﻿You yourselves know, brothers and sisters, that our visit to you wasn't wasted. 
 But after we had already suffered and been treated shamefully at Philippi, as you know, we took courage in our God to tell you the Good News of God in the middle of a great struggle. 
 Our appeal doesn't come from error or uncleanness or trickery. 
 Instead, just as God has approved us and entrusted us with the Good News, that is how we speak, not to please people, but to please God, who tests our hearts. 
@@ -6,7 +6,7 @@ You know we never used smooth talk, and never had greed hiding under a good fron
 and we never went looking for weight from people, not from you, not from anyone else, even though as sent ones of Christ we could have made ourselves a burden to you. 
 But we were gentle among you, like a nursing mother caring for her own children. 
 We cared about you so much that we were glad to share with you not only the Good News of God, but our own lives as well, because you had become so dear to us. 
-You remember, brothers and sisters, how hard we worked and how tired we got. Working night and day so that we would not be a burden to any of you, we announced the Good News of God to you. 
+You remember, brothers and sisters, how hard we worked and how tired we got. Working night and day so that we wouldn't be a burden to any of you, we announced the Good News of God to you. 
 You are witnesses, and so is God, of how set apart, right, and without fault we were toward you who trust. 
 As you know, we treated each one of you the way a father treats his own children, urging you, encouraging you, and insisting, 
 that you should live in a way that is worthy of God, who calls you into his own reign and weight. 

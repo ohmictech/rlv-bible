@@ -14,7 +14,7 @@ You will arise and have mercy on Zion, for it is time to have pity on her. Yes, 
 Your servants take pleasure in her stones, and have pity on her dust. 
 So the nations will fear God's name, all the kings of the earth your glory. 
 God has built up Zion. He has appeared in his glory. 
-He has responded to the prayer of the destitute, and has not despised their prayer. 
+He has responded to the prayer of the destitute, and hasn't despised their prayer. 
 This will be written for the generation to come. A people which will be created will praise God, 
 for he has looked down from the height of his sanctuary. From sky, God saw the earth, 
 to hear the groans of the prisoner, to free those who are condemned to death, 

@@ -24,8 +24,8 @@ The Jews accepted the custom that they had begun, as Mordecai had written to the
 because Haman the son of Hammedatha, the Agagite, the enemy of all the Jews, had plotted against the Jews to destroy them, and had cast "Pur", that is the lot, to consume them and to destroy them; 
 but when this became known to the king, he commanded by letters that his guilty plan, which he had planned against the Jews, should return on his own head, and that he and his sons should be hanged on the gallows. 
 So they called these days "Purim", from the word "Pur." Therefore because of all the words of this letter, and of that which they had seen concerning this matter, and that which had come to them, 
-the Jews established and imposed on themselves, on their descendants, and on everyone who joined themselves to them, so that it should not fail that they would keep these two days according to what was written and according to its appointed time every year; 
-and that these days should be remembered and kept throughout every generation, every family, every province, and every city; and that these days of Purim should not fail from among the Jews, nor their memory perish from their offspring. 
+the Jews established and imposed on themselves, on their descendants, and on everyone who joined themselves to them, so that it shouldn't fail that they would keep these two days according to what was written and according to its appointed time every year; 
+and that these days should be remembered and kept throughout every generation, every family, every province, and every city; and that these days of Purim shouldn't fail from among the Jews, nor their memory perish from their offspring. 
 Then Esther the queen, the daughter of Abihail, and Mordecai the Jew wrote with all authority to confirm this second letter of Purim. 
 He sent letters to all the Jews in the hundred twenty-seven provinces of the kingdom of Ahasuerus with words of peace and truth, 
 to confirm these days of Purim in their appointed times, as Mordecai the Jew and Esther the queen had decreed, and as they had imposed upon themselves and their descendants in the matter of the fastings and their mourning. 

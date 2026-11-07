@@ -6,5 +6,5 @@ Then the eyes of the blind will be opened, and the ears of the deaf will be unst
 Then the lame man will leap like a deer, and the tongue of the mute will sing; for waters will break out in the wilderness, and streams in the desert. 
 The burning sand will become a pool, and the thirsty ground springs of water. Grass with reeds and rushes will be in the habitation of jackals, where they lay. 
 A highway will be there, a road, and it will be called "The Holy Way". The unclean shall not pass over it, but it will be for those who walk in the Way. Wicked fools shall not go there. 
-No lion will be there, nor will any ravenous animal go up on it. They will not be found there; but the bought back will walk there. 
+No lion will be there, nor will any ravenous animal go up on it. They won't be found there; but the bought back will walk there. 
 Then God's ransomed ones will return, and come with singing to Zion; and perpetual joy will be on their heads. They will obtain gladness and joy, and sorrow and sighing will flee away." 

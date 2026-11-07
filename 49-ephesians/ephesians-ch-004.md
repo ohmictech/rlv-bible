@@ -17,7 +17,7 @@ From him the whole body, joined and knit together by every joint that supplies i
 So I say this, and I insist in the Lord: you must no longer live the way the other nations live, in the emptiness of their minds, 
 with their understanding darkened, shut out from God's real life because of the ignorance in them, because their hearts have gone hard. 
 Having lost all feeling, they gave themselves over to shamelessness, doing every kind of uncleanness with greed. 
-But that is not how you learned Christ, 
+But that isn't how you learned Christ, 
 if indeed you heard him and were taught in him, as the truth is in Jesus. 
 You were taught to put off, as far as your former way of life goes, the old person that is rotting away with its deceitful cravings, 
 and to be made new in the spirit of your mind, 

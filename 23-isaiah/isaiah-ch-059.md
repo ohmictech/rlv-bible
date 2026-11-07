@@ -1,5 +1,5 @@
-﻿Look, God's hand is not shortened, that it can't save; nor his ear dull, that it can't hear. 
-But your guilt have separated you and your God, and your mistakes have hidden his face from you, so that he will not hear. 
+﻿Look, God's hand isn't shortened, that it can't save; nor his ear dull, that it can't hear. 
+But your guilt have separated you and your God, and your mistakes have hidden his face from you, so that he won't hear. 
 Your hands are defiled with blood, and your fingers with guilt. Your lips have spoken lies. Your tongue mutters guilt. 
 No one sues in righteousness, and no one pleads in truth. They trust in vanity and speak lies. They conceive mischief and give birth to guilt. 
 They hatch adders' eggs and weave the spider's web. He who eats of their eggs dies; and that which is crushed breaks out into a viper. 

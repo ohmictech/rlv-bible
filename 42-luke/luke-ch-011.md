@@ -1,11 +1,11 @@
 ﻿When he finished praying in a certain place, one of his students said to him, "Lord, teach us to pray, just as John also taught his students." 
 He said to them, "When you pray, say: 'Our Father in the sky, let your name be held in honor. Let your reign come. Let your will be done on land as it is in the sky. 
 Give us today our bread for the coming day. 
-Release us from what we owe, as we also release those who owe us. And do not bring us into the test, but rescue us from the Slanderer. Yours is the reign and the power and the honor, into the eras. Amen.'" 
+Release us from what we owe, as we also release those who owe us. And don't bring us into the test, but rescue us from the Slanderer. Yours is the reign and the power and the honor, into the eras. Amen.'" 
 He said to them, "Which of you, if you go to a friend at midnight and tell him, 'Friend, lend me three loaves of bread, 
 for a friend of mine has come to me from a journey, and I have nothing to set before him,' 
 and he from within will answer and say, 'Don't bother me. The door is now shut, and my children are with me in bed. I can't get up and give it to you'? 
-I tell you, although he will not rise and give it to him because he is his friend, yet because of his persistence, he will get up and give him as many as he needs. 
+I tell you, although he won't rise and give it to him because he is his friend, yet because of his persistence, he will get up and give him as many as he needs. 
 "I tell you, keep asking, and it will be given you. Keep seeking, and you will find. Keep knocking, and it will be opened to you. 
 Everyone who asks receives. He who seeks finds. To him who knocks it will be opened. 
 "Which of you fathers, if your son asks for bread, will give him a stone? Or if he asks for a fish, he won't give him a snake instead of a fish, will he? 
@@ -20,7 +20,7 @@ But if I drive out unclean spirits by Beelzebul, by whom do your children drive 
 But if I drive out unclean spirits by God's finger, then God's reign has come to you. 
 "When the strong man, fully armed, guards his own dwelling, his goods are safe. 
 But when someone stronger attacks him and overcomes him, he takes from him his whole armor in which he trusted, and divides his plunder. 
-"He who is not with me is against me. He who doesn't gather with me scatters. 
+"He who isn't with me is against me. He who doesn't gather with me scatters. 
 The unclean spirit, when he has gone out of the man, passes through dry places, seeking rest; and finding none, he says, 'I will turn back to my house from which I came out.' 
 When he returns, he finds it swept and put in order. 
 Then he goes and takes seven other spirits more malicious than himself, and they enter in and dwell there. The last state of that man becomes worse than the first." 
@@ -35,7 +35,7 @@ The lamp of the body is the eye. So when your eye is good, your whole body is al
 So see to it that the light in you isn't darkness. 
 If your whole body is full of light, having no part dark, it will be wholly full of light, as when the lamp with its bright shining gives you light." 
 Now as he spoke, a certain strict religious man asked him to dine with him. He went in and sat at the table. 
-When the strict religious man saw it, he was amazed that he had not first immersed himself before dinner. 
+When the strict religious man saw it, he was amazed that he hadn't first immersed himself before dinner. 
 The Lord said to him, "Now you strict religious ones make clean the outside of the cup and of the dish, but your inside is full of robbery and malice. 
 You foolish ones, didn't he who made the outside make the inside also? 
 But give what is inside as a gift to the needy, and look, all things will be clean to you. 

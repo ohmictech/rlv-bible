@@ -2,7 +2,7 @@
 Oh that I had in the wilderness a lodging place of wayfaring men, that I might leave my people and go from them! They are all adulterers, an assembly of treacherous men. 
 "They bend their tongue, as their bow, for falsehood. They have grown strong in the land, but not for truth; for they proceed from what is bad to bad, and they don't know me," says God. 
 "Everyone beware of his neighbor, and don't trust in any brother; for every brother will utterly supplant, and every neighbor will go around like a slanderer. 
-Friends deceive each other, and will not speak the truth. They have taught their tongue to speak lies. They weary themselves committing guilt. 
+Friends deceive each other, and won't speak the truth. They have taught their tongue to speak lies. They weary themselves committing guilt. 
 Your habitation is in the middle of deceit. Through deceit, they refuse to know me," says God. 
 So the God of Armies says, "Look, I will melt them and test them; for how should I deal with the daughter of my people? 
 Their tongue is a deadly arrow. It speaks deceit. One speaks peaceably to his neighbor with his mouth, but in his heart, he waits to ambush him. 
@@ -10,7 +10,7 @@ Shouldn't I punish them for these things?" says God. "Shouldn't my soul be aveng
 I will weep and wail for the mountains, and lament for the pastures of the wilderness, because they are burned up, so that no one passes through; Men can't hear the voice of the livestock. Both the birds of the sky and the animals have fled. They are gone. 
 "I will make Jerusalem heaps, a dwelling place of jackals. I will make the cities of Judah a desolation, without inhabitant." 
 Who is wise enough to understand this? Who is he to whom the mouth of God has spoken, that he may declare it? Why has the land perished and burned up like a wilderness, so that no one passes through? 
-God says, "Because they have forsaken my law which I set before them, and have not obeyed my voice or walked in my ways, 
+God says, "Because they have forsaken my law which I set before them, and haven't obeyed my voice or walked in my ways, 
 but have walked after the stubbornness of their own heart and after the Baals, which their fathers taught them." 
 So the God of Armies, the God of Israel says, "Look, I will feed them, even this people, with wormwood and give them poisoned water to drink. 
 I will scatter them also among the nations, whom neither they nor their fathers have known. I will send the sword after them, until I have consumed them." 

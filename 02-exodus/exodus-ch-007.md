@@ -1,7 +1,7 @@
 ﻿God said to Moses, "Look, I have made you as God to Pharaoh; and Aaron your brother shall be your spokesman. 
 You shall speak all that I command you; and Aaron your brother shall speak to Pharaoh, that he let the children of Israel go out of his land. 
 I will harden Pharaoh's heart, and multiply my signs and my wonders in the land of Egypt. 
-But Pharaoh will not listen to you, so I will lay my hand on Egypt, and bring out my armies, my people the children of Israel, out of the land of Egypt by great judgments. 
+But Pharaoh won't listen to you, so I will lay my hand on Egypt, and bring out my armies, my people the children of Israel, out of the land of Egypt by great judgments. 
 The Egyptians shall know that I am God when I stretch out my hand on Egypt, and bring the children of Israel out from among them." 
 Moses and Aaron did so. As God commanded them, so they did. 
 Moses was eighty years old, and Aaron eighty-three years old, when they spoke to Pharaoh. 

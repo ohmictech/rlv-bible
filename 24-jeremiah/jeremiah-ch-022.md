@@ -2,8 +2,8 @@
 'Hear God's word, king of Judah, who sits on David's throne, you, your servants, and your people who enter in by these gates. 
 God says: "Execute justice and righteousness, and deliver him who is robbed out of the hand of the oppressor. Do no wrong. Do no violence to the foreigner, the fatherless, or the widow. Don't shed innocent blood in this place. 
 If you do this thing indeed, then kings sitting on David's throne will enter in by the gates of this house, riding in chariots and on horses, they, their servants, and their people. 
-But if you will not hear these words, I swear by myself," says God, "that this house will become a desolation."'" 
-God says concerning the house of the king of Judah: "You are Gilead to me, the head of Lebanon. Yet surely I will make you a wilderness, cities which are not inhabited. 
+But if you won't hear these words, I swear by myself," says God, "that this house will become a desolation."'" 
+God says concerning the house of the king of Judah: "You are Gilead to me, the head of Lebanon. Yet surely I will make you a wilderness, cities which aren't inhabited. 
 I will prepare destroyers against you, everyone with his weapons, and they will cut down your choice cedars, and cast them into the fire. 
 "Many nations will pass by this city, and they will each ask his neighbor, 'Why has God done this to this great city?' 
 Then they will answer, 'Because they abandoned the covenant of their God, worshiped other gods, and served them.'" 
@@ -18,13 +18,13 @@ But your eyes and your heart are only for your covetousness, for shedding innoce
 So God says concerning Jehoiakim the son of Josiah, king of Judah: "They won't lament for him, saying, 'Ah my brother!' or, 'Ah sister!' They won't lament for him, saying 'Ah lord!' or, 'Ah his glory!' 
 He will be buried with the burial of a donkey, drawn and cast out beyond the gates of Jerusalem." 
 "Go up to Lebanon, and cry out. Lift up your voice in Bashan, and cry from Abarim; for all your lovers have been destroyed. 
-I spoke to you in your prosperity, but you said, 'I will not listen.' This has been your way from your youth, that you didn't obey my voice. 
+I spoke to you in your prosperity, but you said, 'I won't listen.' This has been your way from your youth, that you didn't obey my voice. 
 The wind will feed all your shepherds, and your lovers will go into captivity. Surely then you will be ashamed and confounded for all your guilt. 
 Inhabitant of Lebanon, who makes your nest in the cedars, how greatly to be pitied you will be when pangs come on you, the pain as of a woman in travail! 
 "As I live," says God, "though Coniah the son of Jehoiakim king of Judah were the signet on my right hand, I would still pluck you from there. 
 I would give you into the hand of those who seek your life, and into the hand of them of whom you are afraid, even into the hand of Nebuchadnezzar king of Babylon, and into the hand of the Chaldeans. 
-I will cast you out with your mother who bore you into another country, where you were not born; and there you will die. 
-But to the land to which their soul longs to return, there they will not return." 
+I will cast you out with your mother who bore you into another country, where you weren't born; and there you will die. 
+But to the land to which their soul longs to return, there they won't return." 
 Is this man Coniah a despised broken vessel? Is he a vessel in which no one delights? Why are they cast out, he and his offspring, and cast into a land which they don't know? 
 O earth, earth, earth, hear God's word! 
-God says, "Record this man as childless, a man who will not prosper in his days; for no more will a man of his offspring prosper, sitting on David's throne and ruling in Judah." 
+God says, "Record this man as childless, a man who won't prosper in his days; for no more will a man of his offspring prosper, sitting on David's throne and ruling in Judah." 

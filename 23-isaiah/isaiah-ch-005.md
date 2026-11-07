@@ -1,7 +1,7 @@
 ﻿Let me sing for my well beloved a song of my beloved about his vineyard. My beloved had a vineyard on a very fruitful hill. 
 He dug it up, gathered out its stones, planted it with the choicest vine, built a tower in the middle of it, and also cut out a wine press in it. He looked for it to yield grapes, but it yielded wild grapes. 
 "Now, inhabitants of Jerusalem and men of Judah, please judge between me and my vineyard. 
-What could have been done more to my vineyard, that I have not done in it? Why, when I looked for it to yield grapes, did it yield wild grapes? 
+What could have been done more to my vineyard, that I haven't done in it? Why, when I looked for it to yield grapes, did it yield wild grapes? 
 Now I will tell you what I will do to my vineyard. I will take away its hedge, and it will be eaten up. I will break down its wall, and it will be trampled down. 
 I will lay it a wasteland. It won't be pruned or hoed, but it will grow briers and thorns. I will also command the clouds that they rain no rain on it." 
 The vineyard of the God of Armies is the house of Israel, and the men of Judah his pleasant plant. He looked for justice, but look, oppression, for righteousness, but look, a cry of distress. 
@@ -22,7 +22,7 @@ Woe to those who are wise in their own eyes, and prudent in their own sight!
 Woe to those who are mighty to drink wine, and champions at mixing strong drink; 
 who acquit the guilty for a bribe, but deny justice for the innocent! 
 So as the tongue of fire devours the stubble, and as the dry grass sinks down in the flame, so their root shall be as rottenness, and their blossom shall go up as dust, because they have rejected the law of the God of Armies, and despised the word of the Holy One of Israel. 
-So God's anger burns against his people, and he has stretched out his hand against them and has struck them. The mountains tremble, and their dead bodies are as refuse in the middle of the streets. All this, his anger is not turned away, but his hand is still stretched out. 
+So God's anger burns against his people, and he has stretched out his hand against them and has struck them. The mountains tremble, and their dead bodies are as refuse in the middle of the streets. All this, his anger isn't turned away, but his hand is still stretched out. 
 He will lift up a banner to the nations from far away, and he will whistle for them from the end of the earth. Look, they will come speedily and swiftly. 
 No one shall be weary nor stumble among them; no one shall slumber nor sleep, neither shall the belt of their waist be untied, nor the strap of their sandals be broken, 
 whose arrows are sharp, and all their bows bent. Their horses' hoofs will be like flint, and their wheels like a whirlwind. 

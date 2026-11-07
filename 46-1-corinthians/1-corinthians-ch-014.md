@@ -14,7 +14,7 @@ So let him who speaks in another language pray that he may interpret.
 If I pray in another language, my spirit prays, but my understanding is unfruitful. 
 What should I do? I will pray with the spirit, and I will pray with the understanding also. I will sing with the spirit, and I will sing with the understanding also. 
 Otherwise, if you bless with the spirit, how will he who fills the place of the unlearned say the "Amen" at your giving of thanks, seeing he doesn't know what you say? 
-You most certainly give thanks well, but the other person is not built up. 
+You most certainly give thanks well, but the other person isn't built up. 
 I thank my God, I speak with other languages more than you all. 
 However, in the gathering I would rather speak five words with my understanding, so that I might also teach others, than ten thousand words in another language. 
 Brothers, don't be children in your thinking. Be babies when it comes to ill will, but be grown up in your thinking. 
@@ -30,8 +30,8 @@ Let two or three spokesmen speak, and let the others weigh what is said.
 But if something is unveiled to another who is sitting by, let the first keep quiet. 
 You can all speak for God one by one, so that all may learn and all may be encouraged. 
 The spirits of the spokesmen are subject to the spokesmen, 
-for God is not a God of confusion but of wholeness, as in all the gatherings of the set-apart ones. 
-Let the wives keep quiet in the gatherings, for they are not permitted to talk, but are to be under authority, as the law also says, 
+for God isn't a God of confusion but of wholeness, as in all the gatherings of the set-apart ones. 
+Let the wives keep quiet in the gatherings, for they aren't permitted to talk, but are to be under authority, as the law also says, 
 if they want to learn anything. "Let them ask their own husbands at home, for it is shameful for a wife to be talking in the gathering." 
 What!? Was it from you that the word of God went out? Or did it come to you alone? 
 If anyone thinks he is a spokesman or spiritual, let him recognize that the things I write to you are the Lord's command. 

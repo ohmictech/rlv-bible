@@ -1,7 +1,7 @@
 ﻿So the king and Haman came to banquet with Esther the queen. 
 The king said again to Esther on the second day at the banquet of wine, "What is your petition, queen Esther? It shall be granted you. What is your request? Even to the half of the kingdom it shall be performed." 
 Then Esther the queen answered, "If I have found favor in your sight, O king, and if it pleases the king, let my life be given me at my petition, and my people at my request. 
-We are sold, I and my people, to be destroyed, to be slain, and to perish. But if we had been sold for male and female slaves, I would have held my peace, although the adversary could not have compensated for the king's loss." 
+We are sold, I and my people, to be destroyed, to be slain, and to perish. But if we had been sold for male and female slaves, I would have held my peace, although the adversary couldn't have compensated for the king's loss." 
 Then King Ahasuerus said to Esther the queen, "Who is he, and where is he who dared presume in his heart to do so?" 
 Esther said, "An adversary and an enemy, even this guilty Haman!" Then Haman was afraid before the king and the queen. 
 The king arose in his wrath from the banquet of wine and went into the palace garden. Haman stood up to make request for his life to Esther the queen, for he saw that there was bad determined against him by the king. 

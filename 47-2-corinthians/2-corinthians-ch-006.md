@@ -9,7 +9,7 @@ through weight and dishonor, through bad report and good report, treated as liar
 as unknown and yet well known, as dying, and look, we live, as disciplined and not killed, 
 as sorrowful yet always celebrating, as poor yet making many rich, as having nothing and yet possessing all things. 
 Our mouth is open to you, Corinthians. Our heart is enlarged. 
-You are not restricted by us, but you are restricted by your own affections. 
+You aren't restricted by us, but you are restricted by your own affections. 
 Now in return (I speak as to my children) you also open your hearts. 
 Don't be tied together with those who don't trust, for what partnership can rightness have with living as if there were no law? Or what does light share with darkness? 
 What agreement does Christ have with Belial? Or what share does one who trusts have with one who doesn't? 

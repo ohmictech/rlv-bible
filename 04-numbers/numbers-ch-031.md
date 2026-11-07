@@ -15,7 +15,7 @@ Moses was angry with the officers of the army, the captains of thousands and the
 Moses said to them, "Have you saved all the women alive? 
 Look, these caused the children of Israel, through the counsel of Balaam, to commit trespass against God in the matter of Peor, and so the plague was among the congregation of God. 
 Now kill every male among the little ones, and kill every woman who has known man by lying with him. 
-But all the girls, who have not known man by lying with him, keep alive for yourselves. 
+But all the girls, who haven't known man by lying with him, keep alive for yourselves. 
 "Encamp outside of the camp for seven days. Whoever has killed any person, and whoever has touched any slain, purify yourselves on the third day and on the seventh day, you and your captives. 
 You shall purify every garment, and all that is made of skin, and all work of goats' hair, and all things made of wood." 
 Eleazar the priest said to the men of war who went to the battle, "This is the statute of the law which God has commanded Moses. 
@@ -32,7 +32,7 @@ Moses and Eleazar the priest did as God commanded Moses.
 Now the plunder, over and above the booty which the men of war took, was six hundred seventy-five thousand sheep, 
 seventy-two thousand head of cattle, 
 sixty-one thousand donkeys, 
-and thirty-two thousand persons in all, of the women who had not known man by lying with him. 
+and thirty-two thousand persons in all, of the women who hadn't known man by lying with him. 
 The half, which was the portion of those who went out to war, was in number three hundred thirty-seven thousand five hundred sheep; 
 and God's tribute of the sheep was six hundred seventy-five. 
 The cattle were thirty-six thousand, of which God's tribute was seventy-two. 

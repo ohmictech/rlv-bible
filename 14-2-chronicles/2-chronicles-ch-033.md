@@ -5,7 +5,7 @@ He built altars in God's house, of which God said, "My name shall be in Jerusale
 He built altars for all the army of the sky in the two courts of God's house. 
 He also made his children to pass through the fire in the valley of the son of Hinnom. He practiced sorcery, divination, and witchcraft, and dealt with those who had familiar spirits and with wizards. He did much bad in God's sight, to provoke him to anger. 
 He set the engraved image of the idol, which he had made, in God's house, of which God said to David and to Solomon his son, "In this house, and in Jerusalem, which I have chosen out of all the tribes of Israel, I will put my name for the eras. 
-I will not any more remove the foot of Israel from off the land which I have appointed for your fathers, if only they will observe to do all that I have commanded them, even all the law, the statutes, and the ordinances given by Moses." 
+I won't any more remove the foot of Israel from off the land which I have appointed for your fathers, if only they will observe to do all that I have commanded them, even all the law, the statutes, and the ordinances given by Moses." 
 Manasseh seduced Judah and the inhabitants of Jerusalem, so that they did more bad than did the nations whom God destroyed before the children of Israel. 
 God spoke to Manasseh and to his people, but they didn't listen. 
 So God brought on them the captains of the army of the king of Assyria, who took Manasseh in chains, bound him with fetters, and carried him to Babylon. 

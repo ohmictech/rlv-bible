@@ -1,7 +1,7 @@
 ﻿The Chief Musician. A Psalm by David. God, you have searched me, and you know me. 
 You know my sitting down and my rising up. You perceive my thoughts from afar. 
 You search out my path and my lying down, and are acquainted with all my ways. 
-There is not a word on my tongue, but look, God, you know it altogether. 
+There isn't a word on my tongue, but look, God, you know it altogether. 
 You hem me in behind and before. You laid your hand on me. 
 This knowledge is beyond me. It's lofty. I can't attain it. 
 Where could I go from your Spirit? Or where could I flee from your presence? 

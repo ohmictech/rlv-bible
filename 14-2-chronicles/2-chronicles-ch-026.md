@@ -15,7 +15,7 @@ Uzziah prepared for them, even for all the army, shields, spears, helmets, coats
 In Jerusalem, he made devices, invented by skillful men, to be on the towers and on the battlements, with which to shoot arrows and great stones. His name spread far abroad, because he was marvelously helped until he was strong. 
 But when he was strong, his heart was lifted up, so that he did corruptly and he trespassed against his God, for he went into God's temple to burn incense on the altar of incense. 
 Azariah the priest went in after him, and with him eighty priests of God, who were valiant men. 
-They resisted Uzziah the king, and said to him, "It isn't for you, Uzziah, to burn incense to God, but for the priests the sons of Aaron, who are consecrated to burn incense. Go out of the sanctuary, for you have trespassed. It will not be for your honor from God." 
+They resisted Uzziah the king, and said to him, "It isn't for you, Uzziah, to burn incense to God, but for the priests the sons of Aaron, who are consecrated to burn incense. Go out of the sanctuary, for you have trespassed. It won't be for your honor from God." 
 Then Uzziah was angry. He had a censer in his hand to burn incense, and while he was angry with the priests, the leprosy broke out on his forehead before the priests in God's house, beside the altar of incense. 
 Azariah the chief priest and all the priests looked at him, and look, he was leprous in his forehead; and they thrust him out quickly from there. Indeed, he himself also hurried to go out, because God had struck him. 
 Uzziah the king was a leper to the day of his death, and lived in a separate house, being a leper; for he was cut off from God's house. Jotham his son was over the king's house, judging the people of the land. 

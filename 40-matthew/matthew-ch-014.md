@@ -1,7 +1,7 @@
 ﻿At that time, Herod the district ruler heard the report about Jesus, 
 and said to his servants, "This is John the Baptist. He has been raised from the dead. That is why these powerful works are happening through him." 
 Herod had arrested John, tied him up, and put him in prison because of Herodias, his brother Philip's wife. 
-John said to him, "It is not allowed for you to have her." 
+John said to him, "It isn't allowed for you to have her." 
 When he wanted to put him to death, he feared the crowd, because they counted him as a spokesman. 
 But when Herod's birthday came, the daughter of Herodias danced among them and pleased Herod. 
 So he swore to give her whatever she would ask for. 
@@ -28,7 +28,7 @@ But immediately Jesus spoke to them, saying, "Cheer up! It is I! Don't be afraid
 Peter answered him and said, "Lord, if it is you, command me to come to you on the waters." 
 He said, "Come!" Peter stepped down from the boat and walked on the waters to come to Jesus. 
 But when he saw that the wind was strong, he was afraid, and beginning to sink, he cried out, saying, "Lord, rescue me!" 
-Immediately Jesus stretched out his hand, took hold of him, and said to him, "You who do not trust, why did you doubt?" 
+Immediately Jesus stretched out his hand, took hold of him, and said to him, "You who don't trust, why did you doubt?" 
 When they got up into the boat, the wind ceased. 
 Those who were in the boat came and worshiped him, saying, "You are truly the Son of God!" 
 When they had crossed over, they came to the land of Gennesaret. 

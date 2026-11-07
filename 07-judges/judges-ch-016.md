@@ -5,14 +5,14 @@ It came to pass afterward that he loved a woman in the valley of Sorek, whose na
 The lords of the Philistines came up to her and said to her, "Entice him, and see in which his great strength lies, and by what means we may prevail against him, that we may bind him to afflict him; and we will each give you eleven hundred pieces of silver." 
 Delilah said to Samson, "Please tell me where your great strength lies, and what you might be bound to afflict you." 
 Samson said to her, "If they bind me with seven green cords that were never dried, then shall I become weak, and be as another man." 
-Then the lords of the Philistines brought up to her seven green cords which had not been dried, and she bound him with them. 
-Now she had an ambush waiting in the inner room. She said to him, "The Philistines are on you, Samson!" He broke the cords as a flax thread is broken when it touches the fire. So his strength was not known. 
+Then the lords of the Philistines brought up to her seven green cords which hadn't been dried, and she bound him with them. 
+Now she had an ambush waiting in the inner room. She said to him, "The Philistines are on you, Samson!" He broke the cords as a flax thread is broken when it touches the fire. So his strength wasn't known. 
 Delilah said to Samson, "Look, you have mocked me, and told me lies. Now please tell me how you might be bound." 
 He said to her, "If they only bind me with new ropes with which no work has been done, then I will become weak, and be as another man." 
 So Delilah took new ropes and bound him with them, then said to him, "The Philistines are on you, Samson!" The ambush was waiting in the inner room. He broke them off his arms like a thread. 
 Delilah said to Samson, "Until now, you have mocked me and told me lies. Tell me with what you might be bound." He said to her, "If you weave the seven locks of my head with the fabric on the loom." 
 She fastened it with the pin, and said to him, "The Philistines are on you, Samson!" He awakened out of his sleep, and plucked away the pin of the beam and the fabric. 
-She said to him, "How can you say, 'I love you,' when your heart is not with me? You have mocked me these three times, and have not told me where your great strength lies." 
+She said to him, "How can you say, 'I love you,' when your heart isn't with me? You have mocked me these three times, and haven't told me where your great strength lies." 
 When she pressed him daily with her words and urged him, his soul was troubled to death. 
 He told her all his heart and said to her, "No razor has ever come on my head; for I have been a Nazirite to God from my mother's womb. If I am shaved, then my strength will go from me and I will become weak, and be like any other man." 
 When Delilah saw that he had told her all his heart, she sent and called for the lords of the Philistines, saying, "Come up this once, for he has told me all his heart." Then the lords of the Philistines came up to her and brought the money in their hand. 

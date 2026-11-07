@@ -1,7 +1,7 @@
 ﻿Moreover God's word came to me, saying, 
 "You, son of man, God says to the land of Israel, 'An end! The end has come on the four corners of the land. 
 Now the end is on you, and I will send my anger on you, and will judge you according to your ways. I will bring on you all your abominations. 
-My eye will not spare you, neither will I have pity; but I will bring your ways on you, and your abominations will be among you. Then you will know that I am God.' 
+My eye won't spare you, neither will I have pity; but I will bring your ways on you, and your abominations will be among you. Then you will know that I am God.' 
 "The God says: 'A disaster! A unique disaster! Look, it comes. 
 An end has come. The end has come! It awakes against you. Look, it comes. 
 Your doom has come to you, inhabitant of the land! The time has come! The day is near, a day of tumult, and not of joyful shouting, on the mountains. 

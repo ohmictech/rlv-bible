@@ -56,11 +56,11 @@ The children of Solomon's servants: the children of Sotai, the children of Hasso
 the children of Jaalah, the children of Darkon, the children of Giddel, 
 the children of Shephatiah, the children of Hattil, the children of Pochereth Hazzebaim, the children of Ami. 
 All the temple servants, and the children of Solomon's servants, were three hundred ninety-two. 
-These were those who went up from Tel Melah, Tel Harsha, Cherub, Addan, and Immer; but they could not show their fathers' houses and their offspring, whether they were of Israel: 
+These were those who went up from Tel Melah, Tel Harsha, Cherub, Addan, and Immer; but they couldn't show their fathers' houses and their offspring, whether they were of Israel: 
 the children of Delaiah, the children of Tobiah, the children of Nekoda, six hundred fifty-two. 
 Of the children of the priests: the children of Habaiah, the children of Hakkoz, and the children of Barzillai, who took a wife of the daughters of Barzillai the Gileadite, and was called after their name. 
-These sought their place among those who were registered by genealogy, but they were not found; they were deemed disqualified and removed from the priesthood. 
-The governor told them that they should not eat of the most holy things until a priest stood up to serve with Urim and with Thummim. 
+These sought their place among those who were registered by genealogy, but they weren't found; they were deemed disqualified and removed from the priesthood. 
+The governor told them that they shouldn't eat of the most holy things until a priest stood up to serve with Urim and with Thummim. 
 The whole assembly together was forty-two thousand three hundred sixty, 
 in addition to their male servants and their female servants, of whom there were seven thousand three hundred thirty-seven; and they had two hundred singing men and driftsging women. 
 Their horses were seven hundred thirty-six; their mules, two hundred forty-five; 

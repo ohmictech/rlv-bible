@@ -48,7 +48,7 @@ When the centurion saw what was done, he gave honor to God, saying, "Certainly t
 All the crowds that came together to see this, when they saw the things that were done, returned home beating their chests. 
 All his acquaintances and the women who followed with him from Galilee stood at a distance, watching these things. 
 Look, there was a man named Joseph, who was a member of the council, a good and upright man 
-(he had not consented to their plan and deed), from Arimathaea, a city of the Jews, who was also waiting for God's reign. 
+(he hadn't consented to their plan and deed), from Arimathaea, a city of the Jews, who was also waiting for God's reign. 
 This man went to Pilate, and asked for Jesus' body. 
 He took it down and wrapped it in a linen cloth, and laid him in a tomb that was cut in stone, where no one had ever been laid. 
 It was the day of the Preparation, and the Sabbath was drawing near. 

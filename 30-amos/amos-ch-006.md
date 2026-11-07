@@ -3,7 +3,7 @@ Go to Calneh, and see. From there go to Hamath the great. Then go down to Gath o
 Alas for you who put far away the bad day, and cause the seat of violence to come near, 
 who lie on beds of ivory, and stretch themselves on their couches, and eat the lambs out of the flock, and the calves out of the middle of the stall, 
 who strum on the strings of a harp, who invent for themselves instruments of music, like David; 
-who drink wine in bowls, and anoint themselves with the best oils, but they are not grieved for the affliction of Joseph. 
+who drink wine in bowls, and anoint themselves with the best oils, but they aren't grieved for the affliction of Joseph. 
 So they will now go captive with the first who go captive. The feasting and lounging will end. 
 "The God has sworn by himself," says the God of Armies: "I abhor the pride of Jacob, and detest his fortresses. So I will deliver up the city with all that is in it. 
 It will happen that if ten men remain in one house, they will die. 

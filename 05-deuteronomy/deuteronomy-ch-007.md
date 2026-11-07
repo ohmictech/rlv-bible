@@ -7,7 +7,7 @@ You are a holy people to your God. Your God has chosen you to be a people for hi
 God didn't set his love on you nor choose you, because you were more in number than any people; for you were the fewest of all peoples; 
 but because God loves you, and because he desires to keep the oath which he swore to your fathers, God has brought you out with a mighty hand and bought back you out of the house of bondage, from the hand of Pharaoh king of Egypt. 
 Know that your God is the true the faithful God, who keeps covenant and loving kindness to a thousand generations with those who love him and keep his commandments, 
-and repays those who hate him to their face, to destroy them. He will not be slack to him who hates him. He will repay him to his face. 
+and repays those who hate him to their face, to destroy them. He won't be slack to him who hates him. He will repay him to his face. 
 You shall keep the commandments, the statutes, and the ordinances which I command you today, to do them. 
 It shall happen, because you listen to these ordinances and keep and do them, that your God will keep with you the covenant and the loving kindness which he swore to your fathers. 
 He will love you, bless you, and multiply you. He will also bless the fruit of your body and the fruit of your ground, your grain and your new wine and your oil, the increase of your livestock and the young of your flock, in the land which he swore to your fathers to give you. 

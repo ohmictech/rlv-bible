@@ -1,6 +1,6 @@
 ﻿Then Job answered, 
 "No doubt, but you are the people, and wisdom will die with you. 
-But I have understanding as well as you; I am not inferior to you. Yes, who doesn't know such things as these? 
+But I have understanding as well as you; I'm not inferior to you. Yes, who doesn't know such things as these? 
 I am like one who is a joke to his neighbor, I, who called on God, and he answered. The just, the blameless man is a joke. 
 In the thought of him who is at ease there is contempt for misfortune. It is ready for them whose foot slips. 
 The tents of robbers prosper. Those who provoke God are secure, who carry their god in their hands. 

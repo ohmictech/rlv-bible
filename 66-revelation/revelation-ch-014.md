@@ -1,7 +1,7 @@
 ﻿Then I looked, and there was the Lamb standing on Mount Zion, and with him one hundred forty-four thousand who had his name and his Father's name written on their foreheads. 
 I heard a sound from the sky like the sound of rushing waters and like a loud peal of thunder. The sound I heard was like harpists playing their harps. 
 They sing a new song in front of the throne, in front of the four living creatures, and in front of the elders. No one could learn the song except the one hundred forty-four thousand who had been bought back from the land. 
-These are the ones who have not made themselves unclean with women, because they are virgins. They follow the Lamb wherever he goes. They were bought back by Jesus from among people, the firstfruits for God and for the Lamb. 
+These are the ones who haven't made themselves unclean with women, because they are virgins. They follow the Lamb wherever he goes. They were bought back by Jesus from among people, the firstfruits for God and for the Lamb. 
 No lie was found in their mouths; they are without fault. 
 Then I saw another messenger flying in mid-sky, with good news of the era to announce to those who live on the land, to every nation, tribe, language, and people. 
 He said in a loud voice, "Fear the Lord and give him weight, because the hour of his verdict has come. Bow down to the one who made the sky, the land, the sea, and the springs of water!" 

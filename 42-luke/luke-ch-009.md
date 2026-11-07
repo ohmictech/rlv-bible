@@ -42,12 +42,12 @@ Jesus answered, "You generation with no trust! You twisted generation! How long 
 While he was still coming, the unclean spirit threw him down and convulsed him violently. But Jesus rebuked the unclean spirit, healed the boy, and gave him back to his father. 
 They were all astonished at the majesty of God. But while everyone was amazed at all the things Jesus was doing, he said to his students, 
 "Let these words sink into your ears, for the Human One will be handed over into the hands of people." 
-But they didn't understand this saying. It was concealed from them, that they should not perceive it, and they were afraid to ask him about this saying. 
+But they didn't understand this saying. It was concealed from them, that they shouldn't perceive it, and they were afraid to ask him about this saying. 
 An argument arose among them about which of them was the greatest. 
 Jesus, perceiving the reasoning of their hearts, took a little child, and set him by his side, 
 and said to them, "Whoever welcomes this little child in my name welcomes me. Whoever welcomes me welcomes him who sent me. The one who is least among you all, this one will be great." 
 John answered, "Master, we saw someone driving out unclean spirits in your name, and we told him to stop, because he doesn't follow along with us." 
-Jesus said to him, "Don't stop him, for he who is not against us is for us." 
+Jesus said to him, "Don't stop him, for he who isn't against us is for us." 
 When the days were near for him to be taken up, he set his face firmly to go to Jerusalem 
 and sent messengers ahead of him. They went and entered into a village of the Samaritans, so as to prepare for him. 
 They didn't receive him, because he was traveling with his face set toward Jerusalem. 

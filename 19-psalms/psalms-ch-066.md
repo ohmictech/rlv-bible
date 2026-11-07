@@ -17,4 +17,4 @@ Come and hear, all you who fear God. I will declare what he has done for my soul
 I cried to him with my mouth. He was extolled with my tongue. 
 If I cherished wrongdoing in my heart, the Lord wouldn't have listened. 
 But most certainly, God has listened. He has heard the voice of my prayer. 
-Blessed be God, who has not turned away my prayer, nor his loving kindness from me. 
+Blessed be God, who hasn't turned away my prayer, nor his loving kindness from me. 

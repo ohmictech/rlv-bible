@@ -11,7 +11,7 @@ Your food which you shall eat shall be by weight, twenty shekels a day. From tim
 You shall drink water by measure, the sixth part of a hin. From time to time you shall drink. 
 You shall eat it as barley cakes, and you shall bake it in their sight with dung that comes out of man." 
 God said, "Even thus will the children of Israel eat their bread unclean, among the nations where I will drive them." 
-Then I said, "Ah God! Look, my soul has not been polluted; for from my youth up even until now I have not eaten of that which dies of itself, or is torn of animals. No abominable meat has come into my mouth!" 
+Then I said, "Ah God! Look, my soul hasn't been polluted; for from my youth up even until now I haven't eaten of that which dies of itself, or is torn of animals. No abominable meat has come into my mouth!" 
 Then he said to me, "Look, I have given you cow's dung for man's dung, and you shall prepare your bread on it." 
 Moreover he said to me, "Son of man, look, I will break the staff of bread in Jerusalem. They will eat bread by weight, and with fearfulness. They will drink water by measure, and in dismay; 
 that they may lack bread and water, be dismayed one with another, and pine away in their guilt. 

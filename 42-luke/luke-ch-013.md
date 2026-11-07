@@ -32,4 +32,4 @@ On that same day, some strict religious ones came, saying to him, "Get out of he
 He said to them, "Go and tell that fox, 'Look, I drive out unclean spirits and heal people today and tomorrow, and the third day I complete my work. 
 Nevertheless I must go on my way today and tomorrow and the next day, for it can't be that a spokesman would die outside of Jerusalem.' 
 "Jerusalem, Jerusalem, you who kills the spokesmen and stones those who are sent to her! How often I wanted to gather your children together, like a hen gathers her own brood under her wings, and you refused! 
-Look, your house is left to you desolate. I tell you, you will not see me until you say, 'Flourishing is he who comes in the name of the Lord!'" 
+Look, your house is left to you desolate. I tell you, you won't see me until you say, 'Flourishing is he who comes in the name of the Lord!'" 

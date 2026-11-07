@@ -13,11 +13,11 @@ Who has measured the waters in the hollow of his hand, and marked off the sky wi
 Who has directed God's Spirit, or has taught him as his counselor? 
 Who did he take counsel with, and who instructed him, and taught him in the path of justice, and taught him knowledge, and showed him the way of understanding? 
 Look, the nations are like a drop in a bucket, and are regarded as a speck of dust on a balance. Look, he lifts up the islands like a very little thing. 
-Lebanon is not sufficient to burn, nor its animals sufficient for a burnt offering. 
+Lebanon isn't sufficient to burn, nor its animals sufficient for a burnt offering. 
 All the nations are like nothing before him. They are regarded by him as less than nothing, and vanity. 
 To whom then will you liken God? Or what likeness will you compare to him? 
 A workman has cast an image, and the goldsmith overlays it with gold, and casts silver chains for it. 
-He who is too impoverished for such an offering chooses a tree that will not rot. He seeks a skillful workman to set up a carved image for him that will not be moved. 
+He who is too impoverished for such an offering chooses a tree that won't rot. He seeks a skillful workman to set up a carved image for him that won't be moved. 
 Haven't you known? Haven't you heard? Haven't you been told from the beginning? Haven't you understood from the foundations of the earth? 
 It is he who sits above the circle of the earth, and its inhabitants are like grasshoppers; who stretches out the sky like a curtain, and spreads them out like a tent to dwell in, 
 who brings princes to nothing, who makes the judges of the earth meaningless. 

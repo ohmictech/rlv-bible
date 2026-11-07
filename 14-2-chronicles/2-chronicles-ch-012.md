@@ -4,7 +4,7 @@ with twelve hundred chariots and sixty thousand horsemen. The people were withou
 He took the fortified cities which belonged to Judah, and came to Jerusalem. 
 Now Shemaiah the spokesman came to Rehoboam and to the princes of Judah, who were gathered together to Jerusalem because of Shishak, and said to them, "God says, 'You have forsaken me, I have also left you in the hand of Shishak.'" 
 Then the princes of Israel and the king humbled themselves; and they said, "God is righteous." 
-When God saw that they humbled themselves, God's word came to Shemaiah, saying, "They have humbled themselves. I will not destroy them, but I will grant them some deliverance, and my wrath won't be poured out on Jerusalem by the hand of Shishak. 
+When God saw that they humbled themselves, God's word came to Shemaiah, saying, "They have humbled themselves. I won't destroy them, but I will grant them some deliverance, and my wrath won't be poured out on Jerusalem by the hand of Shishak. 
 Nevertheless they will be his servants, that they may know my service, and the service of the kingdoms of the countries." 
 So Shishak king of Egypt came up against Jerusalem and took away the treasures of God's house and the treasures of the king's house. He took it all away. He also took away the shields of gold which Solomon had made. 
 King Rehoboam made shields of bronze in their place, and committed them to the hands of the captains of the guard, who kept the door of the king's house. 

@@ -21,8 +21,8 @@ They went in to the king into the court, but they had laid up the scroll in the 
 So the king sent Jehudi to get the scroll, and he took it out of the room of Elishama the secretary. Jehudi read it in the hearing of the king, and in the hearing of all the princes who stood beside the king. 
 Now the king was sitting in the winter house in the ninth month, and there was a fire in the brazier burning before him. 
 When Jehudi had read three or four columns, the king cut it with the penknife, and cast it into the fire that was in the brazier, until all the scroll was consumed in the fire that was in the brazier. 
-The king and his servants who heard all these words were not afraid, and didn't tear their garments. 
-Moreover Elnathan and Delaiah and Gemariah had made intercession to the king that he would not burn the scroll; but he would not listen to them. 
+The king and his servants who heard all these words weren't afraid, and didn't tear their garments. 
+Moreover Elnathan and Delaiah and Gemariah had made intercession to the king that he wouldn't burn the scroll; but he wouldn't listen to them. 
 The king commanded Jerahmeel the king's son, and Seraiah the son of Azriel, and Shelemiah the son of Abdeel, to arrest Baruch the secretary and Jeremiah the spokesman; but God hid them. 
 Then God's word came to Jeremiah, after the king had burned the scroll, and the words which Baruch wrote at the mouth of Jeremiah, saying, 
 "Take again another scroll, and write in it all the former words that were in the first scroll, which Jehoiakim the king of Judah has burned. 

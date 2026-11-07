@@ -4,7 +4,7 @@ You have reproached me ten times. You aren't ashamed that you attack me.
 If it is true that I have erred, my error remains with myself. 
 If indeed you will magnify yourselves against me, and plead against me my reproach, 
 know now that God has subverted me, and has surrounded me with his net. 
-"Look, I cry out of wrong, but I am not heard. I cry for help, but there is no justice. 
+"Look, I cry out of wrong, but I'm not heard. I cry for help, but there is no justice. 
 He has walled up my way so that I can't pass, and has set darkness in my paths. 
 He has stripped me of my glory, and taken the crown from my head. 
 He has broken me down on every side, and I am gone. He has plucked my hope up like a tree. 
@@ -19,7 +19,7 @@ Even young children despise me. If I arise, they speak against me.
 All my familiar friends abhor me. They whom I loved have turned against me. 
 My bones stick to my skin and to my flesh. I have escaped by the skin of my teeth. 
 "Have pity on me. Have pity on me, you my friends, for the hand of God has touched me. 
-Why do you persecute me as God, and are not satisfied with my flesh? 
+Why do you persecute me as God, and aren't satisfied with my flesh? 
 "Oh that my words were now written! Oh that they were inscribed in a book! 
 That with an iron pen and lead they were engraved in the rock for the eras! 
 But as for me, I know that the one who buys me back lives. In the end, he will stand upon the earth. 

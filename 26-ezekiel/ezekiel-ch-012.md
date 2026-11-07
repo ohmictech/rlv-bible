@@ -9,8 +9,8 @@ In the morning, God's word came to me, saying,
 "Son of man, hasn't the house of Israel, the rebellious house, said to you, 'What are you doing?' 
 "Say to them, 'The God says: "This burden concerns the prince in Jerusalem, and all the house of Israel among whom they are."' 
 "Say, 'I am your sign. As I have done, so will it be done to them. They will go into exile, into captivity. 
-"'The prince who is among them will bear his baggage on his shoulder in the dark, and will go out. They will dig through the wall to carry things out that way. He will cover his face, because he will not see the land with his eyes. 
-I will also spread my net on him, and he will be taken in my snare. I will bring him to Babylon to the land of the Chaldeans; yet he will not see it, though he will die there. 
+"'The prince who is among them will bear his baggage on his shoulder in the dark, and will go out. They will dig through the wall to carry things out that way. He will cover his face, because he won't see the land with his eyes. 
+I will also spread my net on him, and he will be taken in my snare. I will bring him to Babylon to the land of the Chaldeans; yet he won't see it, though he will die there. 
 I will scatter toward every wind everyone who is around him to help him, and all his bands. I will draw out the sword after them. 
 "'They will know that I am God when I disperse them among the nations and scatter them through the countries. 
 But I will leave a few men of them from the sword, from the famine, and from the pestilence, that they may declare all their abominations among the nations where they come. Then they will know that I am God.'" 

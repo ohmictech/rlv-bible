@@ -10,10 +10,10 @@ Much more then, being now made right by his blood, we will be rescued from God's
 If while we were enemies, we were brought back to God through the death of his Son, much more, being brought back, we will be rescued by his life. 
 Not only so, but we also take pride in God through our Lord Jesus Christ, through whom we have now received the bringing back together. 
 So, as the drift entered into the world through one man, and death through the drift, so death passed to everyone because all drifted. 
-Until the law came, the drift was in the world; but the drift is not charged when there is no law. 
+Until the law came, the drift was in the world; but the drift isn't charged when there is no law. 
 Nevertheless death reigned from Adam until Moses, even over those whose drifting wasn't like Adam's disobedience, who is a foreshadowing of him who was to come. 
 But the free gift isn't like the false step. If by the false step of the one everyone died, much more did the gift of God and the free gift through the one man, Jesus Christ, overflow to everyone. 
-The gift is not as through one who drifted; for the verdict came by one to a sentence, but the free gift followed many false steps to being made right. 
+The gift isn't as through one who drifted; for the verdict came by one to a sentence, but the free gift followed many false steps to being made right. 
 If by the false step of the one, death reigned through the one; so much more will those who receive the overflow of favor and of the gift of rightness reign in real life through the one, Jesus Christ. 
 So then as through one false step, everyone was sentenced; even so through one act of rightness, everyone was made right to life. 
 As through the one man's disobedience everyone was made drift-prone, even so through the obedience of the one, everyone will be made right. 

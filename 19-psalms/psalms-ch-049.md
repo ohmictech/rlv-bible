@@ -6,7 +6,7 @@ Why should I fear in the days of bad, when guilt at my heels surrounds me?
 Those who trust in their wealth, and boast in the multitude of their riches 
 none of them can by any means buy back his brother, nor give God a ransom for him. 
 The buying back of their life is costly, no payment is ever enough, 
-that he should live on for the eras, that he should not see corruption. 
+that he should live on for the eras, that he shouldn't see corruption. 
 He sees that wise men die; likewise the fool and the senseless perish, and leave their wealth to others. 
 Their inward thought is that their houses will endure for the eras, and their dwelling places to all generations. They name their lands after themselves. 
 But man, despite his riches, doesn't endure. He is like the animals that perish. 

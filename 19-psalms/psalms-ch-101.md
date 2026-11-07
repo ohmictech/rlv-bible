@@ -1,6 +1,6 @@
 ﻿A Psalm by David. I will sing of loving kindness and justice. To you, God, I will sing praises. 
 I will be careful to live a blameless life. When will you come to me? I will walk within my house with a blameless heart. 
-I will set no vile thing before my eyes. I hate the deeds of faithless men. They will not cling to me. 
+I will set no vile thing before my eyes. I hate the deeds of faithless men. They won't cling to me. 
 A perverse heart will be far from me. I will have nothing to do with bad. 
 I will silence whoever secretly slanders his neighbor. I won't tolerate one who is arrogant and conceited. 
 My eyes will be on the faithful of the land, that they may dwell with me. He who walks in a perfect way, he will serve me. 

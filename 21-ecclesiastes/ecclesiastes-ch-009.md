@@ -8,11 +8,11 @@ Go your way, eat your bread with joy, and drink your wine with a merry heart; fo
 Let your garments be always white, and don't let your head lack oil. 
 Live joyfully with the wife whom you love all the days of your life of vanity, which he has given you under the sun, all your days of vanity, for that is your portion in life, and in your labor in which you labor under the sun. 
 Whatever your hand finds to do, do it with your might; for there is no work, nor plan, nor knowledge, nor wisdom, in Hades, where you are going. 
-I returned and saw under the sun that the race is not to the swift, nor the battle to the strong, neither yet bread to the wise, nor yet riches to men of understanding, nor yet favor to men of skill; but time and chance happen to them all. 
+I returned and saw under the sun that the race isn't to the swift, nor the battle to the strong, neither yet bread to the wise, nor yet riches to men of understanding, nor yet favor to men of skill; but time and chance happen to them all. 
 Man also doesn't know his time. As the fish that are taken in an bad net, and as the birds that are caught in the snare, even so are the sons of men snared in an bad time, when it falls suddenly on them. 
 I have also seen wisdom under the sun in this way, and it seemed great to me. 
 There was a little city, and few men within it; and a great king came against it, besieged it, and built great bulwarks against it. 
 Now a poor wise man was found in it, and he by his wisdom delivered the city; yet no man remembered that same poor man. 
-Then I said, "Wisdom is better than strength." Nevertheless the poor man's wisdom is despised, and his words are not heard. 
+Then I said, "Wisdom is better than strength." Nevertheless the poor man's wisdom is despised, and his words aren't heard. 
 The words of the wise heard in quiet are better than the cry of him who rules among fools. 
 Wisdom is better than weapons of war; but one one who drifts destroys much good. 

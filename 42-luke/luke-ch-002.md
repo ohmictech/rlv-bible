@@ -23,7 +23,7 @@ When the days of their purification according to the law of Moses were over, the
 (as it is written in the law of the Lord, "Every male who opens the womb will be called set apart to the Lord"), 
 and to offer a sacrifice according to what is said in the law of the Lord, "A pair of turtledoves, or two young pigeons." 
 Look, there was a man in Jerusalem named Simeon. This man was upright and devout, looking for the comfort of Israel, and the Holy Spirit was on him. 
-It had been revealed to him by the Holy Spirit that he should not see death before he had seen the Lord's Christ. 
+It had been revealed to him by the Holy Spirit that he shouldn't see death before he had seen the Lord's Christ. 
 He came in the Spirit into the temple, and when the parents brought in the child, Jesus, to do for him according to the custom of the law, 
 he took him into his arms and blessed God, and said, 
 "Now you are setting your slave free, Master, according to your word, in wholeness; 

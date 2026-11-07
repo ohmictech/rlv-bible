@@ -5,7 +5,7 @@ God met Balaam, and he said to him, "I have prepared the seven altars, and I hav
 God put a word in Balaam's mouth, and said, "Return to Balak, and thus you shall speak." 
 He returned to him, and look, he was standing by his burnt offering, he, and all the princes of Moab. 
 He took up his parable, and said, "From Aram has Balak brought me, the king of Moab from the mountains of the East. Come, curse Jacob for me. Come, defy Israel. 
-How shall I curse whom God has not cursed? How shall I defy whom God has not defied? 
+How shall I curse whom God hasn't cursed? How shall I defy whom God hasn't defied? 
 From the top of the rocks I see him. From the hills I see him. Look, it is a people that dwells alone, and shall not be listed among the nations. 
 Who can count the dust of Jacob, or count the fourth part of Israel? Let me die the death of the righteous! Let my last end be like his!" 
 Balak said to Balaam, "What have you done to me? I took you to curse my enemies, and look, you have blessed them altogether." 
@@ -16,9 +16,9 @@ He said to Balak, "Stand here by your burnt offering, while I meet God over ther
 God met Balaam, and put a word in his mouth, and said, "Return to Balak, and say this." 
 He came to him, and look, he was standing by his burnt offering, and the princes of Moab with him. Balak said to him, "What has God spoken?" 
 He took up his parable, and said, "Rise up, Balak, and hear! Listen to me, you son of Zippor. 
-God is not a man, that he should lie, nor a son of man, that he should repent. Has he said, and he won't do it? Or has he spoken, and he won't make it good? 
+God isn't a man, that he should lie, nor a son of man, that he should repent. Has he said, and he won't do it? Or has he spoken, and he won't make it good? 
 Look, I have received a command to bless. He has blessed, and I can't reverse it. 
-He has not seen guilt in Jacob. Neither has he seen perverseness in Israel. His God is with him. The shout of a king is among them. 
+He hasn't seen guilt in Jacob. Neither has he seen perverseness in Israel. His God is with him. The shout of a king is among them. 
 God brings them out of Egypt. He has as it were the strength of the wild ox. 
 Surely there is no enchantment with Jacob; neither is there any divination with Israel. Now it shall be said of Jacob and of Israel, 'What has God done!' 
 Look, a people rises up as a lioness. As a lion he lifts himself up. He shall not lie down until he eats of the prey, and drinks the blood of the slain." 

@@ -20,5 +20,5 @@ He blessed him and said, "Blessed be Abram by God Most High, owner of the sky an
 Blessed be God Most High, who has delivered your enemies into your hand." Abram gave him a tenth of all. 
 The king of Sodom said to Abram, "Give me the people, and take the goods for yourself." 
 Abram said to the king of Sodom, "I have lifted up my hand to God Most High, owner of the sky and earth, 
-that I will not take a thread or a sandal strap or anything that is yours, so you cannot say, 'I made Abram rich.' 
+that I won't take a thread or a sandal strap or anything that is yours, so you can't say, 'I made Abram rich.' 
 I will accept nothing except what the young men have eaten and the share of the men who went with me. Let Aner, Eshcol, and Mamre take their share." 

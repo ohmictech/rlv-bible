@@ -20,7 +20,7 @@ They made two rings of gold, and put them on the two ends of the breastplate, on
 They made two more rings of gold, and put them on the two shoulder straps of the ephod underneath, in its front, close by its coupling, above the skillfully woven band of the ephod. 
 They bound the breastplate by its rings to the rings of the ephod with a lace of blue, that it might be on the skillfully woven band of the ephod, and that the breastplate might not come loose from the ephod, as God commanded Moses. 
 He made the robe of the ephod of woven work, all of blue. 
-The opening of the robe in the middle of it was like the opening of a coat of mail, with a binding around its opening, that it should not be torn. 
+The opening of the robe in the middle of it was like the opening of a coat of mail, with a binding around its opening, that it shouldn't be torn. 
 They made on the skirts of the robe pomegranates of blue, purple, scarlet, and twined linen. 
 They made bells of pure gold, and put the bells between the pomegranates around the skirts of the robe, between the pomegranates; 
 a bell and a pomegranate, a bell and a pomegranate, around the skirts of the robe, to minister in, as God commanded Moses. 

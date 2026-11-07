@@ -6,7 +6,7 @@ He was king in Jeshurun, when the heads of the people were gathered, all the tri
 "Let Reuben live, and not die; Nor let his men be few." 
 This is for Judah. He said, "Hear, God, the voice of Judah. Bring him in to his people. With his hands he contended for himself. You shall be a help against his adversaries." 
 About Levi he said, "Your Thummim and your Urim are with your godly one, whom you proved at Massah, with whom you contended at the waters of Meribah. 
-He said of his father, and of his mother, 'I have not seen him.' He didn't acknowledge his brothers, nor did he know his own children; for they have observed your word, and keep your covenant. 
+He said of his father, and of his mother, 'I haven't seen him.' He didn't acknowledge his brothers, nor did he know his own children; for they have observed your word, and keep your covenant. 
 They shall teach Jacob your ordinances, and Israel your law. They shall put incense before you, and whole burnt offering on your altar. 
 God, bless his skills. Accept the work of his hands. Strike through the hips of those who rise up against him, of those who hate him, that they not rise again." 
 About Benjamin he said, "The beloved of God will dwell in safety by him. He covers him all day long. He dwells between his shoulders." 

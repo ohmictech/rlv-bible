@@ -1,7 +1,7 @@
 ﻿By night on my bed, I sought him whom my soul loves. I sought him, but I didn't find him. 
 I will get up now, and go about the city; in the streets and in the squares I will seek him whom my soul loves. I sought him, but I didn't find him. 
 The watchmen who go about the city found me; "Have you seen him whom my soul loves?" 
-I had scarcely passed from them, when I found him whom my soul loves. I held him, and would not let him go, until I had brought him into my mother's house, into the room of her who conceived me. 
+I had scarcely passed from them, when I found him whom my soul loves. I held him, and wouldn't let him go, until I had brought him into my mother's house, into the room of her who conceived me. 
 I adjure you, daughters of Jerusalem, by the roes, or by the hinds of the field, that you not stir up nor awaken love, until it so desires. 
 Who is this who comes up from the wilderness like pillars of smoke, perfumed with myrrh and frankincense, with all spices of the merchant? 
 Look, it is Solomon's carriage! Sixty mighty men are around it, of the mighty men of Israel. 

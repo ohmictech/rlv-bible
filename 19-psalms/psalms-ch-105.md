@@ -34,7 +34,7 @@ He struck their vines and also their fig trees, and shattered the trees of their
 He spoke, and the locusts came with the grasshoppers, without number. 
 They ate up every plant in their land, and ate up the fruit of their ground. 
 He struck also all the firstborn in their land, the first fruits of all their manhood. 
-He brought them out with silver and gold. There was not one feeble person among his tribes. 
+He brought them out with silver and gold. There wasn't one feeble person among his tribes. 
 Egypt was glad when they departed, for the fear of them had fallen on them. 
 He spread a cloud for a covering, fire to give light in the night. 
 They asked, and he brought quails, and satisfied them with the bread of the sky. 

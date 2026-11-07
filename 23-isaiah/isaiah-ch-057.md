@@ -8,12 +8,12 @@ On a high and lofty mountain you have set your bed. You also went up there to of
 You have set up your memorial behind the doors and the posts, for you have exposed yourself to someone besides me, and have gone up. You have enlarged your bed and made a covenant for yourself with them. You loved what you saw on their bed. 
 You went to the king with oil, increased your perfumes, sent your ambassadors far off, and degraded yourself even to Hades. 
 You were wearied with the length of your ways; yet you didn't say, 'It is in vain.' You found a reviving of your strength; you weren't faint. 
-"Whom have you dreaded and feared, so that you lie, and have not remembered me, nor laid it to your heart? Haven't I held my peace for a long time, and you don't fear me? 
-I will declare your righteousness; and as for your works, they will not benefit you. 
+"Whom have you dreaded and feared, so that you lie, and haven't remembered me, nor laid it to your heart? Haven't I held my peace for a long time, and you don't fear me? 
+I will declare your righteousness; and as for your works, they won't benefit you. 
 When you cry, let those whom you have gathered deliver you, but the wind will take them. A breath will carry them all away, but he who takes refuge in me will possess the land, and will inherit my holy mountain." 
 He will say, "Build up, build up, prepare the way! Remove the stumbling-block out of the way of my people." 
 The high and lofty One who inhabits eternity, whose name is Holy, says: "I dwell in the high and holy place, with him also who is of a contrite and humble spirit, to revive the spirit of the humble, and to revive the heart of the contrite. 
-I will not contend for the eras, neither will I always be angry; for the spirit would faint before me, and the souls whom I have made. 
+I won't contend for the eras, neither will I always be angry; for the spirit would faint before me, and the souls whom I have made. 
 I was angry because of the guilt of his covetousness and struck him. I hid myself and was angry; and he went on backsliding in the way of his heart. 
 I have seen his ways, and will heal him. I will lead him also, and restore comforts to him and to his mourners. 
 I create the fruit of the lips: Peace, peace, to him who is far off and to him who is near," says God; "and I will heal them." 

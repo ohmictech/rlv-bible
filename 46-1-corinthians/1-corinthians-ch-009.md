@@ -1,5 +1,5 @@
 ﻿Am I not free? Am I not a sent one? Haven't I seen Jesus Christ our Lord? Aren't you my work in the Lord? 
-If to others I am not a sent one, yet at least I am to you; for you are the seal of my sending out in the Lord. 
+If to others I'm not a sent one, yet at least I am to you; for you are the seal of my sending out in the Lord. 
 My defense to those who examine me is this: 
 Have we no right to eat and to drink? 
 Have we no right to take along a wife who trusts, just as the rest of the sent ones, and the brothers of the Lord, and Cephas? 
@@ -24,4 +24,4 @@ Now I do this for the sake of the Good News, that I may be a joint partaker of i
 Don't you know that those who run in a race all run, but one receives the prize? Run like that, so that you may win. 
 Every person who competes in the games practices self-control in all things. They do it to receive a decaying wreath, but we an undecaying one. 
 I run like that, not aimlessly. I fight like that, not beating the air, 
-but I beat my body and make it my slave, so that after I have announced to others, I myself should not fail the test. 
+but I beat my body and make it my slave, so that after I have announced to others, I myself shouldn't fail the test. 

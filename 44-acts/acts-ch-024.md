@@ -7,7 +7,7 @@ He even tried to profane the temple courts, and we arrested him.
 By examining him yourself you may ascertain all these things of which we accuse him." 
 The Jewish leaders also joined in the attack, affirming that these things were so. 
 When the governor had beckoned to him to speak, Paul answered, "Because I know that you have been a judge of this nation for many years, I cheerfully make my defense, 
-seeing that you can verify that it is not more than twelve days since I went up to worship at Jerusalem. 
+seeing that you can verify that it isn't more than twelve days since I went up to worship at Jerusalem. 
 In the temple courts they didn't find me disputing with anyone or stirring up a crowd, either in the gathering places or in the city. 
 Nor can they prove to you the things of which they now accuse me. 
 But this I confess to you, that according to the Way, which they call a faction, so I serve the God of our fathers, trusting all things which are according to the law, and which are written in the spokesmen; 

@@ -2,7 +2,7 @@
 and Hamath, also, which borders on it, Tyre and Sidon, because they are very wise. 
 Tyre built herself a stronghold, and heaped up silver like the dust, and fine gold like the mire of the streets. 
 Look, the Lord will dispossess her, and he will strike her power in the sea; and she will be devoured with fire. 
-Ashkelon will see it, and fear; Gaza also, and will writhe in agony; as will Ekron, for her expectation will be disappointed; and the king will perish from Gaza, and Ashkelon will not be inhabited. 
+Ashkelon will see it, and fear; Gaza also, and will writhe in agony; as will Ekron, for her expectation will be disappointed; and the king will perish from Gaza, and Ashkelon won't be inhabited. 
 Foreigners will dwell in Ashdod, and I will cut off the pride of the Philistines. 
 I will take away his blood out of his mouth, and his abominations from between his teeth; and he also will be a remnant for our God; and he will be as a chieftain in Judah, and Ekron as a Jebusite. 
 I will encamp around my house against the army, that no one pass through or return; and no oppressor will pass through them any more: for now I have seen with my eyes. 

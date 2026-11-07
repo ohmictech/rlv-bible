@@ -6,7 +6,7 @@ My wounds are loathsome and corrupt because of my foolishness.
 I am in pain and bowed down greatly. I go mourning all day long. 
 My waist is filled with burning. There is no soundness in my flesh. 
 I am faint and severely bruised. I have groaned by reason of the anguish of my heart. 
-Lord, all my desire is before you. My groaning is not hidden from you. 
+Lord, all my desire is before you. My groaning isn't hidden from you. 
 My heart throbs. My strength fails me. As for the light of my eyes, it has also left me. 
 My lovers and my friends stand aloof from my plague. My kinsmen stand far away. 
 They also who seek after my life lay snares. Those who seek my hurt speak mischievous things, and meditate deceits all day long. 

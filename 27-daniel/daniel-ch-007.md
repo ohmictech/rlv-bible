@@ -11,7 +11,7 @@ A fiery stream issued and came out from before him. Thousands of thousands minis
 "I watched at that time because of the voice of the arrogant words which the horn spoke. I watched even until the animal was slain, and its body destroyed, and it was given to be burned with fire. 
 As for the rest of the animals, their dominion was taken away; yet their lives were prolonged for a season and a time. 
 "I saw in the night visions, and look, there came with the clouds of the sky one like a son of man, and he came even to the Ancient of Days, and they brought him near before him. 
-Dominion was given him, and glory, and a kingdom, that everyones, nations, and languages should serve him. His dominion is an perpetual dominion, which will not pass away, and his kingdom one that will not be destroyed. 
+Dominion was given him, and glory, and a kingdom, that everyones, nations, and languages should serve him. His dominion is an perpetual dominion, which won't pass away, and his kingdom one that won't be destroyed. 
 "As for me, Daniel, my spirit was grieved within my body, and the visions of my head troubled me. 
 I came near to one of those who stood by, and asked him the truth concerning all this. "So he told me, and made me know the interpretation of the things. 
 'These great animals, which are four, are four kings, who will arise out of the earth. 

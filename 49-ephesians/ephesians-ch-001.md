@@ -13,7 +13,7 @@ so that we would be to the praise of his weight, we who had already set our expe
 In him you also, when you heard the word of truth, the Good News of your healing and wholeness, and when you trusted, were stamped with the Holy Spirit he had promised, 
 who is the down payment on the charge handed down to us, right up to the release of the people God has made his own, to the praise of his weight. 
 That is why I too, since I heard about the trust in the Lord Jesus that is among you, and the love you have for all the set-apart ones, 
-have not stopped giving thanks for you, remembering you in my prayers, 
+haven't stopped giving thanks for you, remembering you in my prayers, 
 I ask that the God of our Lord Jesus Christ, the Father of weight, may give you a spirit of wisdom and unveiling as you come to know him, 
 with the eyes of your heart opened, so that you may know what his calling makes you expect, and how rich and heavy the charge he has handed down among the set-apart ones is, 
 and how far beyond all measure his power is toward us who trust, measured by that working of his powerful might, 

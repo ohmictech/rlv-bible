@@ -1,7 +1,7 @@
 ﻿Elihu also continued, and said, 
 "Bear with me a little, and I will show you; for I still have something to say on God's behalf. 
 I will get my knowledge from afar, and will ascribe righteousness to my Maker. 
-Truly my words are not false. One who is perfect in knowledge is with you. 
+Truly my words aren't false. One who is perfect in knowledge is with you. 
 "Look, God is mighty, and doesn't despise anyone. He is mighty in strength of understanding. 
 He doesn't preserve the life of the guilty, but gives justice to the afflicted. 
 He doesn't withdraw his eyes from the righteous, but with kings on the throne, he sets them for the eras, and they are exalted. 

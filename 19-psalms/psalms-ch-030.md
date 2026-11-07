@@ -1,6 +1,6 @@
-﻿A Psalm. A Song for the Dedication of the Temple. By David. I will extol you, God, for you have raised me up, and have not made my foes to rejoice over me. 
+﻿A Psalm. A Song for the Dedication of the Temple. By David. I will extol you, God, for you have raised me up, and haven't made my foes to rejoice over me. 
 God my God, I cried to you, and you have healed me. 
-God, you have brought up my soul from Hades. You have kept me alive, that I should not go down to the pit. 
+God, you have brought up my soul from Hades. You have kept me alive, that I shouldn't go down to the pit. 
 Sing praise to God, you saints of his. Give thanks to his holy name. 
 His anger is but for a moment. His favor is for a lifetime. Weeping may stay for the night, but joy comes in the morning. 
 As for me, I said in my prosperity, "I shall never be moved." 

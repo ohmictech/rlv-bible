@@ -16,4 +16,4 @@ When the children of Ammon saw that the Syrians had fled, they likewise fled bef
 When the Syrians saw that they were defeated by Israel, they sent messengers and called out the Syrians who were beyond the River, with Shophach the captain of the army of Hadadezer leading them. 
 David was told that, so he gathered all Israel together, passed over the Jordan, came to them, and set the battle in array against them. So when David had put the battle in array against the Syrians, they fought with him. 
 The Syrians fled before Israel; and David killed of the Syrian men seven thousand charioteers and forty thousand footmen, and also killed Shophach the captain of the army. 
-When the servants of Hadadezer saw that they were defeated by Israel, they made peace with David and served him. The Syrians would not help the children of Ammon any more. 
+When the servants of Hadadezer saw that they were defeated by Israel, they made peace with David and served him. The Syrians wouldn't help the children of Ammon any more. 

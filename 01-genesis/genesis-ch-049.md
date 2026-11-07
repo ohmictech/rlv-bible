@@ -7,7 +7,7 @@ My soul, don't come into their council. My glory, don't be united to their assem
 Cursed be their anger, for it was fierce; and their wrath, for it was cruel. I will divide them in Jacob, and scatter them in Israel. 
 "Judah, your brothers will praise you. Your hand will be on the neck of your enemies. Your father's sons will bow down before you. 
 Judah is a lion's cub. From the prey, my son, you have gone up. He stooped down, he crouched as a lion, as a lioness. Who will rouse him up? 
-The scepter will not depart from Judah, nor the ruler's staff from between his feet, until he comes to whom it belongs. The obedience of the peoples will be to him. 
+The scepter won't depart from Judah, nor the ruler's staff from between his feet, until he comes to whom it belongs. The obedience of the peoples will be to him. 
 Binding his foal to the vine, his donkey's colt to the choice vine, he has washed his garments in wine, his robes in the blood of grapes. 
 His eyes will be red with wine, his teeth white with milk. 
 "Zebulun will dwell at the haven of the sea. He will be for a haven of ships. His border will be on Sidon. 

@@ -8,11 +8,11 @@ I said, "Just fear me. Receive correction," so that her dwelling won't be cut of
 "So wait for me", says God, "until the day that I rise up to the prey, for my determination is to gather the nations, that I may assemble the kingdoms to pour on them my indignation, even all my fierce anger, for all the earth will be devoured with the fire of my jealousy. 
 Then I will purify the lips of the peoples, that they may all call on God's name, to serve him shoulder to shoulder. 
 From beyond the rivers of Cush, my worshipers, even the daughter of my dispersed people, will bring my offering. 
-In that day you will not be disappointed for all your doings in which you have transgressed against me; for then I will take away out from among you your proudly exulting ones, and you will no more be arrogant in my holy mountain. 
+In that day you won't be disappointed for all your doings in which you have transgressed against me; for then I will take away out from among you your proudly exulting ones, and you will no more be arrogant in my holy mountain. 
 But I will leave among you an afflicted and poor people, and they will take refuge in God's name. 
-The remnant of Israel will not do guilt nor speak lies, neither will a deceitful tongue be found in their mouth, for they will feed and lie down, and no one will make them afraid." 
+The remnant of Israel won't do guilt nor speak lies, neither will a deceitful tongue be found in their mouth, for they will feed and lie down, and no one will make them afraid." 
 Sing, daughter of Zion! Shout, Israel! Be glad and rejoice with all your heart, daughter of Jerusalem. 
-God has taken away your judgments. He has thrown out your enemy. The King of Israel, God, is among you. You will not be afraid of bad any more. 
+God has taken away your judgments. He has thrown out your enemy. The King of Israel, God, is among you. You won't be afraid of bad any more. 
 In that day, it will be said to Jerusalem, "Don't be afraid, Zion. Don't let your hands be weak." 
 God, your God, is among you, a mighty one who will save. He will rejoice over you with joy. He will calm you in his love. He will rejoice over you with singing. 
 I will remove those who grieve about the appointed feasts from you. They are a burden and a reproach to you. 

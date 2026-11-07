@@ -3,7 +3,7 @@ You drove out the nations with your hand, but you planted them. You afflicted th
 They didn't get the land in possession by their own sword, neither did their own arm save them; but your right hand, your arm, and the light of your face, because you were favorable to them. 
 God, you are my King. Command victories for Jacob! 
 Through you, we will push down our adversaries. Through your name, we will tread down those who rise up against us. 
-I will not trust in my bow, neither will my sword save me. 
+I won't trust in my bow, neither will my sword save me. 
 But you have saved us from our adversaries, and have shamed those who hate us. 
 In God we have made our boast all day long. We will give thanks to your name for the eras. Selah. 
 But now you rejected us, and brought us to dishonor, and don't go out with our armies. 
@@ -15,7 +15,7 @@ You make us a byword among the nations, a shaking of the head among the peoples.
 All day long my dishonor is before me, and shame covers my face, 
 at the taunt of one who reproaches and verbally abuses, because of the enemy and the avenger. 
 All this has come on us, yet we haven't forgotten you. We haven't been false to your covenant. 
-Our heart has not turned back, neither have our steps strayed from your path, 
+Our heart hasn't turned back, neither have our steps strayed from your path, 
 though you have crushed us in the haunt of jackals, and covered us with the shadow of death. 
 If we have forgotten the name of our God, or spread out our hands to a strange god, 
 won't God search this out? He knows the secrets of the heart. 

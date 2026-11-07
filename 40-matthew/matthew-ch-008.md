@@ -23,7 +23,7 @@ But Jesus said to him, "Follow me, and leave the dead to bury their own dead."
 When he got into a boat, his students followed him. 
 Suddenly, a violent storm came up on the sea, so that the boat was covered with the waves, but he was asleep. 
 The students came to him and woke him up, saying, "Rescue us, Lord! We are dying!" 
-He said to them, "Why are you afraid, you who do not trust?" Then he got up, rebuked the wind and the sea, and there was a great calm. 
+He said to them, "Why are you afraid, you who don't trust?" Then he got up, rebuked the wind and the sea, and there was a great calm. 
 The men were amazed, saying, "What kind of man is this, that even the wind and the sea obey him?" 
 When he came to the other side, into the country of the Gergesenes, two people possessed by unclean spirits met him there as they came out of the tombs. They were so violent that nobody could pass that way. 
 Suddenly, they cried out, saying, "What do we have to do with you, Jesus, Son of God? Have you come here to put us in anguish before the time?" 

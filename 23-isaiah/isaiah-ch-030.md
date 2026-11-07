@@ -2,11 +2,11 @@
 who set out to go down into Egypt without asking for my advice, to strengthen themselves in the strength of Pharaoh, and to take refuge in the shadow of Egypt! 
 So the strength of Pharaoh will be your shame, and the refuge in the shadow of Egypt your confusion. 
 Their princes are at Zoan, and their ambassadors have come to Hanes. 
-They shall all be ashamed because of a people that can't profit them, that are not a help nor profit, but a shame, and also a reproach." 
+They shall all be ashamed because of a people that can't profit them, that aren't a help nor profit, but a shame, and also a reproach." 
 The burden of the animals of the South. Through the land of trouble and anguish, of the lioness and the lion, the viper and fiery flying serpent, they carry their riches on the shoulders of young donkeys, and their treasures on the humps of camels, to an unprofitable people. 
 Egypt helps in vain, and to no purpose; I have called her Rahab who sits still. 
 Now go, write it before them on a tablet, and inscribe it in a book, that it may be for the time to come for all the eras. 
-It is a rebellious people, lying children, children who will not hear God's law; 
+It is a rebellious people, lying children, children who won't hear God's law; 
 who tell the seers, "Don't see!" and the spokesmen, "Don't prophesy to us right things. Tell us pleasant things. Prophesy deceits. 
 Get out of the way. Turn away from the path. Cause the Holy One of Israel to cease from before us." 
 So the Holy One of Israel says, "Because you despise this word, and trust in oppression and perverseness, and rely on it, 

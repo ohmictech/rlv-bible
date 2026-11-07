@@ -29,7 +29,7 @@ Then the priest shall put some of the oil that is in his hand on the tip of the 
 The rest of the oil that is in the priest's hand he shall put on the head of him who is to be cleansed, to make things right for him before God. 
 He shall offer one of the turtledoves, or of the young pigeons, which ever he is able to afford, 
 of the kind he is able to afford, the one for an offering for wrongdoing, and the other for a burnt offering, with the meal offering. The priest shall make things right for him who is to be cleansed before God." 
-This is the law for him in whom is the plague of leprosy, who is not able to afford the sacrifice for his cleansing. 
+This is the law for him in whom is the plague of leprosy, who isn't able to afford the sacrifice for his cleansing. 
 God spoke to Moses and to Aaron, saying, 
 "When you have come into the land of Canaan, which I give to you for a possession, and I put a spreading mildew in a house in the land of your possession, 
 then he who owns the house shall come and tell the priest, saying, 'There seems to me to be some sort of plague in the house.' 

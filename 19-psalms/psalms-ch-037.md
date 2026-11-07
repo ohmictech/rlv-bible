@@ -22,7 +22,7 @@ The guilty borrow, and don't pay back, but the righteous give generously.
 Such as are blessed by him shall inherit the land. Those who are cursed by him shall be cut off. 
 A man's steps are established by God. He delights in his way. 
 Though he stumble, he shall not fall, for God holds him up with his hand. 
-I have been young, and now am old, yet I have not seen the righteous forsaken, nor his children begging for bread. 
+I have been young, and now am old, yet I haven't seen the righteous forsaken, nor his children begging for bread. 
 All day long he deals graciously, and lends. His offspring is blessed. 
 Depart from what is bad, and do good. Live securely for the eras. 
 God loves justice, and doesn't forsake his saints. They are preserved for the eras, but the children of the guilty shall be cut off. 
@@ -30,10 +30,10 @@ The righteous shall inherit the land, and live in it for the eras.
 The mouth of the righteous talks of wisdom. His tongue speaks justice. 
 The law of his God is in his heart. None of his steps shall slide. 
 The guilty watch the righteous, and seek to kill him. 
-God will not leave him in his hand, nor condemn him when he is judged. 
+God won't leave him in his hand, nor condemn him when he is judged. 
 Wait for God, and keep his way, and he will exalt you to inherit the land. When the guilty are cut off, you shall see it. 
 I have seen the guilty in great power, spreading himself like a green tree in its native soil. 
-But he passed away, and look, he was not. Yes, I sought him, but he could not be found. 
+But he passed away, and look, he wasn't. Yes, I sought him, but he couldn't be found. 
 Mark the perfect man, and see the upright, for there is a future for the man of peace. 
 As for transgressors, they shall be destroyed together. The future of the guilty shall be cut off. 
 But the salvation of the righteous is from God. He is their stronghold in the time of trouble. 

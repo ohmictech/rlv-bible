@@ -13,7 +13,7 @@ Tax collectors also came to be immersed, and they said to him, "Teacher, what mu
 He said to them, "Collect no more than what you have been told to collect." 
 Soldiers also asked him, saying, "What about us? What must we do?" He said to them, "Don't take money from anyone by force or by false accusation. Be content with your pay." 
 As the people were in expectation, and everyone was wondering in their hearts concerning John, whether perhaps he was the Christ, 
-John answered them all, "I indeed immerse you with water, but one mightier than I is coming, the strap of whose sandals I am not worthy to loosen. He will immerse you in the Holy Spirit and fire. 
+John answered them all, "I indeed immerse you with water, but one mightier than I is coming, the strap of whose sandals I'm not worthy to loosen. He will immerse you in the Holy Spirit and fire. 
 His winnowing fork is in his hand, and he will clean out his threshing floor completely, and will gather the wheat into his barn; but he will burn the chaff with fire that never goes out." 
 Then with many other appeals he preached good news to the people, 
 but Herod the district ruler, being rebuked by him for Herodias, his brother's wife, and for all the bad things which Herod had done, 

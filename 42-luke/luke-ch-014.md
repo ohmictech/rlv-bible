@@ -28,7 +28,7 @@ Whoever doesn't bear his own cross and come after me, can't be my student.
 Which of you, desiring to build a tower, doesn't first sit down and count the cost, to see if he has enough to complete it? 
 Or perhaps, when he has laid a foundation and isn't able to finish, everyone who sees begins to mock him, 
 saying, 'This man began to build and wasn't able to finish.' 
-Or what king, as he goes to encounter another king in war, will not sit down first and consider whether he is able with ten thousand to meet him who comes against him with twenty thousand? 
+Or what king, as he goes to encounter another king in war, won't sit down first and consider whether he is able with ten thousand to meet him who comes against him with twenty thousand? 
 Or else, while the other is yet a great way off, he sends an envoy and asks for terms of wholeness. 
 So whoever of you doesn't renounce all that he has can't be my student. 
 "Salt is good, but if the salt becomes flat and tasteless, with what do you season it? 

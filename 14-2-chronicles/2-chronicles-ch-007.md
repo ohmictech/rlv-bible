@@ -1,10 +1,10 @@
 ﻿Now when Solomon had finished praying, fire came down from the sky and consumed the burnt offering and the sacrifices; and God's glory filled the house. 
-The priests could not enter into God's house, because God's glory filled God's house. 
+The priests couldn't enter into God's house, because God's glory filled God's house. 
 All the children of Israel looked on, when the fire came down, and God's glory was on the house. They bowed themselves with their faces to the ground on the pavement, worshiped, and gave thanks to God, saying, "For he is good, for his loving kindness endures for the eras!" 
 Then the king and everyone offered sacrifices before God. 
 King Solomon offered a sacrifice of twenty-two thousand head of cattle and a hundred twenty thousand sheep. So the king and everyone dedicated God's house. 
 The priests stood, according to their positions; the Levites also with instruments of music of God, which David the king had made to give thanks to God, when David praised by their ministry, saying "For his loving kindness endures for the eras." The priests sounded trumpets before them; and all Israel stood. 
-Moreover Solomon made the middle of the court that was before God's house holy; for there he offered the burnt offerings and the fat of the offerings for wholeness, because the bronze altar which Solomon had made was not able to receive the burnt offering, the meal offering, and the fat. 
+Moreover Solomon made the middle of the court that was before God's house holy; for there he offered the burnt offerings and the fat of the offerings for wholeness, because the bronze altar which Solomon had made wasn't able to receive the burnt offering, the meal offering, and the fat. 
 So Solomon held the feast at that time for seven days, and all Israel with him, a very great assembly, from the entrance of Hamath to the brook of Egypt. 
 On the eighth day, they held a solemn assembly; for they kept the dedication of the altar seven days, and the feast seven days. 
 On the twenty-third day of the seventh month, he sent the people away to their tents, joyful and glad of heart for the goodness that God had shown to David, to Solomon, and to Israel his people. 

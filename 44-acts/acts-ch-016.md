@@ -18,7 +18,7 @@ Following Paul and us, she cried out, "These men are slaves of the Most High God
 She was doing this for many days. But Paul, becoming greatly annoyed, turned and said to the spirit, "I command you in the name of Jesus Christ to come out of her!" It came out that very hour. 
 But when her masters saw that the hope of their gain was gone, they seized Paul and Silas and dragged them into the marketplace before the rulers. 
 When they had brought them to the magistrates, they said, "These men, being Jewish, are agitating our city 
-and advocate customs which it is not lawful for us to accept or to observe, being Romans." 
+and advocate customs which it isn't lawful for us to accept or to observe, being Romans." 
 The crowd rose up together against them and the magistrates tore their clothes from them, then commanded them to be beaten with rods. 
 When they had laid many stripes on them, they threw them into prison, charging the jailer to keep them safely. 
 Having received such a command, he threw them into the inner prison and secured their feet in the stocks. 

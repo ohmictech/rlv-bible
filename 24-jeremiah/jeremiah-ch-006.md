@@ -12,12 +12,12 @@ So I am full of God's wrath. I am weary with holding it in. "Pour it out on the 
 Their houses will be turned to others, their fields and their wives together; for I will stretch out my hand on the inhabitants of the land, says God." 
 "From their least even to their greatest, everyone is given to covetousness. From the spokesman even to the priest, everyone deals falsely. 
 They have healed also the hurt of my people superficially, saying, 'Peace, peace!' when there is no peace. 
-Were they ashamed when they had committed abomination? No, they were not at all ashamed, neither could they blush. So they will fall among those who fall. When I visit them, they will be cast down," says God. 
-God says, "Stand in the ways and see, and ask for the old paths, 'Where is the good way?' and walk in it, and you will find rest for your souls. But they said, 'We will not walk in it.' 
-I set watchmen over you, saying, 'Listen to the sound of the trumpet!' But they said, 'We will not listen!' 
+Were they ashamed when they had committed abomination? No, they weren't at all ashamed, neither could they blush. So they will fall among those who fall. When I visit them, they will be cast down," says God. 
+God says, "Stand in the ways and see, and ask for the old paths, 'Where is the good way?' and walk in it, and you will find rest for your souls. But they said, 'We won't walk in it.' 
+I set watchmen over you, saying, 'Listen to the sound of the trumpet!' But they said, 'We won't listen!' 
 Therefore hear, you nations, and know, congregation, what is among them. 
-Hear, earth! Look, I will bring bad on this people, even the fruit of their thoughts, because they have not listened to my words; and as for my law, they have rejected it. 
-To what purpose does frankincense from Sheba come to me, and the sweet cane from a far country? Your burnt offerings are not acceptable, and your sacrifices are not pleasing to me." 
+Hear, earth! Look, I will bring bad on this people, even the fruit of their thoughts, because they haven't listened to my words; and as for my law, they have rejected it. 
+To what purpose does frankincense from Sheba come to me, and the sweet cane from a far country? Your burnt offerings aren't acceptable, and your sacrifices aren't pleasing to me." 
 So God says, "Look, I will lay stumbling blocks before this people. The fathers and the sons together will stumble against them. The neighbor and his friend will perish." 
 God says, "Look, a people comes from the north country. A great nation will be stirred up from the uttermost parts of the earth. 
 They take hold of bow and spear. They are cruel, and have no mercy. Their voice roars like the sea, and they ride on horses, everyone set in array, as a man to the battle, against you, daughter of Zion." 
@@ -26,5 +26,5 @@ Don't go out into the field or walk by the way; for the sword of the enemy and t
 Daughter of my people, clothe yourself with sackcloth, and wallow in ashes! Mourn, as for an only son, most bitter lamentation, for the destroyer will suddenly come on us. 
 "I have made you a tester of metals and a fortress among my people, that you may know and try their way. 
 They are all grievous rebels, going around to slander. They are bronze and iron. All of them deal corruptly. 
-The bellows blow fiercely. The lead is consumed in the fire. In vain they go on refining, for the guilty are not plucked away. 
+The bellows blow fiercely. The lead is consumed in the fire. In vain they go on refining, for the guilty aren't plucked away. 
 Men will call them rejected silver, because God has rejected them." 

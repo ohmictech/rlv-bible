@@ -12,7 +12,7 @@ He knows false men. He sees guilt also, even though he doesn't consider it.
 An empty-headed man becomes wise when a man is born as a wild donkey's colt. 
 "If you set your heart aright, stretch out your hands toward him. 
 If guilt is in your hand, put it far away. Don't let unrighteousness dwell in your tents. 
-Surely then you will lift up your face without spot. Yes, you will be steadfast, and will not fear, 
+Surely then you will lift up your face without spot. Yes, you will be steadfast, and won't fear, 
 for you will forget your misery. You will remember it like waters that have passed away. 
 Life will be clearer than the noonday. Though there is darkness, it will be as the morning. 
 You will be secure, because there is hope. Yes, you will search, and will take your rest in safety. 

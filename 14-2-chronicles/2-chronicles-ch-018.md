@@ -14,7 +14,7 @@ Micaiah said, "As God lives, I will say what my God says."
 When he had come to the king, the king said to him, "Micaiah, shall we go to Ramoth Gilead to battle, or shall I forbear?" He said, "Go up, and prosper. They shall be delivered into your hand." 
 The king said to him, "How many times shall I adjure you that you speak to me nothing but the truth in God's name?" 
 He said, "I saw all Israel scattered on the mountains, as sheep that have no shepherd. God said, 'These have no master. Let them each return to his house in peace.'" 
-The king of Israel said to Jehoshaphat, "Didn't I tell you that he would not prophesy good concerning me, but bad?" 
+The king of Israel said to Jehoshaphat, "Didn't I tell you that he wouldn't prophesy good concerning me, but bad?" 
 Micaiah said, "Therefore hear God's word: I saw God sitting on his throne, and all the army of the sky standing on his right hand and on his left. 
 God said, 'Who will entice Ahab king of Israel, that he may go up and fall at Ramoth Gilead?' One spoke saying in this way, and another saying in that way. 
 A spirit came out, stood before God, and said, 'I will entice him.' "God said to him, 'How?' 
@@ -24,11 +24,11 @@ Then Zedekiah the son of Chenaanah came near, and struck Micaiah on the cheek, a
 Micaiah said, "Look, you shall see on that day, when you go into an inner room to hide yourself." 
 The king of Israel said, "Take Micaiah, and carry him back to Amon the governor of the city, and to Joash the king's son; 
 and say, 'The king says, "Put this fellow in the prison, and feed him with bread of affliction and with water of affliction, until I return in peace."'" 
-Micaiah said, "If you return at all in peace, God has not spoken by me." He said, "Listen, you people, all of you!" 
+Micaiah said, "If you return at all in peace, God hasn't spoken by me." He said, "Listen, you people, all of you!" 
 So the king of Israel and Jehoshaphat the king of Judah went up to Ramoth Gilead. 
 The king of Israel said to Jehoshaphat, "I will disguise myself, and go into the battle; but you put on your robes." So the king of Israel disguised himself; and they went into the battle. 
 Now the king of Syria had commanded the captains of his chariots, saying, "Don't fight with small nor great, except only with the king of Israel." 
 When the captains of the chariots saw Jehoshaphat, they said, "It is the king of Israel!" Therefore they turned around to fight against him. But Jehoshaphat cried out, and God helped him; and God moved them to depart from him. 
-When the captains of the chariots saw that it was not the king of Israel, they turned back from pursuing him. 
+When the captains of the chariots saw that it wasn't the king of Israel, they turned back from pursuing him. 
 A certain man drew his bow at random, and struck the king of Israel between the joints of the armor. So he said to the driver of the chariot, "Turn around and carry me out of the battle, for I am severely wounded." 
 The battle increased that day. However, the king of Israel propped himself up in his chariot against the Syrians until the evening; and at about sunset, he died. 

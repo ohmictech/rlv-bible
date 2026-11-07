@@ -10,8 +10,8 @@ If your eye traps you, pluck it out and throw it away from you. It is better for
 See that you don't look down on one of these little ones, for I tell you that in the sky their messengers always see the face of my Father in the sky. 
 The Human One came to rescue what was lost. 
 "What do you think? If a person has one hundred sheep, and one of them wanders off, doesn't he leave the ninety-nine on the mountains and go to look for the one that wandered off? 
-If he finds it, truly I tell you, he celebrates over it more than over the ninety-nine that did not wander off. 
-Even so it is not the will of your Father in the sky that one of these little ones should be lost. 
+If he finds it, truly I tell you, he celebrates over it more than over the ninety-nine that didn't wander off. 
+Even so it isn't the will of your Father in the sky that one of these little ones should be lost. 
 "If your brother wrongs you, go, show him his fault between you and him alone. If he listens to you, you have gained back your brother. 
 But if he doesn't listen, take one or two more with you, so that at the mouth of two or three witnesses every word may be established. 
 If he refuses to listen to them, tell it to the gathering. If he refuses to hear the gathering also, let him be to you as an outsider or a tax collector. 
@@ -27,7 +27,7 @@ The slave fell down and knelt before him, saying, 'Lord, have patience with me, 
 The lord of that slave, moved with deep compassion, released him and let the debt go. 
 "But that slave went out and found one of his fellow slaves who owed him a hundred silver coins, and he grabbed him and took him by the throat, saying, 'Pay me what you owe!' 
 "So his fellow slave fell down at his feet and begged him, saying, 'Have patience with me, and I will pay you back!' 
-He would not, but went and threw him into prison until he should pay back what was due. 
+He wouldn't, but went and threw him into prison until he should pay back what was due. 
 So when his fellow slaves saw what was done, they were very sorry, and came and told their lord all that was done. 
 Then his lord called him in and said to him, 'You malicious slave! I let go all that debt because you begged me. 
 Shouldn't you also have had mercy on your fellow slave, even as I had mercy on you?' 

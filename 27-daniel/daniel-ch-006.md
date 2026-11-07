@@ -19,10 +19,10 @@ Then the king went to his palace, and passed the night fasting. No musical instr
 Then the king arose very early in the morning, and went in haste to the den of lions. 
 When he came near to Daniel in the den, he cried with a troubled voice. The king spoke and said to Daniel, "Daniel, servant of the living God, is your God, whom you serve continually, able to deliver you from the lions?" 
 Then Daniel said to the king, "O king, live for the eras! 
-My God has sent his messenger, and has shut the lions' mouths, and they have not hurt me, because innocence was found in me before him; and also before you, O king, I have done no harm." 
+My God has sent his messenger, and has shut the lions' mouths, and they haven't hurt me, because innocence was found in me before him; and also before you, O king, I have done no harm." 
 Then the king was exceedingly glad, and commanded that they should take Daniel up out of the den. So Daniel was taken up out of the den, and no kind of harm was found on him, because he had trusted in his God. 
 The king commanded, and they brought those men who had accused Daniel, and they cast them into the den of lions, them, their children, and their wives; and the lions mauled them, and broke all their bones in pieces before they came to the bottom of the den. 
 Then King Darius wrote to everyones, nations, and languages who dwell in all the earth: "Peace be multiplied to you. 
-"I make a decree that in all the dominion of my kingdom men tremble and fear before the God of Daniel. "For he is the living God, and steadfast for the eras. His kingdom is that which will not be destroyed. His dominion will be even to the end. 
+"I make a decree that in all the dominion of my kingdom men tremble and fear before the God of Daniel. "For he is the living God, and steadfast for the eras. His kingdom is that which won't be destroyed. His dominion will be even to the end. 
 He delivers and rescues. He works signs and wonders in the sky and in earth, who has delivered Daniel from the power of the lions." 
 So this Daniel prospered in the reign of Darius and in the reign of Cyrus the Persian. 

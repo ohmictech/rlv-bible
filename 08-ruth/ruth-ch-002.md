@@ -10,14 +10,14 @@ Let your eyes be on the field that they reap, and go after them. Haven't I comma
 Then she fell on her face and bowed herself to the ground, and said to him, "Why have I found favor in your sight, that you should take knowledge of me, since I am a foreigner?" 
 Boaz answered her, "I have been told all about what you have done for your mother-in-law since the death of your husband, and how you have left your father, your mother, and the land of your birth, and have come to a people that you didn't know before. 
 May God repay your work, and a full reward be given to you from the God of Israel, under whose wings you have come to take refuge." 
-Then she said, "Let me find favor in your sight, my lord, because you have comforted me, and because you have spoken kindly to your servant, though I am not as one of your servants." 
+Then she said, "Let me find favor in your sight, my lord, because you have comforted me, and because you have spoken kindly to your servant, though I'm not as one of your servants." 
 At meal time Boaz said to her, "Come here, and eat some bread, and dip your morsel in the vinegar." She sat beside the reapers, and they passed her parched grain. She ate, was satisfied, and left some of it. 
 When she had risen up to glean, Boaz commanded his young men, saying, "Let her glean even among the sheaves, and don't reproach her. 
 Also pull out some for her from the bundles, and leave it. Let her glean, and don't rebuke her." 
 So she gleaned in the field until evening; and she beat out that which she had gleaned, and it was about an ephah of barley. 
 She took it up, and went into the city. Then her mother-in-law saw what she had gleaned; and she brought out and gave to her that which she had left after she had enough. 
 Her mother-in-law said to her, "Where have you gleaned today? Where have you worked? Blessed be he who noticed you." She told her mother-in-law with whom she had worked, "The man's name with whom I worked today is Boaz." 
-Naomi said to her daughter-in-law, "May he be blessed by God, who has not abandoned his kindness to the living and to the dead." Naomi said to her, "The man is a close relative to us, one of our near kinsmen." 
+Naomi said to her daughter-in-law, "May he be blessed by God, who hasn't abandoned his kindness to the living and to the dead." Naomi said to her, "The man is a close relative to us, one of our near kinsmen." 
 Ruth the Moabitess said, "Yes, he said to me, 'You shall stay close to my young men until they have finished all my harvest.'" 
 Naomi said to Ruth her daughter-in-law, "It is good, my daughter, that you go out with his maidens, and that they not harm you in any other field." 
 So she stayed close to the maidens of Boaz, to glean to the end of barley harvest and of wheat harvest; and she lived with her mother-in-law. 

@@ -44,7 +44,7 @@ those who were counted of them, of the tribe of Naphtali, were fifty-three thous
 These are those who were counted, whom Moses and Aaron counted, and the twelve men who were princes of Israel, each one for his fathers' house. 
 So everyone who was counted of the children of Israel by their fathers' houses, from twenty years old and upward, everyone who was able to go out to war in Israel 
 all those who were counted were six hundred three thousand five hundred fifty. 
-But the Levites after the tribe of their fathers were not counted among them. 
+But the Levites after the tribe of their fathers weren't counted among them. 
 God spoke to Moses, saying, 
 "Only the tribe of Levi you shall not count, neither shall you take a census of them among the children of Israel; 
 but appoint the Levites over the Tabernacle of the Testimony, and over all its furnishings, and over all that belongs to it. They shall carry the tabernacle and all its furnishings; and they shall take care of it, and shall encamp around it. 

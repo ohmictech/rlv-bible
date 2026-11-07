@@ -2,7 +2,7 @@
 In times past, even when Saul was king, it was you who led out and brought in Israel. Your God said to you, 'You shall be shepherd of my people Israel, and you shall be prince over my people Israel.'" 
 So all the elders of Israel came to the king to Hebron; and David made a covenant with them in Hebron before God. They anointed David king over Israel, according to God's word by Samuel. 
 David and all Israel went to Jerusalem (also called Jebus); and the Jebusites, the inhabitants of the land, were there. 
-The inhabitants of Jebus said to David, "You will not come in here!" Nevertheless David took the stronghold of Zion. The same is David's city. 
+The inhabitants of Jebus said to David, "You won't come in here!" Nevertheless David took the stronghold of Zion. The same is David's city. 
 David had said, "Whoever strikes the Jebusites first shall be chief and captain." Joab the son of Zeruiah went up first, and was made chief. 
 David lived in the stronghold; they called it David's city. 
 He built the city all around, from Millo even around; and Joab repaired the rest of the city. 
@@ -15,8 +15,8 @@ They stood in the middle of the plot, defended it, and killed the Philistines; a
 Three of the thirty chief men went down to the rock to David, into the cave of Adullam; and the army of the Philistines were encamped in the valley of Rephaim. 
 David was then in the stronghold, and the garrison of the Philistines was in Bethlehem at that time. 
 David longed, and said, "Oh, that someone would give me water to drink from the well of Bethlehem, which is by the gate!" 
-The three broke through the army of the Philistines, and drew water out of the well of Bethlehem that was by the gate, took it, and brought it to David; but David would not drink any of it, but poured it out to God, 
-and said, "My God forbid me, that I should do this! Shall I drink the blood of these men who have put their lives in jeopardy?" For they risked their lives to bring it. So he would not drink it. The three mighty men did these things. 
+The three broke through the army of the Philistines, and drew water out of the well of Bethlehem that was by the gate, took it, and brought it to David; but David wouldn't drink any of it, but poured it out to God, 
+and said, "My God forbid me, that I should do this! Shall I drink the blood of these men who have put their lives in jeopardy?" For they risked their lives to bring it. So he wouldn't drink it. The three mighty men did these things. 
 Abishai, the brother of Joab, was chief of the three; for he lifted up his spear against three hundred and killed them, and had a name among the three. 
 Of the three, he was more honorable than the two, and was made their captain; however he wasn't included in the three. 
 Benaiah the son of Jehoiada, the son of a valiant man of Kabzeel, who had done mighty deeds, killed the two sons of Ariel of Moab. He also went down and killed a lion in the middle of a pit on a snowy day. 

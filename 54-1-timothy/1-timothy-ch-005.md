@@ -5,7 +5,7 @@ But if a widow has children or grandchildren, those younger ones should learn fi
 The widow who really is one, and has been left all alone, has set her expectation on God and keeps on with requests and prayers night and day. 
 But the one who lives for pleasure is dead even while she is alive. 
 Give these instructions too, so that no one can be blamed. 
-But if anyone does not provide for his own people, and especially for his own household, he has turned his back on the trust and is worse than someone who has no trust. 
+But if anyone doesn't provide for his own people, and especially for his own household, he has turned his back on the trust and is worse than someone who has no trust. 
 No one should be put on the list of widows unless she is at least sixty, and has been faithful to one husband, 
 and has a good name for good deeds, if she has raised children, if she has welcomed strangers, if she has washed the feet of the set-apart ones, if she has helped people in hard times, and if she has gone after every good work. 
 But don't put younger widows on the list; when their desires turn away from Christ, they want to marry, 
@@ -22,4 +22,4 @@ Before God and Christ Jesus and the chosen messengers, I command you to keep the
 Don't lay hands on anyone in a hurry, and don't share in other people's mistakes. Keep yourself pure. 
 Stop drinking only water; use a little wine for your stomach and for the illnesses you keep having. 
 Some people's mistakes are plain to see and go ahead of them to the verdict; other people's catch up afterward. 
-The same is true of good deeds: some are obvious, and even the ones that are not cannot stay hidden. 
+The same is true of good deeds: some are obvious, and even the ones that aren't can't stay hidden. 

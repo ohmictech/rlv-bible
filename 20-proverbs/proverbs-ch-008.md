@@ -23,10 +23,10 @@ that I may give wealth to those who love me. I fill their treasuries.
 I was set up from perpetual, from the beginning, before the earth existed. 
 When there were no depths, I was born, when there were no springs abounding with water. 
 Before the mountains were settled in place, before the hills, I was born; 
-while as yet he had not made the earth, nor the fields, nor the beginning of the dust of the world. 
+while as yet he hadn't made the earth, nor the fields, nor the beginning of the dust of the world. 
 When he established the sky, I was there. When he set a circle on the surface of the deep, 
 when he established the clouds above, when the springs of the deep became strong, 
-when he gave to the sea its boundary, that the waters should not violate his commandment, when he marked out the foundations of the earth, 
+when he gave to the sea its boundary, that the waters shouldn't violate his commandment, when he marked out the foundations of the earth, 
 then I was the craftsman by his side. I was a delight day by day, always rejoicing before him, 
 rejoicing in his whole world. My delight was with the sons of men. 
 "Now, my sons, listen to me, for blessed are those who keep my ways. 

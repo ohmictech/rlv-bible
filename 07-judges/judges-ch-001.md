@@ -16,7 +16,7 @@ She said to him, "Give me a blessing; because you have set me in the land of the
 The children of the Kenite, Moses' brother-in-law, went up out of the city of palm trees with the children of Judah into the wilderness of Judah, which is in the south of Arad; and they went and lived with the people. 
 Judah went with Simeon his brother, and they struck the Canaanites who inhabited Zephath, and utterly destroyed it. The name of the city was called Hormah. 
 Also Judah took Gaza with its border, and Ashkelon with its border, and Ekron with its border. 
-God was with Judah, and drove out the inhabitants of the hill country; for he could not drive out the inhabitants of the valley, because they had chariots of iron. 
+God was with Judah, and drove out the inhabitants of the hill country; for he couldn't drive out the inhabitants of the valley, because they had chariots of iron. 
 They gave Hebron to Caleb, as Moses had said, and he drove the three sons of Anak out of there. 
 The children of Benjamin didn't drive out the Jebusites who inhabited Jerusalem, but the Jebusites dwell with the children of Benjamin in Jerusalem to this day. 
 The house of Joseph also went up against Bethel, and God was with them. 
@@ -31,6 +31,6 @@ Zebulun didn't drive out the inhabitants of Kitron, nor the inhabitants of Nahal
 Asher didn't drive out the inhabitants of Acco, nor the inhabitants of Sidon, nor of Ahlab, nor of Achzib, nor of Helbah, nor of Aphik, nor of Rehob; 
 but the Asherites lived among the Canaanites, the inhabitants of the land, for they didn't drive them out. 
 Naphtali didn't drive out the inhabitants of Beth Shemesh, nor the inhabitants of Beth Anath; but he lived among the Canaanites, the inhabitants of the land. Nevertheless the inhabitants of Beth Shemesh and of Beth Anath became subject to forced labor. 
-The Amorites forced the children of Dan into the hill country, for they would not allow them to come down to the valley; 
+The Amorites forced the children of Dan into the hill country, for they wouldn't allow them to come down to the valley; 
 but the Amorites would dwell in Mount Heres, in Aijalon, and in Shaalbim. Yet the hand of the house of Joseph prevailed, so that they became subject to forced labor. 
 The border of the Amorites was from the ascent of Akrabbim, from the rock, and upward. 

@@ -1,6 +1,6 @@
 ﻿When human beings began to increase on the face of the land, and daughters were born to them, 
 the sons of God saw that the daughters of human beings were beautiful, and they took any they wanted as wives. 
-God said, "My Spirit will not struggle with human beings for the eras, because they are flesh; so their days will be one hundred twenty years." 
+God said, "My Spirit won't struggle with human beings for the eras, because they are flesh; so their days will be one hundred twenty years." 
 The Nephilim were on the earth in those days, and also afterward, when the sons of God came in to the daughters of human beings and had children with them. These were the mighty men of old, men of renown. 
 God saw how great human wrongdoing was on the earth, and that every thought in their hearts was only bad all the time. 
 God was sorry he had made human beings on the earth, and it grieved him deeply. 

@@ -23,7 +23,7 @@ You who say a man shouldn't sleep around, do you sleep around? You who abhor ido
 You who boast in the law, do you dishonor God by disobeying the law? 
 "the name of God is slandered among the nations because of you," just as it is written. 
 Circumcision indeed profits, if you are a doer of the law, but if you break the law, you might as well not be circumcised. 
-If those who are not circumcised keep what the law rightly requires, won't their not being circumcised be counted as circumcision? 
+If those who aren't circumcised keep what the law rightly requires, won't their not being circumcised be counted as circumcision? 
 Won't those who are physically uncircumcised, but fulfill the law, judge you, who with the letter and circumcision break the law? 
-He is not a Jew who is one outwardly, neither is that circumcision which is outward in the flesh; 
-but he is a Jew who is one inwardly, and circumcision is that of the heart, in the spirit, not in the letter; whose praise is not from men, but from God. 
+He isn't a Jew who is one outwardly, neither is that circumcision which is outward in the flesh; 
+but he is a Jew who is one inwardly, and circumcision is that of the heart, in the spirit, not in the letter; whose praise isn't from men, but from God. 

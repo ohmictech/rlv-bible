@@ -4,12 +4,12 @@ My words will utter the uprightness of my heart. That which my lips know they wi
 The Spirit of God has made me, and the breath of the Almighty gives me life. 
 If you can, answer me. Set your words in order before me, and stand up. 
 Look, I am toward God even as you are. I am also formed out of the clay. 
-Look, my terror will not make you afraid, neither will my pressure be heavy on you. 
+Look, my terror won't make you afraid, neither will my pressure be heavy on you. 
 "Surely you have spoken in my hearing, I have heard the voice of your words, saying, 
 'I am clean, without disobedience. I am innocent, neither is there guilt in me. 
 Look, he finds occasions against me. He counts me for his enemy. 
 He puts my feet in the stocks. He marks all my paths.' 
-"Look, I will answer you. In this you are not just, for God is greater than man. 
+"Look, I will answer you. In this you aren't just, for God is greater than man. 
 Why do you strive against him, because he doesn't give account of any of his matters? 
 God speaks once, yes twice, though man pays no attention. 
 In a dream, in a vision of the night, when deep sleep falls on men, in slumbering on the bed, 
@@ -18,7 +18,7 @@ that he may withdraw man from his purpose, and hide pride from man.
 He keeps back his soul from the pit, and his life from perishing by the sword. 
 "He is chastened also with pain on his bed, with continual strife in his bones, 
 so that his life abhors bread, and his soul dainty food. 
-His flesh is so consumed away that it can't be seen. His bones that were not seen stick out. 
+His flesh is so consumed away that it can't be seen. His bones that weren't seen stick out. 
 Yes, his soul draws near to the pit, and his life to the destroyers. 
 "If there is beside him an messenger, an interpreter, one among a thousand, to show to man what is right for him, 
 then God is gracious to him, and says, 'Deliver him from going down to the pit, I have found a ransom.' 

@@ -14,6 +14,6 @@ Then I will teach transgressors your ways. Those who drift will be converted to 
 Deliver me from the guilt of bloodshed, O the God of my salvation. My tongue will sing aloud of your righteousness. 
 Lord, open my lips. My mouth will declare your praise. 
 You don't delight in sacrifice, or else I would give it. You have no pleasure in burnt offering. 
-The sacrifices of God are a broken spirit. O God, you will not despise a broken and contrite heart. 
+The sacrifices of God are a broken spirit. O God, you won't despise a broken and contrite heart. 
 Do well in your good pleasure to Zion. Build the walls of Jerusalem. 
 Then you will delight in the sacrifices of righteousness, in burnt offerings and in whole burnt offerings. Then they will offer bulls on your altar. 

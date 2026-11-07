@@ -1,9 +1,9 @@
 ﻿Look, a day of God comes, when your plunder will be divided within you. 
-I will gather all nations against Jerusalem to battle; and the city will be taken, the houses rifled, and the women ravished. Half of the city will go out into captivity, and the rest of the people will not be cut off from the city. 
+I will gather all nations against Jerusalem to battle; and the city will be taken, the houses rifled, and the women ravished. Half of the city will go out into captivity, and the rest of the people won't be cut off from the city. 
 Then God will go out and fight against those nations, as when he fought in the day of battle. 
 His feet will stand in that day on the Mount of Olives, which is before Jerusalem on the east; and the Mount of Olives will be split in two from east to west, making a very great valley. Half of the mountain will move toward the north, and half of it toward the south. 
 You shall flee by the valley of my mountains, for the valley of the mountains shall reach to Azel. Yes, you shall flee, just like you fled from before the earthquake in the days of Uzziah king of Judah. My God will come, and all the holy ones with you. 
-It will happen in that day that there will not be light, cold, or frost. 
+It will happen in that day that there won't be light, cold, or frost. 
 It will be a unique day which is known to God, not day, and not night; but it will come to pass that at evening time there will be light. 
 It will happen in that day that living waters will go out from Jerusalem, half of them toward the eastern sea, and half of them toward the western sea. It will be so in summer and in winter. 
 God will be King over all the earth. In that day God will be one, and his name one. 

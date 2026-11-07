@@ -29,8 +29,8 @@ When he had come into the house, the blind men came to him. Jesus said to them, 
 Then he touched their eyes, saying, "According to your trust, let it be done to you." 
 Then their eyes were opened. Jesus strictly commanded them, saying, "See that no one knows about this." 
 But they went out and spread the news about him in all that land. 
-As they went out, suddenly a man who could not speak, possessed by an unclean spirit, was brought to him. 
-When the unclean spirit was driven out, the man who could not speak spoke. The crowds were amazed, saying, "Nothing like this has ever been seen in Israel!" 
+As they went out, suddenly a man who couldn't speak, possessed by an unclean spirit, was brought to him. 
+When the unclean spirit was driven out, the man who couldn't speak spoke. The crowds were amazed, saying, "Nothing like this has ever been seen in Israel!" 
 But the strict religious ones said, "By the ruler of the unclean spirits, he drives out unclean spirits." 
 Jesus went about all the cities and the villages, teaching in their gathering places and preaching the good news of the reign, and healing every disease and every sickness among the people. 
 But when he saw the crowds, he was moved with deep compassion for them, because they were harassed and scattered, like sheep without a shepherd. 

@@ -4,12 +4,12 @@ Do you open your eyes on such a one, and bring me into judgment with you?
 Who can bring a clean thing out of an unclean? Not one. 
 Seeing his days are determined, the number of his months is with you, and you have appointed his bounds that he can't pass. 
 Look away from him, that he may rest, until he accomplishes, as a hireling, his day. 
-"There is hope for a tree if it is cut down, that it will sprout again, that the tender branch of it will not cease. 
+"There is hope for a tree if it is cut down, that it will sprout again, that the tender branch of it won't cease. 
 Though its root grows old in the earth, and its stock dies in the ground, 
 yet through the scent of water it will bud, and sprout boughs like a plant. 
 But man dies, and is laid low. Yes, man gives up the spirit, and where is he? 
 As the waters fail from the sea, and the river wastes and dries up, 
-so man lies down and doesn't rise. Until the sky are no more, they will not awake, nor be roused out of their sleep. 
+so man lies down and doesn't rise. Until the sky are no more, they won't awake, nor be roused out of their sleep. 
 "Oh that you would hide me in Hades, that you would keep me secret until your wrath is past, that you would appoint me a set time and remember me! 
 If a man dies, will he live again? I would wait all the days of my warfare, until my release should come. 
 You would call, and I would answer you. You would have a desire for the work of your hands. 

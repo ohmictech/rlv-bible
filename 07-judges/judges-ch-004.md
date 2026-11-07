@@ -5,7 +5,7 @@ Now Deborah, a prophetess, the wife of Lappidoth, judged Israel at that time.
 She lived under Deborah's palm tree between Ramah and Bethel in the hill country of Ephraim; and the children of Israel came up to her for judgment. 
 She sent and called Barak the son of Abinoam out of Kedesh Naphtali, and said to him, "Hasn't the God of Israel commanded, 'Go and lead the way to Mount Tabor, and take with you ten thousand men of the children of Naphtali and of the children of Zebulun? 
 I will draw to you, to the river Kishon, Sisera, the captain of Jabin's army, with his chariots and his multitude; and I will deliver him into your hand.'" 
-Barak said to her, "If you will go with me, then I will go; but if you will not go with me, I will not go." 
+Barak said to her, "If you will go with me, then I will go; but if you won't go with me, I won't go." 
 She said, "I will surely go with you. Nevertheless, the journey that you take won't be for your honor; for God will sell Sisera into a woman's hand." Deborah arose, and went with Barak to Kedesh. 
 Barak called Zebulun and Naphtali together to Kedesh. Ten thousand men followed him; and Deborah went up with him. 
 Now Heber the Kenite had separated himself from the Kenites, even from the children of Hobab, Moses' brother-in-law, and had pitched his tent as far as the oak in Zaanannim, which is by Kedesh. 
@@ -13,7 +13,7 @@ They told Sisera that Barak the son of Abinoam had gone up to Mount Tabor.
 Sisera gathered together all his chariots, even nine hundred chariots of iron, and everyone who was with him, from Harosheth of the Gentiles, to the river Kishon. 
 Deborah said to Barak, "Go; for this is the day in which God has delivered Sisera into your hand. Hasn't God gone out before you?" So Barak went down from Mount Tabor, and ten thousand men after him. 
 God confused Sisera, all his chariots, and all his army, with the edge of the sword before Barak. Sisera abandoned his chariot and fled away on his feet. 
-But Barak pursued the chariots and the army to Harosheth of the Gentiles; and all the army of Sisera fell by the edge of the sword. There was not a man left. 
+But Barak pursued the chariots and the army to Harosheth of the Gentiles; and all the army of Sisera fell by the edge of the sword. There wasn't a man left. 
 However Sisera fled away on his feet to the tent of Jael the wife of Heber the Kenite; for there was peace between Jabin the king of Hazor and the house of Heber the Kenite. 
 Jael went out to meet Sisera, and said to him, "Turn in, my lord, turn in to me; don't be afraid." He came in to her into the tent, and she covered him with a rug. 
 He said to her, "Please give me a little water to drink; for I am thirsty." She opened a container of milk, and gave him a drink, and covered him. 

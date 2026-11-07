@@ -30,13 +30,13 @@ David said, "What have I now done? Is there not a cause?"
 He turned away from him toward another, and spoke like that again; and the people answered him again the same way. 
 When the words were heard which David spoke, they rehearsed them before Saul; and he sent for him. 
 David said to Saul, "Let no man's heart fail because of him. Your servant will go and fight with this Philistine." 
-Saul said to David, "You are not able to go against this Philistine to fight with him; for you are but a youth, and he a man of war from his youth." 
+Saul said to David, "You aren't able to go against this Philistine to fight with him; for you are but a youth, and he a man of war from his youth." 
 David said to Saul, "Your servant was keeping his father's sheep; and when a lion or a bear came and took a lamb out of the flock, 
 I went out after him, struck him, and rescued it out of his mouth. When he arose against me, I caught him by his beard, struck him, and killed him. 
 Your servant struck both the lion and the bear. This uncircumcised Philistine shall be as one of them, since he has defied the armies of the living God." 
 David said, "God, who delivered me out of the paw of the lion and out of the paw of the bear, will deliver me out of the hand of this Philistine." Saul said to David, "Go! God will be with you." 
 Saul dressed David with his clothing. He put a helmet of bronze on his head, and he clad him with a coat of mail. 
-David strapped his sword on his clothing and he tried to move, for he had not tested it. David said to Saul, "I can't go with these, for I have not tested them." Then David took them off. 
+David strapped his sword on his clothing and he tried to move, for he hadn't tested it. David said to Saul, "I can't go with these, for I haven't tested them." Then David took them off. 
 He took his staff in his hand, and chose for himself five smooth stones out of the brook, and put them in the pouch of his shepherd's bag which he had. His sling was in his hand; and he came near to the Philistine. 
 The Philistine walked and came near to David; and the man who bore the shield went before him. 
 When the Philistine looked around and saw David, he disdained him; for he was but a youth, and ruddy, and had a good looking face. 

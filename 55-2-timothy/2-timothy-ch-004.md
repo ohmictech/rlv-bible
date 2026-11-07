@@ -1,6 +1,6 @@
 ﻿Before God and Christ Jesus, who will pass a verdict on the living and the dead when he appears and brings his reign, I command you: 
 announce the word. Be ready whether the time is right or not. Show people their fault, correct them, and encourage them, with all patience and teaching. 
-The time is coming when people will not put up with healthy teaching. Instead, because they itch to hear something new, they will pile up teachers for themselves to suit their own cravings, 
+The time is coming when people won't put up with healthy teaching. Instead, because they itch to hear something new, they will pile up teachers for themselves to suit their own cravings, 
 and they will turn their ears away from the truth and wander off into old stories. 
 But you must keep a clear head in all things, put up with hardship, do the work of an announcer of good news, and finish your service. 
 I am already being poured out like a drink offering, and the time has come for me to leave. 

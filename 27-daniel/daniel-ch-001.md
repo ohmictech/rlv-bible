@@ -5,7 +5,7 @@ youths in whom was no defect, but well-favored, skillful in all wisdom, endowed 
 The king appointed for them a daily portion of the king's delicacies and of the wine which he drank, and that they should be nourished three years, that at its end they should stand before the king. 
 Now among these of the children of Judah were Daniel, Hananiah, Mishael, and Azariah. 
 The prince of the eunuchs gave names to them: to Daniel he gave the name Belteshazzar; to Hananiah, Shadrach; to Mishael, Meshach; and to Azariah, Abednego. 
-But Daniel purposed in his heart that he would not defile himself with the king's delicacies, nor with the wine which he drank. So he requested of the prince of the eunuchs that he might not defile himself. 
+But Daniel purposed in his heart that he wouldn't defile himself with the king's delicacies, nor with the wine which he drank. So he requested of the prince of the eunuchs that he might not defile himself. 
 Now God made Daniel find kindness and compassion in the sight of the prince of the eunuchs. 
 The prince of the eunuchs said to Daniel, "I fear my lord the king, who has appointed your food and your drink. Why should he see your faces worse looking than the youths who are of your own age? Then you would endanger my head with the king." 
 Then Daniel said to the steward whom the prince of the eunuchs had appointed over Daniel, Hananiah, Mishael, and Azariah: 

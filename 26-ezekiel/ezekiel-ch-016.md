@@ -1,7 +1,7 @@
 ﻿Again God's word came to me, saying, 
 "Son of man, cause Jerusalem to know her abominations; 
 and say, 'The God says to Jerusalem: "Your origin and your birth is of the land of the Canaanite. An Amorite was your father, and your mother was a Hittite. 
-As for your birth, in the day you were born your navel was not cut. You weren't washed in water to cleanse you. You weren't salted at all, nor wrapped in blankets at all. 
+As for your birth, in the day you were born your navel wasn't cut. You weren't washed in water to cleanse you. You weren't salted at all, nor wrapped in blankets at all. 
 No eye pitied you, to do any of these things to you, to have compassion on you; but you were cast out in the open field, because you were abhorred in the day that you were born. 
 "'"When I passed by you, and saw you wallowing in your blood, I said to you, 'Though you are in your blood, live!' Yes, I said to you, 'Though you are in your blood, live!' 
 I caused you to multiply as that which grows in the field, and you increased and grew great, and you attained to excellent beauty. Your breasts were formed, and your hair grew; yet you were naked and bare. 
@@ -19,7 +19,7 @@ You took your embroidered garments, covered them, and set my oil and my incense 
 My bread also which I gave you, fine flour, oil, and honey, with which I fed you, you even set it before them for a pleasant aroma; and so it was," says God. 
 "'"Moreover you have taken your sons and your daughters, whom you have borne to me, and you have sacrificed these to them to be devoured. Was your prostitution a small matter, 
 that you have slain my children and delivered them up, in causing them to pass through the fire to them? 
-In all your abominations and your prostitution you have not remembered the days of your youth, when you were naked and bare, and were wallowing in your blood. 
+In all your abominations and your prostitution you haven't remembered the days of your youth, when you were naked and bare, and were wallowing in your blood. 
 "'"It has happened after all your guilt, woe, woe to you!" says God 
 "that you have built for yourselves a vaulted place, and have made yourselves a lofty place in every street. 
 You have built your lofty place at the head of every way, and have made your beauty an abomination, and have opened your feet to everyone who passed by, and multiplied your prostitution. 
@@ -28,7 +28,7 @@ See, I have stretched out my hand over you, and have diminished your portion, an
 You have played the prostitute also with the Assyrians, because you were insatiable; yes, you have played the prostitute with them, and yet you weren't satisfied. 
 You have moreover multiplied your prostitution to the land of merchants, to Chaldea; and yet you weren't satisfied with this. 
 "'"How weak is your heart," says God, "since you do all these things, the work of an impudent prostitute; 
-in that you build your vaulted place at the head of every way, and make your lofty place in every street, and have not been as a prostitute, in that you scorn pay. 
+in that you build your vaulted place at the head of every way, and make your lofty place in every street, and haven't been as a prostitute, in that you scorn pay. 
 "'"Adulterous wife, who takes strangers instead of her husband! 
 People give gifts to all prostitutes; but you give your gifts to all your lovers, and bribe them, that they may come to you on every side for your prostitution. 
 You are different from other women in your prostitution, in that no one follows you to play the prostitute; and whereas you give hire, and no hire is given to you, you are different."' 
@@ -39,13 +39,13 @@ I will judge you as women who break wedlock and shed blood are judged; and I wil
 I will also give you into their hand, and they will throw down your vaulted place, and break down your lofty places. They will strip you of your clothes and take your beautiful jewels. They will leave you naked and bare. 
 They will also bring up a company against you, and they will stone you with stones, and thrust you through with their swords. 
 They will burn your houses with fire, and execute judgments on you in the sight of many women. I will cause you to cease from playing the prostitute, and you will also give no hire any more. 
-So I will cause my wrath toward you to rest, and my jealousy will depart from you. I will be quiet, and will not be angry any more. 
-"'"Because you have not remembered the days of your youth, but have raged against me in all these things;, look, I also will bring your way on your head," says God: "and you shall not commit this lewdness with all your abominations. 
+So I will cause my wrath toward you to rest, and my jealousy will depart from you. I will be quiet, and won't be angry any more. 
+"'"Because you haven't remembered the days of your youth, but have raged against me in all these things;, look, I also will bring your way on your head," says God: "and you shall not commit this lewdness with all your abominations. 
 "'"Look, everyone who uses proverbs will use this proverb against you, saying, 'As is the mother, so is her daughter.' 
 You are the daughter of your mother, who loathes her husband and her children; and you are the sister of your sisters, who loathed their husbands and their children. Your mother was a Hittite, and your father an Amorite. 
 Your elder sister is Samaria, who dwells at your left hand, she and her daughters; and your younger sister, who dwells at your right hand, is Sodom with her daughters. 
-Yet you have not walked in their ways, nor done their abominations; but soon you were more corrupt than they in all your ways. 
-As I live," says God, "Sodom your sister has not done, she nor her daughters, as you have done, you and your daughters. 
+Yet you haven't walked in their ways, nor done their abominations; but soon you were more corrupt than they in all your ways. 
+As I live," says God, "Sodom your sister hasn't done, she nor her daughters, as you have done, you and your daughters. 
 "'"Look, this was the guilt of your sister Sodom: pride, fullness of bread, and prosperous ease was in her and in her daughters. She also didn't strengthen the hand of the poor and needy. 
 They were arrogant and committed abomination before me. So I took them away when I saw it. 
 Samaria hasn't committed half of your mistakes; but you have multiplied your abominations more than they, and have justified your sisters by all your abominations which you have done. 
@@ -53,7 +53,7 @@ You also bear your own shame yourself, in that you have given judgment for your 
 "'"I will reverse their captivity, the captivity of Sodom and her daughters, and the captivity of Samaria and her daughters, and the captivity of your captives among them; 
 that you may bear your own shame, and may be ashamed because of all that you have done, in that you are a comfort to them. 
 Your sisters, Sodom and her daughters, will return to their former estate; and Samaria and her daughters will return to their former estate; and you and your daughters will return to your former estate. 
-Your sister Sodom was not mentioned by your mouth in the day of your pride, 
+Your sister Sodom wasn't mentioned by your mouth in the day of your pride, 
 before your guilt was uncovered, as at the time of the reproach of the daughters of Syria, and of everyone who is around her, the daughters of the Philistines, who despise you all around. 
 You have borne your lewdness and your abominations," says God. 
 "'For God says: "I will also deal with you as you have done, who have despised the oath in breaking the covenant. 

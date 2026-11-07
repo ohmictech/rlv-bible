@@ -1,7 +1,7 @@
 ﻿Now Boaz went up to the gate and sat down there. Look, the near kinsman of whom Boaz spoke came by. Boaz said to him, "Come over here, friend, and sit down!" He came over, and sat down. 
 Boaz took ten men of the elders of the city, and said, "Sit down here," and they sat down. 
 He said to the near kinsman, "Naomi, who has come back out of the country of Moab, is selling the parcel of land, which was our brother Elimelech's. 
-I thought I should tell you, saying, 'Buy it before those who sit here, and before the elders of my people.' If you will buy it back, buy it back; but if you will not buy it back, then tell me, that I may know. There is no one to buy it back besides you; and I am after you." He said, "I will buy it back." 
+I thought I should tell you, saying, 'Buy it before those who sit here, and before the elders of my people.' If you will buy it back, buy it back; but if you won't buy it back, then tell me, that I may know. There is no one to buy it back besides you; and I am after you." He said, "I will buy it back." 
 Then Boaz said, "On the day you buy the field from the hand of Naomi, you must buy it also from Ruth the Moabitess, the wife of the dead, to raise up the name of the dead on his inheritance." 
 The near kinsman said, "I can't buy it back for myself, lest I endanger my own inheritance. Take my right of buying back for yourself; for I can't buy it back." 
 Now this was the custom in former time in Israel concerning buy backing and concerning exchanging, to confirm all things: a man took off his sandal, and gave it to his neighbor; and this was the way of formalizing transactions in Israel. 
@@ -11,7 +11,7 @@ Moreover, Ruth the Moabitess, the wife of Mahlon, I have purchased to be my wife
 Everyone who was in the gate, and the elders, said, "We are witnesses. May God make the woman who has come into your house like Rachel and like Leah, which both built the house of Israel; and treat you worthily in Ephrathah, and be famous in Bethlehem. 
 Let your house be like the house of Perez, whom Tamar bore to Judah, of the offspring which God will give you by this young woman." 
 So Boaz took Ruth and she became his wife; and he went in to her, and God enabled her to conceive, and she bore a son. 
-The women said to Naomi, "Blessed be God, who has not left you today without a near kinsman. Let his name be famous in Israel. 
+The women said to Naomi, "Blessed be God, who hasn't left you today without a near kinsman. Let his name be famous in Israel. 
 He shall be to you a restorer of life and sustain you in your old age; for your daughter-in-law, who loves you, who is better to you than seven sons, has given birth to him." 
 Naomi took the child, laid him in her bosom, and became nurse to him. 
 The women, her neighbors, gave him a name, saying, "A son is born to Naomi". They named him Obed. He is the father of Jesse, the father of David. 

@@ -16,6 +16,6 @@ I will make you a bare rock. You will be a place for the spreading of nets. You 
 Then all the princes of the sea will come down from their thrones, and lay aside their robes, and strip off their embroidered garments. They will clothe themselves with trembling. They will sit on the ground, and will tremble every moment, and be astonished at you. 
 They will take up a lamentation over you, and tell you, "How you are destroyed, who were inhabited by seafaring men, the renowned city, who was strong in the sea, she and her inhabitants, who caused their terror to be on everyone who lived there!" 
 Now the islands will tremble in the day of your fall. Yes, the islands that are in the sea will be dismayed at your departure.' 
-"For God says: 'When I make you a desolate city, like the cities that are not inhabited, when I bring up the deep on you, and the great waters cover you, 
+"For God says: 'When I make you a desolate city, like the cities that aren't inhabited, when I bring up the deep on you, and the great waters cover you, 
 then I will bring you down with those who descend into the pit, to the people of old time, and will make you dwell in the lower parts of the earth, in the places that are desolate of old, with those who go down to the pit, that you be not inhabited; and I will set glory in the land of the living. 
 I will make you a terror, and you will no more have any being. Though you are sought for, yet you will never be found again,' says God." 

@@ -15,7 +15,7 @@ He also made the bases, and he made the basins on the bases
 one sea, and the twelve oxen under it. 
 Huram-abi also made the pots, the shovels, the forks, and all its vessels for King Solomon, for God's house, of bright bronze. 
 The king cast them in the plain of the Jordan, in the clay ground between Succoth and Zeredah. 
-Thus Solomon made all these vessels in great abundance, so that the weight of the bronze could not be determined. 
+Thus Solomon made all these vessels in great abundance, so that the weight of the bronze couldn't be determined. 
 Solomon made all the vessels that were in God's house: the golden altar, the tables with the show bread on them, 
 and the lamp stands with their lamps to burn according to the ordinance before the inner sanctuary, of pure gold; 
 and the flowers, the lamps, and the tongs of gold that was purest gold; 

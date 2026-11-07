@@ -10,12 +10,12 @@ Five of you shall chase a hundred, and a hundred of you shall chase ten thousand
 You shall eat old supplies long kept, and you shall move out the old because of the new. 
 I will set my tent among you, and my soul won't abhor you. 
 I will walk among you, and will be your God, and you will be my people. 
-I am your God, who brought you out of the land of Egypt, that you should not be their slaves. I have broken the bars of your yoke, and made you walk upright. 
-"'But if you will not listen to me, and will not do all these commandments, 
-and if you shall reject my statutes, and if your soul abhors my ordinances, so that you will not do all my commandments, but break my covenant, 
+I am your God, who brought you out of the land of Egypt, that you shouldn't be their slaves. I have broken the bars of your yoke, and made you walk upright. 
+"'But if you won't listen to me, and won't do all these commandments, 
+and if you shall reject my statutes, and if your soul abhors my ordinances, so that you won't do all my commandments, but break my covenant, 
 I also will do this to you: I will appoint terror over you, even consumption and fever, that shall consume the eyes, and make the soul to pine away. You will sow your seed in vain, for your enemies will eat it. 
 I will set my face against you, and you will be struck before your enemies. Those who hate you will rule over you; and you will flee when no one pursues you. 
-"'If you in spite of these things will not listen to me, then I will chastise you seven times more for your mistakes. 
+"'If you in spite of these things won't listen to me, then I will chastise you seven times more for your mistakes. 
 I will break the pride of your power, and I will make your sky like iron, and your soil like bronze. 
 Your strength will be spent in vain; for your land won't yield its increase, neither will the trees of the land yield their fruit. 
 "'If you walk contrary to me, and won't listen to me, then I will bring seven times more plagues on you according to your mistakes. 
@@ -28,7 +28,7 @@ When I break your staff of bread, ten women shall bake your bread in one oven, a
 then I will walk contrary to you in wrath. I will also chastise you seven times for your mistakes. 
 You will eat the flesh of your sons, and you will eat the flesh of your daughters. 
 I will destroy your high places, and cut down your incense altars, and cast your dead bodies upon the bodies of your idols; and my soul will abhor you. 
-I will lay your cities waste, and will bring your sanctuaries to desolation. I will not take delight in the sweet fragrance of your offerings. 
+I will lay your cities waste, and will bring your sanctuaries to desolation. I won't take delight in the sweet fragrance of your offerings. 
 I will bring the land into desolation, and your enemies who dwell in it will be astonished at it. 
 I will scatter you among the nations, and I will draw out the sword after you. Your land will be a desolation, and your cities shall be a waste. 
 Then the land will enjoy its Sabbaths as long as it lies desolate and you are in your enemies' land. Even then the land will rest and enjoy its Sabbaths. 
@@ -41,6 +41,6 @@ Those of you who are left will pine away in their guilt in your enemies' lands; 
 I also walked contrary to them, and brought them into the land of their enemies; if then their uncircumcised heart is humbled, and they then accept the punishment of their guilt, 
 then I will remember my covenant with Jacob, my covenant with Isaac, and also my covenant with Abraham; and I will remember the land. 
 The land also will be left by them, and will enjoy its Sabbaths while it lies desolate without them; and they will accept the punishment of their guilt because they rejected my ordinances, and their soul abhorred my statutes. 
-Yet for all that, when they are in the land of their enemies, I will not reject them, neither will I abhor them, to destroy them utterly and to break my covenant with them; for I am their God. 
+Yet for all that, when they are in the land of their enemies, I won't reject them, neither will I abhor them, to destroy them utterly and to break my covenant with them; for I am their God. 
 But I will for their sake remember the covenant of their ancestors, whom I brought out of the land of Egypt in the sight of the nations, that I might be their God. I am God.'" 
 These are the statutes, ordinances, and laws, which God made between him and the children of Israel in Mount Sinai by Moses. 

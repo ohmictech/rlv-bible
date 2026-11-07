@@ -15,5 +15,5 @@ Turn again, we beg you, God of Armies. Look down from the sky, and see, and visi
 the stock which your right hand planted, the branch that you made strong for yourself. 
 It's burned with fire. It's cut down. They perish at your rebuke. 
 Let your hand be on the man of your right hand, on the son of man whom you made strong for yourself. 
-So we will not turn away from you. Revive us, and we will call on your name. 
+So we won't turn away from you. Revive us, and we will call on your name. 
 Turn us again, God of Armies. Cause your face to shine, and we will be saved. 

@@ -1,6 +1,6 @@
 ﻿The Chief Musician. A Psalm by David. The sky declare the glory of God. The expanse shows his handiwork. 
 Day after day they pour out speech, and night after night they display knowledge. 
-There is no speech nor language where their voice is not heard. 
+There is no speech nor language where their voice isn't heard. 
 Their voice has gone out through all the earth, their words to the end of the world. In them he has set a tent for the sun, 
 which is as a bridegroom coming out of his room, like a strong man rejoicing to run his course. 
 His going out is from the end of the sky, his circuit to its ends. There is nothing hidden from its heat. 

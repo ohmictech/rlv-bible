@@ -10,6 +10,6 @@ Zerah the Ethiopian came out against them with an army of a million troops and t
 Then Asa went out to meet him, and they set the battle in array in the valley of Zephathah at Mareshah. 
 Asa cried to his God, and said, "God, there is no one besides you to help, between the mighty and him who has no strength. Help us, God our God; for we rely on you, and in your name we have come against this multitude. God, you are our God. Don't let man prevail against you." 
 So God struck the Ethiopians before Asa and before Judah; and the Ethiopians fled. 
-Asa and the people who were with him pursued them to Gerar. So many of the Ethiopians fell that they could not recover themselves, for they were destroyed before God and before his army. Judah's army carried away very much booty. 
+Asa and the people who were with him pursued them to Gerar. So many of the Ethiopians fell that they couldn't recover themselves, for they were destroyed before God and before his army. Judah's army carried away very much booty. 
 They struck all the cities around Gerar, for the fear of God came on them. They plundered all the cities, for there was much plunder in them. 
 They also struck the tents of those who had livestock, and carried away sheep and camels in abundance, then returned to Jerusalem. 

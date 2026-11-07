@@ -5,9 +5,9 @@ The fortress shall cease from Ephraim, and the kingdom from Damascus, and the re
 It will be like when the harvester gathers the wheat, and his arm reaps the grain. Yes, it will be like when one gleans grain in the valley of Rephaim. 
 Yet gleanings will be left there, like the shaking of an olive tree, two or three olives in the top of the uppermost bough, four or five in the outermost branches of a fruitful tree," says the God of Israel. 
 In that day, people will look to their Maker, and their eyes will have respect for the Holy One of Israel. 
-They will not look to the altars, the work of their hands; neither shall they respect that which their fingers have made, either the Asherah poles or the incense altars. 
+They won't look to the altars, the work of their hands; neither shall they respect that which their fingers have made, either the Asherah poles or the incense altars. 
 In that day, their strong cities will be like the forsaken places in the woods and on the mountain top, which were forsaken from before the children of Israel; and it will be a desolation. 
-You have forgotten the God of your salvation, and have not remembered the rock of your strength. So you plant pleasant plants, and set out foreign seedlings. 
+You have forgotten the God of your salvation, and haven't remembered the rock of your strength. So you plant pleasant plants, and set out foreign seedlings. 
 In the day of your planting, you hedge it in. In the morning, you make your seed blossom, but the harvest flees away in the day of grief and of desperate sorrow. 
 Ah, the uproar of many peoples who roar like the roaring of the seas; and the rushing of nations that rush like the rushing of mighty waters! 
 The nations will rush like the rushing of many waters, but he will rebuke them, and they will flee far off, and will be chased like the chaff of the mountains before the wind, and like the whirling dust before the storm. 

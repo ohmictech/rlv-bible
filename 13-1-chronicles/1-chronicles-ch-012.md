@@ -30,7 +30,7 @@ Of the children of Benjamin, Saul's relatives: three thousand, for until then, t
 Of the children of Ephraim: twenty thousand eight hundred, mighty men of valor, famous men in their fathers' houses. 
 Of the half-tribe of Manasseh: eighteen thousand, who were mentioned by name, to come and make David king. 
 Of the children of Issachar, men who had understanding of the times, to know what Israel ought to do, their heads were two hundred; and all their brothers were at their command. 
-Of Zebulun, such as were able to go out in the army, who could set the battle in array with all kinds of instruments of war: fifty thousand who could command and were not of double heart. 
+Of Zebulun, such as were able to go out in the army, who could set the battle in array with all kinds of instruments of war: fifty thousand who could command and weren't of double heart. 
 Of Naphtali: one thousand captains, and with them with shield and spear thirty-seven thousand. 
 Of the Danites who could set the battle in array: twenty-eight thousand six hundred. 
 Of Asher, such as were able to go out in the army, who could set the battle in array: forty thousand. 

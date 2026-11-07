@@ -2,7 +2,7 @@
 Again she gave birth, to Cain's brother Abel. Abel kept sheep, but Cain worked the ground. 
 As time passed, Cain brought a gift offering to God from the fruit of the ground. 
 Abel also brought some of the firstborn of his flock, including the fat. God looked with favor on Abel and his gift offering, 
-but he did not look with favor on Cain and his gift offering. Cain was very angry, and his face fell. 
+but he didn't look with favor on Cain and his gift offering. Cain was very angry, and his face fell. 
 God said to Cain, "Why are you angry? Why is your face downcast? 
 If you do well, won't you be lifted up? But if you don't do well, the drift is crouching at the door. It wants you, but you are to rule over it." 
 Cain said to Abel, his brother, "Let's go into the field." While they were in the field, Cain rose up against Abel, his brother, and killed him. 
@@ -12,7 +12,7 @@ Now you are cursed because of the ground, which has opened its mouth to receive 
 From now on, when you work the ground, it won't yield its strength to you. You will be a fugitive and a wanderer on the earth." 
 Cain said to God, "My punishment is greater than I can bear. 
 Look, you have driven me off the face of the ground today. I will be hidden from your face, and I will be a fugitive and a wanderer on the earth. Whoever finds me will kill me." 
-God said to him, "No. If anyone kills Cain, he will be punished seven times over." God put a mark on Cain, so that anyone who found him would not strike him down. 
+God said to him, "No. If anyone kills Cain, he will be punished seven times over." God put a mark on Cain, so that anyone who found him wouldn't strike him down. 
 Cain left God's presence, and lived in the land of Nod, east of Eden. 
 Cain knew his wife. She conceived, and gave birth to Enoch. He built a city, and named the city after the name of his son, Enoch. 
 Irad was born to Enoch. Irad became the father of Mehujael. Mehujael became the father of Methushael. Methushael became the father of Lamech. 

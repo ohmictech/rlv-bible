@@ -1,5 +1,5 @@
-﻿The child Samuel ministered to God before Eli. God's word was rare in those days. There were not many visions, then. 
-At that time, when Eli was laid down in his place (now his eyes had begun to grow dim, so that he could not see), 
+﻿The child Samuel ministered to God before Eli. God's word was rare in those days. There weren't many visions, then. 
+At that time, when Eli was laid down in his place (now his eyes had begun to grow dim, so that he couldn't see), 
 and God's lamp hadn't yet gone out, and Samuel had laid down in God's temple where God's ark was, 
 God called Samuel. He said, "Here I am." 
 He ran to Eli and said, "Here I am; for you called me." He said, "I didn't call. Lie down again." He went and lay down. 

@@ -6,9 +6,9 @@ Saul came to the city of Amalek, and set an ambush in the valley.
 Saul said to the Kenites, "Go, depart, go down from among the Amalekites, lest I destroy you with them; for you showed kindness to all the children of Israel when they came up out of Egypt." So the Kenites departed from among the Amalekites. 
 Saul struck the Amalekites, from Havilah as you go to Shur, which is before Egypt. 
 He took Agag the king of the Amalekites alive, and utterly destroyed everyone with the edge of the sword. 
-But Saul and the people spared Agag and the best of the sheep, of the cattle, of the fat calves, of the lambs, and all that was good, and were not willing to utterly destroy them; but everything that was vile and refuse, that they destroyed utterly. 
+But Saul and the people spared Agag and the best of the sheep, of the cattle, of the fat calves, of the lambs, and all that was good, and weren't willing to utterly destroy them; but everything that was vile and refuse, that they destroyed utterly. 
 Then God's word came to Samuel, saying, 
-"It grieves me that I have set up Saul to be king, for he has turned back from following me, and has not performed my commandments." Samuel was angry; and he cried to God all night. 
+"It grieves me that I have set up Saul to be king, for he has turned back from following me, and hasn't performed my commandments." Samuel was angry; and he cried to God all night. 
 Samuel rose early to meet Saul in the morning; and Samuel was told, saying, "Saul came to Carmel, and look, he set up a monument for himself, turned, passed on, and went down to Gilgal." 
 Samuel came to Saul; and Saul said to him, "You are blessed by God! I have performed the commandment of God." 
 Samuel said, "Then what does this bleating of the sheep in my ears and the lowing of the cattle which I hear mean?" 
@@ -23,10 +23,10 @@ Samuel said, "Has God as great delight in burnt offerings and sacrifices, as in 
 Rebellion is as the wrongdoing of witchcraft, and stubbornness is as idolatry and teraphim. Because you have rejected God's word, he has also rejected you from being king." 
 Saul said to Samuel, "I have drifted; for I have transgressed the commandment of God and your words, because I feared the people and obeyed their voice. 
 Now, please pardon my wrongdoing, and turn again with me, that I may worship God." 
-Samuel said to Saul, "I will not return with you; for you have rejected God's word, and God has rejected you from being king over Israel." 
+Samuel said to Saul, "I won't return with you; for you have rejected God's word, and God has rejected you from being king over Israel." 
 As Samuel turned around to go away, Saul grabbed the skirt of his robe, and it tore. 
 Samuel said to him, "God has torn the kingdom of Israel from you today, and has given it to a neighbor of yours who is better than you. 
-Also the Strength of Israel will not lie nor repent; for he is not a man, that he should repent." 
+Also the Strength of Israel won't lie nor repent; for he isn't a man, that he should repent." 
 Then he said, "I have drifted; yet please honor me now before the elders of my people and before Israel, and come back with me, that I may worship your God." 
 So Samuel went back with Saul; and Saul worshiped God. 
 Then Samuel said, "Bring Agag the king of the Amalekites here to me!" Agag came to him cheerfully. Agag said, "Surely the bitterness of death is past." 

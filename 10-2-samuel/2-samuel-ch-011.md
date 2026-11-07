@@ -8,7 +8,7 @@ When Uriah had come to him, David asked him how Joab did, and how the people far
 David said to Uriah, "Go down to your house and wash your feet." Uriah departed out of the king's house, and a gift from the king was sent after him. 
 But Uriah slept at the door of the king's house with all the servants of his lord, and didn't go down to his house. 
 When they had told David, saying, "Uriah didn't go down to his house," David said to Uriah, "Haven't you come from a journey? Why didn't you go down to your house?" 
-Uriah said to David, "The ark, Israel, and Judah, are staying in tents; and my lord Joab and the servants of my lord are encamped in the open field. Shall I then go into my house to eat and to drink, and to lie with my wife? As you live, and as your soul lives, I will not do this thing!" 
+Uriah said to David, "The ark, Israel, and Judah, are staying in tents; and my lord Joab and the servants of my lord are encamped in the open field. Shall I then go into my house to eat and to drink, and to lie with my wife? As you live, and as your soul lives, I won't do this thing!" 
 David said to Uriah, "Stay here today also, and tomorrow I will let you depart." So Uriah stayed in Jerusalem that day and the next day. 
 When David had called him, he ate and drank before him; and he made him drunk. At evening, he went out to lie on his bed with the servants of his lord, but didn't go down to his house. 
 In the morning, David wrote a letter to Joab and sent it by the hand of Uriah. 

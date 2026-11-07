@@ -1,5 +1,5 @@
 ﻿God showed me, and look, two baskets of figs were set before God's temple, after Nebuchadnezzar king of Babylon had carried away captive Jeconiah the son of Jehoiakim, king of Judah, and the princes of Judah, with the craftsmen and smiths, from Jerusalem, and had brought them to Babylon. 
-One basket had very good figs, like the figs that are first-ripe; and the other basket had very bad figs, which could not be eaten, they were so bad. 
+One basket had very good figs, like the figs that are first-ripe; and the other basket had very bad figs, which couldn't be eaten, they were so bad. 
 Then God asked me, "What do you see, Jeremiah?" I said, "Figs. The good figs are very good, and the bad are very bad, so bad that they can't be eaten." 
 God's word came to me, saying, 
 "The God of Israel says: 'Like these good figs, so I will regard the captives of Judah, whom I have sent out of this place into the land of the Chaldeans, as good. 

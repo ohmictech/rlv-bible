@@ -3,7 +3,7 @@ Let Israel now say that his loving kindness endures for the eras.
 Let the house of Aaron now say that his loving kindness endures for the eras. 
 Now let those who fear God say that his loving kindness endures for the eras. 
 Out of my distress, I called on God. God answered me with freedom. 
-God is on my side. I will not be afraid. What can man do to me? 
+God is on my side. I won't be afraid. What can man do to me? 
 God is on my side among those who help me. So I will look in triumph at those who hate me. 
 It is better to take refuge in God, than to put confidence in man. 
 It is better to take refuge in God, than to put confidence in princes. 
@@ -14,8 +14,8 @@ You pushed me back hard, to make me fall, but God helped me.
 God is my strength and song. He has become my salvation. 
 The voice of rejoicing and salvation is in the tents of the righteous. "The right hand of God does valiantly. 
 The right hand of God is exalted! The right hand of God does valiantly!" 
-I will not die, but live, and declare God's works. 
-God has punished me severely, but he has not given me over to death. 
+I won't die, but live, and declare God's works. 
+God has punished me severely, but he hasn't given me over to death. 
 Open to me the gates of righteousness. I will enter into them. I will give thanks to God. 
 This is the gate of God; the righteous will enter into it. 
 I will give thanks to you, for you have answered me, and have become my salvation. 

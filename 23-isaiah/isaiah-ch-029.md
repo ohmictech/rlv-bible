@@ -9,7 +9,7 @@ It will be like when a hungry man dreams, and look, he eats; but he awakes, and 
 Pause and wonder! Blind yourselves and be blind! They are drunken, but not with wine; they stagger, but not with strong drink. 
 God has poured out on you a spirit of deep sleep, and has closed your eyes, the spokesmen; and he has covered your heads, the seers. 
 All vision has become to you like the words of a book that is sealed, which men deliver to one who is educated, saying, "Read this, please;" and he says, "I can't, for it is sealed;" 
-and the book is delivered to one who is not educated, saying, "Read this, please;" and he says, "I can't read." 
+and the book is delivered to one who isn't educated, saying, "Read this, please;" and he says, "I can't read." 
 The Lord said, "Because this people draws near with their mouth and honors me with their lips, but they have removed their heart far from me, and their fear of me is a commandment of men which has been taught; 
 So, look, I will proceed to do a marvelous work among this people, even a marvelous work and a wonder; and the wisdom of their wise men will perish, and the understanding of their prudent men will be hidden." 
 Woe to those who deeply hide their counsel from God, and whose deeds are in the dark, and who say, "Who sees us?" and "Who knows us?" 

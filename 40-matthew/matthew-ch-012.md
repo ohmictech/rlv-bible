@@ -1,7 +1,7 @@
 ﻿At that time, Jesus went on the Sabbath day through the grain fields. His students were hungry and began to pick heads of grain and to eat. 
-But the strict religious ones, when they saw it, said to him, "Look, your students are doing what is not allowed on the Sabbath." 
+But the strict religious ones, when they saw it, said to him, "Look, your students are doing what isn't allowed on the Sabbath." 
 But he said to them, "Haven't you read what David did when he was hungry, and those who were with him: 
-how he entered into God's house and ate the bread of the Presence, which was not allowed for him to eat, nor for those who were with him, but only for the priests? 
+how he entered into God's house and ate the bread of the Presence, which wasn't allowed for him to eat, nor for those who were with him, but only for the priests? 
 Or have you not read in the law that on the Sabbath day the priests in the temple profane the Sabbath and are guiltless? 
 But I tell you that one greater than the temple is here. 
 But if you had known what this means, 'I want mercy, and not sacrifice,' you wouldn't have sentenced the innocent. 
@@ -13,23 +13,23 @@ How much more valuable then is a person than a sheep! So it is allowed to do goo
 Then he told the man, "Stretch out your hand." He stretched it out, and it was restored whole, just like the other. 
 But the strict religious ones went out and conspired against him, how they could kill him. 
 Jesus, perceiving that, withdrew from there. Great crowds followed him, and he healed them all, 
-and commanded them that they should not make him known, 
+and commanded them that they shouldn't make him known, 
 so that what was spoken through the spokesman Isaiah would come true: 
 "Look, my servant whom I have chosen, the one I truly love, and I am delighted with him. I will put my Spirit on him. He will announce the verdict to the nations. 
-He will not quarrel or shout, and no one will hear his voice in the streets. 
+He won't quarrel or shout, and no one will hear his voice in the streets. 
 He won't break a bruised reed. He won't put out a smoldering wick, until he leads the verdict out to victory. 
 In his name, the nations will set their expectation." 
 Then a man possessed by an unclean spirit, blind and unable to speak, was brought to him, and he healed him, so that the man both spoke and saw. 
 All the crowds were amazed, and said, "Can this be the Son of David?" 
-But when the strict religious ones heard it, they said, "This man does not drive out unclean spirits except by Beelzebul, the ruler of the unclean spirits." 
-Knowing their thoughts, Jesus said to them, "Every reign divided against itself is laid waste, and every city or house divided against itself will not stand. 
+But when the strict religious ones heard it, they said, "This man doesn't drive out unclean spirits except by Beelzebul, the ruler of the unclean spirits." 
+Knowing their thoughts, Jesus said to them, "Every reign divided against itself is laid waste, and every city or house divided against itself won't stand. 
 If the Adversary drives out the Adversary, he is divided against himself. How then will his reign stand? 
 If I drive out unclean spirits by Beelzebul, by whom do your children drive them out? So they will be your judges. 
 But if I drive out unclean spirits by the Spirit of God, then God's reign has come upon you. 
 Or how can one enter into the house of the strong man and plunder his goods, unless he first ties up the strong man? Then he will plunder his house. 
-"He who is not with me is against me, and he who doesn't gather with me scatters. 
-So I tell you, every wrongdoing and slander will be released for people, but the slander against the Spirit will not be released for people. 
-Anyone who speaks a word against the Human One will be released for it, but whoever speaks against the Holy Spirit will not be released, either in this era or in the era to come. 
+"He who isn't with me is against me, and he who doesn't gather with me scatters. 
+So I tell you, every wrongdoing and slander will be released for people, but the slander against the Spirit won't be released for people. 
+Anyone who speaks a word against the Human One will be released for it, but whoever speaks against the Holy Spirit won't be released, either in this era or in the era to come. 
 "Either make the tree good and its fruit good, or make the tree rotten and its fruit rotten, for the tree is known by its fruit. 
 You offspring of vipers, how can you, being malicious, speak good things? Out of the overflow of the heart, the mouth speaks. 
 The good person out of his good treasure brings out good things, and the malicious person out of his bad treasure brings out bad things. 

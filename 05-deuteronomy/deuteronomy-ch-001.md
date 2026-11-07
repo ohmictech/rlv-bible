@@ -6,7 +6,7 @@ Beyond the Jordan, in the land of Moab, Moses began to declare this law, saying,
 "Our God spoke to us in Horeb, saying, 'You have lived long enough at this mountain. 
 Turn, and take your journey, and go to the hill country of the Amorites and to all the places near there: in the Arabah, in the hill country, in the lowland, in the South, by the seashore, in the land of the Canaanites, and in Lebanon as far as the great river, the river Euphrates. 
 Look, I have set the land before you. Go in and possess the land which God swore to your fathers, to Abraham, to Isaac, and to Jacob, to give to them and to their offspring after them.'" 
-I spoke to you at that time, saying, "I am not able to bear you myself alone. 
+I spoke to you at that time, saying, "I'm not able to bear you myself alone. 
 Your God has multiplied you, and look, you are today as the stars of the sky for multitude. 
 May the God of your fathers, make you a thousand times as many as you are and bless you, as he has promised you! 
 How can I myself alone bear your problems, your burdens, and your strife? 
@@ -39,7 +39,7 @@ Joshua the son of Nun, who stands before you, shall go in there. Encourage him, 
 Moreover your little ones, whom you said would be captured or killed, your children, who today have no knowledge of good or bad, shall go in there. I will give it to them, and they shall possess it. 
 But as for you, turn, and take your journey into the wilderness by the way to the Red Sea." 
 Then you answered and said to me, "We have wronged God. We will go up and fight, according to all that our God commanded us." Every man of you put on his weapons of war, and presumed to go up into the hill country. 
-God said to me, "Tell them, 'Don't go up and don't fight; for I am not among you, lest you be struck before your enemies.'" 
+God said to me, "Tell them, 'Don't go up and don't fight; for I'm not among you, lest you be struck before your enemies.'" 
 So I spoke to you, and you didn't listen; but you rebelled against the commandment of God, and were presumptuous, and went up into the hill country. 
 The Amorites, who lived in that hill country, came out against you and chased you as bees do, and beat you down in Seir, even to Hormah. 
 You returned and wept before God, but God didn't listen to your voice, nor turn his ear to you. 

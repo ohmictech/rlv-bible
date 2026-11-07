@@ -22,10 +22,10 @@ Jesus said to them again, "Wholeness be to you. As the Father has sent me, even 
 When he had said this, he breathed on them, and said to them, "Receive the Holy Spirit! 
 If you release anyone's mistakes, they are released. If you hold on to anyone's mistakes, they are held." 
 But Thomas, one of the twelve, called Didymus, wasn't with them when Jesus came. 
-The other students said to him, "We have seen the Lord!" But he said to them, "Unless I see in his hands the print of the nails, put my finger into the print of the nails, and put my hand into his side, I will not trust." 
+The other students said to him, "We have seen the Lord!" But he said to them, "Unless I see in his hands the print of the nails, put my finger into the print of the nails, and put my hand into his side, I won't trust." 
 After eight days, again his students were inside and Thomas was with them. Jesus came, the doors being locked, and stood in the middle, and said, "Wholeness be to you." 
 Then he said to Thomas, "Reach here your finger, and see my hands. Reach here your hand, and put it into my side. Stop doubting, and trust." 
 Thomas answered him, "My Lord and my God!" 
-Jesus said to him, "Because you have seen me, you have trusted. Flourishing are those who have not seen and have trusted." 
-So Jesus did many other signs in the presence of his students, which are not written in this book; 
+Jesus said to him, "Because you have seen me, you have trusted. Flourishing are those who haven't seen and have trusted." 
+So Jesus did many other signs in the presence of his students, which aren't written in this book; 
 but these are written that you may trust that Jesus is the Christ, the Son of God, and that trusting you may have real life in his name. 

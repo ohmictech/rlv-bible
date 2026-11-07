@@ -19,7 +19,7 @@ I said, "My strength has perished, along with my expectation from God."
 Remember my affliction and my misery, the wormwood and the bitterness. 
 My soul still remembers them, and is bowed down within me. 
 This I recall to my mind; I have hope. 
-It is because of God's loving kindnesses that we are not consumed, because his mercies don't fail. 
+It is because of God's loving kindnesses that we aren't consumed, because his mercies don't fail. 
 They are new every morning. Great is your faithfulness. 
 "God is my portion," says my soul. "Therefore I will hope in him." 
 God is good to those who wait for him, to the soul who seeks him. 
@@ -28,9 +28,9 @@ It is good for a man that he bear the yoke in his youth.
 Let him sit alone and keep silence, because he has laid it on him. 
 Let him put his mouth in the dust, if it is so that there may be hope. 
 Let him give his cheek to him who strikes him. Let him be filled full of reproach. 
-The Lord will not cast off for the eras. 
+The Lord won't cast off for the eras. 
 Though he causes grief, yet he will have compassion according to the multitude of his loving kindnesses. 
-He does not afflict willingly, nor grieve the children of men. 
+He doesn't afflict willingly, nor grieve the children of men. 
 To crush under foot all the prisoners of the earth, 
 to turn away the right of a man before the face of the Most High, 
 to subvert a man in his cause, the Lord doesn't approve. 
@@ -39,8 +39,8 @@ Doesn't bad and good come out of the mouth of the Most High?
 Why should a living man complain, a man for the punishment of his mistakes? 
 Let us search and try our ways, and turn again to God. 
 Let's lift up our heart with our hands to God in the sky. 
-"We have transgressed and have rebelled. You have not pardoned. 
-"You have covered us with anger and pursued us. You have killed. You have not pitied. 
+"We have transgressed and have rebelled. You haven't pardoned. 
+"You have covered us with anger and pursued us. You have killed. You haven't pitied. 
 You have covered yourself with a cloud, so that no prayer can pass through. 
 You have made us an off-scouring and refuse in the middle of the peoples. 
 "All our enemies have opened their mouth wide against us. 

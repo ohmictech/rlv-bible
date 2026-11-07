@@ -7,7 +7,7 @@ Israel was brought very low because of Midian; and the children of Israel cried 
 When the children of Israel cried to God because of Midian, 
 God sent a spokesman to the children of Israel; and he said to them, "The God of Israel says, 'I brought you up from Egypt, and brought you out of the house of bondage. 
 I delivered you out of the hand of the Egyptians and out of the hand of everyone who oppressed you, and drove them out from before you, and gave you their land. 
-I said to you, "I am your God. You shall not fear the gods of the Amorites, in whose land you dwell." But you have not listened to my voice.'" 
+I said to you, "I am your God. You shall not fear the gods of the Amorites, in whose land you dwell." But you haven't listened to my voice.'" 
 God's messenger came and sat under the oak which was in Ophrah, that belonged to Joash the Abiezrite. His son Gideon was beating out wheat in the wine press, to hide it from the Midianites. 
 God's messenger appeared to him, and said to him, "God is with you, you mighty man of valor!" 
 Gideon said to him, "Oh, my lord, if God is with us, why then has all this happened to us? Where are all his wondrous works which our fathers told us of, saying, 'Didn't God bring us up from Egypt?' But now God has cast us off, and delivered us into the hand of Midian." 
@@ -24,7 +24,7 @@ God said to him, "Peace be to you! Don't be afraid. You shall not die."
 Then Gideon built an altar there to God, and called it "God is Peace." To this day it is still in Ophrah of the Abiezrites. 
 That same night, God said to him, "Take your father's bull, even the second bull seven years old, and throw down the altar of Baal that your father has, and cut down the Asherah that is by it. 
 Then build an altar to your God on the top of this stronghold, in an orderly way, and take the second bull, and offer a burnt offering with the wood of the Asherah which you shall cut down." 
-Then Gideon took ten men of his servants, and did as God had spoken to him. Because he feared his father's household and the men of the city, he could not do it by day, but he did it by night. 
+Then Gideon took ten men of his servants, and did as God had spoken to him. Because he feared his father's household and the men of the city, he couldn't do it by day, but he did it by night. 
 When the men of the city arose early in the morning, look, the altar of Baal was broken down, and the Asherah was cut down that was by it, and the second bull was offered on the altar that was built. 
 They said to one another, "Who has done this thing?" When they inquired and asked, they said, "Gideon the son of Joash has done this thing." 
 Then the men of the city said to Joash, "Bring out your son, that he may die, because he has broken down the altar of Baal, and because he has cut down the Asherah that was by it." 

@@ -8,7 +8,7 @@ You haven't given water to the weary to drink, and you have withheld bread from 
 But as for the mighty man, he had the earth. The honorable man, he lived in it. 
 You have sent widows away empty, and the arms of the fatherless have been broken. 
 So snares are around you. Sudden fear troubles you, 
-or darkness, so that you can not see, and floods of waters cover you. 
+or darkness, so that you can't see, and floods of waters cover you. 
 "Isn't God in the heights of the sky? See the height of the stars, how high they are! 
 You say, 'What does God know? Can he judge through the thick darkness? 
 Thick clouds are a covering to him, so that he doesn't see. He walks on the vault of the sky.' 
@@ -27,4 +27,4 @@ Then you will delight yourself in the Almighty, and will lift up your face to Go
 You will make your prayer to him, and he will hear you. You will pay your vows. 
 You will also decree a thing, and it will be established to you. Light will shine on your ways. 
 When they cast down, you will say, 'be lifted up.' He will save the humble person. 
-He will even deliver him who is not innocent. Yes, he will be delivered through the cleanness of your hands." 
+He will even deliver him who isn't innocent. Yes, he will be delivered through the cleanness of your hands." 

@@ -17,10 +17,10 @@ In those days Judah will be saved, and Jerusalem will dwell safely. This is the 
 God says: "David will never lack a man to sit on the throne of the house of Israel. 
 The Levitical priests won't lack a man before me to offer burnt offerings, to burn meal offerings, and to do sacrifice continually." 
 God's word came to Jeremiah, saying, 
-"God says: 'If you can break my covenant of the day and my covenant of the night, so that there will not be day and night in their time, 
+"God says: 'If you can break my covenant of the day and my covenant of the night, so that there won't be day and night in their time, 
 then my covenant could also be broken with David my servant, that he won't have a son to reign on his throne; and with the Levitical priests, my ministers. 
 As the army of the sky can't be counted, and the sand of the sea can't be measured, so I will multiply the offspring of David my servant and the Levites who minister to me.'" 
 God's word came to Jeremiah, saying, 
 "Don't consider what this people has spoken, saying, 'Has God cast off the two families which he chose?' Thus they despise my people, that they should be no more a nation before them." 
-God says: "If my covenant of day and night fails, if I have not appointed the ordinances of the sky and earth, 
-then I will also cast away the offspring of Jacob, and of David my servant, so that I will not take of his offspring to be rulers over the offspring of Abraham, Isaac, and Jacob; for I will cause their captivity to be reversed and will have mercy on them." 
+God says: "If my covenant of day and night fails, if I haven't appointed the ordinances of the sky and earth, 
+then I will also cast away the offspring of Jacob, and of David my servant, so that I won't take of his offspring to be rulers over the offspring of Abraham, Isaac, and Jacob; for I will cause their captivity to be reversed and will have mercy on them." 

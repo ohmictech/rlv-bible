@@ -24,7 +24,7 @@ the Babylonians and all the Chaldeans, Pekod, Shoa, Koa, and all the Assyrians w
 They will come against you with weapons, chariots, and wagons, and with a company of peoples. They will set themselves against you with buckler, shield, and helmet all around. I will commit the judgment to them, and they will judge you according to their judgments. 
 I will set my jealousy against you, and they will deal with you in fury. They will take away your nose and your ears. Your remnant will fall by the sword. They will take your sons and your daughters; and the rest of you will be devoured by the fire. 
 They will also strip you of your clothes and take away your beautiful jewels. 
-Thus I will make your lewdness to cease from you, and remove your prostitution from the land of Egypt, so that you will not lift up your eyes to them, nor remember Egypt any more.' 
+Thus I will make your lewdness to cease from you, and remove your prostitution from the land of Egypt, so that you won't lift up your eyes to them, nor remember Egypt any more.' 
 "For God says: 'Look, I will deliver you into the hand of them whom you hate, into the hand of them from whom your soul is alienated. 
 They will deal with you in hatred, and will take away all your labor, and will leave you naked and bare. The nakedness of your prostitution will be uncovered, both your lewdness and your prostitution. 
 These things will be done to you because you have played the prostitute after the nations, and because you are polluted with their idols. 

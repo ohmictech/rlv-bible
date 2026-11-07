@@ -3,7 +3,7 @@ and Abraham gave him a tenth of everything. His name first means "king of rightn
 He has no father or mother, no family line, no beginning to his days and no end to his life. He is made like the Son of God, and he remains a priest without end. 
 Now think about how great this man was: even Abraham the patriarch gave him a tenth of the best of the plunder. 
 The sons of Levi who become priests are commanded by the law to collect a tenth from the people, that is, from their own brothers and sisters, even though they too came out of Abraham's body. 
-But this man, whose family line is not counted among them, collected a tenth from Abraham and blessed the one who had the promises. 
+But this man, whose family line isn't counted among them, collected a tenth from Abraham and blessed the one who had the promises. 
 There is no argument about this: the lesser is blessed by the greater. 
 In the one case, people who die collect the tenth; in the other, someone collects it who is said to be alive. 
 You could even say that Levi, who collects the tenth, paid the tenth through Abraham, 
@@ -17,12 +17,12 @@ one who became a priest not by a rule about physical descent, but by the power o
 It is said of him, "You are a priest for the eras, in the order of Melchizedek." 
 So the earlier command is set aside, because it was weak and useless, 
 the law made nothing complete, and a better expectation is brought in, and through it we come near to God. 
-And this was not done without an oath. 
-(others became priests without any oath), but he became one with an oath, when God said to him, "The Lord has sworn and will not change his mind, 'You are a priest for the eras.'" 
+And this wasn't done without an oath. 
+(others became priests without any oath), but he became one with an oath, when God said to him, "The Lord has sworn and won't change his mind, 'You are a priest for the eras.'" 
 Because of this, Jesus has become the guarantee of a better binding arrangement. 
 There have been many priests, because death kept them from staying in office. 
 But because he remains for the eras, his priesthood never passes to anyone else. 
 That is why he is able to rescue completely those who come to God through him, because he always lives to speak for them. 
 This is the kind of high priest we needed: devoted to God, innocent, clean, kept apart from those who have drifted, and raised higher than the skies. 
-He does not need to offer sacrifices every day, the way those high priests do, first for his own mistakes and then for the people's. He did this once and for all when he offered himself. 
+He doesn't need to offer sacrifices every day, the way those high priests do, first for his own mistakes and then for the people's. He did this once and for all when he offered himself. 
 The law appoints high priests who are weak, but the word of the oath, which came after the law, appoints a Son who has been made complete for the eras. 

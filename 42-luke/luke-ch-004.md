@@ -1,7 +1,7 @@
 ﻿Jesus, full of the Holy Spirit, returned from the Jordan and was led by the Spirit into the wilderness 
 for forty days, being tested by the Slanderer. He ate nothing in those days. Afterward, when the days were completed, he was hungry. 
 The Slanderer said to him, "If you are the Son of God, command this stone to become bread." 
-Jesus answered him, saying, "It is written, 'People do not live on bread alone, but on every word of God.'" 
+Jesus answered him, saying, "It is written, 'People don't live on bread alone, but on every word of God.'" 
 The Slanderer, leading him up on a high mountain, showed him all the realms of the world in a moment of time. 
 The Slanderer said to him, "I will give you all this authority and their weight, for it has been handed over to me, and I give it to whomever I want. 
 If you will worship before me, it will all be yours." 

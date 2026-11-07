@@ -2,15 +2,15 @@
 and were all immersed into Moses in the cloud and in the sea; 
 and all ate the same spiritual food; 
 and all drank the same spiritual drink. They drank of a spiritual rock that followed them, and the rock was Christ. 
-However, God was not delighted with most of them, for they were laid low in the empty land. 
-Now these things became examples for us, so that we would not crave bad things as they craved them. 
+However, God wasn't delighted with most of them, for they were laid low in the empty land. 
+Now these things became examples for us, so that we wouldn't crave bad things as they craved them. 
 Don't become idol worshipers, as some of them were. As it is written, "The people sat down to eat and drink, and got up to play." 
 Let's not sleep around, as some of them did, and twenty-three thousand fell in one day. 
 Let's not test Christ, as some of them tested, and were killed by the snakes. 
 Don't grumble, as some of them grumbled, and were killed by the destroyer. 
 Now all these things happened to them by way of example, and they were written down to warn us, on whom the ends of the eras have come. 
 So let him who thinks he stands be careful that he doesn't fall. 
-No test has taken you except what is common to people. God is trustworthy, and he will not let you be tested beyond what you can bear, but with the test he will also make a way out, so that you can stay with it. 
+No test has taken you except what is common to people. God is trustworthy, and he won't let you be tested beyond what you can bear, but with the test he will also make a way out, so that you can stay with it. 
 So, my truly loved, run from idol worship. 
 I speak as to sensible people. Pass a verdict on what I say. 
 The cup of blessing which we bless, isn't it a sharing in the blood of Christ? The bread which we break, isn't it a sharing in the body of Christ? 

@@ -5,7 +5,7 @@ In him was real life, and that life was the light of people.
 The light shines in the darkness, and the darkness hasn't overcome it. 
 There came a man sent from God, whose name was John. 
 He came as a witness, to testify about the light, so that everyone would trust through him. 
-He was not the light, but came to testify about the light. 
+He wasn't the light, but came to testify about the light. 
 The true light that enlightens everyone was coming into the world. 
 He was in the world, and the world was made through him, and the world didn't recognize him. 
 He came to his own, and those who were his own didn't receive him. 
@@ -17,12 +17,12 @@ From his fullness we have all received favor upon favor.
 The law was given through Moses. Favor and truth came through Jesus Christ. 
 No one has seen God at any time. The one and only Son, who is at the Father's side, has made him known. 
 This is John's testimony, when the Jewish leaders sent priests and Levites from Jerusalem to ask him, "Who are you?" 
-He declared it openly and didn't deny it: "I am not the Christ." 
-They asked him, "What then? Are you Elijah?" He said, "I am not." "Are you the Spokesman?" He answered, "No." 
+He declared it openly and didn't deny it: "I'm not the Christ." 
+They asked him, "What then? Are you Elijah?" He said, "I'm not." "Are you the Spokesman?" He answered, "No." 
 They said to him, "Who are you? Give us an answer to take back to those who sent us. What do you say about yourself?" 
 He said, "I am the voice of one crying in the wilderness, 'Make straight the way of the Lord,' as Isaiah the spokesman said." 
 The ones who had been sent were from the strict religious ones. 
-They asked him, "Why then do you immerse if you are not the Christ, nor Elijah, nor the Spokesman?" 
+They asked him, "Why then do you immerse if you aren't the Christ, nor Elijah, nor the Spokesman?" 
 John answered them, "I immerse in water, but among you stands one whom you don't know. 
 He is the one who comes after me, whose sandal strap I'm not worthy to loosen." 
 These things were done in Bethany beyond the Jordan, where John was immersing. 

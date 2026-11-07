@@ -5,7 +5,7 @@ But God, rich in mercy, because of the great love he truly had for us,
 made us alive together with Christ even when we were dead in our false steps, you have been rescued by favor, 
 and raised us up with him, and seated us with him in the sky in Christ Jesus, 
 so that in the eras to come he could show how far beyond all measure the riches of his gift are, in his kindness toward us in Christ Jesus. 
-By favor you have been rescued through trust, and this is not from yourselves; it is God's gift, 
+By favor you have been rescued through trust, and this isn't from yourselves; it is God's gift, 
 not by deeds, so that no one can boast. 
 We are what he made, created in Christ Jesus for good deeds, which God prepared ahead of time so that we would live in them. 
 So remember that you, the nations by birth, the ones called "the uncircumcised" by people who call themselves "the circumcised," a cutting made by hands in the flesh, 

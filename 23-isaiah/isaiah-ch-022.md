@@ -1,5 +1,5 @@
 ﻿The burden of the valley of vision. What ails you now, that you have all gone up to the housetops? 
-You that are full of shouting, a tumultuous city, a joyous town, your slain are not slain with the sword, neither are they dead in battle. 
+You that are full of shouting, a tumultuous city, a joyous town, your slain aren't slain with the sword, neither are they dead in battle. 
 All your rulers fled away together. They were bound by the archers. Everyone who was found by you were bound together. They fled far away. 
 So I said, "Look away from me. I will weep bitterly. Don't labor to comfort me for the destruction of the daughter of my people. 
 It is a day of confusion, and of treading down, and of perplexity from the Lord, GOD of Armies, in the valley of vision, a breaking down of the walls, and a crying to the mountains." 
@@ -11,7 +11,7 @@ You counted the houses of Jerusalem, and you broke down the houses to fortify th
 You also made a reservoir between the two walls for the water of the old pool. But you didn't look to him who had done this, neither did you have respect for him who planned it long ago. 
 In that day, the Lord, GOD of Armies, called to weeping, to mourning, to baldness, and to dressing in sackcloth; 
 and look, there is joy and gladness, killing cattle and killing sheep, eating meat and drinking wine: "Let's eat and drink, for tomorrow we will die." 
-The God of Armies revealed himself in my ears, "Surely this guilt will not be forgiven you until you die," says the Lord, GOD of Armies. 
+The God of Armies revealed himself in my ears, "Surely this guilt won't be forgiven you until you die," says the Lord, GOD of Armies. 
 The Lord, GOD of Armies says, "Go, get yourself to this treasurer, even to Shebna, who is over the house, and say, 
 'What are you doing here? Who has you here, that you have dug out a tomb here?' Cutting himself out a tomb on high, chiseling a habitation for himself in the rock!" 
 Look, God will overcome you and hurl you away violently. Yes, he will grasp you firmly. 

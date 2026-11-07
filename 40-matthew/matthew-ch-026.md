@@ -21,18 +21,18 @@ Now when evening had come, he was at the table with the twelve students.
 As they were eating, he said, "Truly I tell you that one of you will hand me over." 
 They were deeply grieved, and each began to ask him, "It isn't me, is it, Lord?" 
 He answered, "The one who dipped his hand with me in the dish will hand me over. 
-The Human One goes even as it is written of him, but how terrible for that man who hands over the Human One! It would be better for that man if he had not been born." 
+The Human One goes even as it is written of him, but how terrible for that man who hands over the Human One! It would be better for that man if he hadn't been born." 
 Judas, who was handing him over, answered, "It isn't me, is it, Rabbi?" He said to him, "You said it." 
 As they were eating, Jesus took bread, gave thanks for it, and broke it. He gave it to the students and said, "Take, eat. This is my body." 
 He took the cup, gave thanks, and gave to them, saying, "All of you drink it, 
 for this is my blood of the new binding arrangement, poured out for everyone for the release of their mistakes. 
-But I tell you that I will not drink from this fruit of the vine from now on, until that day when I drink it new with you in my Father's reign." 
+But I tell you that I won't drink from this fruit of the vine from now on, until that day when I drink it new with you in my Father's reign." 
 When they had sung a hymn, they went out to the Mount of Olives. 
 Then Jesus said to them, "All of you will be trapped because of me tonight, for it is written, 'I will strike the shepherd, and the sheep of the flock will be scattered.' 
 But after I am raised up, I will go before you into Galilee." 
 But Peter answered him, "Even if everyone is trapped because of you, I will never be trapped." 
 Jesus said to him, "Truly I tell you that tonight, before the rooster crows, you will disown me three times." 
-Peter said to him, "Even if I must die with you, I will not disown you." All of the students also said the same. 
+Peter said to him, "Even if I must die with you, I won't disown you." All of the students also said the same. 
 Then Jesus came with them to a place called Gethsemane, and said to his students, "Sit here while I go over there and pray." 
 He took Peter and the two sons of Zebedee with him, and began to be deeply grieved and troubled. 
 Then Jesus said to them, "My life is crushed with grief, even to death. Stay here and stay awake with me." 

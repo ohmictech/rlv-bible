@@ -2,7 +2,7 @@
 My God, I cry in the daytime, but you don't answer; in the night season, and am not silent. 
 But you are holy, you who inhabit the praises of Israel. 
 Our fathers trusted in you. They trusted, and you delivered them. 
-They cried to you, and were delivered. They trusted in you, and were not disappointed. 
+They cried to you, and were delivered. They trusted in you, and weren't disappointed. 
 But I am a worm, and no man; a reproach of men, and despised by the people. 
 Everyone who sees me mock me. They insult me with their lips. They shake their heads, saying, 
 "He trusts in God. Let him deliver him. Let him rescue him, since he delights in him." 
@@ -21,7 +21,7 @@ Deliver my soul from the sword, my precious life from the power of the dog.
 Save me from the lion's mouth! Yes, you have rescued me from the horns of the wild oxen. 
 I will declare your name to my brothers. Among the assembly, I will praise you. 
 You who fear God, praise him! All you descendants of Jacob, glorify him! Stand in awe of him, all you descendants of Israel! 
-He has not despised nor abhorred the affliction of the afflicted, neither has he hidden his face from him; but when he cried to him, he heard. 
+He hasn't despised nor abhorred the affliction of the afflicted, neither has he hidden his face from him; but when he cried to him, he heard. 
 My praise of you comes in the great assembly. I will pay my vows before those who fear him. 
 The humble shall eat and be satisfied. They shall praise God who seek after him. Let your hearts live for the eras. 
 All the ends of the earth shall remember and turn to God. All the relatives of the nations shall worship before you. 

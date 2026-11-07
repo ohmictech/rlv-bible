@@ -15,7 +15,7 @@ He cried aloud and said this: 'Cut down the tree, and cut off its branches! Shak
 Nevertheless leave the stump of its roots in the earth, even with a band of iron and bronze, in the tender grass of the field; and let it be wet with the dew of the sky. Let his portion be with the animals in the grass of the earth. 
 Let his heart be changed from man's, and let an animal's heart be given to him. Then let seven times pass over him. 
 "'The sentence is by the decree of the watchers and the demand by the word of the holy ones, to the intent that the living may know that the Most High rules in the kingdom of men, and gives it to whomever he will, and sets up over it the lowest of men.' 
-"This dream I, King Nebuchadnezzar, have seen; and you, Belteshazzar, declare the interpretation, because all the wise men of my kingdom are not able to make known to me the interpretation; but you are able, for the spirit of the holy gods is in you." 
+"This dream I, King Nebuchadnezzar, have seen; and you, Belteshazzar, declare the interpretation, because all the wise men of my kingdom aren't able to make known to me the interpretation; but you are able, for the spirit of the holy gods is in you." 
 Then Daniel, whose name was Belteshazzar, was stricken mute for a while, and his thoughts troubled him. The king answered, "Belteshazzar, don't let the dream or the interpretation trouble you." Belteshazzar answered, "My lord, may the dream be for those who hate you, and its interpretation to your adversaries. 
 The tree that you saw, which grew and was strong, whose height reached to the sky and its sight to all the earth; 
 whose leaves were beautiful and its fruit plentiful, and in it was food for all; under which the animals of the field lived, and on whose branches the birds of the sky had their habitation 
@@ -27,7 +27,7 @@ Whereas it was commanded to leave the stump of the roots of the tree, your kingd
 So, O king, let my counsel be acceptable to you, and break off your mistakes by righteousness, and your guilt by showing mercy to the poor. Perhaps there may be a lengthening of your tranquility." 
 All this came on the King Nebuchadnezzar. 
 At the end of twelve months he was walking in the royal palace of Babylon. 
-The king spoke and said, "Is not this great Babylon, which I have built for the royal dwelling place by the might of my power and for the glory of my majesty?" 
+The king spoke and said, "Isn't this great Babylon, which I have built for the royal dwelling place by the might of my power and for the glory of my majesty?" 
 While the word was in the king's mouth, a voice came from the sky, saying, "O King Nebuchadnezzar, to you it is spoken: 'The kingdom has departed from you. 
 You shall be driven from men, and your dwelling shall be with the animals of the field. You shall be made to eat grass like oxen. Seven times shall pass over you, until you know that the Most High rules in the kingdom of men, and gives it to whomever he will.'" 
 This was fulfilled the same hour on Nebuchadnezzar. He was driven from men and ate grass like oxen; and his body was wet with the dew of the sky until his hair had grown like eagles' feathers, and his nails like birds' claws. 

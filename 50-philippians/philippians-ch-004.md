@@ -8,7 +8,7 @@ And God's wholeness, which goes far beyond anything we can understand, will guar
 Finally, brothers and sisters, whatever is true, whatever is honorable, whatever is right, whatever is pure, whatever is lovely, whatever is worth talking about, if there is anything excellent, if there is anything worth praising, think about these things. 
 Keep doing the things you learned and received and heard and saw in me, and the God of wholeness will be with you. 
 I celebrated greatly in the Lord that you have finally revived your care for me. You were indeed caring for me, but you had no chance to show it. 
-I am not saying this because I am in need, because I have learned to be content whatever my circumstances. 
+I'm not saying this because I am in need, because I have learned to be content whatever my circumstances. 
 I know what it is to be brought low, and I know what it is to overflow. I have learned the secret of being full and of being hungry, of overflowing and of being in need. 
 I can do all this through him who gives me strength. 
 Still, you did well to share in my troubles. 

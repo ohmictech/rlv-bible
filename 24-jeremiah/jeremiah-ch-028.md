@@ -12,6 +12,6 @@ Hananiah spoke in the presence of everyone, saying, "God says: 'Even so I will b
 Then God's word came to Jeremiah, after Hananiah the spokesman had broken the bar from off the neck of the spokesman Jeremiah, saying, 
 "Go, and tell Hananiah, saying, 'God says, "You have broken the bars of wood, but you have made in their place bars of iron." 
 The God of Armies, the God of Israel says, "I have put a yoke of iron on the neck of all these nations, that they may serve Nebuchadnezzar king of Babylon; and they will serve him. I have also given him the animals of the field."'" 
-Then the spokesman Jeremiah said to Hananiah the spokesman, "Listen, Hananiah! God has not sent you, but you make this people trust in a lie. 
+Then the spokesman Jeremiah said to Hananiah the spokesman, "Listen, Hananiah! God hasn't sent you, but you make this people trust in a lie. 
 So God says, 'Look, I will send you away from off the surface of the earth. This year you will die, because you have spoken rebellion against God.'" 
 So Hananiah the spokesman died the same year in the seventh month. 

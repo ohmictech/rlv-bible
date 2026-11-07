@@ -35,7 +35,7 @@ Jesus said to them, "The children of this era marry and are given in marriage.
 But those who are considered worthy to attain to that era and the rising from the dead neither marry nor are given in marriage. 
 They can't die any more, for they are like the messengers and are children of God, being children of the rising. 
 But that the dead are raised, even Moses showed at the burning bush, when he called the Lord 'The God of Abraham, the God of Isaac, and the God of Jacob.' 
-Now he is not the God of dead bodies, but of the living, for all are alive to him." 
+Now he isn't the God of dead bodies, but of the living, for all are alive to him." 
 Some of the Bible teachers answered, "Teacher, you speak well." 
 They didn't dare to ask him any more questions. 
 He said to them, "Why do they say that the Christ is David's son? 

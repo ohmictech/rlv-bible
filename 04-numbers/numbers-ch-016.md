@@ -12,7 +12,7 @@ So you and all your company have gathered together against God! What is Aaron th
 Moses sent to call Dathan and Abiram, the sons of Eliab; and they said, "We won't come up! 
 Is it a small thing that you have brought us up out of a land flowing with milk and honey, to kill us in the wilderness, but you must also make yourself a prince over us? 
 Moreover you haven't brought us into a land flowing with milk and honey, nor given us inheritance of fields and vineyards. Will you put out the eyes of these men? We won't come up." 
-Moses was very angry, and said to God, "Don't respect their offering. I have not taken one donkey from them, neither have I hurt one of them." 
+Moses was very angry, and said to God, "Don't respect their offering. I haven't taken one donkey from them, neither have I hurt one of them." 
 Moses said to Korah, "You and all your company go before God, you, and they, and Aaron, tomorrow. 
 Each man take his censer and put incense on it, and each man bring before God his censer, two hundred fifty censers; you also, and Aaron, each with his censer." 
 They each took his censer, and put fire in it, and laid incense on it, and stood at the door of the Tent of Meeting with Moses and Aaron. 
@@ -25,7 +25,7 @@ God spoke to Moses, saying,
 Moses rose up and went to Dathan and Abiram; and the elders of Israel followed him. 
 He spoke to the congregation, saying, "Depart, please, from the tents of these guilty men, and touch nothing of theirs, lest you be consumed in all their mistakes!" 
 So they went away from the tent of Korah, Dathan, and Abiram, on every side. Dathan and Abiram came out, and stood at the door of their tents with their wives, their sons, and their little ones. 
-Moses said, "Hereby you shall know that God has sent me to do all these works; for they are not from my own mind. 
+Moses said, "Hereby you shall know that God has sent me to do all these works; for they aren't from my own mind. 
 If these men die the common death of everyone, or if they experience what everyone experience, then God hasn't sent me. 
 But if God makes a new thing, and the ground opens its mouth, and swallows them up with all that belong to them, and they go down alive into Hades, then you shall understand that these men have despised God." 
 As he finished speaking all these words, the ground that was under them split apart. 

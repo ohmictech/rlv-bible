@@ -5,7 +5,7 @@ The waters nourished it. The deep made it to grow. Its rivers ran all around its
 So its stature was exalted above all the trees of the field; and its boughs were multiplied. Its branches became long by reason of many waters, when it spread them out. 
 All the birds of the sky made their nests in its boughs. Under its branches, all the animals of the field gave birth to their young. All great nations lived under its shadow. 
 Thus it was beautiful in its greatness, in the length of its branches; for its root was by many waters. 
-The cedars in the garden of God could not hide it. The cypress trees were not like its branches. The pine trees were not like its branches; nor was any tree in the garden of God like it in its beauty. 
+The cedars in the garden of God couldn't hide it. The cypress trees weren't like its branches. The pine trees weren't like its branches; nor was any tree in the garden of God like it in its beauty. 
 I made it beautiful by the multitude of its branches, so that all the trees of Eden, that were in the garden of God, envied it.' 
 "Therefore thus said God: 'Because he is exalted in stature, and he has set his top among the thick branches, and his heart is lifted up in his height, 
 I will deliver him into the hand of the mighty one of the nations. He will surely deal with him. I have driven him out for his guilt. 

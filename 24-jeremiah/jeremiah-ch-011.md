@@ -8,10 +8,10 @@ I earnestly protested to your fathers in the day that I brought them up out of t
 Yet they didn't obey, nor turn their ear, but everyone walked in the stubbornness of their bad heart. So I brought on them all the words of this covenant, which I commanded them to do, but they didn't do them.'" 
 God said to me, "A conspiracy is found among the men of Judah, and among the inhabitants of Jerusalem. 
 They have turned back to the guilt of their forefathers, who refused to hear my words. They have gone after other gods to serve them. The house of Israel and the house of Judah have broken my covenant which I made with their fathers. 
-So God says, 'Look, I will bring bad on them which they will not be able to escape; and they will cry to me, but I will not listen to them. 
-Then the cities of Judah and the inhabitants of Jerusalem will go and cry to the gods to which they offer incense, but they will not save them at all in the time of their trouble. 
+So God says, 'Look, I will bring bad on them which they won't be able to escape; and they will cry to me, but I won't listen to them. 
+Then the cities of Judah and the inhabitants of Jerusalem will go and cry to the gods to which they offer incense, but they won't save them at all in the time of their trouble. 
 According to the number of your cities are your gods, Judah; and according to the number of the streets of Jerusalem you have set up altars to the shameful thing, even altars to burn incense to Baal.' 
-"Therefore don't pray for this people. Don't lift up cry or prayer for them; for I will not hear them in the time that they cry to me because of their trouble. 
+"Therefore don't pray for this people. Don't lift up cry or prayer for them; for I won't hear them in the time that they cry to me because of their trouble. 
 What has my beloved to do in my house, since she has behaved lewdly with many, and the holy flesh has passed from you? When you do bad things, then you rejoice." 
 God called your name, "A green olive tree, beautiful with goodly fruit." With the noise of a great roar he has kindled fire on it, and its branches are broken. 
 The God of Armies, who planted you, has pronounced bad against you, because of the bad of the house of Israel and of the house of Judah, which they have done to themselves in provoking me to anger by offering incense to Baal. 

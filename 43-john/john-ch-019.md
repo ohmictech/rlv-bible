@@ -33,7 +33,7 @@ So the soldiers came and broke the legs of the first and of the other who was cr
 but when they came to Jesus and saw that he was already dead, they didn't break his legs. 
 However, one of the soldiers pierced his side with a spear, and immediately blood and water came out. 
 He who has seen has testified, and his witness is true. He knows that he tells the truth, that you may trust. 
-These things happened so that the Scripture would be fulfilled, "A bone of him will not be broken." 
+These things happened so that the Scripture would be fulfilled, "A bone of him won't be broken." 
 Again another Scripture says, "They will look on him whom they pierced." 
 After these things, Joseph of Arimathaea, being a student of Jesus, but secretly for fear of the Jewish leaders, asked Pilate if he could take Jesus' body away. Pilate gave him permission. He came and took away his body. 
 Nicodemus, who at first came to Jesus by night, also came bringing a mixture of myrrh and aloes, about a hundred Roman pounds. 

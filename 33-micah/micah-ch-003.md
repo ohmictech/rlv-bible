@@ -1,7 +1,7 @@
 ﻿I said, "Please listen, you heads of Jacob, and rulers of the house of Israel: Isn't it for you to know justice? 
 You who hate the good, and love the bad; who tear off their skin, and their flesh from off their bones; 
 who also eat the flesh of my people, and peel their skin from off them, and break their bones, and chop them in pieces, as for the pot, and as meat within the cauldron. 
-Then they will cry to God, but he will not answer them. Yes, he will hide his face from them at that time, because they made their deeds bad." 
+Then they will cry to God, but he won't answer them. Yes, he will hide his face from them at that time, because they made their deeds bad." 
 God says concerning the spokesmen who lead my people astray, for those who feed their teeth, they proclaim, "Peace!" and whoever doesn't provide for their mouths, they prepare war against him: 
 "Therefore night is over you, with no vision, and it is dark to you, that you may not divine; and the sun will go down on the spokesmen, and the day will be black over them. 
 The seers shall be disappointed, and the diviners confounded. Yes, they shall all cover their lips, for there is no answer from God." 

@@ -2,11 +2,11 @@
 God spoke to me, saying, 
 "You have encircled this mountain long enough. Turn northward. 
 Command the people, saying, 'You are to pass through the border of your brothers, the children of Esau, who dwell in Seir; and they will be afraid of you. So be careful. 
-Don't contend with them; for I will not give you any of their land, no, not so much as for the sole of the foot to tread on, because I have given Mount Seir to Esau for a possession. 
+Don't contend with them; for I won't give you any of their land, no, not so much as for the sole of the foot to tread on, because I have given Mount Seir to Esau for a possession. 
 You shall purchase food from them for money, that you may eat. You shall also buy water from them for money, that you may drink.'" 
 Your God has blessed you in all the work of your hands. He has known your walking through this great wilderness. These forty years, your God has been with you. You have lacked nothing. 
 So we passed by from our brothers, the children of Esau, who dwell in Seir, from the way of the Arabah from Elath and from Ezion Geber. We turned and passed by the way of the wilderness of Moab. 
-God said to me, "Don't bother Moab, neither contend with them in battle; for I will not give you any of his land for a possession, because I have given Ar to the children of Lot for a possession." 
+God said to me, "Don't bother Moab, neither contend with them in battle; for I won't give you any of his land for a possession, because I have given Ar to the children of Lot for a possession." 
 (The Emim lived there before, a great and numerous people, and tall as the Anakim. 
 These also are considered to be Rephaim, as the Anakim; but the Moabites call them Emim. 
 The Horites also lived in Seir in the past, but the children of Esau succeeded them. They destroyed them from before them, and lived in their place, as Israel did to the land of his possession, which God gave to them.) 
@@ -16,7 +16,7 @@ Moreover God's hand was against them, to destroy them from the middle of the cam
 So, when all the men of war were consumed and dead from among the people, 
 God spoke to me, saying, 
 "You are to pass over Ar, the border of Moab, today. 
-When you come near the border of the children of Ammon, don't bother them, nor contend with them; for I will not give you any of the land of the children of Ammon for a possession, because I have given it to the children of Lot for a possession." 
+When you come near the border of the children of Ammon, don't bother them, nor contend with them; for I won't give you any of the land of the children of Ammon for a possession, because I have given it to the children of Lot for a possession." 
 (That also is considered a land of Rephaim. Rephaim lived there in the past, but the Ammonites call them Zamzummim, 
 a great people, many, and tall, as the Anakim; but God destroyed them from before Israel, and they succeeded them, and lived in their place, 
 as he did for the children of Esau who dwell in Seir, when he destroyed the Horites from before them; and they succeeded them, and lived in their place even to this day. 
@@ -27,11 +27,11 @@ I sent messengers out of the wilderness of Kedemoth to Sihon king of Heshbon wit
 "Let me pass through your land. I will go along by the highway. I will turn neither to the right hand nor to the left. 
 You shall sell me food for money, that I may eat; and give me water for money, that I may drink. Just let me pass through on my feet, 
 as the children of Esau who dwell in Seir, and the Moabites who dwell in Ar, did to me, until I pass over the Jordan into the land which our God gives us." 
-But Sihon king of Heshbon would not let us pass by him, for your God hardened his spirit and made his heart obstinate, that he might deliver him into your hand, as it is today. 
+But Sihon king of Heshbon wouldn't let us pass by him, for your God hardened his spirit and made his heart obstinate, that he might deliver him into your hand, as it is today. 
 God said to me, "Look, I have begun to deliver up Sihon and his land before you. Begin to possess, that you may inherit his land." 
 Then Sihon came out against us, he and all his people, to battle at Jahaz. 
 Our God delivered him up before us; and we struck him, his sons, and all his people. 
 We took all his cities at that time, and utterly destroyed every inhabited city, with the women and the little ones. We left no one remaining. 
 Only the livestock we took for plunder for ourselves, with the plunder of the cities which we had taken. 
-From Aroer, which is on the edge of the valley of the Arnon, and the city that is in the valley, even to Gilead, there was not a city too high for us. Our God delivered up all before us. 
+From Aroer, which is on the edge of the valley of the Arnon, and the city that is in the valley, even to Gilead, there wasn't a city too high for us. Our God delivered up all before us. 
 Only to the land of the children of Ammon you didn't come near: all the banks of the river Jabbok, and the cities of the hill country, and wherever our God forbade us. 

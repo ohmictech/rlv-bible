@@ -12,15 +12,15 @@ They found an Egyptian in the field, and brought him to David, and gave him brea
 They gave him a piece of a cake of figs and two clusters of raisins. When he had eaten, his spirit came again to him; for he had eaten no bread, and drank no water for three days and three nights. 
 David asked him, "To whom do you belong? Where are you from?" He said, "I am a young man of Egypt, servant to an Amalekite; and my master left me, because three days ago I got sick. 
 We made a raid on the South of the Cherethites, and on that which belongs to Judah, and on the South of Caleb; and we burned Ziklag with fire." 
-David said to him, "Will you bring me down to this troop?" He said, "Swear to me by God that you will not kill me and not deliver me up into the hands of my master, and I will bring you down to this troop." 
+David said to him, "Will you bring me down to this troop?" He said, "Swear to me by God that you won't kill me and not deliver me up into the hands of my master, and I will bring you down to this troop." 
 When he had brought him down, look, they were spread around over all the ground, eating, drinking, and dancing, because of all the great plunder that they had taken out of the land of the Philistines, and out of the land of Judah. 
 David struck them from the twilight even to the evening of the next day. Not a man of them escaped from there, except four hundred young men who rode on camels and fled. 
 David recovered all that the Amalekites had taken, and David rescued his two wives. 
 There was nothing lacking to them, neither small nor great, neither sons nor daughters, neither plunder, nor anything that they had taken. David brought them all back. 
 David took all the flocks and the herds, which they drove before those other livestock, and said, "This is David's plunder." 
-David came to the two hundred men, who were so faint that they could not follow David, whom also they had made to stay at the brook Besor; and they went out to meet David, and to meet the people who were with him. When David came near to the people, he greeted them. 
-Then all the guilty men and worthless fellows of those who went with David answered and said, "Because they didn't go with us, we will not give them anything of the plunder that we have recovered, except to every man his wife and his children, that he may lead them away and depart." 
-Then David said, "Do not do so, my brothers, with that which God has given to us, who has preserved us, and delivered the troop that came against us into our hand. 
+David came to the two hundred men, who were so faint that they couldn't follow David, whom also they had made to stay at the brook Besor; and they went out to meet David, and to meet the people who were with him. When David came near to the people, he greeted them. 
+Then all the guilty men and worthless fellows of those who went with David answered and said, "Because they didn't go with us, we won't give them anything of the plunder that we have recovered, except to every man his wife and his children, that he may lead them away and depart." 
+Then David said, "Don't do so, my brothers, with that which God has given to us, who has preserved us, and delivered the troop that came against us into our hand. 
 Who will listen to you in this matter? As his share is who goes down to the battle, so shall his share be who stays with the baggage. They shall share alike." 
 It was so from that day forward that he made it a statute and an ordinance for Israel to this day. 
 When David came to Ziklag, he sent some of the plunder to the elders of Judah, even to his friends, saying, "Look, a present for you from the plunder of God's enemies." 

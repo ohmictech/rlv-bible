@@ -27,7 +27,7 @@ Pagiel the son of Ochran was over the army of the tribe of the children of Asher
 Ahira the son of Enan was over the army of the tribe of the children of Naphtali. 
 Thus were the travels of the children of Israel according to their armies; and they went forward. 
 Moses said to Hobab, the son of Reuel the Midianite, Moses' father-in-law, "We are journeying to the place of which God said, 'I will give it to you.' Come with us, and we will treat you well; for God has spoken good concerning Israel." 
-He said to him, "I will not go; but I will depart to my own land, and to my relatives." 
+He said to him, "I won't go; but I will depart to my own land, and to my relatives." 
 Moses said, "Don't leave us, please; because you know how we are to encamp in the wilderness, and you can be our eyes. 
 It shall be, if you go with us, yes, it shall be, that whatever good God does to us, we will do the same to you." 
 They set forward from the Mount of God three days' journey. The ark of God's covenant went before them three days' journey, to seek out a resting place for them. 

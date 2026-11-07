@@ -25,7 +25,7 @@ Because I have called, and you have refused; I have stretched out my hand, and n
 but you have ignored all my counsel, and wanted none of my reproof; 
 I also will laugh at your disaster. I will mock when calamity overtakes you, 
 when calamity overtakes you like a storm, when your disaster comes on like a whirlwind, when distress and anguish come on you. 
-Then they will call on me, but I will not answer. They will seek me diligently, but they will not find me, 
+Then they will call on me, but I won't answer. They will seek me diligently, but they won't find me, 
 because they hated knowledge, and didn't choose the fear of God. 
 They wanted none of my counsel. They despised all my reproof. 
 So they will eat of the fruit of their own way, and be filled with their own schemes. 

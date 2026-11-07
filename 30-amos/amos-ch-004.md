@@ -5,7 +5,7 @@ You will go out at the breaks in the wall, everyone straight before her; and you
 offer a sacrifice of thanksgiving of that which is leavened, and proclaim free will offerings and brag about them; for this pleases you, you children of Israel," says God. 
 "I also have given you cleanness of teeth in all your cities, and lack of bread in every town; yet you haven't returned to me," says God. 
 "I also have withheld the rain from you, when there were yet three months to the harvest; and I caused it to rain on one city, and caused it not to rain on another city. One field was rained on, and the field where it didn't rain withered. 
-So two or three cities staggered to one city to drink water, and were not satisfied; yet you haven't returned to me," says God. 
+So two or three cities staggered to one city to drink water, and weren't satisfied; yet you haven't returned to me," says God. 
 "I struck you with blight and mildew many times in your gardens and your vineyards, and the swarming locusts have devoured your fig trees and your olive trees; yet you haven't returned to me," says God. 
 "I sent plagues among you like I did Egypt. I have slain your young men with the sword, and have carried away your horses. I filled your nostrils with the stench of your camp, yet you haven't returned to me," says God. 
 "I have overthrown some of you, as when God overthrew Sodom and Gomorrah, and you were like a burning stick plucked out of the fire; yet you haven't returned to me," says God. 

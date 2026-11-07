@@ -1,10 +1,10 @@
 ﻿There is an bad which I have seen under the sun, and it is heavy on men: 
 a man to whom God gives riches, wealth, and honor, so that he lacks nothing for his soul of all that he desires, yet God gives him no power to eat of it, but an alien eats it. This is vanity, and it is an bad disease. 
-If a man fathers a hundred children, and lives many years, so that the days of his years are many, but his soul is not filled with good, and moreover he has no burial, I say that a stillborn child is better than he; 
+If a man fathers a hundred children, and lives many years, so that the days of his years are many, but his soul isn't filled with good, and moreover he has no burial, I say that a stillborn child is better than he; 
 for it comes in vanity, and departs in darkness, and its name is covered with darkness. 
-Moreover it has not seen the sun nor known it. This has rest rather than the other. 
+Moreover it hasn't seen the sun nor known it. This has rest rather than the other. 
 Yes, though he live a thousand years twice told, and yet fails to enjoy good, don't all go to one place? 
-All the labor of man is for his mouth, and yet the appetite is not filled. 
+All the labor of man is for his mouth, and yet the appetite isn't filled. 
 What advantage has the wise more than the fool? What has the poor man, that knows how to walk before the living? 
 Better is the sight of the eyes than the wandering of the desire. This also is vanity and a chasing after wind. 
 Whatever has been, its name was given long ago; and it is known what man is; neither can he contend with him who is mightier than he. 

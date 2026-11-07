@@ -3,7 +3,7 @@ I am jealous over you with a godly jealousy. I promised you in marriage to one h
 But I am afraid that somehow, just as the snake tricked Eve with his craftiness, your minds might be led away from a simple and pure devotion to Christ. 
 If someone comes and announces another Jesus we didn't announce, or if you receive a different spirit you didn't receive, or a different "good news" you didn't accept, you put up with it well enough. 
 I don't think I am at all behind those super-sent ones. 
-But though I am unskilled in speech, yet I am not unskilled in knowledge. No, in every way we have been revealed to you in all things. 
+But though I am unskilled in speech, yet I'm not unskilled in knowledge. No, in every way we have been revealed to you in all things. 
 Or did I do wrong by humbling myself so that you might be lifted up, because I announced God's Good News to you free of charge? 
 I robbed other gatherings, taking pay from them so that I could serve you. 
 When I was present with you and was in need, I wasn't a burden on anyone, for the brothers, when they came from Macedonia, supplied the measure of my need. In everything I kept myself from being burdensome to you, and I will continue to do so. 
@@ -26,8 +26,8 @@ Three times I was beaten with rods. Once I was stoned. Three times I suffered sh
 I have been on many journeys, in danger from rivers, in danger from robbers, in danger from my own people, in danger from the nations, in danger in the city, in danger in the empty land, in danger at sea, in danger from false brothers; 
 in toil and hardship, in many nights without sleep, in hunger and thirst, in many days without food, in cold and with nothing to wear. 
 Besides everything else, there is what presses on me daily: worry for all the gatherings. 
-Who is weak, and I am not weak? Who is caused to stumble, and I don't burn with indignation? 
+Who is weak, and I'm not weak? Who is caused to stumble, and I don't burn with indignation? 
 If I must take pride, I will take pride in the things that show my weakness. 
-The God and Father of the Lord Jesus Christ, who is praised for the eras, knows that I am not lying. 
+The God and Father of the Lord Jesus Christ, who is praised for the eras, knows that I'm not lying. 
 In Damascus the governor under King Aretas guarded the Damascenes' city, desiring to arrest me. 
 I was let down in a basket through a window by the wall, and escaped his hands. 

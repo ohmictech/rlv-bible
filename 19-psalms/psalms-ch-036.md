@@ -1,7 +1,7 @@
 ﻿The Chief Musician. By David, the servant of God. A revelation is within my heart about the disobedience of the guilty: There is no fear of God before his eyes. 
 He flatters himself in his own eyes, too much to detect and hate his wrongdoing. 
 The words of his mouth are guilt and deceit. He has ceased to be wise and to do good. 
-He plots guilt on his bed. He sets himself in a way that is not good. He doesn't abhor bad. 
+He plots guilt on his bed. He sets himself in a way that isn't good. He doesn't abhor bad. 
 Your loving kindness, God, is in the sky. Your faithfulness reaches to the skies. 
 Your righteousness is like the mountains of God. Your judgments are like a great deep. God, you preserve man and animal. 
 How precious is your loving kindness, God! The children of men take refuge under the shadow of your wings. 

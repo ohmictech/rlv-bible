@@ -28,7 +28,7 @@ I will put my Spirit within you, and cause you to walk in my statutes. You will 
 You will dwell in the land that I gave to your fathers. You will be my people, and I will be your God. 
 I will save you from all your uncleanness. I will call for the grain and will multiply it, and lay no famine on you. 
 I will multiply the fruit of the tree and the increase of the field, that you may receive no more the reproach of famine among the nations. 
-"'"Then you will remember your bad ways, and your deeds that were not good; and you will loathe yourselves in your own sight for your guilt and for your abominations. 
+"'"Then you will remember your bad ways, and your deeds that weren't good; and you will loathe yourselves in your own sight for your guilt and for your abominations. 
 I don't do this for your sake," says God. "Let it be known to you. Be ashamed and confounded for your ways, house of Israel." 
 "'The God says: "In the day that I cleanse you from all your guilt, I will cause the cities to be inhabited and the waste places will be built. 
 The land that was desolate will be tilled instead of being a desolation in the sight of everyone who passed by. 

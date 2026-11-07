@@ -13,7 +13,7 @@ Then they asked him, "Where is he?" He said, "I don't know."
 They brought him who had been blind to the strict religious ones. 
 It was a Sabbath when Jesus made the mud and opened his eyes. 
 Again the strict religious ones also asked him how he received his sight. He said to them, "He put mud on my eyes, I washed, and I see." 
-Some of the strict religious ones said, "This man is not from God, because he doesn't keep the Sabbath." Others said, "How can a man who has drifted do such signs?" So they were divided. 
+Some of the strict religious ones said, "This man isn't from God, because he doesn't keep the Sabbath." Others said, "How can a man who has drifted do such signs?" So they were divided. 
 So they asked the blind man again, "What do you say about him, because he opened your eyes?" He said, "He is a spokesman." 
 The Jewish leaders didn't trust concerning him, that he had been blind and had received his sight, until they called the parents of him who had received his sight, 
 and asked them, "Is this your son, whom you say was born blind? How then does he now see?" 
@@ -30,7 +30,7 @@ We know that God has spoken to Moses. But as for this man, we don't know where h
 The man answered them, "How amazing! You don't know where he comes from, yet he opened my eyes. 
 We know that God doesn't listen to people who have drifted, but if anyone worships God and does his will, he listens to them. 
 Since the world began it has never been heard of that anyone opened the eyes of someone born blind. 
-If this man were not from God, he could do nothing." 
+If this man weren't from God, he could do nothing." 
 They answered him, "You were altogether born in your mistakes, and do you teach us?" Then they threw him out. 
 Jesus heard that they had thrown him out, and finding him, he said, "Do you trust in the Son of God?" 
 He answered, "Who is he, Lord, that I may trust in him?" 

@@ -16,7 +16,7 @@ But Jehoiada grew old and was full of days, and he died. He was one hundred thir
 They buried him in David's city among the kings, because he had done good in Israel, and toward God and his house. 
 Now after the death of Jehoiada, the princes of Judah came and bowed down to the king. Then the king listened to them. 
 They abandoned the house of the God of their fathers, and served the Asherah poles and the idols, so wrath came on Judah and Jerusalem for this their guiltiness. 
-Yet he sent spokesmen to them to bring them again to God, and they testified against them; but they would not listen. 
+Yet he sent spokesmen to them to bring them again to God, and they testified against them; but they wouldn't listen. 
 The Spirit of God came on Zechariah the son of Jehoiada the priest; and he stood above the people, and said to them, "God says, 'Why do you disobey God's commandments, so that you can't prosper? Because you have forsaken God, he has also forsaken you.'" 
 They conspired against him, and stoned him with stones at the commandment of the king in the court of God's house. 
 Thus Joash the king didn't remember the kindness which Jehoiada his father had done to him, but killed his son. When he died, he said, "May God look at it, and repay it." 

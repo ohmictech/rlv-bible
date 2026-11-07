@@ -7,7 +7,7 @@ Many will entreat the favor of a ruler, and everyone is a friend to a man who gi
 All the relatives of the poor shun him; how much more do his friends avoid him! He pursues them with pleas, but they are gone. 
 He who gets wisdom loves his own soul. He who keeps understanding shall find good. 
 A false witness shall not be unpunished. He who utters lies shall perish. 
-Delicate living is not appropriate for a fool, much less for a servant to have rule over princes. 
+Delicate living isn't appropriate for a fool, much less for a servant to have rule over princes. 
 The discretion of a man makes him slow to anger. It is his glory to overlook an offense. 
 The king's wrath is like the roaring of a lion, but his favor is like dew on the grass. 
 A foolish son is the calamity of his father. A wife's quarrels are a continual dripping. 
@@ -20,8 +20,8 @@ A hot-tempered man must pay the penalty, for if you rescue him, you must do it a
 Listen to counsel and receive instruction, that you may be wise in your latter end. 
 There are many plans in a man's heart, but God's counsel will prevail. 
 That which makes a man to be desired is his kindness. A poor man is better than a liar. 
-The fear of God leads to life, then contentment; he rests and will not be touched by trouble. 
-The sluggard buries his hand in the dish; he will not so much as bring it to his mouth again. 
+The fear of God leads to life, then contentment; he rests and won't be touched by trouble. 
+The sluggard buries his hand in the dish; he won't so much as bring it to his mouth again. 
 Flog a scoffer, and the simple will learn prudence; rebuke one who has understanding, and he will gain knowledge. 
 He who robs his father and drives away his mother is a son who causes shame and brings reproach. 
 If you stop listening to instruction, my son, you will stray from the words of knowledge. 

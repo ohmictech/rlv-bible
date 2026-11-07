@@ -5,7 +5,7 @@ They tie up heavy burdens and lay them on people's shoulders, but they themselve
 But they do all their deeds to be seen by people. They make their prayer boxes broad and enlarge the fringes of their garments, 
 and love the place of honor at dinners, the best seats in the gathering places, 
 the greetings in the marketplaces, and to be called 'Rabbi, Rabbi' by people. 
-But you are not to be called 'Rabbi', for one is your Teacher, the Christ, and all of you are brothers and sisters. 
+But you aren't to be called 'Rabbi', for one is your Teacher, the Christ, and all of you are brothers and sisters. 
 Call no one on earth your father, for one is your Father, in the sky. 
 Neither be called 'master', for one is your master, the Christ. 
 But he who is greatest among you will be your servant. 
@@ -34,6 +34,6 @@ You snakes, you offspring of vipers, how will you escape the verdict of Gehenna?
 So, look, I send to you spokesmen, wise men, and Bible teachers. Some of them you will kill and crucify, and some of them you will whip in your gathering places and hunt from city to city, 
 that on you may come all the blood of the upright shed on the earth, from the blood of upright Abel to the blood of Zachariah son of Barachiah, whom you killed between the temple and the altar. 
 Truly I tell you, all these things will come upon this generation. 
-"Jerusalem, Jerusalem, who kills the spokesmen and stones those who are sent to her! How often I would have gathered your children together, the way a hen gathers her chicks under her wings, and you would not! 
+"Jerusalem, Jerusalem, who kills the spokesmen and stones those who are sent to her! How often I would have gathered your children together, the way a hen gathers her chicks under her wings, and you wouldn't! 
 Look, your house is left to you desolate. 
-I tell you, you will not see me from now on, until you say, 'Flourishing is he who comes in the name of the Lord!'" 
+I tell you, you won't see me from now on, until you say, 'Flourishing is he who comes in the name of the Lord!'" 

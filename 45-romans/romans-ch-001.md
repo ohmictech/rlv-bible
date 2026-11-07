@@ -13,7 +13,7 @@ that is, that we may be encouraged together, you and I, by each other's trust.
 Now I don't want you to be unaware, brothers, that I often planned to come to you (and was prevented until now), so that I could have some fruit among you too, just as among the rest of the nations. 
 I am a debtor both to Greeks and to foreigners, both to the wise and to the foolish. 
 So, for my part, I am eager to announce the Good News to you also who are in Rome. 
-I am not ashamed of the Good News of Christ, because it is the power of God for rescue for everyone who trusts, for the Jewish people first, and also for the Greek. 
+I'm not ashamed of the Good News of Christ, because it is the power of God for rescue for everyone who trusts, for the Jewish people first, and also for the Greek. 
 In it God's rightness is unveiled from trust to trust. As it is written, "But the one who is right shall live by trust." 
 The heat of God is unveiled from the sky against all disregard for God and all the wrong of people who hold the truth down by their wrong, 
 because what can be known about God is plain to them, for God made it plain to them. 
@@ -25,7 +25,7 @@ So God handed them over, in the cravings of their hearts, to uncleanness, so tha
 They traded the truth of God for a lie, and worshiped and served the creation rather than its Creator, who is praised for all the eras. Amen. 
 That is why God handed them over to dishonoring passions. Their women traded the natural function for what is against nature. 
 In the same way the men too left the natural function of the woman and burned in their craving for one another. Men did shameful things with men, and received in themselves the payback their wrongdoing deserved. 
-And just as they did not think it worth holding God in their knowledge, God handed them over to a mind that fails the test, to do things that should not be done; 
+And just as they didn't think it worth holding God in their knowledge, God handed them over to a mind that fails the test, to do things that shouldn't be done; 
 being filled with every kind of wrong, sleeping around, malice, greed, ill will; full of envy, murder, quarreling, deceit, and spite, 
 slanderers, haters of God, insolent, arrogant, boastful, inventors of bad things, disobedient to parents, 
 without understanding, breaking their word, without family love, unforgiving, without mercy; 

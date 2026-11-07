@@ -4,7 +4,7 @@
 "'Don't turn to idols, nor make molten gods for yourselves. I am your God. 
 "'When you offer a sacrifice of offerings for wholeness to God, you shall offer it so that you may be accepted. 
 It shall be eaten the same day you offer it, and on the next day. If anything remains until the third day, it shall be burned with fire. 
-If it is eaten at all on the third day, it is an abomination. It will not be accepted; 
+If it is eaten at all on the third day, it is an abomination. It won't be accepted; 
 but everyone who eats it shall bear his guilt, because he has profaned the holy thing of God, and that soul shall be cut off from his people. 
 "'When you reap the harvest of your land, you shall not wholly reap the corners of your field, neither shall you gather the gleanings of your harvest. 
 You shall not glean your vineyard, neither shall you gather the fallen grapes of your vineyard. You shall leave them for the poor and for the foreigner. I am your God. 
@@ -17,7 +17,7 @@ You shall not glean your vineyard, neither shall you gather the fallen grapes of
 "'You shall not hate your brother in your heart. You shall surely rebuke your neighbor, and not incur guilt because of him. 
 "'You shall not take vengeance, nor bear any grudge against the children of your people; but you shall love your neighbor as yourself. I am God. 
 "'You shall keep my statutes. "'You shall not cross-breed different kinds of animals. "'You shall not sow your field with two kinds of seed; "'Don't wear a garment made of two kinds of material. 
-"'If a man lies carnally with a woman who is a slave girl, pledged to be married to another man, and not ransomed or given her freedom; they shall be punished. They shall not be put to death, because she was not free. 
+"'If a man lies carnally with a woman who is a slave girl, pledged to be married to another man, and not ransomed or given her freedom; they shall be punished. They shall not be put to death, because she wasn't free. 
 He shall bring his trespass offering to God, to the door of the Tent of Meeting, even a ram for a trespass offering. 
 The priest shall make things right for him with the ram of the trespass offering before God for the wrong he has done; and the wrongdoing he has committed shall be forgiven him. 
 "'When you come into the land, and have planted all kinds of trees for food, then you shall count their fruit as forbidden. Three years it shall be forbidden to you. It shall not be eaten. 

@@ -5,10 +5,10 @@ Samuel did that which God spoke, and came to Bethlehem. The elders of the city c
 He said, "Peaceably; I have come to sacrifice to God. Sanctify yourselves, and come with me to the sacrifice." He sanctified Jesse and his sons, and called them to the sacrifice. 
 When they had come, he looked at Eliab, and said, "Surely God's anointed is before him." 
 But God said to Samuel, "Don't look on his face, or on the height of his stature, because I have rejected him; for I don't see as man sees. Man looks at the outward appearance, but God looks at the heart." 
-Then Jesse called Abinadab, and made him pass before Samuel. He said, "God has not chosen this one, either." 
-Then Jesse made Shammah to pass by. He said, "God has not chosen this one, either." 
-Jesse made seven of his sons to pass before Samuel. Samuel said to Jesse, "God has not chosen these." 
-Samuel said to Jesse, "Are all your children here?" He said, "There remains yet the youngest. Look, he is keeping the sheep." Samuel said to Jesse, "Send and get him, for we will not sit down until he comes here." 
+Then Jesse called Abinadab, and made him pass before Samuel. He said, "God hasn't chosen this one, either." 
+Then Jesse made Shammah to pass by. He said, "God hasn't chosen this one, either." 
+Jesse made seven of his sons to pass before Samuel. Samuel said to Jesse, "God hasn't chosen these." 
+Samuel said to Jesse, "Are all your children here?" He said, "There remains yet the youngest. Look, he is keeping the sheep." Samuel said to Jesse, "Send and get him, for we won't sit down until he comes here." 
 He sent, and brought him in. Now he was ruddy, with a handsome face and good appearance. God said, "Arise! Anoint him, for this is he." 
 Then Samuel took the horn of oil and anointed him in the middle of his brothers. Then God's Spirit came mightily on David from that day forward. So Samuel rose up and went to Ramah. 
 Now God's Spirit departed from Saul, and an harmful spirit from God troubled him. 

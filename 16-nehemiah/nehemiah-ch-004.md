@@ -7,8 +7,8 @@ So we built the wall; and all the wall was joined together to half its height, f
 But when Sanballat, Tobiah, the Arabians, the Ammonites, and the Ashdodites heard that the repairing of the walls of Jerusalem went forward, and that the breaches began to be filled, they were very angry; 
 and they all conspired together to come and fight against Jerusalem, and to cause confusion among us. 
 But we made our prayer to our God, and set a watch against them day and night because of them. 
-Judah said, "The strength of the bearers of burdens is fading and there is much rubble, so that we are not able to build the wall." 
-Our adversaries said, "They will not know or see, until we come in among them and kill them, and cause the work to cease." 
+Judah said, "The strength of the bearers of burdens is fading and there is much rubble, so that we aren't able to build the wall." 
+Our adversaries said, "They won't know or see, until we come in among them and kill them, and cause the work to cease." 
 When the Jews who lived by them came, they said to us ten times from all places, "Wherever you turn, they will attack us." 
 So I set guards in the lowest parts of the space behind the wall, in the open places. I set the people by family groups with their swords, their spears, and their bows. 
 I looked, and rose up, and said to the nobles, to the rulers, and to the rest of the people, "Don't be afraid of them! Remember the Lord, who is great and awesome, and fight for your brothers, your sons, your daughters, your wives, and your houses." 

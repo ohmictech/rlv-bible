@@ -4,7 +4,7 @@ Jesus went up into the mountain, and he sat there with his students.
 Now the Jewish Passover was near. 
 Jesus, lifting up his eyes and seeing that a great crowd was coming to him, said to Philip, "Where are we to buy bread, that these may eat?" 
 He said this to test him, for he himself knew what he would do. 
-Philip answered him, "Two hundred silver coins worth of bread is not sufficient for them, that every one of them may receive a little." 
+Philip answered him, "Two hundred silver coins worth of bread isn't sufficient for them, that every one of them may receive a little." 
 One of his students, Andrew, Simon Peter's brother, said to him, 
 "There is a boy here who has five barley loaves and two fish, but what are these among so many?" 
 Jesus said, "Have the people sit down." Now there was much grass in that place. So the men sat down, in number about five thousand. 
@@ -14,7 +14,7 @@ So they gathered them up, and filled twelve baskets with broken pieces from the 
 When the people saw the sign which Jesus did, they said, "This is truly the spokesman who comes into the world." 
 Jesus, perceiving that they were about to come and take him by force to make him king, withdrew again to the mountain by himself. 
 When evening came, his students went down to the lake. 
-They entered into the boat, and were going over the lake to Capernaum. It was now dark, and Jesus had not come to them. 
+They entered into the boat, and were going over the lake to Capernaum. It was now dark, and Jesus hadn't come to them. 
 A strong wind was blowing and the lake was rough. 
 When they had rowed about three or four miles, they saw Jesus walking on the lake and drawing near to the boat; and they were afraid. 
 But he said to them, "It is I. Don't be afraid." 
@@ -32,7 +32,7 @@ Our fathers ate the manna in the wilderness. As it is written, 'He gave them bre
 Jesus said to them, "Truly I tell you, it wasn't Moses who gave you the bread out of the sky, but my Father gives you the true bread out of the sky. 
 The bread of God is that which comes down out of the sky and gives life to the world." 
 They said to him, "Lord, always give us this bread." 
-Jesus said to them, "I am the bread of life. Whoever comes to me will not be hungry, and whoever trusts in me will never be thirsty. 
+Jesus said to them, "I am the bread of life. Whoever comes to me won't be hungry, and whoever trusts in me will never be thirsty. 
 But I told you that you have seen me, and yet you don't trust. 
 All those whom the Father gives me will come to me. Whoever comes to me I will in no way throw out. 
 I have come down from the sky, not to do my own will, but the will of him who sent me. 

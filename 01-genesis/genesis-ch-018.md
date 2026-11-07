@@ -25,9 +25,9 @@ What if there are fifty people who are in the right in the city? Will you sweep 
 Far be it from you to do such a thing, to kill those who are in the right along with the guilty, so that those in the right end up like the guilty. Far be it from you! Shouldn't the Judge of all the earth do what is right?" 
 God said, "If I find fifty people in the right in Sodom, then I will spare the whole place for their sake." 
 Abraham answered, "Look, I have been bold enough to speak to the Lord, though I am only dust and ashes. 
-What if there are five fewer than fifty who are in the right? Will you destroy the whole city because of those five?" He said, "I will not destroy it if I find forty-five there." 
-He spoke to him yet again, and said, "What if there are forty found there?" He said, "I will not do it for the forty's sake." 
-He said, "Oh don't let the Lord be angry, and I will speak. What if there are thirty found there?" He said, "I will not do it if I find thirty there." 
-He said, "Look, I have been bold enough to speak to the Lord. What if there are twenty found there?" He said, "I will not destroy it for the twenty's sake." 
-He said, "Oh don't let the Lord be angry, and I will speak just once more. What if ten are found there?" He said, "I will not destroy it for the ten's sake." 
+What if there are five fewer than fifty who are in the right? Will you destroy the whole city because of those five?" He said, "I won't destroy it if I find forty-five there." 
+He spoke to him yet again, and said, "What if there are forty found there?" He said, "I won't do it for the forty's sake." 
+He said, "Oh don't let the Lord be angry, and I will speak. What if there are thirty found there?" He said, "I won't do it if I find thirty there." 
+He said, "Look, I have been bold enough to speak to the Lord. What if there are twenty found there?" He said, "I won't destroy it for the twenty's sake." 
+He said, "Oh don't let the Lord be angry, and I will speak just once more. What if ten are found there?" He said, "I won't destroy it for the ten's sake." 
 God went on his way when he had finished speaking with Abraham, and Abraham returned to his place. 

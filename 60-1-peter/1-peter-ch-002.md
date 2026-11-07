@@ -7,19 +7,19 @@ The Scripture says, "Look, I am laying in Zion a cornerstone, chosen and preciou
 So for you who trust, he is precious. But for those who refuse to obey, "The stone the builders rejected has become the cornerstone," 
 and, "a stone that makes people trip and a rock that brings them down." They trip because they refuse to obey the message, and that is what they were destined for. 
 But you are a chosen people, a royal priesthood, a set-apart nation, a people who are his very own, so that you may tell of the great things done by the one who called you out of darkness into his wonderful light. 
-Once you were not a people; now you are God's people. Once you had not been shown mercy; now you have been shown mercy. 
+Once you weren't a people; now you are God's people. Once you hadn't been shown mercy; now you have been shown mercy. 
 My truly loved friends, I beg you as foreigners and travelers: keep away from the cravings of the flesh, which are at war against your life. 
 Live good lives among the nations, so that even though they speak against you as if you were doing wrong, they may see your good deeds and give honor to God on the day he comes to visit. 
 The Lord's sake, submit to every human authority: to the king, as the highest, 
 and to governors, as those he sends to bring payback on those who do wrong and to praise those who do right. 
 It is God's will that by doing good you should silence the ignorant talk of foolish people. 
-Live as free people, but do not use your freedom as a cover for malice. Live as God's slaves. 
+Live as free people, but don't use your freedom as a cover for malice. Live as God's slaves. 
 Honor everyone. Love your family of believers. Fear God. Honor the king. 
 Household slaves, submit to your masters with all respect, not only to the good and gentle ones, but also to the harsh ones. 
 It is to your credit if you bear up under pain and suffer unjustly because of your conscience toward God. 
 What credit is there if you are beaten for doing wrong and take it patiently? But if you suffer for doing good and take it patiently, that is to your credit before God. 
 That is what you were called to, because Christ also suffered for you, leaving you an example so that you would follow in his steps. 
 He committed no wrongdoing, and no deceit was found in his mouth. 
-When he was insulted, he did not insult back. When he suffered, he did not threaten. Instead he handed himself over to the one who judges rightly. 
+When he was insulted, he didn't insult back. When he suffered, he didn't threaten. Instead he handed himself over to the one who judges rightly. 
 He himself carried our mistakes in his body on the tree, so that we could be done with mistakes and live for rightness. By his wounds you were healed. 
 You were wandering like sheep, but now you have come back to the Shepherd and Overseer of your life. 

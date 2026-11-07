@@ -1,4 +1,4 @@
-﻿Now these are the nations which God left, to test Israel by them, even as many as had not known all the wars of Canaan; 
+﻿Now these are the nations which God left, to test Israel by them, even as many as hadn't known all the wars of Canaan; 
 only that the generations of the children of Israel might know, to teach them war, at least those who knew nothing of it before: 
 the five lords of the Philistines, all the Canaanites, the Sidonians, and the Hivites who lived on Mount Lebanon, from Mount Baal Hermon to the entrance of Hamath. 
 They were left to test Israel by them, to know whether they would listen to God's commandments, which he commanded their fathers by Moses. 

@@ -1,9 +1,9 @@
 ﻿This is the third time I am coming to you. "At the mouth of two or three witnesses shall every word be established." 
-I warned you before, and I warn you again now, as I did when I was present the second time: to those who drifted before and to everyone else, if I come again, I will not spare you. 
-seeing that you seek a proof of Christ who speaks in me who is not weak, but is powerful in you. 
+I warned you before, and I warn you again now, as I did when I was present the second time: to those who drifted before and to everyone else, if I come again, I won't spare you. 
+seeing that you seek a proof of Christ who speaks in me who isn't weak, but is powerful in you. 
 He was crucified through weakness, yet he lives through the power of God. We also are weak in him, but we will live with him through the power of God toward you. 
 Examine yourselves, to see whether you are in the trust. Test yourselves. Or don't you know that Jesus Christ is in you? Unless you have failed the test. 
-But I hope you will know that we have not failed the test. 
+But I hope you will know that we haven't failed the test. 
 Now I pray to God that you do nothing bad, not so that we appear to have passed the test, but so that you do what is right, even if we seem to have failed. 
 We can do nothing against the truth, but for the truth. 
 We celebrate when we are weak and you are strong. We also pray for this: that you become complete. 

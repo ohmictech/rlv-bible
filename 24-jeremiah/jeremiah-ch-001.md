@@ -16,4 +16,4 @@ Look, I will call all the families of the kingdoms of the north," says God. "The
 I will utter my judgments against them concerning all their guilt, in that they have forsaken me, and have burned incense to other gods, and worshiped the works of their own hands. 
 "You put your belt on your waist, arise, and say to them all that I command you. Don't be dismayed at them, lest I dismay you before them. 
 Look, I have made you today a fortified city, an iron pillar, and bronze walls against the whole land, against the kings of Judah, against its princes, against its priests, and against the people of the land. 
-They will fight against you, but they will not prevail against you; for I am with you", says God, "to rescue you." 
+They will fight against you, but they won't prevail against you; for I am with you", says God, "to rescue you." 

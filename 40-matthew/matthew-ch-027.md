@@ -31,7 +31,7 @@ They spat on him, and took the reed and struck him on the head.
 When they had mocked him, they took the robe off him, and put his clothes on him, and led him away to crucify him. 
 As they came out, they found a man of Cyrene, Simon by name, and they forced him to carry his cross. 
 When they came to a place called Golgotha, which means "The place of a skull," 
-they gave him wine mixed with something bitter to drink. When he tasted it, he would not drink. 
+they gave him wine mixed with something bitter to drink. When he tasted it, he wouldn't drink. 
 When they had crucified him, they divided his clothes among them by casting lots, 
 and they sat and watched him there. 
 They set up over his head the accusation against him written, "THIS IS JESUS, THE KING OF THE JEWS." 

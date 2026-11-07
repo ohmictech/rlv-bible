@@ -2,7 +2,7 @@
 Teach the older men to be clear-headed, serious, sensible, and healthy in trust, in love, and standing firm. 
 In the same way, teach the older women to be reverent in the way they live, not slanderers, not slaves to a lot of wine, and teachers of what is good, 
 so that they can train the younger women to love their husbands and their children, 
-to be sensible, pure, busy at home, kind, and subject to their own husbands, so that God's word is not slandered. 
+to be sensible, pure, busy at home, kind, and subject to their own husbands, so that God's word isn't slandered. 
 In the same way, urge the younger men to be sensible. 
 In everything, show yourself as an example of good deeds. In your teaching, show honesty, seriousness, and nothing that decays, 
 and healthy speech that no one can find fault with, so that anyone who opposes you is put to shame, with nothing bad to say about us. 

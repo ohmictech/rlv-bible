@@ -1,7 +1,7 @@
 ﻿After this I saw another messenger coming down out of the sky with great authority, and the land was lit up by his weight. 
 He called out in a mighty voice, saying, "Babylon the great has fallen! She has become a home for unclean powers, a prison for every unclean spirit, and a cage for every unclean and hated bird! 
 All the nations have drunk the wine of the heat of her sleeping around, the kings of the land slept around with her, and the merchants of the land grew rich from her great luxury." 
-Then I heard another voice from the sky saying, "Come out of her, my people, so that you have no part in her mistakes and do not share in her plagues, 
+Then I heard another voice from the sky saying, "Come out of her, my people, so that you have no part in her mistakes and don't share in her plagues, 
 because her mistakes pile up as high as the sky, and God has remembered her wrongs. 
 Pay her back as she has paid others. Pay her back double for what she has done, and by her own deeds. In the cup she mixed, mix her a double portion. 
 As much as she lived it up and gave herself to luxury, give her that much anguish and mourning. She says in her heart, 'I sit here a queen. I am no widow, and I will never see mourning.' 

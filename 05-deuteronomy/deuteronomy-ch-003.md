@@ -1,7 +1,7 @@
 ﻿Then we turned, and went up the way to Bashan. Og the king of Bashan came out against us, he and all his people, to battle at Edrei. 
 God said to me, "Don't fear him; for I have delivered him, with all his people and his land, into your hand. You shall do to him as you did to Sihon king of the Amorites, who lived at Heshbon." 
 So our God also delivered into our hand Og, the king of Bashan, and all his people. We struck him until no one was left to him remaining. 
-We took all his cities at that time. There was not a city which we didn't take from them: sixty cities, all the region of Argob, the kingdom of Og in Bashan. 
+We took all his cities at that time. There wasn't a city which we didn't take from them: sixty cities, all the region of Argob, the kingdom of Og in Bashan. 
 All these were cities fortified with high walls, gates, and bars, in addition to a great many villages without walls. 
 We utterly destroyed them, as we did to Sihon king of Heshbon, utterly destroying every inhabited city, with the women and the little ones. 
 But all the livestock, and the plunder of the cities, we took for plunder for ourselves. 

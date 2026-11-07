@@ -13,7 +13,7 @@ Blessed is the nation whose God he is, the people whom he has chosen for his own
 God looks from the sky. He sees all the sons of men. 
 From the place of his habitation he looks out on all the inhabitants of the earth, 
 he who fashions all of their hearts; and he considers all of their works. 
-There is no king saved by the multitude of an army. A mighty man is not delivered by great strength. 
+There is no king saved by the multitude of an army. A mighty man isn't delivered by great strength. 
 A horse is a vain thing for safety, neither does he deliver any by his great power. 
 Look, God's eye is on those who fear him, on those who hope in his loving kindness, 
 to deliver their soul from death, to keep them alive in famine. 

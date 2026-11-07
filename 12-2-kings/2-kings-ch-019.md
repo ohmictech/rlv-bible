@@ -7,7 +7,7 @@ Isaiah said to them, "Tell your master this: 'God says, "Don't be afraid of the 
 Look, I will put a spirit in him, and he will hear news, and will return to his own land. I will cause him to fall by the sword in his own land."'" 
 So Rabshakeh returned and found the king of Assyria warring against Libnah; for he had heard that he had departed from Lachish. 
 When he heard it said of Tirhakah king of Ethiopia, "Look, he has come out to fight against you," he sent messengers again to Hezekiah, saying, 
-"Tell Hezekiah king of Judah this: 'Don't let your God in whom you trust deceive you, saying, Jerusalem will not be given into the hand of the king of Assyria. 
+"Tell Hezekiah king of Judah this: 'Don't let your God in whom you trust deceive you, saying, Jerusalem won't be given into the hand of the king of Assyria. 
 Look, you have heard what the kings of Assyria have done to all lands, by destroying them utterly. Will you be delivered? 
 Have the gods of the nations delivered them, which my fathers have destroyed, Gozan, Haran, Rezeph, and the children of Eden who were in Telassar? 
 Where is the king of Hamath, the king of Arpad, and the king of the city of Sepharvaim, of Hena, and Ivvah?'" 
@@ -29,8 +29,8 @@ Because of your raging against me, and because your arrogance has come up into m
 "This will be the sign to you: This year, you will eat that which grows of itself, and in the second year that which springs from that; and in the third year sow and reap, and plant vineyards and eat their fruit. 
 The remnant that has escaped of the house of Judah will again take root downward, and bear fruit upward. 
 Out of Jerusalem a remnant will go out, and out of Mount Zion those who shall escape. God's passion will perform this. 
-"So God says concerning the king of Assyria, 'He will not come to this city, nor shoot an arrow there. He will not come before it with shield, nor cast up a mound against it. 
-He will return the same way that he came, and he will not come to this city,' says God. 
+"So God says concerning the king of Assyria, 'He won't come to this city, nor shoot an arrow there. He won't come before it with shield, nor cast up a mound against it. 
+He will return the same way that he came, and he won't come to this city,' says God. 
 'I will defend this city to save it, for my own sake and for my servant David's sake.'" 
 That night, God's messenger went out and struck one hundred eighty-five thousand in the camp of the Assyrians. When men arose early in the morning, look, these were all dead bodies. 
 So Sennacherib king of Assyria departed, went home, and lived at Nineveh. 

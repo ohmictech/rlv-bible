@@ -24,14 +24,14 @@ In the rising from the dead, when they rise, whose wife will she be of them? All
 Jesus answered them, "Isn't this why you are mistaken: you don't know the Scriptures or the power of God? 
 When they rise from the dead, they neither marry nor are given in marriage, but are like messengers in the sky. 
 But about the dead, that they are raised, haven't you read in the book of Moses, in the account of the burning bush, how God spoke to him, saying, 'I am the God of Abraham, the God of Isaac, and the God of Jacob'? 
-He is not the God of dead bodies, but of the living. You are badly mistaken." 
+He isn't the God of dead bodies, but of the living. You are badly mistaken." 
 One of the Bible teachers came and heard them arguing, and knowing that he had answered them well, asked him, "Which commandment is the greatest of all?" 
 Jesus answered, "The greatest is: 'Hear, Israel, the Lord our God, the Lord is one. 
 You shall love the Lord your God with all your heart, with all your life, with all your mind, and with all your strength.' This is the first commandment. 
 The second is this: 'You shall love your neighbor as yourself.' There is no other commandment greater than these." 
 The Bible teacher said to him, "Teacher, you have spoken well in saying that he is one, and there is no other but he; 
 and to love him with all the heart, with all the understanding, with all the life, and with all the strength, and to love one's neighbor as oneself, is more important than all whole burnt offerings and sacrifices." 
-When Jesus saw that he had answered wisely, he said to him, "You are not far from God's reign." And no one dared ask him any more questions after that. 
+When Jesus saw that he had answered wisely, he said to him, "You aren't far from God's reign." And no one dared ask him any more questions after that. 
 Jesus responded, as he taught in the temple courts, "How is it that the Bible teachers say the Christ is the son of David? 
 David himself, in the Holy Spirit, said, 'The Lord said to my Lord, "Sit at my right hand until I put your enemies under your feet."' 
 David himself calls him Lord, so how can he be his son?" And the great crowd heard him gladly. 

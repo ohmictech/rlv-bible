@@ -17,15 +17,15 @@ Truly I tell you, it will be more tolerable for the land of Sodom and Gomorrah i
 But beware of people, for they will hand you over to councils, and in their gathering places they will whip you. 
 Yes, and you will be brought before governors and kings for my sake, as a witness to them and to the nations. 
 But when they hand you over, don't worry about how or what you will say, because what you are to say will be given to you in that hour. 
-It is not you who speak, but the Spirit of your Father who speaks in you. 
+It isn't you who speak, but the Spirit of your Father who speaks in you. 
 "Brother will hand over brother to death, and the father his child. Children will rise up against parents and cause them to be put to death. 
 You will be hated by everyone for my name's sake, but he who sticks it out to the end will be rescued. 
-But when they hunt you down in this city, flee into the next, for truly I tell you, you will not have gone through the cities of Israel until the Human One has come. 
-"A student is not above his teacher, nor a slave above his lord. 
+But when they hunt you down in this city, flee into the next, for truly I tell you, you won't have gone through the cities of Israel until the Human One has come. 
+"A student isn't above his teacher, nor a slave above his lord. 
 It is enough for the student that he be like his teacher, and the slave like his lord. If they have called the master of the house Beelzebul, how much more those of his household! 
-So don't be afraid of them, for there is nothing covered that will not be unveiled, or hidden that will not be known. 
+So don't be afraid of them, for there is nothing covered that won't be unveiled, or hidden that won't be known. 
 What I tell you in the darkness, speak in the light, and what you hear whispered in the ear, proclaim on the housetops. 
-Don't be afraid of those who kill the body but cannot kill the life. Fear instead the one who can break up both the life and the body in Gehenna. 
+Don't be afraid of those who kill the body but can't kill the life. Fear instead the one who can break up both the life and the body in Gehenna. 
 "Aren't two sparrows sold for a small coin? Not one of them falls to the ground without your Father. 
 But the very hairs of your head are all numbered. 
 So don't be afraid. You are of more value than many sparrows. 
@@ -34,8 +34,8 @@ But whoever disowns me in front of people, I will also disown him in front of my
 "Don't think that I came to send wholeness on the earth. I didn't come to send wholeness, but a sword. 
 I came to set a man at odds against his father, and a daughter against her mother, and a daughter-in-law against her mother-in-law. 
 A man's enemies will be those of his own household. 
-Whoever loves father or mother more than me is not worthy of me, and whoever loves son or daughter more than me is not worthy of me. 
-Whoever doesn't take up his cross and follow me is not worthy of me. 
+Whoever loves father or mother more than me isn't worthy of me, and whoever loves son or daughter more than me isn't worthy of me. 
+Whoever doesn't take up his cross and follow me isn't worthy of me. 
 He who seeks his life will lose it, and he who loses his life for my sake will find it. 
 "He who receives you receives me, and he who receives me receives the one who sent me. 
 He who receives a spokesman because he is a spokesman will receive a spokesman's earned result. He who receives an upright man because he is upright will receive an upright man's earned result. 

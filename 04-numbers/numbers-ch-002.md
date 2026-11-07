@@ -30,5 +30,5 @@ His division, and those who were counted of them, were forty-one thousand five h
 His division, and those who were counted of them, were fifty-three thousand four hundred. 
 "Everyone who was counted of the camp of Dan were one hundred fifty-seven thousand six hundred. They shall set out last by their standards." 
 These are those who were counted of the children of Israel by their fathers' houses. Everyone who was counted of the camps according to their armies were six hundred three thousand five hundred fifty. 
-But the Levites were not counted among the children of Israel, as God commanded Moses. 
+But the Levites weren't counted among the children of Israel, as God commanded Moses. 
 Thus the children of Israel did. According to all that God commanded Moses, so they encamped by their standards, and so they set out, everyone by their families, according to their fathers' houses. 

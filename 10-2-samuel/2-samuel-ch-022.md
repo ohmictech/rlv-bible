@@ -19,7 +19,7 @@ He delivered me from my strong enemy, from those who hated me, for they were too
 They came on me in the day of my calamity, but God was my support. 
 He also brought me out into a large place. He delivered me, because he delighted in me. 
 God rewarded me according to my righteousness. He rewarded me according to the cleanness of my hands. 
-I have kept God's ways, and have not guiltily departed from my God. 
+I have kept God's ways, and haven't guiltily departed from my God. 
 All his ordinances were before me. As for his statutes, I didn't depart from them. 
 I was also perfect toward him. I kept myself from my guilt. 
 So God has rewarded me according to my righteousness, According to my cleanness in his eyesight. 
@@ -34,14 +34,14 @@ God is my strong fortress. He makes my way perfect.
 He makes his feet like hinds' feet, and sets me on my high places. 
 He teaches my hands to war, so that my arms bend a bow of bronze. 
 You have also given me the shield of your salvation. Your gentleness has made me great. 
-You have enlarged my steps under me. My feet have not slipped. 
+You have enlarged my steps under me. My feet haven't slipped. 
 I have pursued my enemies and destroyed them. I didn't turn again until they were consumed. 
 I have consumed them, and struck them through, so that they can't arise. Yes, they have fallen under my feet. 
 You have armed me with strength for the battle. You have subdued under me those who rose up against me. 
 You have also made my enemies turn their backs to me, that I might cut off those who hate me. 
 They looked, but there was no one to save; even to God, but he didn't answer them. 
 Then I beat them as small as the dust of the earth. I crushed them as the mire of the streets, and spread them abroad. 
-You also have delivered me from the strivings of my people. You have kept me to be the head of the nations. A people whom I have not known will serve me. 
+You also have delivered me from the strivings of my people. You have kept me to be the head of the nations. A people whom I haven't known will serve me. 
 The foreigners will submit themselves to me. As soon as they hear of me, they will obey me. 
 The foreigners will fade away, and will come trembling out of their close places. 
 God lives! Blessed be my rock! Exalted be God, the rock of my salvation, 

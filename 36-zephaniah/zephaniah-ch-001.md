@@ -9,7 +9,7 @@ It will happen in the day of God's sacrifice that I will punish the princes, the
 In that day, I will punish everyone who leaps over the threshold, who fill their master's house with violence and deceit. 
 In that day, says God, there will be the noise of a cry from the fish gate, a wailing from the second quarter, and a great crashing from the hills. 
 Wail, you inhabitants of Maktesh, for everyone in Canaan are undone! Everyone who was loaded with silver are cut off. 
-It will happen at that time, that I will search Jerusalem with lamps, and I will punish the men who are settled on their dregs, who say in their heart, "God will not do good, neither will he do bad things." 
+It will happen at that time, that I will search Jerusalem with lamps, and I will punish the men who are settled on their dregs, who say in their heart, "God won't do good, neither will he do bad things." 
 Their wealth will become a plunder, and their houses a desolation. Yes, they will build houses, but won't inhabit them. They will plant vineyards, but won't drink their wine. 
 The great day of God is near. It is near and hurries greatly, the voice of the day of God. The mighty man cries there bitterly. 
 That day is a day of wrath, a day of distress and anguish, a day of trouble and ruin, a day of darkness and gloom, a day of clouds and blackness, 

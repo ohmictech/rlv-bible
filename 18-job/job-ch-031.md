@@ -14,7 +14,7 @@ for it is a fire that consumes to destruction, and would root out all my increas
 what then will I do when God rises up? When he visits, what will I answer him? 
 Didn't he who made me in the womb make him? Didn't one fashion us in the womb? 
 "If I have withheld the poor from their desire, or have caused the eyes of the widow to fail, 
-or have eaten my morsel alone, and the fatherless has not eaten of it 
+or have eaten my morsel alone, and the fatherless hasn't eaten of it 
 (no, from my youth he grew up with me as with a father, I have guided her from my mother's womb); 
 if I have seen any perish for want of clothing, or that the needy had no covering; 
 if his heart hasn't blessed me, if he hasn't been warmed with my sheep's fleece; 
@@ -28,8 +28,8 @@ and my heart has been secretly enticed, and my hand threw a kiss from my mouth;
 this also would be an guilt to be punished by the judges, for I would have denied the God who is above. 
 "If I have rejoiced at the destruction of him who hated me, or lifted up myself when bad found him 
 (I have certainly not allowed my mouth to drift by asking his life with a curse); 
-if the men of my tent have not said, 'Who can find one who has not been filled with his meat?' 
-(the foreigner has not camped in the street, but I have opened my doors to the traveler); 
+if the men of my tent haven't said, 'Who can find one who hasn't been filled with his meat?' 
+(the foreigner hasn't camped in the street, but I have opened my doors to the traveler); 
 if like Adam I have covered my rebellion, by hiding my guilt in my heart, 
 because I feared the great multitude, and the contempt of families terrified me, so that I kept silence, and didn't go out of the door 
 oh that I had one to hear me! Look, here is my signature! Let the Almighty answer me! Let the accuser write my indictment! 

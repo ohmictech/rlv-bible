@@ -10,9 +10,9 @@ So Hannah rose up after they had finished eating and drinking in Shiloh. Now Eli
 She was in bitterness of soul, and prayed to God, weeping bitterly. 
 She vowed a vow, and said, "God of Armies, if you will indeed look at the affliction of your servant and remember me, and not forget your servant, but will give to your servant a boy, then I will give him to God all the days of his life, and no razor shall come on his head." 
 As she continued praying before God, Eli saw her mouth. 
-Now Hannah spoke in her heart. Only her lips moved, but her voice was not heard. So Eli thought she was drunk. 
+Now Hannah spoke in her heart. Only her lips moved, but her voice wasn't heard. So Eli thought she was drunk. 
 Eli said to her, "How long will you be drunk? Get rid of your wine!" 
-Hannah answered, "No, my lord, I am a woman of a sorrowful spirit. I have not been drinking wine or strong drink, but I poured out my soul before God. 
+Hannah answered, "No, my lord, I am a woman of a sorrowful spirit. I haven't been drinking wine or strong drink, but I poured out my soul before God. 
 Don't consider your servant a guilty woman; for I have been speaking out of the abundance of my complaint and my provocation." 
 Then Eli answered, "Go in peace; and may the God of Israel grant your petition that you have asked of him." 
 She said, "Let your servant find favor in your sight." So the woman went her way and ate; and her facial expression wasn't sad any more. 

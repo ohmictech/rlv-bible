@@ -11,7 +11,7 @@ Have I come up now without God against this land to destroy it? God said to me, 
 Then Eliakim, Shebna and Joah said to Rabshakeh, "Please speak to your servants in Aramaic, for we understand it. Don't speak to us in the Jews' language in the hearing of the people who are on the wall." 
 But Rabshakeh said, "Has my master sent me only to your master and to you, to speak these words, and not to the men who sit on the wall, who will eat their own dung and drink their own urine with you?" 
 Then Rabshakeh stood, and called out with a loud voice in the Jews' language, and said, "Hear the words of the great king, the king of Assyria! 
-The king says, 'Don't let Hezekiah deceive you; for he will not be able to deliver you. 
+The king says, 'Don't let Hezekiah deceive you; for he won't be able to deliver you. 
 Don't let Hezekiah make you trust in God, saying, "God will surely deliver us. This city won't be given into the hand of the king of Assyria."' 
 Don't listen to Hezekiah, for the king of Assyria says, 'Make your peace with me, and come out to me; and each of you eat from his vine, and each one from his fig tree, and each one of you drink the waters of his own cistern; 
 until I come and take you away to a land like your own land, a land of grain and new wine, a land of bread and vineyards. 

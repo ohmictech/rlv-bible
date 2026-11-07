@@ -6,12 +6,12 @@ When Elihu saw that there was no answer in the mouth of these three men, his wra
 Elihu the son of Barachel the Buzite answered, "I am young, and you are very old. So I held back, and didn't dare show you my opinion. 
 I said, 'Days should speak, and multitude of years should teach wisdom.' 
 But there is a spirit in man, and the Spirit of the Almighty gives them understanding. 
-It is not the great who are wise, nor the aged who understand justice. 
+It isn't the great who are wise, nor the aged who understand justice. 
 So I said, 'Listen to me; I also will show my opinion.' 
 "Look, I waited for your words, and I listened for your reasoning, while you searched out what to say. 
 Yes, I gave you my full attention, but there was no one who convinced Job, or who answered his words, among you. 
 Beware lest you say, 'We have found wisdom. God may refute him, not man;' 
-for he has not directed his words against me; neither will I answer him with your speeches. 
+for he hasn't directed his words against me; neither will I answer him with your speeches. 
 "They are amazed. They answer no more. They don't have a word to say. 
 Shall I wait, because they don't speak, because they stand still, and answer no more? 
 I also will answer my part, and I also will show my opinion. 

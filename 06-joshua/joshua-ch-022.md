@@ -1,6 +1,6 @@
 ﻿Then Joshua called the Reubenites, the Gadites, and the half-tribe of Manasseh, 
 and said to them, "You have kept all that Moses the servant of God commanded you, and have listened to my voice in all that I commanded you. 
-You have not left your brothers these many days to this day, but have performed the duty of the commandment of your God. 
+You haven't left your brothers these many days to this day, but have performed the duty of the commandment of your God. 
 Now your God has given rest to your brothers, as he spoke to them. So now return and go to your tents, to the land of your possession, which Moses the servant of God gave you beyond the Jordan. 
 Only take diligent heed to do the commandment and the law which Moses the servant of God commanded you, to love your God, to walk in all his ways, to keep his commandments, to hold fast to him, and to serve him with all your heart and with all your soul." 
 So Joshua blessed them, and sent them away; and they went to their tents. 
@@ -14,21 +14,21 @@ The children of Israel sent to the children of Reuben, and to the children of Ga
 With him were ten princes, one prince of a fathers' house for each of the tribes of Israel; and they were each head of their fathers' houses among the thousands of Israel. 
 They came to the children of Reuben, and to the children of Gad, and to the half-tribe of Manasseh, to the land of Gilead, and they spoke with them, saying, 
 "The whole congregation of God says, 'What trespass is this that you have committed against the God of Israel, to turn away today from following God, in that you have built yourselves an altar, to rebel today against God? 
-Is the guilt of Peor too little for us, from which we have not cleansed ourselves to this day, although there came a plague on the congregation of God, 
+Is the guilt of Peor too little for us, from which we haven't cleansed ourselves to this day, although there came a plague on the congregation of God, 
 that you must turn away today from following God? It will be, since you rebel today against God, that tomorrow he will be angry with the whole congregation of Israel. 
 However, if the land of your possession is unclean, then pass over to the land of the possession of God, in which God's tabernacle dwells, and take possession among us; but don't rebel against God, nor rebel against us, in building an altar other than our God's altar. 
 Didn't Achan the son of Zerah commit a trespass in the devoted thing, and wrath fell on all the congregation of Israel? That man didn't perish alone in his guilt.'" 
 Then the children of Reuben and the children of Gad and the half-tribe of Manasseh answered, and spoke to the heads of the thousands of Israel, 
 "The Mighty One, God, the Mighty One, God, God, he knows; and Israel shall know: if it was in rebellion, or if in trespass against God (don't save us today), 
 that we have built us an altar to turn away from following God; or if to offer burnt offering or meal offering, or if to offer sacrifices of offerings for wholeness, let God himself require it. 
-"If we have not out of concern done this, and for a reason, saying, 'In time to come your children might speak to our children, saying, "What have you to do with the God of Israel? 
+"If we haven't out of concern done this, and for a reason, saying, 'In time to come your children might speak to our children, saying, "What have you to do with the God of Israel? 
 God has made the Jordan a border between us and you, you children of Reuben and children of Gad. You have no portion in God."' So your children might make our children cease from fearing God. 
 "So we said, 'Let's now prepare to build ourselves an altar, not for burnt offering, nor for sacrifice; 
 but it will be a witness between us and you, and between our generations after us, that we may perform the service of God before him with our burnt offerings, with our sacrifices, and with our offerings for wholeness;' that your children may not tell our children in time to come, 'You have no portion in God.' 
 "Therefore we said, 'It shall be, when they tell us or our generations this in time to come, that we shall say, "Look the pattern of God's altar, which our fathers made, not for burnt offering, nor for sacrifice; but it is a witness between us and you."' 
 "Far be it from us that we should rebel against God, and turn away today from following God, to build an altar for burnt offering, for meal offering, or for sacrifice, besides our God's altar that is before his tabernacle!" 
 When Phinehas the priest, and the princes of the congregation, even the heads of the thousands of Israel that were with him, heard the words that the children of Reuben and the children of Gad and the children of Manasseh spoke, it pleased them well. 
-Phinehas the son of Eleazar the priest said to the children of Reuben, to the children of Gad, and to the children of Manasseh, "Today we know that God is among us, because you have not committed this trespass against God. Now you have delivered the children of Israel out of God's hand." 
+Phinehas the son of Eleazar the priest said to the children of Reuben, to the children of Gad, and to the children of Manasseh, "Today we know that God is among us, because you haven't committed this trespass against God. Now you have delivered the children of Israel out of God's hand." 
 Phinehas the son of Eleazar the priest, and the princes, returned from the children of Reuben, and from the children of Gad, out of the land of Gilead, to the land of Canaan, to the children of Israel, and brought them word again. 
 The thing pleased the children of Israel; and the children of Israel blessed God, and spoke no more of going up against them to war, to destroy the land in which the children of Reuben and the children of Gad lived. 
 The children of Reuben and the children of Gad named the altar "A Witness Between Us that he is God." 

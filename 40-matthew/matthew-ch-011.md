@@ -3,12 +3,12 @@ Now when John heard in prison about the deeds of Christ, he sent two of his stud
 and said to him, "Are you the one who is coming, or should we look for another?" 
 Jesus answered them, "Go and tell John the things which you hear and see: 
 the blind receive their sight, the lame walk, the men with leprosy are made clean, the deaf hear, the dead are raised up, and the destitute have good news preached to them. 
-Flourishing is the one who is not trapped by me." 
+Flourishing is the one who isn't trapped by me." 
 As these went their way, Jesus began to say to the crowds about John, "What did you go out into the wilderness to see? A reed shaken by the wind? 
 But what did you go out to see? A man in soft clothes? Look, those who wear soft clothes are in kings' houses. 
 But why did you go out? To see a spokesman? Yes, I tell you, and much more than a spokesman. 
 This is the one of whom it is written, 'Look, I send my messenger ahead of you, who will prepare your way before you.' 
-Truly I tell you, among those born of women there has not arisen anyone greater than John the Baptist, yet he who is least in the reign of the sky is greater than he. 
+Truly I tell you, among those born of women there hasn't arisen anyone greater than John the Baptist, yet he who is least in the reign of the sky is greater than he. 
 From the days of John the Baptist until now, the reign of the sky suffers violence, and violent people take it by force. 
 All the spokesmen and the law spoke for God until John. 
 If you are willing to receive it, this is Elijah, who is coming. 
@@ -17,7 +17,7 @@ He who has ears to hear, let him hear.
 and say, 'We played the flute for you, and you didn't dance. We mourned for you, and you didn't lament.' 
 John came neither eating nor drinking, and they say, 'He has an unclean spirit.' 
 The Human One came eating and drinking, and they say, 'Look, a glutton and a drunkard, a friend of tax collectors and those who have drifted!' But wisdom is made right by her children." 
-Then he began to call out the cities where most of his powerful works had been done, because they had not had a change of heart. 
+Then he began to call out the cities where most of his powerful works had been done, because they hadn't had a change of heart. 
 "How terrible for you, Chorazin! How terrible for you, Bethsaida! If the powerful works had been done in Tyre and Sidon that were done in you, they would have had a change of heart long ago in rough cloth and ashes. 
 But I tell you, it will be more tolerable for Tyre and Sidon on the day of verdict than for you. 
 You, Capernaum, who are lifted up to the sky, you will go down to Hades. If the powerful works had been done in Sodom that were done in you, it would have remained until today. 

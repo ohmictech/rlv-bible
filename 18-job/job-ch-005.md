@@ -14,7 +14,7 @@ He takes the wise in their own craftiness; the counsel of the cunning is carried
 They meet with darkness in the day time, and grope at noonday as in the night. 
 But he saves from the sword of their mouth, even the needy from the hand of the mighty. 
 So the poor has hope, and injustice shuts her mouth. 
-"Look, happy is the man whom God corrects. So do not despise the chastening of the Almighty. 
+"Look, happy is the man whom God corrects. So don't despise the chastening of the Almighty. 
 He wounds and binds up. He injures and his hands make whole. 
 He will deliver you in six troubles; yes, in seven no bad will touch you. 
 In famine he will buy you back from death; in war, from the power of the sword. 

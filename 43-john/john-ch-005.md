@@ -7,7 +7,7 @@ When Jesus saw him lying there, and knew that he had been sick for a long time, 
 The sick man answered him, "Sir, I have no one to put me into the pool when the water is stirred up, but while I'm coming, another steps down before me." 
 Jesus said to him, "Get up, pick up your mat, and walk." 
 At once the man was made well, and he picked up his mat and walked. Now that day was a Sabbath. 
-So the Jewish leaders said to him who was cured, "It is the Sabbath. It is not allowed for you to carry the mat." 
+So the Jewish leaders said to him who was cured, "It is the Sabbath. It isn't allowed for you to carry the mat." 
 He answered them, "He who made me well said to me, 'Pick up your mat and walk.'" 
 Then they asked him, "Who is the man who said to you, 'Pick up your mat and walk'?" 
 But the one who was healed didn't know who it was, for Jesus had slipped away into the crowd that was in the place. 
@@ -28,10 +28,10 @@ He also gave him authority to pass a verdict, because he is the Human One.
 Don't be amazed at this, for the time comes in which everyone who is in the tombs will hear his voice 
 and will come out; those who have done good, to the rising of life; and those who have done bad things, to the rising that brings a verdict. 
 I can of myself do nothing. As I hear, I pass a verdict; and my verdict is right, because I don't seek my own will, but the will of my Father who sent me. 
-"If I testify about myself, my witness is not valid. 
+"If I testify about myself, my witness isn't valid. 
 It is another who testifies about me. I know that the witness which he testifies about me is true. 
 You have sent to John, and he has testified to the truth. 
-But the witness which I receive is not from people. However, I say these things that you may be made whole. 
+But the witness which I receive isn't from people. However, I say these things that you may be made whole. 
 He was the burning and shining lamp, and you were willing to celebrate for a while in his light. 
 But the witness which I have is greater than that of John; for the deeds which the Father gave me to finish, the very deeds that I do, testify about me, that the Father has sent me. 
 The Father himself, who sent me, has testified about me. You have neither heard his voice at any time, nor seen his shape. 

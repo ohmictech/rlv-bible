@@ -1,14 +1,14 @@
 ﻿He went out from there and came into his own hometown, and his students followed him. 
 When the Sabbath came, he began to teach in the gathering place, and many who heard him were astonished, saying, "Where did this man get these things?" and, "What is this wisdom given to him, and such powerful works coming about by his hands? 
 Isn't this the carpenter, the son of Mary and the brother of James, Joses, Judah, and Simon? Aren't his sisters here with us?" And they were trapped by him. 
-Jesus said to them, "A spokesman is not without honor, except in his hometown, and among his own relatives, and in his own house." 
+Jesus said to them, "A spokesman isn't without honor, except in his hometown, and among his own relatives, and in his own house." 
 He could do no powerful work there, except that he laid his hands on a few sick people and healed them. 
 He was amazed at their lack of trust. He went around the villages teaching. 
 He called the twelve to himself and began to send them out two by two, and he gave them authority over the unclean spirits. 
 He commanded them to take nothing for their journey except a staff: no bread, no bag, no money in their belt, 
 but to wear sandals, and not put on two tunics. 
 He said to them, "Wherever you enter a house, stay there until you leave that place. 
-Whoever will not welcome you or listen to you, as you leave there, shake off the dust under your feet as a witness against them. Truly I tell you, it will be more bearable for Sodom and Gomorrah on the day of verdict than for that city!" 
+Whoever won't welcome you or listen to you, as you leave there, shake off the dust under your feet as a witness against them. Truly I tell you, it will be more bearable for Sodom and Gomorrah on the day of verdict than for that city!" 
 They went out and preached that people should have a change of heart. 
 They drove out many unclean spirits, and anointed many sick people with oil and healed them. 
 King Herod heard about it, for his name had become known, and he said, "John the Baptist has been raised from the dead, and that is why these powers are at work in him." 

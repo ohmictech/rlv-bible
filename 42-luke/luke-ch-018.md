@@ -8,7 +8,7 @@ Won't God give his chosen ones justice, who cry out to him day and night, and ye
 I tell you that he will give them justice quickly. Nevertheless, when the Human One comes, will he find trust on the land?" 
 He also spoke this story to certain people who were convinced of their own rightness, and who despised all others: 
 "Two men went up into the temple to pray; one was a strict religious man, and the other was a tax collector. 
-The strict religious man stood and prayed by himself like this: 'God, I thank you that I am not like the rest of people: robbers, wrongdoers, adulterers, or even like this tax collector. 
+The strict religious man stood and prayed by himself like this: 'God, I thank you that I'm not like the rest of people: robbers, wrongdoers, adulterers, or even like this tax collector. 
 I go without food twice a week. I give tithes of all that I get.' 
 But the tax collector, standing far away, wouldn't even lift up his eyes to the sky, but beat his chest, saying, 'God, be merciful to me, a man who drifts!' 
 I tell you, this man went down to his house made right rather than the other; for everyone who lifts himself up will be humbled, but he who humbles himself will be lifted up." 
@@ -27,7 +27,7 @@ Those who heard it said, "Then who can be rescued?"
 But he said, "The things which are impossible with people are possible with God." 
 Peter said, "Look, we have left everything and followed you." 
 He said to them, "Truly I tell you, there is no one who has left house, or wife, or brothers, or parents, or children, for the sake of God's reign, 
-who will not receive many times more in this time, and in the era to come, the real life of the era." 
+who won't receive many times more in this time, and in the era to come, the real life of the era." 
 He took the twelve aside and said to them, "Look, we are going up to Jerusalem, and all the things that are written through the spokesmen concerning the Human One will be completed. 
 He will be handed over to the nations, will be mocked, treated shamefully, and spit on. 
 They will whip and kill him. On the third day, he will rise again." 

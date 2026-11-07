@@ -1,6 +1,6 @@
 ﻿Let every life be subject to the higher authorities, for there is no authority except from God, and those who exist have been appointed by God. 
 So he who resists the authority withstands the ordinance of God; and those who withstand will receive to themselves verdict. 
-Rulers are not a terror to the good deed, but to the bad. Do you desire to have no fear of the authority? Do that which is good, and you will have praise from the authority, 
+Rulers aren't a terror to the good deed, but to the bad. Do you desire to have no fear of the authority? Do that which is good, and you will have praise from the authority, 
 for he is a servant of God to you for good. But if you do that which is bad, be afraid, for he doesn't carry the sword for nothing; for he is a servant of God, one who brings heat on the one who does bad. 
 So you need to be in subjection, not only because of the heat, but also for conscience' sake. 
 That is why you also pay taxes, for they are servants of God's service, continually doing this very thing. 

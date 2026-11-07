@@ -2,7 +2,7 @@
 He covers himself with light as with a garment. He stretches out the sky like a curtain. 
 He lays the beams of his rooms in the waters. He makes the clouds his chariot. He walks on the wings of the wind. 
 He makes his messengers winds, and his servants flames of fire. 
-He laid the foundations of the earth, that it should not be moved for the eras. 
+He laid the foundations of the earth, that it shouldn't be moved for the eras. 
 You covered it with the deep as with a cloak. The waters stood above the mountains. 
 At your rebuke they fled. At the voice of your thunder they hurried away. 
 The mountains rose, the valleys sank down, to the place which you had assigned to them. 

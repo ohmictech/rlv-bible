@@ -14,4 +14,4 @@ They have sown wheat, and have reaped thorns. They have exhausted themselves, an
 God says, "Concerning all my bad neighbors, who touch the inheritance which I have caused my people Israel to inherit: Look, I will pluck them up from off their land, and will pluck up the house of Judah from among them. 
 It will happen that after I have plucked them up, I will return and have compassion on them. I will bring them again, every man to his heritage, and every man to his land. 
 It will happen, if they will diligently learn the ways of my people, to swear by my name, 'As God lives;' even as they taught my people to swear by Baal, then they will be built up in the middle of my people. 
-But if they will not hear, then I will pluck up that nation, plucking up and destroying it," says God. 
+But if they won't hear, then I will pluck up that nation, plucking up and destroying it," says God. 

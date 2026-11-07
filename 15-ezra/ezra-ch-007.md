@@ -23,6 +23,6 @@ up to one hundred talents of silver, and to one hundred cors of wheat, and to on
 Whatever is commanded by the God of the sky, let it be done exactly for the house of the God of the sky; for why should there be wrath against the realm of the king and his sons? 
 Also we inform you that it shall not be lawful to impose tribute, custom, or toll on any of the priests, Levites, singers, gatekeepers, temple servants, or laborers of this house of God. 
 You, Ezra, according to the wisdom of your God that is in your hand, appoint magistrates and judges who may judge everyone who is beyond the River, who all know the laws of your God; and teach him who doesn't know them. 
-Whoever will not do the law of your God and the law of the king, let judgment be executed on him with all diligence, whether it is to death, or to banishment, or to confiscation of goods, or to imprisonment. 
+Whoever won't do the law of your God and the law of the king, let judgment be executed on him with all diligence, whether it is to death, or to banishment, or to confiscation of goods, or to imprisonment. 
 Blessed be the God of our fathers, who has put such a thing as this in the king's heart, to beautify God's house which is in Jerusalem; 
 and has extended loving kindness to me before the king and his counselors, and before all the king's mighty princes. I was strengthened according to my God's hand on me, and I gathered together chief men out of Israel to go up with me. 

@@ -20,7 +20,7 @@ He said to the king, "Don't let my lord impute guilt to me, or remember that whi
 Your servant knows that I have drifted. Look, I have come today as the first of all the house of Joseph to go down to meet my lord the king." 
 But Abishai the son of Zeruiah answered, "Shouldn't Shimei be put to death for this, because he cursed God's anointed?" 
 David said, "What have I to do with you, you sons of Zeruiah, that you should be adversaries to me today? Shall any man be put to death today in Israel? Don't I know that I am king over Israel today?" 
-The king said to Shimei, "You will not die." The king swore to him. 
+The king said to Shimei, "You won't die." The king swore to him. 
 Mephibosheth the son of Saul came down to meet the king; and he had neither groomed his feet, nor trimmed his beard, nor washed his clothes, from the day the king departed until the day he came home in peace. 
 When he had come to Jerusalem to meet the king, the king said to him, "Why didn't you go with me, Mephibosheth?" 
 He answered, "My lord, O king, my servant deceived me. Your servant said, 'I will saddle a donkey for myself, that I may ride on it and go with the king,' because your servant is lame. 
@@ -40,4 +40,4 @@ Everyone went over the Jordan, and the king went over. Then the king kissed Barz
 So the king went over to Gilgal, and Chimham went over with him. Everyone in Judah brought the king over, and also half the people of Israel. 
 Look, all the men of Israel came to the king, and said to the king, "Why have our brothers the men of Judah stolen you away, and brought the king and his household, over the Jordan, and all David's men with him?" 
 All the men of Judah answered the men of Israel, "Because the king is a close relative to us. Why then are you angry about this matter? Have we eaten at all at the king's cost? Or has he given us any gift?" 
-The men of Israel answered the men of Judah, and said, "We have ten parts in the king, and we have also more claim to David than you. Why then did you despise us, that our advice should not be first had in bringing back our king?" The words of the men of Judah were fiercer than the words of the men of Israel. 
+The men of Israel answered the men of Judah, and said, "We have ten parts in the king, and we have also more claim to David than you. Why then did you despise us, that our advice shouldn't be first had in bringing back our king?" The words of the men of Judah were fiercer than the words of the men of Israel. 

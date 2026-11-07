@@ -1,6 +1,6 @@
 ﻿So I urge the elders among you, as a fellow elder and a witness of the sufferings of Christ, and as one who will share in the weight that is going to be unveiled: 
 shepherd God's flock that is in your care. Watch over it, not because you have to, but because you want to, the way God wants you to; not for shameful gain, but because you are eager to serve; 
-do not boss around those in your charge, but make yourselves examples to the flock. 
+don't boss around those in your charge, but make yourselves examples to the flock. 
 And when the chief Shepherd appears, you will receive the wreath of weight that never fades. 
 In the same way, you who are younger, submit to the elders. And all of you, wrap yourselves in humility as you serve one another, because "God stands against the proud, but gives favor to the humble." 
 So humble yourselves under God's mighty hand, so that he may lift you up at the right time, 

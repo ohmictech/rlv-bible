@@ -1,4 +1,4 @@
-﻿The sons of Reuben the firstborn of Israel (for he was the firstborn, but because he defiled his father's couch, his birthright was given to the sons of Joseph the son of Israel; and the genealogy is not to be listed according to the birthright. 
+﻿The sons of Reuben the firstborn of Israel (for he was the firstborn, but because he defiled his father's couch, his birthright was given to the sons of Joseph the son of Israel; and the genealogy isn't to be listed according to the birthright. 
 Judah prevailed above his brothers, and from him came the prince; but the birthright was Joseph's) 
 the sons of Reuben the firstborn of Israel: Hanoch, Pallu, Hezron, and Carmi. 
 The sons of Joel: Shemaiah his son, Gog his son, Shimei his son, 

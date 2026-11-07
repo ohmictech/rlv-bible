@@ -8,7 +8,7 @@ If the stolen property is found in his hand alive, whether it is ox, donkey, or 
 If the thief isn't found, then the master of the house shall come near to God, to find out whether or not he has put his hand on his neighbor's goods. 
 Every matter of trespass, whether it is for ox, for donkey, for sheep, for clothing, or for any kind of lost thing, about which one says, 'This is mine,' the cause of both parties shall come before God. He whom God condemns shall pay double to his neighbor. 
 "If a man delivers to his neighbor a donkey, an ox, a sheep, or any animal to keep, and it dies or is injured, or driven away, no man seeing it; 
-the oath of God shall be between them both, he has not put his hand on his neighbor's goods; and its owner shall accept it, and he shall not make restitution. 
+the oath of God shall be between them both, he hasn't put his hand on his neighbor's goods; and its owner shall accept it, and he shall not make restitution. 
 But if it is stolen from him, the one who stole shall make restitution to its owner. 
 If it is torn in pieces, let him bring it for evidence. He shall not make good that which was torn. 
 "If a man borrows anything of his neighbor's, and it is injured, or dies, its owner not being with it, he shall surely make restitution. 

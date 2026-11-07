@@ -3,14 +3,14 @@
 Shall vain words have an end? Or what provokes you that you answer? 
 I also could speak as you do. If your soul were in my soul's place, I could join words together against you, and shake my head at you, 
 but I would strengthen you with my mouth. The solace of my lips would relieve you. 
-"Though I speak, my grief is not subsided. Though I forbear, what am I eased? 
+"Though I speak, my grief isn't subsided. Though I forbear, what am I eased? 
 But now, God, you have surely worn me out. You have made all my company desolate. 
 You have shriveled me up. This is a witness against me. My leanness rises up against me. It testifies to my face. 
 He has torn me in his wrath and persecuted me. He has gnashed on me with his teeth. My adversary sharpens his eyes on me. 
 They have gaped on me with their mouth. They have struck me on the cheek reproachfully. They gather themselves together against me. 
 God delivers me to the ungodly, and casts me into the hands of the guilty. 
 I was at ease, and he broke me apart. Yes, he has taken me by the neck, and dashed me to pieces. He has also set me up for his target. 
-His archers surround me. He splits my kidneys apart, and does not spare. He pours out my bile on the ground. 
+His archers surround me. He splits my kidneys apart, and doesn't spare. He pours out my bile on the ground. 
 He breaks me with breach on breach. He runs at me like a giant. 
 I have sewed sackcloth on my skin, and have thrust my horn in the dust. 
 My face is red with weeping. Deep darkness is on my eyelids, 

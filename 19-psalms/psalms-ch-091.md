@@ -4,7 +4,7 @@ He will deliver you from the snare of the fowler, and from the deadly pestilence
 He will cover you with his feathers. Under his wings you will take refuge. His faithfulness is your shield and rampart. 
 You shall not be afraid of the terror by night, nor of the arrow that flies by day, 
 nor of the pestilence that walks in darkness, nor of the destruction that wastes at noonday. 
-A thousand may fall at your side, and ten thousand at your right hand; but it will not come near you. 
+A thousand may fall at your side, and ten thousand at your right hand; but it won't come near you. 
 You will only look with your eyes, and see the recompense of the guilty. 
 Because you have made God your refuge, and the Most High your dwelling place, 
 no bad shall happen to you, neither shall any plague come near your dwelling. 

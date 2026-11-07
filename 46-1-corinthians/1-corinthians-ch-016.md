@@ -9,7 +9,7 @@ But I will stay at Ephesus until Pentecost,
 for a great and effective door has opened to me, and there are many adversaries. 
 Now if Timothy comes, see that he is with you without fear, for he does the work of the Lord, as I also do. 
 So let no one look down on him. Send him on his way in wholeness, so that he may come to me; for I am expecting him with the brothers. 
-Now concerning Apollos the brother, I strongly urged him to come to you with the brothers, but it was not at all his desire to come now; but he will come when he has an opportunity. 
+Now concerning Apollos the brother, I strongly urged him to come to you with the brothers, but it wasn't at all his desire to come now; but he will come when he has an opportunity. 
 Stay awake! Stand firm in the trust! Be brave! Be strong! 
 Let all that you do be done in love. 
 Now I beg you, brothers, you know the household of Stephanas, that it is the firstfruits of Achaia, and that they have set themselves to serve the set-apart ones, 

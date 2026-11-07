@@ -1,7 +1,7 @@
 ﻿Now when the wall was built and I had set up the doors, and the gatekeepers and the singers and the Levites were appointed, 
 I put my brother Hanani, and Hananiah the governor of the fortress, in charge of Jerusalem; for he was a faithful man and feared God above many. 
 I said to them, "Don't let the gates of Jerusalem be opened until the sun is hot; and while they stand guard, let them shut the doors, and you bar them; and appoint watches of the inhabitants of Jerusalem, everyone in his watch, with everyone near his house." 
-Now the city was wide and large; but the people were few therein, and the houses were not built. 
+Now the city was wide and large; but the people were few therein, and the houses weren't built. 
 My God put into my heart to gather together the nobles, and the rulers, and the people, that they might be listed by genealogy. I found the book of the genealogy of those who came up at the first, and I found this written in it: 
 These are the children of the province who went up out of the captivity of those who had been carried away, whom Nebuchadnezzar the king of Babylon had carried away, and who returned to Jerusalem and to Judah, everyone to his city, 
 who came with Zerubbabel, Jeshua, Nehemiah, Azariah, Raamiah, Nahamani, Mordecai, Bilshan, Mispereth, Bigvai, Nehum, and Baanah. The number of the men of the people of Israel: 
@@ -58,7 +58,7 @@ The children of Solomon's servants: the children of Sotai, the children of Sophe
 the children of Jaala, the children of Darkon, the children of Giddel, 
 the children of Shephatiah, the children of Hattil, the children of Pochereth Hazzebaim, and the children of Amon. 
 All the temple servants and the children of Solomon's servants were three hundred ninety-two. 
-These were those who went up from Tel Melah, Tel Harsha, Cherub, Addon, and Immer; but they could not show their fathers' houses, nor their offspring, whether they were of Israel: 
+These were those who went up from Tel Melah, Tel Harsha, Cherub, Addon, and Immer; but they couldn't show their fathers' houses, nor their offspring, whether they were of Israel: 
 The children of Delaiah, the children of Tobiah, the children of Nekoda: six hundred forty-two. 
 Of the priests: the children of Hobaiah, the children of Hakkoz, the children of Barzillai, who took a wife of the daughters of Barzillai the Gileadite, and was called after their name. 
 These searched for their genealogical records, but couldn't find them. So they were deemed disqualified and removed from the priesthood. 

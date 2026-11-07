@@ -13,7 +13,7 @@ Why did the knees receive me? Or why the breast, that I should nurse?
 Now I should have lain down and been quiet. I should have slept, then I would have been at rest, 
 with kings and counselors of the earth, who built up waste places for themselves; 
 or with princes who had gold, who filled their houses with silver; 
-or as a hidden untimely birth I had not been, as infants who never saw light. 
+or as a hidden untimely birth I hadn't been, as infants who never saw light. 
 There the guilty cease from troubling. There the weary are at rest. 
 There the prisoners are at ease together. They don't hear the voice of the taskmaster. 
 The small and the great are there. The servant is free from his master. 
@@ -23,4 +23,4 @@ who rejoice exceedingly, and are glad, when they can find the grave?
 Why is light given to a man whose way is hidden, whom God has hedged in? 
 My sighing comes before I eat. My groanings are poured out like water. 
 The thing which I fear comes on me, that which I am afraid of comes to me. 
-I am not at ease, neither am I quiet, neither do I have rest; but trouble comes." 
+I'm not at ease, neither am I quiet, neither do I have rest; but trouble comes." 

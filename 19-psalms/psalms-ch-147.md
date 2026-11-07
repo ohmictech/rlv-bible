@@ -17,4 +17,4 @@ He gives snow like wool, and scatters frost like ashes.
 He hurls down his hail like pebbles. Who can stand before his cold? 
 He sends out his word, and melts them. He causes his wind to blow, and the waters flow. 
 He shows his word to Jacob, his statutes and his ordinances to Israel. 
-He has not done this for just any nation. They don't know his ordinances. Praise God! 
+He hasn't done this for just any nation. They don't know his ordinances. Praise God! 

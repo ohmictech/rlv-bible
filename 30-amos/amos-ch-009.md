@@ -5,7 +5,7 @@ Though they go into captivity before their enemies, there I will command the swo
 The Lord, the GOD of Armies, is he who touches the land and it melts, and everyone who dwells in it will mourn; and it will rise up wholly like the River, and will sink again, like the River of Egypt. 
 It is he who builds his rooms in the sky, and has founded his vault on the earth; he who calls for the waters of the sea, and pours them out on the surface of the earth, God is his name. 
 Are you not like the children of the Ethiopians to me, children of Israel?" says God. "Haven't I brought up Israel out of the land of Egypt, and the Philistines from Caphtor, and the Syrians from Kir? 
-Look, the eyes of God are on the sinful kingdom, and I will destroy it from off the surface of the earth, except that I will not utterly destroy the house of Jacob," says God. 
+Look, the eyes of God are on the sinful kingdom, and I will destroy it from off the surface of the earth, except that I won't utterly destroy the house of Jacob," says God. 
 "Look, I will command, and I will sift the house of Israel among all the nations as grain is sifted in a sieve, yet not the least kernel will fall on the earth. 
 All the those who have drifted of my people will die by the sword, who say, 'Bad won't overtake nor meet us.' 
 In that day I will raise up the tent of David who is fallen and close up its breaches, and I will raise up its ruins, and I will build it as in the days of old, 

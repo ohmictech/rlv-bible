@@ -4,12 +4,12 @@ Their father gave them great gifts of silver, of gold, and of precious things, w
 Now when Jehoram had risen up over the kingdom of his father, and had strengthened himself, he killed all his brothers with the sword, and also some of the princes of Israel. 
 Jehoram was thirty-two years old when he began to reign, and he reigned eight years in Jerusalem. 
 He walked in the way of the kings of Israel, as did Ahab's house, for he had Ahab's daughter as his wife. He did that which was bad in God's sight. 
-However God would not destroy David's house, because of the covenant that he had made with David, and as he promised to give a lamp to him and to his children always. 
+However God wouldn't destroy David's house, because of the covenant that he had made with David, and as he promised to give a lamp to him and to his children always. 
 In his days Edom revolted from under the hand of Judah, and made a king over themselves. 
 Then Jehoram went there with his captains and all his chariots with him. He rose up by night and struck the Edomites who surrounded him, along with the captains of the chariots. 
 So Edom has been in revolt from under the hand of Judah to this day. Then Libnah revolted at the same time from under his hand, because he had forsaken the God of his fathers. 
 Moreover he made high places in the mountains of Judah, and made the inhabitants of Jerusalem play the prostitute, and led Judah astray. 
-A letter came to him from Elijah the spokesman, saying, "the God of David your father, says, 'Because you have not walked in the ways of Jehoshaphat your father, nor in the ways of Asa king of Judah, 
+A letter came to him from Elijah the spokesman, saying, "the God of David your father, says, 'Because you haven't walked in the ways of Jehoshaphat your father, nor in the ways of Asa king of Judah, 
 but have walked in the way of the kings of Israel, and have made Judah and the inhabitants of Jerusalem to play the prostitute like Ahab's house did, and also have slain your brothers of your father's house, who were better than yourself, 
 Look, God will strike your people with a great plague, including your children, your wives, and all your possessions; 
 and you will have great sickness with a disease of your bowels, until your bowels fall out by reason of the sickness, day by day.'" 

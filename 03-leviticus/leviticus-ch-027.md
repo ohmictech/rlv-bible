@@ -8,7 +8,7 @@ If the person is from sixty years old and upward; if he is a male, then your val
 But if he is poorer than your valuation, then he shall be set before the priest, and the priest shall assign a value to him. The priest shall assign a value according to his ability to pay. 
 "'If it is an animal of which men offer an offering to God, all that any man gives of such to God becomes holy. 
 He shall not alter it, nor exchange it, a good for a bad, or a bad for a good. If he shall at all exchange animal for animal, then both it and that for which it is exchanged shall be holy. 
-If it is any unclean animal, of which they do not offer as an offering to God, then he shall set the animal before the priest; 
+If it is any unclean animal, of which they don't offer as an offering to God, then he shall set the animal before the priest; 
 and the priest shall evaluate it, whether it is good or bad. As the priest evaluates it, so it shall be. 
 But if he will indeed buy it back, then he shall add the fifth part of it to its valuation. 
 "'When a man dedicates his house to be holy to God, then the priest shall evaluate it, whether it is good or bad. As the priest evaluates it, so it shall stand. 
@@ -17,9 +17,9 @@ If he who dedicates it will buy back his house, then he shall add the fifth part
 If he dedicates his field from the Year of Jubilee, according to your valuation it shall stand. 
 But if he dedicates his field after the Jubilee, then the priest shall reckon to him the money according to the years that remain to the Year of Jubilee; and an abatement shall be made from your valuation. 
 If he who dedicated the field will indeed buy it back, then he shall add the fifth part of the money of your valuation to it, and it shall remain his. 
-If he will not buy back the field, or if he has sold the field to another man, it shall not be bought back any more; 
+If he won't buy back the field, or if he has sold the field to another man, it shall not be bought back any more; 
 but the field, when it goes out in the Jubilee, shall be holy to God, as a devoted field. It shall be owned by the priests. 
-"'If he dedicates a field to God which he has bought, which is not of the field of his possession, 
+"'If he dedicates a field to God which he has bought, which isn't of the field of his possession, 
 then the priest shall reckon to him the worth of your valuation up to the Year of Jubilee; and he shall give your valuation on that day, as a holy thing to God. 
 In the Year of Jubilee the field shall return to him from whom it was bought, even to him to whom the possession of the land belongs. 
 All your valuations shall be according to the shekel of the sanctuary: twenty gerahs to the shekel. 

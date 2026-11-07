@@ -18,4 +18,4 @@ God will roar from Zion, and thunder from Jerusalem; and the sky and the earth w
 It will happen in that day, that the mountains will drop down sweet wine, the hills will flow with milk, all the brooks of Judah will flow with waters; and a fountain will flow out from God's house, and will water the valley of Shittim. 
 Egypt will be a desolation and Edom will be a desolate wilderness, for the violence done to the children of Judah, because they have shed innocent blood in their land. 
 But Judah will be inhabited for the eras, and Jerusalem from generation to generation. 
-I will cleanse their blood that I have not cleansed, for God dwells in Zion." 
+I will cleanse their blood that I haven't cleansed, for God dwells in Zion." 

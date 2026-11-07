@@ -1,7 +1,7 @@
 ﻿The burden of Tyre. Howl, you ships of Tarshish! It is laid waste, so that there is no house, no entering in. From the land of Kittim it is revealed to them. 
 Be still, you inhabitants of the coast, you whom the merchants of Sidon that pass over the sea have replenished. 
 On great waters, the seed of the Shihor, the harvest of the Nile, was her revenue. She was the market of nations. 
-Be ashamed, Sidon; for the sea has spoken, the stronghold of the sea, saying, "I have not travailed, nor given birth, neither have I nourished young men, nor brought up virgins." 
+Be ashamed, Sidon; for the sea has spoken, the stronghold of the sea, saying, "I haven't travailed, nor given birth, neither have I nourished young men, nor brought up virgins." 
 When the report comes to Egypt, they will be in anguish at the report of Tyre. 
 Pass over to Tarshish! Wail, you inhabitants of the coast! 
 Is this your joyous city, whose antiquity is of ancient days, whose feet carried her far away to travel? 
@@ -15,4 +15,4 @@ Howl, you ships of Tarshish, for your stronghold is laid waste!
 It will come to pass in that day that Tyre will be forgotten seventy years, according to the days of one king. After the end of seventy years it will be to Tyre like in the song of the prostitute. 
 Take a harp; go about the city, you prostitute that has been forgotten. Make sweet melody. Sing many songs, that you may be remembered. 
 It will happen after the end of seventy years that God will visit Tyre. She will return to her wages, and will play the prostitute with all the kingdoms of the world on the surface of the earth. 
-Her merchandise and her wages will be holiness to God. It will not be treasured nor laid up; for her merchandise will be for those who dwell before God, to eat sufficiently, and for durable clothing. 
+Her merchandise and her wages will be holiness to God. It won't be treasured nor laid up; for her merchandise will be for those who dwell before God, to eat sufficiently, and for durable clothing. 

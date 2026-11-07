@@ -5,7 +5,7 @@ But when day had already come, Jesus stood on the beach; yet the students didn't
 Jesus said to them, "Children, have you anything to eat?" They answered him, "No." 
 He said to them, "Cast the net on the right side of the boat, and you will find some." They cast it, and now they weren't able to draw it in because there were so many fish. 
 That student whom Jesus loved said to Peter, "It's the Lord!" So when Simon Peter heard that it was the Lord, he wrapped his coat around himself (for he was naked), and threw himself into the sea. 
-But the other students came in the little boat (for they were not far from the land, but about a hundred yards away), dragging the net full of fish. 
+But the other students came in the little boat (for they weren't far from the land, but about a hundred yards away), dragging the net full of fish. 
 So when they got out on the land, they saw a fire of coals there, with fish and bread laid on it. 
 Jesus said to them, "Bring some of the fish which you have just caught." 
 Simon Peter went up, and drew the net to land, full of one hundred fifty-three great fish. Even though there were so many, the net wasn't torn. 

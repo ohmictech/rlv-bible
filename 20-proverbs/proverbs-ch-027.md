@@ -19,9 +19,9 @@ Whoever tends the fig tree shall eat its fruit. He who looks after his master sh
 Like water reflects a face, so a man's heart reflects the man. 
 Hades and Abaddon are never satisfied; and a man's eyes are never satisfied. 
 The crucible is for silver, and the furnace for gold; but man is refined by his praise. 
-Though you grind a fool in a mortar with a pestle along with grain, yet his foolishness will not be removed from him. 
+Though you grind a fool in a mortar with a pestle along with grain, yet his foolishness won't be removed from him. 
 Know well the state of your flocks, and pay attention to your herds, 
-for riches are not for the eras, nor does the crown endure to all generations. 
+for riches aren't for the eras, nor does the crown endure to all generations. 
 The hay is removed, and the new growth appears, the grasses of the hills are gathered in. 
 The lambs are for your clothing, and the goats are the price of a field. 
 There will be plenty of goats' milk for your food, for your family's food, and for the nourishment of your servant girls. 

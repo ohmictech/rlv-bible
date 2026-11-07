@@ -6,7 +6,7 @@ The goal of this instruction is love that comes from a clean heart, a good consc
 Some have drifted on these and turned aside into empty talk, 
 wanting to be teachers of the law, without understanding either what they are saying or what they are so sure about. 
 We know that the law is good, if a person uses it the way it is meant to be used. 
-knowing this: the law is not laid down for someone who is right, but for those who live as if there were no law, for those who won't be told what to do, for those with no regard for God and those who have drifted, for those who are irreverent and worldly, for men who kill their fathers or their mothers, for murderers, 
+knowing this: the law isn't laid down for someone who is right, but for those who live as if there were no law, for those who won't be told what to do, for those with no regard for God and those who have drifted, for those who are irreverent and worldly, for men who kill their fathers or their mothers, for murderers, 
 for those who sleep around, for men who lie with men, for those who kidnap people and sell them, for liars, for those who break their oaths, and for anything else that is against healthy teaching, 
 in keeping with the Good News of the weight of the flourishing God, which was put in my care. 
 I give thanks to Christ Jesus our Lord, who gave me strength, because he counted me trustworthy and put me into service, 

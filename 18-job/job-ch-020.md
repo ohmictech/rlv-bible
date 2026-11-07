@@ -5,20 +5,20 @@ Don't you know this from old time, since man was placed on earth,
 that the triumphing of the guilty is short, the joy of the godless but for a moment? 
 Though his height mount up to the sky, and his head reach to the clouds, 
 yet he will perish for the eras like his own dung. Those who have seen him will say, 'Where is he?' 
-He will fly away as a dream, and will not be found. Yes, he will be chased away like a vision of the night. 
+He will fly away as a dream, and won't be found. Yes, he will be chased away like a vision of the night. 
 The eye which saw him will see him no more, neither will his place see him any more. 
 His children will seek the favor of the poor. His hands will give back his wealth. 
 His bones are full of his youth, but youth will lie down with him in the dust. 
 "Though guilt is sweet in his mouth, though he hide it under his tongue, 
-though he spare it, and will not let it go, but keep it still within his mouth, 
+though he spare it, and won't let it go, but keep it still within his mouth, 
 yet his food in his bowels is turned. It is cobra venom within him. 
 He has swallowed down riches, and he will vomit them up again. God will cast them out of his belly. 
 He will suck cobra venom. The viper's tongue will kill him. 
-He will not look at the rivers, the flowing streams of honey and butter. 
-He will restore that for which he labored, and will not swallow it down. He will not rejoice according to the substance that he has gotten. 
-He has oppressed and forsaken the poor. He has violently taken away a house, and he will not build it up. 
-"Because he knew no quietness within him, he will not save anything of that in which he delights. 
-There was nothing left that he didn't devour, his prosperity will not endure. 
+He won't look at the rivers, the flowing streams of honey and butter. 
+He will restore that for which he labored, and won't swallow it down. He won't rejoice according to the substance that he has gotten. 
+He has oppressed and forsaken the poor. He has violently taken away a house, and he won't build it up. 
+"Because he knew no quietness within him, he won't save anything of that in which he delights. 
+There was nothing left that he didn't devour, his prosperity won't endure. 
 In the fullness of his sufficiency, distress will overtake him. The hand of everyone who is in misery will come on him. 
 When he is about to fill his belly, God will cast the fierceness of his wrath on him. It will rain on him while he is eating. 
 He will flee from the iron weapon. The bronze arrow will strike him through. 

@@ -17,7 +17,7 @@ Terrors have turned on me. They chase my honor as the wind. My welfare has passe
 In the night season my bones are pierced in me, and the pains that gnaw me take no rest. 
 My garment is disfigured by great force. It binds me about as the collar of my tunic. 
 He has cast me into the mire. I have become like dust and ashes. 
-I cry to you, and you do not answer me. I stand up, and you gaze at me. 
+I cry to you, and you don't answer me. I stand up, and you gaze at me. 
 You have turned to be cruel to me. With the might of your hand you persecute me. 
 You lift me up to the wind, and drive me with it. You dissolve me in the storm. 
 I know that you will bring me to death, to the house appointed for all living. 

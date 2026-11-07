@@ -1,7 +1,7 @@
 ﻿The third day, there was a wedding in Cana of Galilee. Jesus' mother was there. 
 Jesus also was invited, with his students, to the wedding. 
 When the wine ran out, Jesus' mother said to him, "They have no wine." 
-Jesus said to her, "Woman, what does that have to do with you and me? My time has not yet come." 
+Jesus said to her, "Woman, what does that have to do with you and me? My time hasn't yet come." 
 His mother said to the servants, "Whatever he says to you, do it." 
 Now there were six stone water jars set there for the Jewish way of washing, each holding twenty or thirty gallons. 
 Jesus said to them, "Fill the jars with water." So they filled them up to the brim. 

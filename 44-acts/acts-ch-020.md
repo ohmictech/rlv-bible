@@ -13,7 +13,7 @@ They brought the boy in alive, and were greatly comforted.
 But we, going ahead to the ship, set sail for Assos, intending to take Paul aboard there; for he had so arranged, intending himself to go by land. 
 When he met us at Assos, we took him aboard and came to Mitylene. 
 Sailing from there, we came the following day opposite Chios. The next day we touched at Samos and stayed at Trogyllium, and the day after we came to Miletus. 
-Paul had determined to sail past Ephesus, so that he would not have to spend time in Asia; for he was hastening, if it were possible for him, to be in Jerusalem on the day of Pentecost. 
+Paul had determined to sail past Ephesus, so that he wouldn't have to spend time in Asia; for he was hastening, if it were possible for him, to be in Jerusalem on the day of Pentecost. 
 From Miletus he sent to Ephesus and called to himself the elders of the gathering. 
 When they had come to him, he said to them, "You yourselves know, from the first day that I set foot in Asia, how I was with you all the time, 
 serving the Lord with all humility, with many tears, and with trials which happened to me by the plots of the Jewish people; 

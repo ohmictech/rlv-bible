@@ -3,14 +3,14 @@ The house which King Solomon built for God had a length of sixty cubits, and its
 The porch in front of the temple of the house had a length of twenty cubits, which was along the width of the house. Ten cubits was its width in front of the house. 
 He made windows of fixed lattice work for the house. 
 Against the wall of the house, he built floors all around, against the walls of the house all around, both of the temple and of the inner sanctuary; and he made side rooms all around. 
-The lowest floor was five cubits wide, and the middle was six cubits wide, and the third was seven cubits wide; for on the outside he made offsets in the wall of the house all around, that the beams should not be inserted into the walls of the house. 
+The lowest floor was five cubits wide, and the middle was six cubits wide, and the third was seven cubits wide; for on the outside he made offsets in the wall of the house all around, that the beams shouldn't be inserted into the walls of the house. 
 The house, when it was under construction, was built of stone prepared at the quarry; and no hammer or ax or any tool of iron was heard in the house while it was under construction. 
 The door for the middle side rooms was in the right side of the house. They went up by winding stairs into the middle floor, and out of the middle into the third. 
 So he built the house and finished it; and he covered the house with beams and planks of cedar. 
 He built the floors all along the house, each five cubits high; and they rested on the house with timbers of cedar. 
 God's word came to Solomon, saying, 
 "Concerning this house which you are building, if you will walk in my statutes, and execute my ordinances, and keep all my commandments to walk in them, then I will establish my word with you, which I spoke to David your father. 
-I will dwell among the children of Israel, and will not forsake my people Israel." 
+I will dwell among the children of Israel, and won't forsake my people Israel." 
 So Solomon built the house and finished it. 
 He built the walls of the house within with boards of cedar; from the floor of the house to the walls of the ceiling, he covered them on the inside with wood. He covered the floor of the house with cypress boards. 
 He built twenty cubits of the back part of the house with boards of cedar from the floor to the ceiling. He built this within, for an inner sanctuary, even for the most holy place. 

@@ -9,13 +9,13 @@ So at that time certain Chaldeans came near and brought accusation against the J
 They answered Nebuchadnezzar the king, "O king, live for the eras! 
 You, O king, have made a decree that every man who hears the sound of the horn, flute, zither, lyre, harp, pipe, and all kinds of music shall fall down and worship the golden image; 
 and whoever doesn't fall down and worship shall be cast into the middle of a burning fiery furnace. 
-There are certain Jews whom you have appointed over the affairs of the province of Babylon: Shadrach, Meshach, and Abednego. These men, O king, have not respected you. They don't serve your gods, and don't worship the golden image which you have set up." 
+There are certain Jews whom you have appointed over the affairs of the province of Babylon: Shadrach, Meshach, and Abednego. These men, O king, haven't respected you. They don't serve your gods, and don't worship the golden image which you have set up." 
 Then Nebuchadnezzar in rage and fury commanded that Shadrach, Meshach, and Abednego be brought. Then these men were brought before the king. 
 Nebuchadnezzar answered them, "Is it true, Shadrach, Meshach, and Abednego, that you don't serve my gods and you don't worship the golden image which I have set up? 
 Now if you are ready whenever you hear the sound of the horn, flute, zither, lyre, harp, pipe, and all kinds of music to fall down and worship the image which I have made, good; but if you don't worship, you shall be cast the same hour into the middle of a burning fiery furnace. Who is that god who will deliver you out of my hands?" 
 Shadrach, Meshach, and Abednego answered the king, "Nebuchadnezzar, we have no need to answer you in this matter. 
 If it happens, our God whom we serve is able to deliver us from the burning fiery furnace; and he will deliver us out of your hand, O king. 
-But if not, let it be known to you, O king, that we will not serve your gods or worship the golden image which you have set up." 
+But if not, let it be known to you, O king, that we won't serve your gods or worship the golden image which you have set up." 
 Then Nebuchadnezzar was full of fury, and the form of his appearance was changed against Shadrach, Meshach, and Abednego. He spoke, and commanded that they should heat the furnace seven times more than it was usually heated. 
 He commanded certain mighty men who were in his army to bind Shadrach, Meshach, and Abednego, and to cast them into the burning fiery furnace. 
 Then these men were bound in their pants, their tunics, and their mantles, and their other clothes, and were cast into the middle of the burning fiery furnace. 

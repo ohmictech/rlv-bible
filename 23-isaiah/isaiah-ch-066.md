@@ -16,9 +16,9 @@ For, look, God will come with fire, and his chariots will be like the whirlwind;
 God will execute judgment by fire and by his sword on all flesh; and those slain by God will be many. 
 "Those who sanctify themselves and purify themselves to go to the gardens, following one in the middle, eating pig's meat, abominable things, and the mouse, they shall come to an end together," says God. 
 "I know their works and their thoughts. The time comes that I will gather all nations and languages, and they will come, and will see my glory. 
-"I will set a sign among them, and I will send those who escape of them to the nations, to Tarshish, Pul, and Lud, who draw the bow, to Tubal and Javan, to far-away islands, who have not heard my fame, nor have seen my glory; and they shall declare my glory among the nations. 
+"I will set a sign among them, and I will send those who escape of them to the nations, to Tarshish, Pul, and Lud, who draw the bow, to Tubal and Javan, to far-away islands, who haven't heard my fame, nor have seen my glory; and they shall declare my glory among the nations. 
 They shall bring all your brothers out of all the nations for an offering to God, on horses, in chariots, in litters, on mules, and on camels, to my holy mountain Jerusalem, says God, as the children of Israel bring their offering in a clean vessel into God's house. 
 Of them I will also select priests and Levites," says God. 
 "As the new skies and the new earth, which I will make, shall remain before me," says God, "so your offspring and your name shall remain. 
 It shall happen that from one new moon to another, and from one Sabbath to another, all flesh will come to worship before me," says God. 
-"They will go out, and look at the dead bodies of the men who have transgressed against me; for their worm will not die, nor will their fire be quenched, and they will be loathsome to all mankind." 
+"They will go out, and look at the dead bodies of the men who have transgressed against me; for their worm won't die, nor will their fire be quenched, and they will be loathsome to all mankind." 

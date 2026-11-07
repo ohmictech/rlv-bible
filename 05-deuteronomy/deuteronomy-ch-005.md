@@ -8,7 +8,7 @@ God spoke with you face to face on the mountain out of the middle of the fire,
 "You shall not make a carved image for yourself, any likeness of what is in the sky above, or what is on the earth beneath, or that is in the water under the earth. 
 You shall not bow yourself down to them, nor serve them, for I, your God, am a jealous God, visiting the guilt of the fathers on the children and on the third and on the fourth generation of those who hate me 
 and showing loving kindness to thousands of those who love me and keep my commandments. 
-"You shall not misuse the name of your God; for God will not hold him guiltless who misuses his name. 
+"You shall not misuse the name of your God; for God won't hold him guiltless who misuses his name. 
 "Observe the Sabbath day, to keep it holy, as your God commanded you. 
 You shall labor six days, and do all your work; 
 but the seventh day is a Sabbath to your God, in which you shall not do any work, neither you, nor your son, nor your daughter, nor your male servant, nor your female servant, nor your ox, nor your donkey, nor any of your livestock, nor your stranger who is within your gates; that your male servant and your female servant may rest as well as you. 

@@ -16,7 +16,7 @@ On the next day, he took a thick cloth, dipped it in water, and spread it on the
 In the fifth year of Joram the son of Ahab king of Israel, Jehoshaphat being king of Judah then, Jehoram the son of Jehoshaphat king of Judah began to reign. 
 He was thirty-two years old when he began to reign. He reigned eight years in Jerusalem. 
 He walked in the way of the kings of Israel, as did Ahab's house, for he married Ahab's daughter. He did that which was bad in God's sight. 
-However, God would not destroy Judah, for David his servant's sake, as he promised him to give to him a lamp for his children always. 
+However, God wouldn't destroy Judah, for David his servant's sake, as he promised him to give to him a lamp for his children always. 
 In his days Edom revolted from under the hand of Judah, and made a king over themselves. 
 Then Joram crossed over to Zair, and all his chariots with him; and he rose up by night and struck the Edomites who surrounded him with the captains of the chariots; and the people fled to their tents. 
 So Edom revolted from under the hand of Judah to this day. Then Libnah revolted at the same time. 

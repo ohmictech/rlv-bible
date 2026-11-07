@@ -1,6 +1,6 @@
-﻿Everyone who is a slave under the yoke should count their own masters worthy of full honor, so that God's name and the teaching are not slandered. 
-Those who have masters who trust should not look down on them because they are brothers and sisters. They should serve them all the better, because those who benefit from their work trust and are truly loved. Teach these things and urge them. 
-If anyone teaches something different and does not agree with healthy words, the words of our Lord Jesus Christ, and with the teaching that leads to devotion to God, 
+﻿Everyone who is a slave under the yoke should count their own masters worthy of full honor, so that God's name and the teaching aren't slandered. 
+Those who have masters who trust shouldn't look down on them because they are brothers and sisters. They should serve them all the better, because those who benefit from their work trust and are truly loved. Teach these things and urge them. 
+If anyone teaches something different and doesn't agree with healthy words, the words of our Lord Jesus Christ, and with the teaching that leads to devotion to God, 
 he is swollen with conceit and knows nothing. He is sick with a craving for arguments and fights over words, and out of that come envy, quarreling, insults, and malicious suspicions, 
 and endless friction between people whose minds are rotted and who have been robbed of the truth, who think that devotion to God is a way to make money. Keep away from people like that. 
 But devotion to God with contentment is great wealth. 

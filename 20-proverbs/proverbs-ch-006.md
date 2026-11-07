@@ -26,10 +26,10 @@ Don't lust after her beauty in your heart, neither let her captivate you with he
 A prostitute reduces you to a piece of bread. The adulteress hunts for your precious life. 
 Can a man scoop fire into his lap, and his clothes not be burned? 
 Or can one walk on hot coals, and his feet not be scorched? 
-So is he who goes in to his neighbor's wife. Whoever touches her will not be unpunished. 
+So is he who goes in to his neighbor's wife. Whoever touches her won't be unpunished. 
 Men don't despise a thief if he steals to satisfy himself when he is hungry, 
 but if he is found, he shall restore seven times. He shall give all the wealth of his house. 
 He who commits adultery with a woman is void of understanding. He who does it destroys his own soul. 
-He will get wounds and dishonor. His reproach will not be wiped away. 
+He will get wounds and dishonor. His reproach won't be wiped away. 
 Jealousy arouses the fury of the husband. He won't spare in the day of vengeance. 
 He won't regard any ransom, neither will he rest content, though you give many gifts. 

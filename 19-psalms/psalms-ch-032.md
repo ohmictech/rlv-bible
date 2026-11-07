@@ -6,6 +6,6 @@ I acknowledged my wrongdoing to you. I didn't hide my guilt. I said, I will conf
 This, let everyone who is godly pray to you in a time when you may be found. Surely when the great waters overflow, they shall not reach to him. 
 You are my hiding place. You will preserve me from trouble. You will surround me with songs of deliverance. Selah. 
 I will instruct you and teach you in the way which you shall go. I will counsel you with my eye on you. 
-Don't be like the horse, or like the mule, which have no understanding, who are controlled by bit and bridle, or else they will not come near to you. 
+Don't be like the horse, or like the mule, which have no understanding, who are controlled by bit and bridle, or else they won't come near to you. 
 Many sorrows come to the guilty, but loving kindness shall surround him who trusts in God. 
 Be glad in God, and rejoice, you righteous! Shout for joy, all you who are upright in heart! 

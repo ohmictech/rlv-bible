@@ -1,7 +1,7 @@
 ﻿The words of King Lemuel, the revelation which his mother taught him: 
 "Oh, my son! Oh, son of my womb! Oh, son of my vows! 
 Don't give your strength to women, nor your ways to that which destroys kings. 
-It is not for kings, Lemuel, it is not for kings to drink wine, nor for princes to say, 'Where is strong drink?' 
+It isn't for kings, Lemuel, it isn't for kings to drink wine, nor for princes to say, 'Where is strong drink?' 
 lest they drink, and forget the law, and pervert the justice due to anyone who is afflicted. 
 Give strong drink to him who is ready to perish, and wine to the bitter in soul. 
 Let him drink, and forget his poverty, and remember his misery no more. 
@@ -18,7 +18,7 @@ She arms her waist with strength, and makes her arms strong.
 She perceives that her merchandise is profitable. Her lamp doesn't go out by night. 
 She lays her hands to the distaff, and her hands hold the spindle. 
 She opens her arms to the poor; yes, she extends her hands to the needy. 
-She is not afraid of the snow for her household, for all her household are clothed with scarlet. 
+She isn't afraid of the snow for her household, for all her household are clothed with scarlet. 
 She makes for herself carpets of tapestry. Her clothing is fine linen and purple. 
 Her husband is respected in the gates, when he sits among the elders of the land. 
 She makes linen garments and sells them, and delivers sashes to the merchant. 

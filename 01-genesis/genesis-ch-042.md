@@ -8,7 +8,7 @@ Joseph saw his brothers, and he recognized them, but acted like a stranger to th
 Joseph recognized his brothers, but they didn't recognize him. 
 Joseph remembered the dreams which he dreamed about them, and said to them, "You are spies! You have come to see the nakedness of the land." 
 They said to him, "No, my lord, but your servants have come to buy food. 
-We are all one man's sons; we are honest men. Your servants are not spies." 
+We are all one man's sons; we are honest men. Your servants aren't spies." 
 He said to them, "No, but you have come to see the nakedness of the land!" 
 They said, "We, your servants, are twelve brothers, the sons of one man in the land of Canaan; and look, the youngest is today with our father, and one is no more." 
 Joseph said to them, "It is like I told you, saying, 'You are spies!' 
@@ -31,7 +31,7 @@ They came to Jacob their father, to the land of Canaan, and told him all that ha
 We said to him, 'We are honest men. We are no spies. 
 We are twelve brothers, sons of our father; one is no more, and the youngest is today with our father in the land of Canaan.' 
 The man, the lord of the land, said to us, 'By this I will know that you are honest men: leave one of your brothers with me, and take grain for the famine of your houses, and go your way. 
-Bring your youngest brother to me. Then I will know that you are not spies, but that you are honest men. So I will deliver your brother to you, and you shall trade in the land.'" 
+Bring your youngest brother to me. Then I will know that you aren't spies, but that you are honest men. So I will deliver your brother to you, and you shall trade in the land.'" 
 As they emptied their sacks, look, each man's bundle of money was in his sack. When they and their father saw their bundles of money, they were afraid. 
 Jacob, their father, said to them, "You have bereaved me of my children! Joseph is no more, Simeon is no more, and you want to take Benjamin away. All these things are against me." 
 Reuben spoke to his father, saying, "Kill my two sons, if I don't bring him to you. Entrust him to my care, and I will bring him to you again." 

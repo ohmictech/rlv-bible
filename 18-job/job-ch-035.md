@@ -10,7 +10,7 @@ Your guilt may hurt a man as you are, and your righteousness may profit a son of
 But no one says, 'Where is God my Maker, who gives songs in the night, 
 who teaches us more than the animals of the earth, and makes us wiser than the birds of the sky?' 
 There they cry, but no one answers, because of the pride of bad men. 
-Surely God will not hear an empty cry, neither will the Almighty regard it. 
+Surely God won't hear an empty cry, neither will the Almighty regard it. 
 How much less when you say you don't see him. The cause is before him, and you wait for him! 
-But now, because he has not visited in his anger, neither does he greatly regard arrogance, 
+But now, because he hasn't visited in his anger, neither does he greatly regard arrogance, 
 So Job opens his mouth with empty talk, and he multiplies words without knowledge." 

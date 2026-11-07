@@ -1,16 +1,16 @@
 ﻿Now there was a man of Benjamin, whose name was Kish the son of Abiel, the son of Zeror, the son of Becorath, the son of Aphiah, the son of a Benjamite, a mighty man of valor. 
-He had a son whose name was Saul, an impressive young man; and there was not among the children of Israel a more handsome person than he. From his shoulders and upward he was taller than any of the people. 
+He had a son whose name was Saul, an impressive young man; and there wasn't among the children of Israel a more handsome person than he. From his shoulders and upward he was taller than any of the people. 
 The donkeys of Kish, Saul's father, were lost. Kish said to Saul his son, "Now take one of the servants with you, and arise, go look for the donkeys." 
 He passed through the hill country of Ephraim, and passed through the land of Shalishah, but they didn't find them. Then they passed through the land of Shaalim, and they weren't there. Then he passed through the land of the Benjamites, but they didn't find them. 
 When they had come to the land of Zuph, Saul said to his servant who was with him, "Come! Let's return, lest my father stop caring about the donkeys and be anxious for us." 
 The servant said to him, "Look now, there is a man of God in this city, and he is a man who is held in honor. All that he says surely happens. Now let's go there. Perhaps he can tell us which way to go." 
-Then Saul said to his servant, "But look, if we go, what should we bring the man? The bread is spent in our sacks, and there is not a present to bring to the man of God. What do we have?" 
+Then Saul said to his servant, "But look, if we go, what should we bring the man? The bread is spent in our sacks, and there isn't a present to bring to the man of God. What do we have?" 
 The servant answered Saul again and said, "Look, I have in my hand the fourth part of a shekel of silver. I will give that to the man of God, to tell us our way." 
 (In earlier times in Israel, when a man went to inquire of God, he said, "Come! Let's go to the seer;" for he who is now called a spokesman was before called a seer.) 
 Then Saul said to his servant, "Well said. Come! Let's go." So they went to the city where the man of God was. 
 As they went up the ascent to the city, they found young maidens going out to draw water, and said to them, "Is the seer here?" 
 They answered them and said, "He is. Look, he is before you. Hurry now, for he has come today into the city; for the people have a sacrifice today in the high place. 
-As soon as you have come into the city, you will immediately find him before he goes up to the high place to eat; for the people will not eat until he comes, because he blesses the sacrifice. Afterwards those who are invited eat. Now go up; for at this time you will find him." 
+As soon as you have come into the city, you will immediately find him before he goes up to the high place to eat; for the people won't eat until he comes, because he blesses the sacrifice. Afterwards those who are invited eat. Now go up; for at this time you will find him." 
 They went up to the city. As they came within the city, look, Samuel came out toward them to go up to the high place. 
 Now God had revealed to Samuel a day before Saul came, saying, 
 "Tomorrow about this time I will send you a man out of the land of Benjamin, and you shall anoint him to be prince over my people Israel. He will save my people out of the hand of the Philistines; for I have looked upon my people, because their cry has come to me." 

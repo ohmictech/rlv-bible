@@ -9,7 +9,7 @@ With difficulty sailing along it we came to a certain place called Fair Havens, 
 When much time had passed and the voyage was now dangerous because the Fast had now already gone by, Paul admonished them 
 and said to them, "Sirs, I perceive that the voyage will be with injury and much loss, not only of the cargo and the ship, but also of our lives." 
 But the centurion gave more heed to the master and to the owner of the ship than to those things which were spoken by Paul. 
-Because the haven was not suitable to winter in, the majority advised going to sea from there, if by any means they could reach Phoenix and winter there, which is a port of Crete, looking southwest and northwest. 
+Because the haven wasn't suitable to winter in, the majority advised going to sea from there, if by any means they could reach Phoenix and winter there, which is a port of Crete, looking southwest and northwest. 
 When the south wind blew softly, supposing that they had obtained their purpose, they weighed anchor and sailed along Crete, close to shore. 
 But before long, a stormy wind beat down from shore, which is called Euroclydon. 
 When the ship was caught and couldn't face the wind, we gave way to it and were driven along. 

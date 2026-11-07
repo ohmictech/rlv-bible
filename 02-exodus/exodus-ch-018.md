@@ -14,8 +14,8 @@ On the next day, Moses sat to judge the people, and the people stood around Mose
 When Moses' father-in-law saw all that he did to the people, he said, "What is this thing that you do for the people? Why do you sit alone, and everyone stand around you from morning to evening?" 
 Moses said to his father-in-law, "Because the people come to me to inquire of God. 
 When they have a matter, they come to me, and I judge between a man and his neighbor, and I make them know the statutes of God, and his laws." 
-Moses' father-in-law said to him, "The thing that you do is not good. 
-You will surely wear away, both you, and this people that is with you; for the thing is too heavy for you. You are not able to perform it yourself alone. 
+Moses' father-in-law said to him, "The thing that you do isn't good. 
+You will surely wear away, both you, and this people that is with you; for the thing is too heavy for you. You aren't able to perform it yourself alone. 
 Listen now to my voice. I will give you counsel, and God be with you. You represent the people before God, and bring the causes to God. 
 You shall teach them the statutes and the laws, and shall show them the way in which they must walk, and the work that they must do. 
 Moreover you shall provide out of everyone able men which fear God: men of truth, hating unjust gain; and place such over them, to be rulers of thousands, rulers of hundreds, rulers of fifties, and rulers of tens. 

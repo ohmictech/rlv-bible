@@ -18,7 +18,7 @@ The merciful man does good to his own soul, but he who is cruel troubles his own
 Wicked people earn deceitful wages, but one who sows righteousness reaps a sure reward. 
 He who is truly righteous gets life. He who pursues bad gets death. 
 Those who are perverse in heart are an abomination to God, but those whose ways are blameless are his delight. 
-Most certainly, the bad man will not be unpunished, but the offspring of the righteous will be delivered. 
+Most certainly, the bad man won't be unpunished, but the offspring of the righteous will be delivered. 
 Like a gold ring in a pig's snout, is a beautiful woman who lacks discretion. 
 The desire of the righteous is only good. The expectation of the guilty is wrath. 
 There is one who scatters, and increases yet more. There is one who withholds more than is appropriate, but gains poverty. 

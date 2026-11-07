@@ -3,16 +3,16 @@ the king said to Nathan the spokesman, "See now, I dwell in a house of cedar, bu
 Nathan said to the king, "Go, do all that is in your heart, for God is with you." 
 That same night, God's word came to Nathan, saying, 
 "Go and tell my servant David, 'God says, "Should you build me a house for me to dwell in? 
-I have not lived in a house since the day that I brought the children of Israel up out of Egypt, even to this day, but have moved around in a tent and in a tabernacle. 
+I haven't lived in a house since the day that I brought the children of Israel up out of Egypt, even to this day, but have moved around in a tent and in a tabernacle. 
 In all places in which I have walked with all the children of Israel, did I say a word to anyone from the tribes of Israel whom I commanded to be shepherd of my people Israel, saying, 'Why have you not built me a house of cedar?'"' 
 Now tell my servant David this: 'The God of Armies says, "I took you from the sheep pen, from following the sheep, to be prince over my people, over Israel. 
 I have been with you wherever you went, and have cut off all your enemies from before you. I will make you a great name, like the name of the great ones who are on the earth. 
-I will appoint a place for my people Israel, and will plant them, that they may dwell in their own place and be moved no more. The children of guilt will not afflict them any more, as at the first, 
+I will appoint a place for my people Israel, and will plant them, that they may dwell in their own place and be moved no more. The children of guilt won't afflict them any more, as at the first, 
 and as from the day that I commanded judges to be over my people Israel. I will cause you to rest from all your enemies. Moreover God tells you that God will make you a house. 
 When your days are fulfilled and you sleep with your fathers, I will set up your offspring after you, who will proceed out of your body, and I will establish his kingdom. 
 He will build a house for my name, and I will establish the throne of his kingdom for the eras. 
 I will be his father, and he will be my son. If he commits guilt, I will chasten him with the rod of men and with the stripes of the children of men; 
-but my loving kindness will not depart from him, as I took it from Saul, whom I put away before you. 
+but my loving kindness won't depart from him, as I took it from Saul, whom I put away before you. 
 Your house and your kingdom will be made sure for the eras before you. Your throne will be established for the eras."'" 
 Nathan spoke to David all these words, and according to all this vision. 
 Then David the king went in and sat before God; and he said, "Who am I, God, and what is my house, that you have brought me this far? 

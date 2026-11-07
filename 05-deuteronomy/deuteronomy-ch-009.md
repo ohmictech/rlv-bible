@@ -25,5 +25,5 @@ You have been rebellious against God from the day that I knew you.
 So I fell down before God the forty days and forty nights that I fell down, because God had said he would destroy you. 
 I prayed to God, and said, "God, don't destroy your people and your inheritance that you have bought back through your greatness, that you have brought out of Egypt with a mighty hand. 
 Remember your servants, Abraham, Isaac, and Jacob. Don't look at the stubbornness of this people, nor at their guilt, nor at their wrongdoing, 
-lest the land you brought us out from say, 'Because God was not able to bring them into the land which he promised to them, and because he hated them, he has brought them out to kill them in the wilderness.' 
+lest the land you brought us out from say, 'Because God wasn't able to bring them into the land which he promised to them, and because he hated them, he has brought them out to kill them in the wilderness.' 
 Yet they are your people and your inheritance, which you brought out by your great power and by your outstretched arm." 

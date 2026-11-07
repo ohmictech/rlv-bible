@@ -1,5 +1,5 @@
 ﻿Now in those days, when the number of the students was multiplying, a complaint arose from the Greek-speaking Jews against the Hebrew-speaking ones, because their widows were neglected in the daily service. 
-The twelve summoned the crowd of students and said, "It is not right for us to neglect the word of God in order to serve tables. 
+The twelve summoned the crowd of students and said, "It isn't right for us to neglect the word of God in order to serve tables. 
 So, select from among you, brothers and sisters, seven men of good reputation, full of the Holy Spirit and of wisdom, whom we may appoint over this business. 
 But we will continue steadfastly in prayer and in the ministry of the word." 
 These words pleased the whole crowd. They chose Stephen, a man full of trust and of the Holy Spirit, Philip, Prochorus, Nicanor, Timon, Parmenas, and Nicolaus, a convert of Antioch, 

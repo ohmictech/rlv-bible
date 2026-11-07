@@ -1,5 +1,5 @@
 ﻿Now when Athaliah the mother of Ahaziah saw that her son was dead, she arose and destroyed all the royal offspring. 
-But Jehosheba, the daughter of King Joram, sister of Ahaziah, took Joash the son of Ahaziah, and stole him away from among the king's sons who were slain, even him and his nurse, and put them in the bedroom; and they hid him from Athaliah, so that he was not slain. 
+But Jehosheba, the daughter of King Joram, sister of Ahaziah, took Joash the son of Ahaziah, and stole him away from among the king's sons who were slain, even him and his nurse, and put them in the bedroom; and they hid him from Athaliah, so that he wasn't slain. 
 He was with her hidden in God's house six years while Athaliah reigned over the land. 
 In the seventh year Jehoiada sent and fetched the captains over hundreds of the Carites and of the guard, and brought them to him into God's house; and he made a covenant with them, and made a covenant with them in God's house, and showed them the king's son. 
 He commanded them, saying, "This is what you must do: a third of you, who come in on the Sabbath, shall be keepers of the watch of the king's house; 

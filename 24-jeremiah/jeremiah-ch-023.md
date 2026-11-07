@@ -1,5 +1,5 @@
 ﻿"Woe to the shepherds who destroy and scatter the sheep of my pasture!" says God. 
-So the God of Israel says against the shepherds who feed my people: "You have scattered my flock, driven them away, and have not visited them. Look, I will visit on you the bad of your doings," says God. 
+So the God of Israel says against the shepherds who feed my people: "You have scattered my flock, driven them away, and haven't visited them. Look, I will visit on you the bad of your doings," says God. 
 "I will gather the remnant of my flock out of all the countries where I have driven them, and will bring them again to their folds; and they will be fruitful and multiply. 
 I will set up shepherds over them who will feed them. They will no longer be afraid or dismayed, neither will any be lacking," says God. 
 "Look, the days come," says God, "that I will raise to David a righteous Branch; and he will reign as king and deal wisely, and will execute justice and righteousness in the land. 
@@ -7,7 +7,7 @@ In his days Judah will be saved, and Israel will dwell safely. This is his name 
 "So, look, the days come," says God, "that they will no more say, 'As God lives, who brought up the children of Israel out of the land of Egypt;' 
 but, 'As God lives, who brought up and who led the offspring of the house of Israel out of the north country, and from all the countries where I had driven them.' Then they will dwell in their own land." 
 Concerning the spokesmen: My heart within me is broken. All my bones shake. I am like a drunken man, and like a man whom wine has overcome, because of God, and because of his holy words. 
-"The land is full of adulterers; for because of the curse the land mourns. The pastures of the wilderness have dried up. Their course is bad, and their might is not right; 
+"The land is full of adulterers; for because of the curse the land mourns. The pastures of the wilderness have dried up. Their course is bad, and their might isn't right; 
 for both spokesman and priest are profane. Yes, in my house I have found their guilt," says God. 
 So their way will be to them as slippery places in the darkness. They will be driven on, and fall therein; for I will bring bad on them, even the year of their visitation," says God. 
 "I have seen folly in the spokesmen of Samaria. They prophesied by Baal, and caused my people Israel to err. 
@@ -17,7 +17,7 @@ The God of Armies says, "Don't listen to the words of the spokesmen who prophesy
 They say continually to those who despise me, 'God has said, "You will have peace;"' and to everyone who walks in the stubbornness of his own heart they say, 'No bad will come on you.' 
 For who has stood in the council of God, that he should perceive and hear his word? Who has listened to my word, and heard it? 
 Look, God's storm, his wrath, has gone out. Yes, a whirling storm! It will burst on the head of the guilty. 
-God's anger will not return until he has executed and performed the intents of his heart. In the latter days, you will understand it perfectly. 
+God's anger won't return until he has executed and performed the intents of his heart. In the latter days, you will understand it perfectly. 
 I didn't send these spokesmen, yet they ran. I didn't speak to them, yet they prophesied. 
 But if they had stood in my council, then they would have caused my people to hear my words, and would have turned them from their bad way, and from the bad of their doings. 
 "Am I a God at hand," says God, "and not a God afar off? 
@@ -37,4 +37,4 @@ You will mention the message from God no more, for every man's own word has beco
 You will say to the spokesman, 'What has God answered you?' and, 'What has God spoken?' 
 Although you say, 'The message from God,' God says: 'Because you say this word, "The message from God," and I have sent to you, telling you not to say, "The message from God," 
 Look, I will utterly forget you, and I will cast you off with the city that I gave to you and to your fathers, away from my presence. 
-I will bring an perpetual reproach on you, and a perpetual shame, which will not be forgotten.'" 
+I will bring an perpetual reproach on you, and a perpetual shame, which won't be forgotten.'" 

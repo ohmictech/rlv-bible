@@ -18,7 +18,7 @@ They did so; and Aaron stretched out his hand with his rod, and struck the dust 
 The magicians tried with their enchantments to produce lice, but they couldn't. There were lice on man, and on animal. 
 Then the magicians said to Pharaoh, "This is God's finger;" but Pharaoh's heart was hardened, and he didn't listen to them, as God had spoken. 
 God said to Moses, "Rise up early in the morning, and stand before Pharaoh; look, he comes out to the water; and tell him, 'This is what God says, "Let my people go, that they may serve me. 
-Else, if you will not let my people go, look, I will send swarms of flies on you, and on your servants, and on your people, and into your houses. The houses of the Egyptians shall be full of swarms of flies, and also the ground they are on. 
+Else, if you won't let my people go, look, I will send swarms of flies on you, and on your servants, and on your people, and into your houses. The houses of the Egyptians shall be full of swarms of flies, and also the ground they are on. 
 I will set apart in that day the land of Goshen, in which my people dwell, that no swarms of flies shall be there, to the end you may know that I am God on the earth. 
 I will put a division between my people and your people. This sign shall happen by tomorrow."'" 
 God did so; and there came grievous swarms of flies into the house of Pharaoh, and into his servants' houses. In all the land of Egypt the land was corrupted by reason of the swarms of flies. 

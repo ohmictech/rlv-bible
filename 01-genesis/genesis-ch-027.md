@@ -1,4 +1,4 @@
-﻿When Isaac was old, and his eyes were dim, so that he could not see, he called Esau his elder son, and said to him, "My son?" He said to him, "Here I am." 
+﻿When Isaac was old, and his eyes were dim, so that he couldn't see, he called Esau his elder son, and said to him, "My son?" He said to him, "Here I am." 
 He said, "See now, I am old. I don't know the day of my death. 
 Now, please take your weapons, your quiver and your bow, and go out to the field, and get me venison. 
 Make me savory food, such as I love, and bring it to me, that I may eat, and that my soul may bless you before I die." 

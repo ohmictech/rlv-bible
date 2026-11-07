@@ -1,6 +1,6 @@
 ﻿God said to Moses, "Now you shall see what I will do to Pharaoh, for by a strong hand he shall let them go, and by a strong hand he shall drive them out of his land." 
 God spoke to Moses, and said to him, "I am God. 
-I appeared to Abraham, to Isaac, and to Jacob, as God Almighty; but by my name God I was not known to them. 
+I appeared to Abraham, to Isaac, and to Jacob, as God Almighty; but by my name God I wasn't known to them. 
 I have also established my covenant with them, to give them the land of Canaan, the land of their travels, in which they lived as aliens. 
 Moreover I have heard the groaning of the children of Israel, whom the Egyptians keep in bondage, and I have remembered my covenant. 
 So tell the children of Israel, 'I am God, and I will bring you out from under the burdens of the Egyptians, and I will rid you out of their bondage, and I will buy you back with an outstretched arm, and with great judgments. 

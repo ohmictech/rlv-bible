@@ -17,7 +17,7 @@ Those who see you will stare at you. They will ponder you, saying, "Is this the 
 who made the world like a wilderness, and overthrew its cities, who didn't release his prisoners to their home?" 
 All the kings of the nations sleep in glory, everyone in his own house. 
 But you are cast away from your tomb like an abominable branch, clothed with the slain who are thrust through with the sword, who go down to the stones of the pit; like a dead body trodden under foot. 
-You will not join them in burial, because you have destroyed your land. You have killed your people. The offspring of those who do bad will not be named for the eras. 
+You won't join them in burial, because you have destroyed your land. You have killed your people. The offspring of those who do bad won't be named for the eras. 
 Prepare for slaughter of his children because of the guilt of their fathers, that they not rise up and possess the earth, and fill the surface of the world with cities. 
 "I will rise up against them," says the God of Armies, "and cut off from Babylon name and remnant, and son and son's son," says God. 
 "I will also make it a possession for the porcupine, and pools of water. I will sweep it with the broom of destruction," says the God of Armies. 

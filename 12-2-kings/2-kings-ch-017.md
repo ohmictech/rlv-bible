@@ -6,13 +6,13 @@ Then the king of Assyria came up throughout all the land, went up to Samaria, an
 In the ninth year of Hoshea the king of Assyria took Samaria and carried Israel away to Assyria, and placed them in Halah, and on the Habor, the river of Gozan, and in the cities of the Medes. 
 It was so because the children of Israel had wronged their God, who brought them up out of the land of Egypt from under the hand of Pharaoh king of Egypt, and had feared other gods, 
 and walked in the statutes of the nations whom God cast out from before the children of Israel, and of the kings of Israel, which they made. 
-The children of Israel secretly did things that were not right against their God; and they built high places for themselves in all their cities, from the tower of the watchmen to the fortified city; 
+The children of Israel secretly did things that weren't right against their God; and they built high places for themselves in all their cities, from the tower of the watchmen to the fortified city; 
 and they set up for themselves pillars and Asherah poles on every high hill and under every green tree; 
 and there they burned incense in all the high places, as the nations whom God carried away before them did; and they did guilty things to provoke God to anger; 
 and they served idols, of which God had said to them, "You shall not do this thing." 
 Yet God testified to Israel and to Judah, by every spokesman and every seer, saying, "Turn from your bad ways, and keep my commandments and my statutes, according to all the law which I commanded your fathers, and which I sent to you by my servants the spokesmen." 
-Notwithstanding, they would not listen, but hardened their neck like the neck of their fathers who didn't believe in their God. 
-They rejected his statutes and his covenant that he made with their fathers, and his testimonies which he testified to them; and they followed vanity, and became vain, and followed the nations that were around them, concerning whom God had commanded them that they should not do like them. 
+Notwithstanding, they wouldn't listen, but hardened their neck like the neck of their fathers who didn't believe in their God. 
+They rejected his statutes and his covenant that he made with their fathers, and his testimonies which he testified to them; and they followed vanity, and became vain, and followed the nations that were around them, concerning whom God had commanded them that they shouldn't do like them. 
 They abandoned all the commandments of their God, and made molten images for themselves, even two calves, and made an Asherah, and worshiped all the army of the sky, and served Baal. 
 They caused their sons and their daughters to pass through the fire, used divination and enchantments, and sold themselves to do that which was bad in God's sight, to provoke him to anger. 
 So God was very angry with Israel, and removed them out of his sight. There was none left but the tribe of Judah only. 
@@ -31,7 +31,7 @@ The men of Babylon made Succoth Benoth, and the men of Cuth made Nergal, and the
 and the Avvites made Nibhaz and Tartak; and the Sepharvites burned their children in the fire to Adrammelech and Anammelech, the gods of Sepharvaim. 
 So they feared God, and also made from among themselves priests of the high places for themselves, who sacrificed for them in the houses of the high places. 
 They feared God, and also served their own gods, after the ways of the nations from among whom they had been carried away. 
-To this day they do what they did before. They don't fear God, and they do not follow the statutes, or the ordinances, or the law, or the commandment which God commanded the children of Jacob, whom he named Israel; 
+To this day they do what they did before. They don't fear God, and they don't follow the statutes, or the ordinances, or the law, or the commandment which God commanded the children of Jacob, whom he named Israel; 
 with whom God had made a covenant and commanded them, saying, "You shall not fear other gods, nor bow yourselves to them, nor serve them, nor sacrifice to them; 
 but you shall fear God, who brought you up out of the land of Egypt with great power and with an outstretched arm, and you shall bow yourselves to him, and you shall sacrifice to him. 
 The statutes and the ordinances, and the law and the commandment which he wrote for you, you shall observe to do for the eras more. You shall not fear other gods. 

@@ -41,7 +41,7 @@ He answered them, "I tell you that if these were silent, the stones would cry ou
 When he came near, he saw the city and cried over it, 
 saying, "If you, even you, had known today the things which belong to your wholeness! But now, they are hidden from your eyes. 
 The days will come on you when your enemies will throw up a barricade against you, surround you, hem you in on every side, 
-and will dash you and your children within you to the ground. They will not leave in you one stone on another, because you didn't recognize the time when God came to you." 
+and will dash you and your children within you to the ground. They won't leave in you one stone on another, because you didn't recognize the time when God came to you." 
 He entered into the temple courts and began to drive out those who bought and sold in it, 
 saying to them, "It is written, 'My house shall be a house of prayer,' but you have made it a 'den of robbers'!" 
 He was teaching daily in the temple courts, but the chief priests, the Bible teachers, and the leading men among the people sought to kill him. 

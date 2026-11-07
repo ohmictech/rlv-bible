@@ -1,12 +1,12 @@
 ﻿Hezekiah sent to all Israel and Judah, and wrote letters also to Ephraim and Manasseh, that they should come to God's house at Jerusalem, to keep the Passover to the God of Israel. 
 The king had taken counsel with his princes and all the assembly in Jerusalem to keep the Passover in the second month. 
-They could not keep it at that time, because the priests had not sanctified themselves in sufficient number, and the people had not gathered themselves together to Jerusalem. 
+They couldn't keep it at that time, because the priests hadn't sanctified themselves in sufficient number, and the people hadn't gathered themselves together to Jerusalem. 
 The thing was right in the eyes of the king and of all the assembly. 
-So they established a decree to make proclamation throughout all Israel, from Beersheba even to Dan, that they should come to keep the Passover to the God of Israel, at Jerusalem, for they had not kept it in great numbers in the way it is written. 
+So they established a decree to make proclamation throughout all Israel, from Beersheba even to Dan, that they should come to keep the Passover to the God of Israel, at Jerusalem, for they hadn't kept it in great numbers in the way it is written. 
 So the couriers went with the letters from the king and his princes throughout all Israel and Judah, according to the commandment of the king, saying, "You children of Israel, turn again to the God of Abraham, Isaac, and Israel, that he may return to the remnant of you that have escaped out of the hand of the kings of Assyria. 
 Don't be like your fathers and like your brothers, who trespassed against the God of their fathers, so that he gave them up to desolation, as you see. 
 Now don't be stiff-necked, as your fathers were, but yield yourselves to God, and enter into his sanctuary, which he has sanctified for the eras, and serve your God, that his fierce anger may turn away from you. 
-If you turn again to God, your brothers and your children will find compassion with those who led them captive, and will come again into this land, because your God is gracious and merciful, and will not turn away his face from you if you return to him." 
+If you turn again to God, your brothers and your children will find compassion with those who led them captive, and will come again into this land, because your God is gracious and merciful, and won't turn away his face from you if you return to him." 
 So the couriers passed from city to city through the country of Ephraim and Manasseh, even to Zebulun, but people ridiculed them and mocked them. 
 Nevertheless some men of Asher, Manasseh, and Zebulun humbled themselves and came to Jerusalem. 
 Also the hand of God came on Judah to give them one heart, to do the commandment of the king and of the princes by God's word. 
@@ -14,8 +14,8 @@ Many people assembled at Jerusalem to keep the feast of unleavened bread in the 
 They arose and took away the altars that were in Jerusalem, and they took away all the altars for incense and threw them into the brook Kidron. 
 Then they killed the Passover on the fourteenth day of the second month. The priests and the Levites were ashamed, and sanctified themselves, and brought burnt offerings into God's house. 
 They stood in their place after their order, according to the law of Moses the man of God. The priests sprinkled the blood which they received of the hand of the Levites. 
-There were many in the assembly who had not sanctified themselves; the Levites were in charge of killing the Passovers for everyone who was not clean, to sanctify them to God. 
-A multitude of the people, even many of Ephraim, Manasseh, Issachar, and Zebulun, had not cleansed themselves, yet they ate the Passover other than the way it is written. Hezekiah had prayed for them, saying, "May the good God pardon everyone 
+There were many in the assembly who hadn't sanctified themselves; the Levites were in charge of killing the Passovers for everyone who wasn't clean, to sanctify them to God. 
+A multitude of the people, even many of Ephraim, Manasseh, Issachar, and Zebulun, hadn't cleansed themselves, yet they ate the Passover other than the way it is written. Hezekiah had prayed for them, saying, "May the good God pardon everyone 
 who sets his heart to seek the God of his fathers, even if they aren't clean according to the purification of the sanctuary." 
 God listened to Hezekiah, and healed the people. 
 The children of Israel who were present at Jerusalem kept the feast of unleavened bread seven days with great gladness. The Levites and the priests praised God day by day, singing with loud instruments to God. 

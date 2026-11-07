@@ -2,7 +2,7 @@
 "Now as soon as this letter comes to you, since your master's sons are with you, and you have chariots and horses, a fortified city also, and armor, 
 select the best and fittest of your master's sons, set him on his father's throne, and fight for your master's house." 
 But they were exceedingly afraid, and said, "Look, the two kings didn't stand before him! How then shall we stand?" 
-He who was over the household, and he who was over the city, the elders also, and those who raised the children, sent to Jehu, saying, "We are your servants, and will do all that you ask us. We will not make any man king. You do that which is good in your eyes." 
+He who was over the household, and he who was over the city, the elders also, and those who raised the children, sent to Jehu, saying, "We are your servants, and will do all that you ask us. We won't make any man king. You do that which is good in your eyes." 
 Then he wrote a letter the second time to them, saying, "If you are on my side, and if you will listen to my voice, take the heads of the men who are your master's sons, and come to me to Jezreel by tomorrow this time." Now the king's sons, being seventy persons, were with the great men of the city, who brought them up. 
 When the letter came to them, they took the king's sons and killed them, even seventy people, and put their heads in baskets, and sent them to him to Jezreel. 
 A messenger came and told him, "They have brought the heads of the king's sons." He said, "Lay them in two heaps at the entrance of the gate until the morning." 
@@ -18,7 +18,7 @@ When he came to Samaria, he struck everyone who remained to Ahab in Samaria, unt
 Jehu gathered everyone together, and said to them, "Ahab served Baal a little, but Jehu will serve him much. 
 Now call to me all the spokesmen of Baal, all of his worshipers, and all of his priests. Let no one be absent, for I have a great sacrifice to Baal. Whoever is absent, he shall not live." But Jehu did deceptively, intending to destroy the worshipers of Baal. 
 Jehu said, "Sanctify a solemn assembly for Baal!" So they proclaimed it. 
-Jehu sent through all Israel; and all the worshipers of Baal came, so that there was not a man left that didn't come. They came into the house of Baal; and the house of Baal was filled from one end to another. 
+Jehu sent through all Israel; and all the worshipers of Baal came, so that there wasn't a man left that didn't come. They came into the house of Baal; and the house of Baal was filled from one end to another. 
 He said to him who kept the wardrobe, "Bring out robes for all the worshipers of Baal!" So he brought robes out to them. 
 Jehu went with Jehonadab the son of Rechab into the house of Baal. Then he said to the worshipers of Baal, "Search, and see that none of the servants of God are here with you, but only the worshipers of Baal." 
 So they went in to offer sacrifices and burnt offerings. Now Jehu had appointed for himself eighty men outside, and said, "If any of the men whom I bring into your hands escape, he who lets him go, his life shall be for the life of him." 

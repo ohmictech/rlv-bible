@@ -2,7 +2,7 @@
 down the middle of its street. On each side of the river stood the tree of real life, bearing twelve kinds of fruit, giving its fruit every month. The leaves of the tree were for the healing of the nations. 
 There will be no curse any more. The throne of God and of the Lamb will be in the city, and his slaves will serve him. 
 They will see his face, and his name will be on their foreheads. 
-There will be no night any more, and they will not need lamplight or sunlight, because the Lord God will shine on them, and they will reign through all the eras. 
+There will be no night any more, and they won't need lamplight or sunlight, because the Lord God will shine on them, and they will reign through all the eras. 
 He said to me, "These words are trustworthy and true. The Lord, the God of the spirits of the spokesmen, sent his messenger to show his slaves what must happen soon." 
 "Look, I am coming soon! Flourishing is the one who keeps the words spoken for God in this scroll." 
 I, John, am the one who heard and saw these things. When I heard and saw them, I fell down to bow at the feet of the messenger who had shown them to me. 

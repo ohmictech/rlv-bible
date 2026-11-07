@@ -10,5 +10,5 @@ Let the clothing and the horse be delivered to the hand of one of the king's mos
 Then the king said to Haman, "Hurry and take the clothing and the horse, as you have said, and do this for Mordecai the Jew, who sits at the king's gate. Let nothing fail of all that you have spoken." 
 Then Haman took the clothing and the horse, and arrayed Mordecai, and had him ride through the city square, and proclaimed before him, "Thus it shall be done to the man whom the king delights to honor!" 
 Mordecai came back to the king's gate, but Haman hurried to his house, mourning and having his head covered. 
-Haman recounted to Zeresh his wife and all his friends everything that had happened to him. Then his wise men and Zeresh his wife said to him, "If Mordecai, before whom you have begun to fall, is of Jewish descent, you will not prevail against him, but you will surely fall before him." 
+Haman recounted to Zeresh his wife and all his friends everything that had happened to him. Then his wise men and Zeresh his wife said to him, "If Mordecai, before whom you have begun to fall, is of Jewish descent, you won't prevail against him, but you will surely fall before him." 
 While they were yet talking with him, the king's eunuchs came, and hurried to bring Haman to the banquet that Esther had prepared. 

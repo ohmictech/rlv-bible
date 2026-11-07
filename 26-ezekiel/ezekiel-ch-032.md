@@ -6,7 +6,7 @@ I will lay your flesh on the mountains, and fill the valleys with your height.
 I will also water the land in which you swim with your blood, even to the mountains. The watercourses will be full of you. 
 When I extinguish you, I will cover the sky and make its stars dark. I will cover the sun with a cloud, and the moon won't give its light. 
 I will make all the bright lights of the sky dark over you, and set darkness on your land," says God. 
-"I will also trouble the hearts of many peoples, when I bring your destruction among the nations, into the countries which you have not known. 
+"I will also trouble the hearts of many peoples, when I bring your destruction among the nations, into the countries which you haven't known. 
 Yes, I will make many peoples amazed at you, and their kings will be horribly afraid for you, when I brandish my sword before them. They will tremble at every moment, every man for his own life, in the day of your fall." 
 God says: "The sword of the king of Babylon will come on you. 
 I will cause your multitude to fall by the swords of the mighty. They are all the ruthless of the nations. They will bring the pride of Egypt to nothing, and all its multitude will be destroyed. 
@@ -24,7 +24,7 @@ whose graves are set in the uttermost parts of the pit, and her company is aroun
 "There is Elam and all her multitude around her grave; everyone slain, fallen by the sword, who have gone down uncircumcised into the lower parts of the earth, who caused their terror in the land of the living, and have borne their shame with those who go down to the pit. 
 They have made Elam a bed among the slain with all her multitude. Her graves are around her, everyone uncircumcised, slain by the sword; for their terror was caused in the land of the living, and they have borne their shame with those who go down to the pit. He is put among those who are slain. 
 "There is Meshech, Tubal, and all their multitude. Their graves are around them, everyone uncircumcised, slain by the sword; for they caused their terror in the land of the living. 
-They will not lie with the mighty who are fallen of the uncircumcised, who have gone down to Hades with their weapons of war and have laid their swords under their heads. Their guilt are on their bones; for they were the terror of the mighty in the land of the living. 
+They won't lie with the mighty who are fallen of the uncircumcised, who have gone down to Hades with their weapons of war and have laid their swords under their heads. Their guilt are on their bones; for they were the terror of the mighty in the land of the living. 
 "But you will be broken among the uncircumcised, and will lie with those who are slain by the sword. 
 "There is Edom, her kings, and all her princes, who in their might are laid with those who are slain by the sword. They will lie with the uncircumcised, and with those who go down to the pit. 
 "There are the princes of the north, everyone, and all the Sidonians, who have gone down with the slain. They are put to shame in the terror which they caused by their might. They lie uncircumcised with those who are slain by the sword, and bear their shame with those who go down to the pit. 

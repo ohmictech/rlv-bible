@@ -1,6 +1,6 @@
 ﻿You shall not sacrifice to your God an ox or a sheep in which is a defect or anything bad; for that is an abomination to your God. 
 If there is found among you, within any of your gates which your God gives you, a man or woman who does that which is bad in your God's sight in transgressing his covenant, 
-and has gone and served other gods and worshiped them, or the sun, or the moon, or any of the stars of the sky, which I have not commanded, 
+and has gone and served other gods and worshiped them, or the sun, or the moon, or any of the stars of the sky, which I haven't commanded, 
 and you are told, and you have heard of it, then you shall inquire diligently. Look, if it is true, and the thing certain, that such abomination is done in Israel, 
 then you shall bring out that man or that woman who has done this bad thing to your gates, even that same man or woman; and you shall stone them to death with stones. 
 At the mouth of two witnesses, or three witnesses, he who is to die shall be put to death. At the mouth of one witness he shall not be put to death. 
@@ -12,7 +12,7 @@ According to the decisions of the law which they shall teach you, and according 
 The man who does presumptuously in not listening to the priest who stands to minister there before your God, or to the judge, even that man shall die. You shall put away the bad from Israel. 
 Everyone shall hear and fear, and do no more presumptuously. 
 When you have come to the land which your God gives you, and possess it and dwell in it, and say, "I will set a king over me, like all the nations that are around me," 
-you shall surely set him whom your God chooses as king over yourselves. You shall set as king over you one from among your brothers. You may not put a foreigner over you, who is not your brother. 
+you shall surely set him whom your God chooses as king over yourselves. You shall set as king over you one from among your brothers. You may not put a foreigner over you, who isn't your brother. 
 Only he shall not multiply horses to himself, nor cause the people to return to Egypt, to the end that he may multiply horses; because God has said to you, "You shall not go back that way again." 
 He shall not multiply wives to himself, that his heart not turn away. He shall not greatly multiply to himself silver and gold. 
 It shall be, when he sits on the throne of his kingdom, that he shall write himself a copy of this law in a book, out of that which is before the Levitical priests. 

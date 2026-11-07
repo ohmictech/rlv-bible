@@ -4,7 +4,7 @@ But not even Titus, who was with me, being a Greek, was compelled to be circumci
 This was because of the false brothers smuggled in, who slipped in to spy on the freedom we have in Christ Jesus, so that they might make us slaves, 
 to whom we gave no place in the way of subjection, not for an hour, that the truth of the Good News might continue with you. 
 But from those who were thought to be important (whatever they were makes no difference to me; God doesn't play favorites) those who were respected added nothing to me, 
-but to the contrary, when they saw that I had been trusted with the Good News for those who are not circumcised, just as Peter was for those who are circumcised, 
+but to the contrary, when they saw that I had been trusted with the Good News for those who aren't circumcised, just as Peter was for those who are circumcised, 
 for the one who worked through Peter as a sent one to the circumcised also worked through me to the nations, 
 and when they saw the gift given to me, James and Cephas and John, those who were thought to be pillars, gave Barnabas and me the right hand of partnership, that we should go to the nations and they to the circumcision. 
 They only asked us to remember the poor, which very thing I was also eager to do. 

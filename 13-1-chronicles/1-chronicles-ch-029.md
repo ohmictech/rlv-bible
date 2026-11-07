@@ -1,4 +1,4 @@
-﻿David the king said to all the assembly, "Solomon my son, whom alone God has chosen, is yet young and tender, and the work is great; for the palace is not for man, but for God. 
+﻿David the king said to all the assembly, "Solomon my son, whom alone God has chosen, is yet young and tender, and the work is great; for the palace isn't for man, but for God. 
 Now I have prepared with all my might for the house of my God the gold for the things of gold, the silver for the things of silver, the bronze for the things of bronze, iron for the things of iron, and wood for the things of wood, also onyx stones, stones to be set, stones for inlaid work of various colors, all kinds of precious stones, and marble stones in abundance. 
 In addition, because I have set my affection on the house of my God, since I have a treasure of my own of gold and silver, I give it to the house of my God, over and above all that I have prepared for the holy house: 
 even three thousand talents of gold, of the gold of Ophir, and seven thousand talents of refined silver, with which to overlay the walls of the houses; 
@@ -22,7 +22,7 @@ They sacrificed sacrifices to God and offered burnt offerings to God on the next
 and ate and drank before God on that day with great gladness. They made Solomon the son of David king the second time, and anointed him before God to be prince, and Zadok to be priest. 
 Then Solomon sat on the throne of God as king instead of David his father, and prospered; and all Israel obeyed him. 
 All the princes, the mighty men, and also all of the sons of King David submitted themselves to Solomon the king. 
-God magnified Solomon exceedingly in the sight of all Israel, and gave to him such royal majesty as had not been on any king before him in Israel. 
+God magnified Solomon exceedingly in the sight of all Israel, and gave to him such royal majesty as hadn't been on any king before him in Israel. 
 Now David the son of Jesse reigned over all Israel. 
 The time that he reigned over Israel was forty years; he reigned seven years in Hebron, and he reigned thirty-three years in Jerusalem. 
 He died at a good old age, full of days, riches, and honor; and Solomon his son reigned in his place. 

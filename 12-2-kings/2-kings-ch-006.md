@@ -16,7 +16,7 @@ When the servant of the man of God had risen early and gone out, look, an army w
 He answered, "Don't be afraid, for those who are with us are more than those who are with them." 
 Elisha prayed, and said, "God, please open his eyes, that he may see." God opened the young man's eyes, and he saw; and look, the mountain was full of horses and chariots of fire around Elisha. 
 When they came down to him, Elisha prayed to God, and said, "Please strike this people with blindness." He struck them with blindness according to Elisha's word. 
-Elisha said to them, "This is not the way, neither is this the city. Follow me, and I will bring you to the man whom you seek." He led them to Samaria. 
+Elisha said to them, "This isn't the way, neither is this the city. Follow me, and I will bring you to the man whom you seek." He led them to Samaria. 
 When they had come into Samaria, Elisha said, "God, open these men's eyes, that they may see." God opened their eyes, and they saw; and look, they were in the middle of Samaria. 
 The king of Israel said to Elisha, when he saw them, "My father, shall I strike them? Shall I strike them?" 
 He answered, "You shall not strike them. Would you strike those whom you have taken captive with your sword and with your bow? Set bread and water before them, that they may eat and drink, then go to their master." 

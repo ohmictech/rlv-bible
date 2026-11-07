@@ -4,7 +4,7 @@ While he was at Bethany, in the house of Simon the leper, as he sat at the table
 But some were indignant among themselves, saying, "Why has this perfume been wasted? 
 This could have been sold for more than three hundred silver coins and given to the poor." And they grumbled at her. 
 But Jesus said, "Leave her alone. Why are you bothering her? She has done a good deed for me. 
-You always have the poor with you, and whenever you want to, you can do them good, but you will not always have me. 
+You always have the poor with you, and whenever you want to, you can do them good, but you won't always have me. 
 She has done what she could. She has anointed my body beforehand for burial. 
 Truly I tell you, wherever this Good News is preached throughout the whole world, what this woman has done will also be spoken of in memory of her." 
 Judas Iscariot, who was one of the twelve, went to the chief priests to hand him over to them. 
@@ -18,7 +18,7 @@ When it was evening he came with the twelve.
 As they sat and were eating, Jesus said, "Truly I tell you, one of you will hand me over, one who is eating with me." 
 They began to be grieved and to ask him one by one, "Surely not I?" 
 He answered them, "It is one of the twelve, he who dips with me in the dish. 
-The Human One goes as it is written about him, but how terrible for that man who hands over the Human One! It would be better for that man if he had not been born." 
+The Human One goes as it is written about him, but how terrible for that man who hands over the Human One! It would be better for that man if he hadn't been born." 
 As they were eating, Jesus took bread, and when he had blessed it, he broke it and gave it to them, and said, "Take it. This is my body." 
 He took the cup, and when he had given thanks, he gave it to them, and they all drank from it. 
 He said to them, "This is my blood of the new binding arrangement, which is poured out for everyone. 
@@ -26,9 +26,9 @@ Truly I tell you, I will never again drink from the fruit of the vine until that
 When they had sung a hymn, they went out to the Mount of Olives. 
 Jesus said to them, "All of you will be trapped because of me tonight, for it is written, 'I will strike the shepherd, and the sheep will be scattered.' 
 However, after I am raised up, I will go before you into Galilee." 
-But Peter said to him, "Even if all are trapped, I will not be." 
+But Peter said to him, "Even if all are trapped, I won't be." 
 Jesus said to him, "Truly I tell you, today, even this night, before the rooster crows twice, you will disown me three times." 
-But he spoke all the more, "Even if I must die with you, I will not disown you." And they all said the same thing. 
+But he spoke all the more, "Even if I must die with you, I won't disown you." And they all said the same thing. 
 They came to a place named Gethsemane. He said to his students, "Sit here while I pray." 
 He took Peter, James, and John with him, and began to be greatly troubled and distressed. 
 He said to them, "My life is crushed with grief, even to death. Stay here and stay awake." 

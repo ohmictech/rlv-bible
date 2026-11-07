@@ -7,7 +7,7 @@ Can that which has no flavor be eaten without salt? Or is there any taste in the
 My soul refuses to touch them. They are as loathsome food to me. 
 "Oh that I might have my request, that God would grant the thing that I long for, 
 even that it would please God to crush me; that he would let loose his hand, and cut me off! 
-Let it still be my consolation, yes, let me exult in pain that doesn't spare, that I have not denied the words of the Holy One. 
+Let it still be my consolation, yes, let me exult in pain that doesn't spare, that I haven't denied the words of the Holy One. 
 What is my strength, that I should wait? What is my end, that I should be patient? 
 Is my strength the strength of stones? Or is my flesh of bronze? 
 Isn't it that I have no help in me, that wisdom is driven away from me? 
@@ -25,6 +25,6 @@ or, 'Deliver me from the adversary's hand'? or, 'Buy me back from the hand of th
 How forcible are words of uprightness! But your reproof, what does it reprove? 
 Do you intend to reprove words, since the speeches of one who is desperate are as wind? 
 Yes, you would even cast lots for the fatherless, and make merchandise of your friend. 
-Now be pleased to look at me, for surely I will not lie to your face. 
+Now be pleased to look at me, for surely I won't lie to your face. 
 Please return. Let there be no injustice. Yes, return again. My cause is righteous. 
 Is there injustice on my tongue? Can't my taste discern mischievous things? 

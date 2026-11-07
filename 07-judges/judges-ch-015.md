@@ -9,8 +9,8 @@ He struck them hip and thigh with a great slaughter; and he went down and lived 
 Then the Philistines went up, encamped in Judah, and spread themselves in Lehi. 
 The men of Judah said, "Why have you come up against us?" They said, "We have come up to bind Samson, to do to him as he has done to us." 
 Then three thousand men of Judah went down to the cave in Etam's rock, and said to Samson, "Don't you know that the Philistines are rulers over us? What then is this that you have done to us?" He said to them, "As they did to me, so I have done to them." 
-They said to him, "We have come down to bind you, that we may deliver you into the hand of the Philistines." Samson said to them, "Swear to me that you will not attack me yourselves." 
-They spoke to him, saying, "No, but we will bind you securely and deliver you into their hands; but surely we will not kill you." They bound him with two new ropes, and brought him up from the rock. 
+They said to him, "We have come down to bind you, that we may deliver you into the hand of the Philistines." Samson said to them, "Swear to me that you won't attack me yourselves." 
+They spoke to him, saying, "No, but we will bind you securely and deliver you into their hands; but surely we won't kill you." They bound him with two new ropes, and brought him up from the rock. 
 When he came to Lehi, the Philistines shouted as they met him. Then God's Spirit came mightily on him, and the ropes that were on his arms became as flax that was burned with fire; and his bands dropped from off his hands. 
 He found a fresh jawbone of a donkey, put out his hand, took it, and struck a thousand men with it. 
 Samson said, "With the jawbone of a donkey, heaps on heaps; with the jawbone of a donkey I have struck a thousand men." 

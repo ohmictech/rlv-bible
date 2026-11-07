@@ -13,5 +13,5 @@ saying, "Amen! Blessing, weight, wisdom, thanksgiving, honor, power, and might b
 One of the elders spoke up and said to me, "These who are dressed in the white robes, who are they, and where did they come from?" 
 I told him, "Sir, you know." He said to me, "These are the ones who came through the great hard times. They washed their robes and made them white in the Lamb's blood. 
 That is why they are in front of the throne of God, and they serve him day and night in his temple. The one who sits on the throne will spread his tent over them. 
-They will never be hungry or thirsty again. The sun will not beat down on them, nor any scorching heat, 
+They will never be hungry or thirsty again. The sun won't beat down on them, nor any scorching heat, 
 because the Lamb in the middle of the throne will shepherd them and lead them to springs of living water. And God will wipe away every tear from their eyes." 

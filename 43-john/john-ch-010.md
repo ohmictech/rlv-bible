@@ -13,17 +13,17 @@ He who is a hired hand, and not a shepherd, who doesn't own the sheep, sees the 
 The hired hand flees because he is a hired hand and doesn't care for the sheep. 
 I am the good shepherd. I know my own, and I'm known by my own; 
 even as the Father knows me, and I know the Father. I lay down my life for the sheep. 
-I have other sheep which are not of this fold. I must bring them also, and they will hear my voice. They will become one flock with one shepherd. 
+I have other sheep which aren't of this fold. I must bring them also, and they will hear my voice. They will become one flock with one shepherd. 
 So the Father loves me, because I lay down my life, that I may take it again. 
 No one takes it away from me, but I lay it down by myself. I have authority to lay it down, and I have authority to take it again. I received this commandment from my Father." 
 So a division arose again among the Jewish leaders because of these words. 
 Many of them said, "He has an unclean spirit and is out of his mind! Why do you listen to him?" 
-Others said, "These are not the sayings of one with an unclean spirit. It isn't possible for an unclean spirit to open the eyes of the blind, is it?" 
+Others said, "These aren't the sayings of one with an unclean spirit. It isn't possible for an unclean spirit to open the eyes of the blind, is it?" 
 It was the Feast of the Dedication at Jerusalem. 
 It was winter, and Jesus was walking in the temple courts, in Solomon's covered walkway. 
 The Jewish leaders came around him and said to him, "How long will you hold us in suspense? If you are the Christ, tell us plainly." 
 Jesus answered them, "I told you, and you don't trust. The deeds that I do in my Father's name, these testify about me. 
-But you don't trust, because you are not of my sheep, as I told you. 
+But you don't trust, because you aren't of my sheep, as I told you. 
 My sheep hear my voice, and I know them, and they follow me. 
 I give them the real life of the era. They will never be lost, and no one will snatch them out of my hand. 
 My Father who has given them to me is greater than all. No one is able to snatch them out of my Father's hand. 

@@ -1,11 +1,11 @@
 ﻿The word that came to Jeremiah concerning everyone in Judah, in the fourth year of Jehoiakim the son of Josiah, king of Judah (this was the first year of Nebuchadnezzar king of Babylon), 
 which Jeremiah the spokesman spoke to everyone in Judah, and to all the inhabitants of Jerusalem: 
-From the thirteenth year of Josiah the son of Amon, king of Judah, even to this day, these twenty-three years, God's word has come to me, and I have spoken to you, rising up early and speaking; but you have not listened. 
-God has sent to you all his servants the spokesmen, rising up early and sending them (but you have not listened or inclined your ear to hear), 
+From the thirteenth year of Josiah the son of Amon, king of Judah, even to this day, these twenty-three years, God's word has come to me, and I have spoken to you, rising up early and speaking; but you haven't listened. 
+God has sent to you all his servants the spokesmen, rising up early and sending them (but you haven't listened or inclined your ear to hear), 
 saying, "Return now everyone from his bad way, and from the bad of your doings, and dwell in the land that God has given to you and to your fathers, from of old and even for the eras more. 
 Don't go after other gods to serve them or worship them, and don't provoke me to anger with the work of your hands; then I will do you no harm." 
-"Yet you have not listened to me," says God, "that you may provoke me to anger with the work of your hands to your own hurt." 
-So the God of Armies says: "Because you have not heard my words, 
+"Yet you haven't listened to me," says God, "that you may provoke me to anger with the work of your hands to your own hurt." 
+So the God of Armies says: "Because you haven't heard my words, 
 Look, I will send and take all the families of the north," says God, "and I will send to Nebuchadnezzar the king of Babylon, my servant, and will bring them against this land, and against its inhabitants, and against all these nations around. I will utterly destroy them, and make them an astonishment, and a hissing, and perpetual desolations. 
 Moreover I will take from them the voice of mirth and the voice of gladness, the voice of the bridegroom and the voice of the bride, the sound of the millstones, and the light of the lamp. 
 This whole land will be a desolation, and an astonishment; and these nations will serve the king of Babylon seventy years. 
@@ -26,7 +26,7 @@ and all the kings of Zimri, all the kings of Elam, and all the kings of the Mede
 and all the kings of the north, far and near, one with another; and all the kingdoms of the world, which are on the surface of the earth. The king of Sheshach will drink after them. 
 "You shall tell them, 'The God of Armies, the God of Israel says: "Drink, and be drunk, vomit, fall, and rise no more, because of the sword which I will send among you."' 
 It shall be, if they refuse to take the cup at your hand to drink, then you shall tell them, 'The God of Armies says: "You shall surely drink. 
-For, look, I begin to work bad at the city which is called by my name; and should you be utterly unpunished? You will not be unpunished; for I will call for a sword on all the inhabitants of the earth, says the God of Armies."' 
+For, look, I begin to work bad at the city which is called by my name; and should you be utterly unpunished? You won't be unpunished; for I will call for a sword on all the inhabitants of the earth, says the God of Armies."' 
 "Therefore prophesy against them all these words, and tell them, "'God will roar from on high, and utter his voice from his holy habitation. He will mightily roar against his fold. He will give a shout, as those who tread grapes, against all the inhabitants of the earth. 
 A noise will come even to the end of the earth; for God has a controversy with the nations. He will enter into judgment with all flesh. As for the guilty, he will give them to the sword,"' says God." 
 The God of Armies says, "Look, bad will go out from nation to nation, and a great storm will be raised up from the uttermost parts of the earth." 

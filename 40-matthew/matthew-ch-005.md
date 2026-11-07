@@ -18,19 +18,19 @@ Even so, let your light shine in front of people, that they may see your good de
 Truly, I tell you, until the sky and earth pass away, not even one smallest letter or one tiny pen stroke will in any way pass away from the law, until all things are accomplished. 
 So whoever breaks one of the least of these commands and teaches others to do the same will be called least in the reign of the sky. But whoever does them and teaches them will be called great in the reign of the sky. 
 I tell you the truth, unless your rightness runs deeper than the Bible teachers and strict religious ones, there is no way you will enter into the reign of the sky. 
-"You have heard that it was said to the ancient ones, 'You should not murder,' and 'Whoever murders will be liable to the verdict.' 
+"You have heard that it was said to the ancient ones, 'You shouldn't murder,' and 'Whoever murders will be liable to the verdict.' 
 But I tell you that everyone who is angry with his brother without a cause will be liable to the verdict. Whoever says to his brother, 'Empty head!' will be in danger of the council. Whoever says, 'Moron!' will be in danger of the fire of Gehenna. 
 "So if you are offering your gift at the altar and there remember that your brother has something against you, 
 leave your gift there before the altar, and go your way. First be made right with your brother, and then come and offer your gift. 
 Agree with your adversary quickly while you are with him on the way, because the prosecutor might hand you over to the judge, and the judge hand you over to the officer, and you be thrown into prison. 
 Truly I tell you, you will by no means get out of there until you have paid the last small copper coin. 
-"You have heard that it was said, 'You should not cheat,' 
+"You have heard that it was said, 'You shouldn't cheat,' 
 but I tell you that everyone who looks at a woman and craves her has already cheated with her in his heart. 
 If your right eye traps you, tear it out and throw it away from you. It is better for you that one part of your body be broken up than that your whole body be broken up into Gehenna. 
 If your right hand traps you, cut it off, and throw it away from you. It is better for you that one part of your body be broken up, than that your whole body be broken up into Gehenna. 
 "It was also said: 'Whoever wants to split from his wife should give her a certificate of divorce.' 
 But I tell you: everyone who splits from his wife, except for the matter of sleeping around, causes her to be unfaithful, and whoever marries a woman who has been split from cheats." 
-"Again you have heard that it was said to the ones long ago, 'You should not make false vows, but follow through with your vows to the Lord' 
+"Again you have heard that it was said to the ones long ago, 'You shouldn't make false vows, but follow through with your vows to the Lord' 
 but I tell you, don't make a vow at all: neither by the sky, for it is the throne of God, 
 nor by the earth, for it is the footstool of his feet, nor by Jerusalem, for it is the city of the great King. 
 Neither will you swear by your head, for you can't make one hair white or black. 

@@ -7,7 +7,7 @@ The enemy is overtaken by endless ruin. The very memory of the cities which you 
 But God reigns for the eras. He has prepared his throne for judgment. 
 He will judge the world in righteousness. He will administer judgment to the peoples in uprightness. 
 God will also be a high tower for the oppressed; a high tower in times of trouble. 
-Those who know your name will put their trust in you, for you, God, have not forsaken those who seek you. 
+Those who know your name will put their trust in you, for you, God, haven't forsaken those who seek you. 
 Sing praises to God, who dwells in Zion, and declare among the people what he has done. 
 He who avenges blood remembers them. He doesn't forget the cry of the afflicted. 
 Have mercy on me, God. See my affliction by those who hate me, and lift me up from the gates of death, 

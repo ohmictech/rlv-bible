@@ -23,7 +23,7 @@ Laban gathered together all the men of the place, and made a feast.
 In the evening, he took Leah his daughter, and brought her to Jacob. He went in to her. 
 Laban gave Zilpah his servant to his daughter Leah for a servant. 
 In the morning, look, it was Leah! He said to Laban, "What is this you have done to me? Didn't I serve with you for Rachel? Why then have you deceived me?" 
-Laban said, "It is not done so in our place, to give the younger before the firstborn. 
+Laban said, "It isn't done so in our place, to give the younger before the firstborn. 
 Fulfill the week of this one, and we will give you the other also for the service which you will serve with me for seven more years." 
 Jacob did so, and fulfilled her week. He gave him Rachel his daughter as wife. 
 Laban gave Bilhah, his servant, to his daughter Rachel to be her servant. 

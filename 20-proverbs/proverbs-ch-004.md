@@ -9,7 +9,7 @@ Esteem her, and she will exalt you. She will bring you to honor when you embrace
 She will give to your head a garland of grace. She will deliver a crown of splendor to you." 
 Listen, my son, and receive my sayings. The years of your life will be many. 
 I have taught you in the way of wisdom. I have led you in straight paths. 
-When you go, your steps will not be hampered. When you run, you will not stumble. 
+When you go, your steps won't be hampered. When you run, you won't stumble. 
 Take firm hold of instruction. Don't let her go. Keep her, for she is your life. 
 Don't enter into the path of the guilty. Don't walk in the way of bad men. 
 Avoid it, and don't pass by it. Turn from it, and pass on. 

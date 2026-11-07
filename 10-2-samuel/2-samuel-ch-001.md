@@ -7,7 +7,7 @@ The young man who told him said, "As I happened by chance on Mount Gilboa, look,
 When he looked behind him, he saw me and called to me. I answered, 'Here I am.' 
 He said to me, 'Who are you?' I answered him, 'I am an Amalekite.' 
 He said to me, 'Please stand beside me, and kill me, for anguish has taken hold of me because my life lingers in me.' 
-So I stood beside him and killed him, because I was sure that he could not live after he had fallen. I took the crown that was on his head and the bracelet that was on his arm, and have brought them here to my lord." 
+So I stood beside him and killed him, because I was sure that he couldn't live after he had fallen. I took the crown that was on his head and the bracelet that was on his arm, and have brought them here to my lord." 
 Then David took hold of his clothes and tore them; and all the men who were with him did likewise. 
 They mourned, wept, and fasted until evening for Saul and for Jonathan his son, and for the people of God, and for the house of Israel, because they had fallen by the sword. 
 David said to the young man who told him, "Where are you from?" He answered, "I am the son of a foreigner, an Amalekite." 
@@ -18,9 +18,9 @@ David lamented with this lamentation over Saul and over Jonathan his son
 (and he commanded them to teach the children of Judah the song of the bow; look, it is written in the book of Jashar): 
 "Your glory, Israel, was slain on your high places! How the mighty have fallen! 
 Don't tell it in Gath. Don't publish it in the streets of Ashkelon, lest the daughters of the Philistines rejoice, lest the daughters of the uncircumcised triumph. 
-You mountains of Gilboa, let there be no dew or rain on you, and no fields of offerings; for there the shield of the mighty was defiled and cast away, the shield of Saul was not anointed with oil. 
+You mountains of Gilboa, let there be no dew or rain on you, and no fields of offerings; for there the shield of the mighty was defiled and cast away, the shield of Saul wasn't anointed with oil. 
 From the blood of the slain, from the fat of the mighty, Jonathan's bow didn't turn back. Saul's sword didn't return empty. 
-Saul and Jonathan were lovely and pleasant in their lives. In their death, they were not divided. They were swifter than eagles. They were stronger than lions. 
+Saul and Jonathan were lovely and pleasant in their lives. In their death, they weren't divided. They were swifter than eagles. They were stronger than lions. 
 You daughters of Israel, weep over Saul, who clothed you delicately in scarlet, who put ornaments of gold on your clothing. 
 How the mighty have fallen in the middle of the battle! Jonathan was slain on your high places. 
 I am distressed for you, my brother Jonathan. You have been very pleasant to me. Your love to me was wonderful, surpassing the love of women. 

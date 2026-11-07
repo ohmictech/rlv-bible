@@ -13,7 +13,7 @@ They sing to the tambourine and harp, and rejoice at the sound of the pipe.
 They spend their days in prosperity. In an instant they go down to Hades. 
 They tell God, 'Depart from us, for we don't want to know about your ways. 
 What is the Almighty, that we should serve him? What profit should we have, if we pray to him?' 
-Look, their prosperity is not in their hand. The counsel of the guilty is far from me. 
+Look, their prosperity isn't in their hand. The counsel of the guilty is far from me. 
 "How often is it that the lamp of the guilty is put out, that their calamity comes on them, that God distributes sorrows in his anger? 
 How often is it that they are as stubble before the wind, as chaff that the storm carries away? 
 You say, 'God lays up his guilt for his children.' Let him recompense it to himself, that he may know it. 

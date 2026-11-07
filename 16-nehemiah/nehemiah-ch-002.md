@@ -1,5 +1,5 @@
-﻿In the month Nisan, in the twentieth year of Artaxerxes the king, when wine was before him, I picked up the wine, and gave it to the king. Now I had not been sad before in his presence. 
-The king said to me, "Why is your face sad, since you are not sick? This is nothing else but sorrow of heart." Then I was very much afraid. 
+﻿In the month Nisan, in the twentieth year of Artaxerxes the king, when wine was before him, I picked up the wine, and gave it to the king. Now I hadn't been sad before in his presence. 
+The king said to me, "Why is your face sad, since you aren't sick? This is nothing else but sorrow of heart." Then I was very much afraid. 
 I said to the king, "Let the king live for the eras! Why shouldn't my face be sad, when the city, the place of my fathers' tombs, lies waste, and its gates have been consumed with fire?" 
 Then the king said to me, "What is your request?" So I prayed to the God of the sky. 
 I said to the king, "If it pleases the king, and if your servant has found favor in your sight, I ask that you would send me to Judah, to the city of my fathers' tombs, that I may build it." 
@@ -13,7 +13,7 @@ I arose in the night, I and a few men with me. I didn't tell anyone what my God 
 I went out by night by the valley gate toward the jackal's well, then to the dung gate; and I inspected the walls of Jerusalem, which were broken down, and its gates were consumed with fire. 
 Then I went on to the spring gate and to the king's pool, but there was no place for the animal that was under me to pass. 
 Then I went up in the night by the brook and inspected the wall; and I turned back, and entered by the valley gate, and so returned. 
-The rulers didn't know where I went, or what I did. I had not as yet told it to the Jews, nor to the priests, nor to the nobles, nor to the rulers, nor to the rest who did the work. 
+The rulers didn't know where I went, or what I did. I hadn't as yet told it to the Jews, nor to the priests, nor to the nobles, nor to the rulers, nor to the rest who did the work. 
 Then I said to them, "You see the bad situation that we are in, how Jerusalem lies waste, and its gates are burned with fire. Come, let's build up the wall of Jerusalem, that we won't be disgraced." 
 I told them about the hand of my God which was good on me, and also about the king's words that he had spoken to me. They said, "Let's rise up and build." So they strengthened their hands for the good work. 
 But when Sanballat the Horonite, Tobiah the Ammonite servant, and Geshem the Arabian, heard it, they ridiculed us and despised us, and said, "What is this thing that you are doing? Will you rebel against the king?" 

@@ -9,7 +9,7 @@ The sacrifice made by the guilty is an abomination to God, but the prayer of the
 The way of the guilty is an abomination to God, but he loves him who follows after righteousness. 
 There is stern discipline for one who forsakes the way. Whoever hates reproof shall die. 
 Hades and Abaddon are before God, how much more then the hearts of the children of men! 
-A scoffer doesn't love to be reproved; he will not go to the wise. 
+A scoffer doesn't love to be reproved; he won't go to the wise. 
 A glad heart makes a cheerful face, but an aching heart breaks the spirit. 
 The heart of one who has understanding seeks knowledge, but the mouths of fools feed on folly. 
 All the days of the afflicted are wretched, but one who has a cheerful heart enjoys a continual feast. 

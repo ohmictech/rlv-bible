@@ -5,7 +5,7 @@ But when the fullness of the time came, God sent out his Son, born to a woman, b
 so that he might buy out those under the law, so that we might receive being placed as children. 
 And because you are children, God sent out the Spirit of his Son into your hearts, crying out, "Dad! Father!" 
 So you are no longer a slave but a son, and if a son, then an heir through God. 
-However at that time, not knowing God, you were in bondage to those who by nature are not gods. 
+However at that time, not knowing God, you were in bondage to those who by nature aren't gods. 
 But now that you know God, or rather are known by God, why do you turn back to the weak and pitiful basic principles, wanting to be slaves to them all over again? 
 You observe days, months, seasons, and years. 
 I am afraid for you, that I might have wasted my labor for you. 
@@ -27,5 +27,5 @@ But the Jerusalem that is above is free, which is the mother of us all.
 It is written, "Celebrate, you barren who don't bear. Break out and shout, you who don't travail. The desolate women have more children than her who has a husband." 
 Now we, brothers, as Isaac was, are children of promise. 
 But as then, the one born according to the flesh hunted down the one born according to the Spirit, so it is now. 
-However, what does the Scripture say? "Throw out the slave woman and her son, for the son of the slave woman will not be given the charge alongside the son of the free woman." 
-So then, brothers, we are not children of a slave woman, but of the free woman. 
+However, what does the Scripture say? "Throw out the slave woman and her son, for the son of the slave woman won't be given the charge alongside the son of the free woman." 
+So then, brothers, we aren't children of a slave woman, but of the free woman. 

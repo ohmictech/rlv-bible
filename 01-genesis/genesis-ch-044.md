@@ -1,7 +1,7 @@
 ﻿He commanded the steward of his house, saying, "Fill the men's sacks with food, as much as they can carry, and put each man's money in his sack's mouth. 
 Put my cup, the silver cup, in the sack's mouth of the youngest, with his grain money." He did according to the word that Joseph had spoken. 
 As soon as the morning was light, the men were sent away, they and their donkeys. 
-When they had gone out of the city, and were not yet far off, Joseph said to his steward, "Up, follow after the men. When you overtake them, ask them, 'Why have you rewarded bad for good? 
+When they had gone out of the city, and weren't yet far off, Joseph said to his steward, "Up, follow after the men. When you overtake them, ask them, 'Why have you rewarded bad for good? 
 Isn't this that from which my lord drinks, and by which he indeed divines? You have done bad in so doing.'" 
 He overtook them, and he spoke these words to them. 
 They said to him, "Why does my lord speak such words as these? Far be it from your servants that they should do such a thing! 
@@ -27,7 +27,7 @@ We said, 'We can't go down. If our youngest brother is with us, then we will go 
 Your servant, my father, said to us, 'You know that my wife bore me two sons. 
 One went out from me, and I said, "Surely he is torn in pieces;" and I haven't seen him since. 
 If you take this one also from me, and harm happens to him, you will bring down my gray hairs with sorrow to Hades.' 
-Now when I come to your servant my father, and the boy is not with us; since his life is bound up in the boy's life; 
+Now when I come to your servant my father, and the boy isn't with us; since his life is bound up in the boy's life; 
 it will happen, when he sees that the boy is no more, that he will die. Your servants will bring down the gray hairs of your servant, our father, with sorrow to Hades. 
 Your servant became collateral for the boy to my father, saying, 'If I don't bring him to you, then I will bear the blame to my father for the eras.' 
 Now, please let your servant stay instead of the boy, my lord's slave; and let the boy go up with his brothers. 

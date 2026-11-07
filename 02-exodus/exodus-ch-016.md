@@ -5,7 +5,7 @@ Then God said to Moses, "Look, I will rain bread from the sky for you, and the p
 It shall come to pass on the sixth day, that they shall prepare that which they bring in, and it shall be twice as much as they gather daily." 
 Moses and Aaron said to all the children of Israel, "At evening, you shall know that God has brought you out from the land of Egypt. 
 In the morning, you shall see God's glory; because he hears your murmurings against God. Who are we, that you murmur against us?" 
-Moses said, "Now God will give you meat to eat in the evening, and in the morning bread to satisfy you, because God hears your murmurings which you murmur against him. And who are we? Your murmurings are not against us, but against God." 
+Moses said, "Now God will give you meat to eat in the evening, and in the morning bread to satisfy you, because God hears your murmurings which you murmur against him. And who are we? Your murmurings aren't against us, but against God." 
 Moses said to Aaron, "Tell all the congregation of the children of Israel, 'Come close to God, for he has heard your murmurings.'" 
 As Aaron spoke to the whole congregation of the children of Israel, they looked toward the wilderness, and look, God's glory appeared in the cloud. 
 God spoke to Moses, saying, 

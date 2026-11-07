@@ -23,12 +23,12 @@ Suddenly, a Canaanite woman came out from those borders and cried, saying, "Have
 But he answered her not a word. His students came and begged him, saying, "Send her away, because she cries after us." 
 But he answered, "I wasn't sent to anyone but the lost sheep of the house of Israel." 
 But she came and worshiped him, saying, "Lord, help me." 
-But he answered, "It is not appropriate to take the children's bread and throw it to the dogs." 
+But he answered, "It isn't appropriate to take the children's bread and throw it to the dogs." 
 But she said, "Yes, Lord, but even the dogs eat the crumbs which fall from their masters' table." 
 Then Jesus answered her, "Woman, your trust is great! Let it be done for you just as you want." And her daughter was healed from that hour. 
 Jesus departed from there and came near to the sea of Galilee, and he went up on the mountain and sat there. 
 Great crowds came to him, having with them the lame, blind, unable to speak, crippled, and many others, and they put them down at his feet. He healed them, 
-so that the crowd was amazed when they saw those who could not speak speaking, the crippled healed, the lame walking, and the blind seeing, and they made much of the God of Israel. 
+so that the crowd was amazed when they saw those who couldn't speak speaking, the crippled healed, the lame walking, and the blind seeing, and they made much of the God of Israel. 
 Jesus summoned his students and said, "I am moved with deep compassion for the crowd, because they have stayed with me now three days and have nothing to eat. I don't want to send them away hungry, or they might faint on the way." 
 The students said to him, "Where could we get so many loaves in an empty place as to satisfy so great a crowd?" 
 Jesus said to them, "How many loaves do you have?" They said, "Seven, and a few small fish." 

@@ -4,7 +4,7 @@ asking a favor against him, that he would summon him to Jerusalem, plotting to k
 However Festus answered that Paul should be kept in custody at Caesarea, and that he himself was about to depart shortly. 
 "So", he said, "let those who are in power among you go down with me, and if there is anything wrong in the man, let them accuse him." 
 When he had stayed among them more than ten days, he went down to Caesarea, and on the next day he sat on the judge's seat, and commanded Paul to be brought. 
-When he had come, the Jewish people who had come down from Jerusalem stood around him, bringing against him many and grievous charges which they could not prove, 
+When he had come, the Jewish people who had come down from Jerusalem stood around him, bringing against him many and grievous charges which they couldn't prove, 
 while he said in his defense, "Neither against the law of the Jewish people, nor against the temple courts, nor against Caesar, have I drifted at all." 
 But Festus, desiring to gain favor with the Jewish people, answered Paul and said, "Are you willing to go up to Jerusalem and be judged by me there concerning these things?" 
 But Paul said, "I am standing before Caesar's judge's seat, where I ought to be tried. I have done no wrong to the Jewish people, as you also know very well. 
@@ -13,7 +13,7 @@ Then Festus, when he had conferred with the council, answered, "You have appeale
 Now when some days had passed, King Agrippa and Bernice arrived at Caesarea and greeted Festus. 
 As he stayed there many days, Festus laid Paul's case before the king, saying, "There is a certain man left a prisoner by Felix; 
 about whom, when I was at Jerusalem, the chief priests and the elders of the Jewish people informed me, asking for a sentence against him. 
-I answered them that it is not the custom of the Romans to hand any man over to be broken up before the accused has met the accusers face to face and has had opportunity to make his defense concerning the matter laid against him. 
+I answered them that it isn't the custom of the Romans to hand any man over to be broken up before the accused has met the accusers face to face and has had opportunity to make his defense concerning the matter laid against him. 
 When they had come together here, I didn't delay, but on the next day sat on the judge's seat and commanded the man to be brought. 
 When the accusers stood up, they brought no charges against him of such things as I supposed; 
 but had certain questions against him about their own way of worship and about one Jesus, who was dead, whom Paul claimed to be alive. 

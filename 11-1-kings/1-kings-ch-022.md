@@ -5,7 +5,7 @@ He said to Jehoshaphat, "Will you go with me to battle to Ramoth Gilead?" Jehosh
 Jehoshaphat said to the king of Israel, "Please inquire first for God's word." 
 Then the king of Israel gathered the spokesmen together, about four hundred men, and said to them, "Should I go against Ramoth Gilead to battle, or should I refrain?" They said, "Go up; for the Lord will deliver it into the hand of the king." 
 But Jehoshaphat said, "Isn't there here a spokesman of God, that we may inquire of him?" 
-The king of Israel said to Jehoshaphat, "There is yet one man by whom we may inquire of God, Micaiah the son of Imlah; but I hate him, for he does not prophesy good concerning me, but bad." Jehoshaphat said, "Don't let the king say so." 
+The king of Israel said to Jehoshaphat, "There is yet one man by whom we may inquire of God, Micaiah the son of Imlah; but I hate him, for he doesn't prophesy good concerning me, but bad." Jehoshaphat said, "Don't let the king say so." 
 Then the king of Israel called an officer, and said, "Quickly get Micaiah the son of Imlah." 
 Now the king of Israel and Jehoshaphat the king of Judah were sitting each on his throne, arrayed in their robes, in an open place at the entrance of the gate of Samaria; and all the spokesmen were prophesying before them. 
 Zedekiah the son of Chenaanah made himself horns of iron, and said, "God says, 'With these you will push the Syrians, until they are consumed.'" 
@@ -15,7 +15,7 @@ Micaiah said, "As God lives, what God says to me, that I will speak."
 When he had come to the king, the king said to him, "Micaiah, shall we go to Ramoth Gilead to battle, or shall we forbear?" He answered him, "Go up and prosper; and God will deliver it into the hand of the king." 
 The king said to him, "How many times do I have to adjure you that you speak to me nothing but the truth in God's name?" 
 He said, "I saw all Israel scattered on the mountains, as sheep that have no shepherd. God said, 'These have no master. Let them each return to his house in peace.'" 
-The king of Israel said to Jehoshaphat, "Didn't I tell you that he would not prophesy good concerning me, but bad?" 
+The king of Israel said to Jehoshaphat, "Didn't I tell you that he wouldn't prophesy good concerning me, but bad?" 
 Micaiah said, "Therefore hear God's word. I saw God sitting on his throne, and all the army of the sky standing by him on his right hand and on his left. 
 God said, 'Who will entice Ahab, that he may go up and fall at Ramoth Gilead?' One said one thing, and another said another. 
 A spirit came out and stood before God, and said, 'I will entice him.' 
@@ -25,12 +25,12 @@ Then Zedekiah the son of Chenaanah came near and struck Micaiah on the cheek, an
 Micaiah said, "Look, you will see on that day when you go into an inner room to hide yourself." 
 The king of Israel said, "Take Micaiah, and carry him back to Amon the governor of the city and to Joash the king's son. 
 Say, 'The king says, "Put this fellow in the prison, and feed him with bread of affliction and with water of affliction, until I come in peace."'" 
-Micaiah said, "If you return at all in peace, God has not spoken by me." He said, "Listen, all you people!" 
+Micaiah said, "If you return at all in peace, God hasn't spoken by me." He said, "Listen, all you people!" 
 So the king of Israel and Jehoshaphat the king of Judah went up to Ramoth Gilead. 
 The king of Israel said to Jehoshaphat, "I will disguise myself and go into the battle, but you put on your robes." The king of Israel disguised himself and went into the battle. 
 Now the king of Syria had commanded the thirty-two captains of his chariots, saying, "Don't fight with small nor great, except only with the king of Israel." 
 When the captains of the chariots saw Jehoshaphat, they said, "Surely that is the king of Israel!" and they came over to fight against him. Jehoshaphat cried out. 
-When the captains of the chariots saw that it was not the king of Israel, they turned back from pursuing him. 
+When the captains of the chariots saw that it wasn't the king of Israel, they turned back from pursuing him. 
 A certain man drew his bow at random, and struck the king of Israel between the joints of the armor. So he said to the driver of his chariot, "Turn around, and carry me out of the battle, for I am severely wounded." 
 The battle increased that day. The king was propped up in his chariot facing the Syrians, and died at evening. The blood ran out of the wound into the bottom of the chariot. 
 A cry went throughout the army about the going down of the sun, saying, "Every man to his city, and every man to his country!" 
@@ -40,13 +40,13 @@ Now the rest of the acts of Ahab, and all that he did, and the ivory house which
 So Ahab slept with his fathers; and Ahaziah his son reigned in his place. 
 Jehoshaphat the son of Asa began to reign over Judah in the fourth year of Ahab king of Israel. 
 Jehoshaphat was thirty-five years old when he began to reign; and he reigned twenty-five years in Jerusalem. His mother's name was Azubah the daughter of Shilhi. 
-He walked in all the way of Asa his father. He didn't turn away from it, doing that which was right in God's eyes. However, the high places were not taken away. The people still sacrificed and burned incense on the high places. 
+He walked in all the way of Asa his father. He didn't turn away from it, doing that which was right in God's eyes. However, the high places weren't taken away. The people still sacrificed and burned incense on the high places. 
 Jehoshaphat made peace with the king of Israel. 
 Now the rest of the acts of Jehoshaphat, and his might that he showed, and how he fought, aren't they written in the book of the chronicles of the kings of Judah? 
 The remnant of the sodomites, that remained in the days of his father Asa, he put away out of the land. 
 There was no king in Edom. A deputy ruled. 
 Jehoshaphat made ships of Tarshish to go to Ophir for gold, but they didn't go, for the ships wrecked at Ezion Geber. 
-Then Ahaziah the son of Ahab said to Jehoshaphat, "Let my servants go with your servants in the ships." But Jehoshaphat would not. 
+Then Ahaziah the son of Ahab said to Jehoshaphat, "Let my servants go with your servants in the ships." But Jehoshaphat wouldn't. 
 Jehoshaphat slept with his fathers, and was buried with his fathers in his father David's city. Jehoram his son reigned in his place. 
 Ahaziah the son of Ahab began to reign over Israel in Samaria in the seventeenth year of Jehoshaphat king of Judah, and he reigned two years over Israel. 
 He did that which was bad in God's sight, and walked in the way of his father, and in the way of his mother, and in the way of Jeroboam the son of Nebat, in which he made Israel to drift. 

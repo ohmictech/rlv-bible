@@ -17,7 +17,7 @@ The young lady's father shall tell the elders, "I gave my daughter to this man a
 Look, he has accused her of shameful things, saying, 'I didn't find in your daughter the tokens of virginity;' and yet these are the tokens of my daughter's virginity." They shall spread the cloth before the elders of the city. 
 The elders of that city shall take the man and chastise him. 
 They shall fine him one hundred shekels of silver, and give them to the father of the young lady, because he has given a bad name to a virgin of Israel. She shall be his wife. He may not put her away all his days. 
-But if this thing is true, that the tokens of virginity were not found in the young lady, 
+But if this thing is true, that the tokens of virginity weren't found in the young lady, 
 then they shall bring out the young lady to the door of her father's house, and the men of her city shall stone her to death with stones, because she has done folly in Israel, to play the prostitute in her father's house. So you shall remove the bad from among you. 
 If a man is found lying with a woman married to a husband, then they shall both die, the man who lay with the woman and the woman. So you shall remove the bad from Israel. 
 If there is a young lady who is a virgin pledged to be married to a husband, and a man finds her in the city, and lies with her, 
@@ -25,6 +25,6 @@ then you shall bring them both out to the gate of that city, and you shall stone
 But if the man finds the lady who is pledged to be married in the field, and the man forces her and lies with her, then only the man who lay with her shall die; 
 but to the lady you shall do nothing. There is in the lady no wrongdoing worthy of death; for as when a man rises against his neighbor and kills him, even so is this matter; 
 for he found her in the field, the pledged to be married lady cried, and there was no one to save her. 
-If a man finds a lady who is a virgin, who is not pledged to be married, grabs her and lies with her, and they are found, 
+If a man finds a lady who is a virgin, who isn't pledged to be married, grabs her and lies with her, and they are found, 
 then the man who lay with her shall give to the lady's father fifty shekels of silver. She shall be his wife, because he has humbled her. He may not put her away all his days. 
 A man shall not take his father's wife, and shall not uncover his father's skirt. 

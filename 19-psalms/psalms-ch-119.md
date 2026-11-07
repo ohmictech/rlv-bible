@@ -13,7 +13,7 @@ Blessed are you, God. Teach me your statutes.
 With my lips, I have declared all the ordinances of your mouth. 
 I have rejoiced in the way of your testimonies, as much as in all riches. 
 I will meditate on your precepts, and consider your ways. 
-I will delight myself in your statutes. I will not forget your word. GIMEL 
+I will delight myself in your statutes. I won't forget your word. GIMEL 
 Do good to your servant. I will live and I will obey your word. 
 Open my eyes, that I may see wondrous things out of your law. 
 I am a stranger on the earth. Don't hide your commandments from me. 
@@ -43,7 +43,7 @@ So I will have an answer for him who reproaches me, for I trust in your word.
 Don't snatch the word of truth out of my mouth, for I put my hope in your ordinances. 
 So I will obey your law continually, for all the eras. 
 I will walk in liberty, for I have sought your precepts. 
-I will also speak of your statutes before kings, and will not be disappointed. 
+I will also speak of your statutes before kings, and won't be disappointed. 
 I will delight myself in your commandments, because I love them. 
 I reach out my hands for your commandments, which I love. I will meditate on your statutes. ZAYIN 
 Remember your word to your servant, because you gave me hope. 
@@ -99,7 +99,7 @@ Your commandments make me wiser than my enemies, for your commandments are alway
 I have more understanding than all my teachers, for your testimonies are my meditation. 
 I understand more than the aged, because I have kept your precepts. 
 I have kept my feet from every bad way, that I might observe your word. 
-I have not turned away from your ordinances, for you have taught me. 
+I haven't turned away from your ordinances, for you have taught me. 
 How sweet are your promises to my taste, more than honey to my mouth! 
 Through your precepts, I get understanding; I hate every false way. NUN 
 Your word is a lamp to my feet, and a light for my path. 

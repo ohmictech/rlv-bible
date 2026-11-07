@@ -18,13 +18,13 @@ The battle was very severe that day; and Abner was beaten, and the men of Israel
 The three sons of Zeruiah were there: Joab, Abishai, and Asahel. Asahel was as light of foot as a wild gazelle. 
 Asahel pursued Abner. He didn't turn to the right hand or to the left from following Abner. 
 Then Abner looked behind him and said, "Is that you, Asahel?" He answered, "It is." 
-Abner said to him, "Turn away to your right hand or to your left, and grab one of the young men, and take his armor." But Asahel would not turn away from following him. 
+Abner said to him, "Turn away to your right hand or to your left, and grab one of the young men, and take his armor." But Asahel wouldn't turn away from following him. 
 Abner said again to Asahel, "Turn away from following me. Why should I strike you to the ground? How then could I look Joab your brother in the face?" 
 However, he refused to turn away. So Abner with the back end of the spear struck him in the body, so that the spear came out behind him; and he fell down there and died in the same place. As many as came to the place where Asahel fell down and died stood still. 
 But Joab and Abishai pursued Abner. The sun went down when they had come to the hill of Ammah, that lies before Giah by the way of the wilderness of Gibeon. 
 The children of Benjamin gathered themselves together after Abner and became one band, and stood on the top of a hill. 
 Then Abner called to Joab, and said, "Shall the sword devour for the eras? Don't you know that it will be bitterness in the latter end? How long will it be then, before you ask the people to return from following their brothers?" 
-Joab said, "As God lives, if you had not spoken, surely then in the morning the people would have gone away, and not each followed his brother." 
+Joab said, "As God lives, if you hadn't spoken, surely then in the morning the people would have gone away, and not each followed his brother." 
 So Joab blew the trumpet; and everyone stood still and pursued Israel no more, and they fought no more. 
 Abner and his men went all that night through the Arabah; and they passed over the Jordan, and went through all Bithron, and came to Mahanaim. 
 Joab returned from following Abner; and when he had gathered everyone together, nineteen men of David's and Asahel were missing. 

@@ -3,7 +3,7 @@ Don't forget to welcome strangers, because some who did that welcomed messengers
 Remember those who are in chains, as if you were chained with them, and those who are badly treated, since you too are in a body. 
 Let marriage be honored by everyone, and let the marriage bed be kept pure, because God will pass a verdict on those who sleep around and those who cheat. 
 Keep your lives free from the love of money, and be content with what you have, because he has said, "I will in no way leave you, neither will I in any way abandon you." 
-So we can say with confidence, "The Lord is my helper. I will not be afraid. What can a person do to me?" 
+So we can say with confidence, "The Lord is my helper. I won't be afraid. What can a person do to me?" 
 Remember your leaders, the ones who spoke God's message to you, and look at how their way of life turned out, and follow their trust. 
 Jesus Christ is the same yesterday, today, and for the eras. 
 Don't be carried away by all kinds of strange teachings. It is good for the heart to be made firm by favor, not by rules about food, which never did anyone any good. 

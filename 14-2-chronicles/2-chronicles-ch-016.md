@@ -4,7 +4,7 @@ Then Asa brought out silver and gold out of the treasures of God's house and of 
 Ben Hadad listened to King Asa, and sent the captains of his armies against the cities of Israel; and they struck Ijon, Dan, Abel Maim, and all the storage cities of Naphtali. 
 When Baasha heard of it, he stopped building Ramah, and let his work cease. 
 Then Asa the king took all Judah, and they carried away the stones and timber of Ramah, with which Baasha had built; and he built Geba and Mizpah with them. 
-At that time Hanani the seer came to Asa king of Judah, and said to him, "Because you have relied on the king of Syria, and have not relied on your God, the army of the king of Syria has escaped out of your hand. 
+At that time Hanani the seer came to Asa king of Judah, and said to him, "Because you have relied on the king of Syria, and haven't relied on your God, the army of the king of Syria has escaped out of your hand. 
 Weren't the Ethiopians and the Lubim a huge army, with chariots and exceedingly many horsemen? Yet, because you relied on God, he delivered them into your hand. 
 God's eyes run back and forth throughout the whole earth, to show himself strong in the behalf of them whose heart is perfect toward him. You have done foolishly in this; for from now on you will have wars." 
 Then Asa was angry with the seer, and put him in the prison; for he was in a rage with him because of this thing. Asa oppressed some of the people at the same time. 

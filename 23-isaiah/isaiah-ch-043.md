@@ -1,5 +1,5 @@
 ﻿But now God who created you, Jacob, and he who formed you, Israel, says: "Don't be afraid, for I have bought back you. I have called you by your name. You are mine. 
-When you pass through the waters, I will be with you, and through the rivers, they will not overflow you. When you walk through the fire, you will not be burned, and flame will not scorch you. 
+When you pass through the waters, I will be with you, and through the rivers, they won't overflow you. When you walk through the fire, you won't be burned, and flame won't scorch you. 
 I am your God, the Holy One of Israel, your Savior. I have given Egypt as your ransom, Ethiopia and Seba in your place. 
 Since you have been precious and honored in my sight, and I have loved you, I will give people in your place, and nations instead of your life. 
 Don't be afraid, for I am with you. I will bring your offspring from the east, and gather you from the west. 
@@ -19,10 +19,10 @@ who brings out the chariot and horse, the army and the mighty man (they lie down
 Look, I will do a new thing. It springs out now. Don't you know it? I will even make a way in the wilderness, and rivers in the desert. 
 The animals of the field, the jackals and the ostriches, shall honor me, because I give water in the wilderness and rivers in the desert, to give drink to my people, my chosen, 
 the people which I formed for myself, that they might declare my praise. 
-Yet you have not called on me, Jacob; but you have been weary of me, Israel. 
-You have not brought me any of your sheep for burnt offerings, neither have you honored me with your sacrifices. I have not burdened you with offerings, nor wearied you with frankincense. 
+Yet you haven't called on me, Jacob; but you have been weary of me, Israel. 
+You haven't brought me any of your sheep for burnt offerings, neither have you honored me with your sacrifices. I haven't burdened you with offerings, nor wearied you with frankincense. 
 You have bought me no sweet cane with money, nor have you filled me with the fat of your sacrifices, but you have burdened me with your mistakes. You have wearied me with your guilt. 
-I, even I, am he who blots out your rebellion for my own sake; and I will not remember your mistakes. 
+I, even I, am he who blots out your rebellion for my own sake; and I won't remember your mistakes. 
 Put me in remembrance. Let us plead together. Declare your case, that you may be justified. 
 Your first father drifted, and your teachers have transgressed against me. 
 So I will profane the princes of the sanctuary; and I will make Jacob a curse, and Israel an insult." 

@@ -1,11 +1,11 @@
 ﻿A contemplation by Asaph. Hear my teaching, my people. Turn your ears to the words of my mouth. 
 I will open my mouth in a parable. I will utter dark sayings of old, 
 which we have heard and known, and our fathers have told us. 
-We will not hide them from their children, telling to the generation to come the praises of God, his strength, and his wondrous deeds that he has done. 
+We won't hide them from their children, telling to the generation to come the praises of God, his strength, and his wondrous deeds that he has done. 
 He established a covenant in Jacob, and appointed a teaching in Israel, which he commanded our fathers, that they should make them known to their children; 
 that the generation to come might know, even the children who should be born; who should arise and tell their children, 
 that they might set their hope in God, and not forget God's deeds, but keep his commandments, 
-and might not be as their fathers, a stubborn and rebellious generation, a generation that didn't make their hearts loyal, whose spirit was not steadfast with God. 
+and might not be as their fathers, a stubborn and rebellious generation, a generation that didn't make their hearts loyal, whose spirit wasn't steadfast with God. 
 The children of Ephraim, being armed and carrying bows, turned back in the day of battle. 
 They didn't keep God's covenant, and refused to walk in his law. 
 They forgot his doings, his wondrous deeds that he had shown them. 
@@ -34,14 +34,14 @@ So he consumed their days in vanity, and their years in terror.
 When he killed them, then they inquired after him. They returned and sought God earnestly. 
 They remembered that God was their rock, the Most High God, the one who buys them back. 
 But they flattered him with their mouth, and lied to him with their tongue. 
-Their heart was not right with him, neither were they faithful in his covenant. 
+Their heart wasn't right with him, neither were they faithful in his covenant. 
 But he, being merciful, forgave guilt, and didn't destroy them. Yes, many times he turned his anger away, and didn't stir up all his wrath. 
 He remembered that they were but flesh, a wind that passes away, and doesn't come again. 
 How often they rebelled against him in the wilderness, and grieved him in the desert! 
 They turned again and tempted God, and provoked the Holy One of Israel. 
 They didn't remember his hand, nor the day when he bought back them from the adversary; 
 how he set his signs in Egypt, his wonders in the field of Zoan, 
-he turned their rivers into blood, and their streams, so that they could not drink. 
+he turned their rivers into blood, and their streams, so that they couldn't drink. 
 He sent among them swarms of flies, which devoured them; and frogs, which destroyed them. 
 He also gave their increase to the caterpillar, and their labor to the locust. 
 He destroyed their vines with hail, their sycamore fig trees with frost. 

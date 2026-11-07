@@ -6,7 +6,7 @@ Pharaoh spoke to Joseph, saying, "Your father and your brothers have come to you
 The land of Egypt is before you. Make your father and your brothers dwell in the best of the land. Let them dwell in the land of Goshen. If you know any able men among them, then put them in charge of my livestock." 
 Joseph brought in Jacob, his father, and set him before Pharaoh; and Jacob blessed Pharaoh. 
 Pharaoh said to Jacob, "How old are you?" 
-Jacob said to Pharaoh, "The years of my pilgrimage are one hundred thirty years. The days of the years of my life have been few and bad. They have not attained to the days of the years of the life of my fathers in the days of their pilgrimage." 
+Jacob said to Pharaoh, "The years of my pilgrimage are one hundred thirty years. The days of the years of my life have been few and bad. They haven't attained to the days of the years of the life of my fathers in the days of their pilgrimage." 
 Jacob blessed Pharaoh, and went out from the presence of Pharaoh. 
 Joseph placed his father and his brothers, and gave them a possession in the land of Egypt, in the best of the land, in the land of Rameses, as Pharaoh had commanded. 
 Joseph provided his father, his brothers, and all of his father's household with bread, according to the sizes of their families. 
@@ -15,7 +15,7 @@ Joseph gathered up all the money that was found in the land of Egypt, and in the
 When the money was all spent in the land of Egypt, and in the land of Canaan, all the Egyptians came to Joseph, and said, "Give us bread, for why should we die in your presence? Our money fails." 
 Joseph said, "Give me your livestock; and I will give you food for your livestock, if your money is gone." 
 They brought their livestock to Joseph, and Joseph gave them bread in exchange for the horses, and for the flocks, and for the herds, and for the donkeys: and he fed them with bread in exchange for all their livestock for that year. 
-When that year was ended, they came to him the second year, and said to him, "We will not hide from my lord how our money is all spent, and the herds of livestock are my lord's. There is nothing left in the sight of my lord, but our bodies, and our lands. 
+When that year was ended, they came to him the second year, and said to him, "We won't hide from my lord how our money is all spent, and the herds of livestock are my lord's. There is nothing left in the sight of my lord, but our bodies, and our lands. 
 Why should we die before your eyes, both we and our land? Buy us and our land for bread, and we and our land will be servants to Pharaoh. Give us seed, that we may live, and not die, and that the land won't be desolate." 
 So Joseph bought all the land of Egypt for Pharaoh, for every man of the Egyptians sold his field, because the famine was severe on them, and the land became Pharaoh's. 
 As for the people, he moved them to the cities from one end of the border of Egypt even to the other end of it. 

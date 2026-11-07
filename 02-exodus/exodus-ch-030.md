@@ -29,7 +29,7 @@ the altar of burnt offering with all its utensils, and the bamistake with its ba
 You shall sanctify them, that they may be most holy. Whatever touches them shall be holy. 
 You shall anoint Aaron and his sons, and sanctify them, that they may minister to me in the priest's office. 
 You shall speak to the children of Israel, saying, 'This shall be a holy anointing oil to me throughout your generations. 
-It shall not be poured on man's flesh, and do not make any like it, according to its composition. It is holy. It shall be holy to you. 
+It shall not be poured on man's flesh, and don't make any like it, according to its composition. It is holy. It shall be holy to you. 
 Whoever compounds any like it, or whoever puts any of it on a stranger, he shall be cut off from his people.'" 
 God said to Moses, "Take to yourself sweet spices, gum remistake, onycha, and galbanum: sweet spices with pure frankincense. There shall be an equal weight of each. 
 You shall make incense of it, a perfume after the art of the perfumer, seasoned with salt, pure and holy. 

@@ -4,8 +4,8 @@ This is what God wants for you: that you be set apart, and that you keep away fr
 Each of you should know how to keep his own body in set-apartness and honor, 
 not driven by passion and craving the way the nations do, who don't know God, 
 and that no one should wrong or take advantage of a brother or sister in this matter, because the Lord is the avenger in all these things, just as we told you before and warned you. 
-God did not call us to uncleanness, but to be set apart. 
-So anyone who rejects this is not rejecting a person but God, who gives you his Holy Spirit. 
+God didn't call us to uncleanness, but to be set apart. 
+So anyone who rejects this isn't rejecting a person but God, who gives you his Holy Spirit. 
 About love like family, you don't need anyone to write to you, because God himself has taught you to love one another. 
 And you do love all the brothers and sisters throughout Macedonia. But we urge you, brothers and sisters, to overflow even more. 
 Make it your aim to live quietly, to mind your own business, and to work with your own hands, just as we instructed you, 

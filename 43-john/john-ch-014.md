@@ -15,7 +15,7 @@ If you will ask anything in my name, I will do it.
 If you love me, keep my commandments. 
 I will ask the Father, and he will give you another one who comes alongside, that he may be with you forever: 
 the Spirit of truth, whom the world can't receive, for it doesn't see him and doesn't know him. You know him, for he makes his home with you and will be in you. 
-I will not leave you orphans. I will come to you. 
+I won't leave you orphans. I will come to you. 
 Yet a little while, and the world will see me no more; but you will see me. Because I live, you will live also. 
 In that day you will know that I am in my Father, and you in me, and I in you. 
 One who has my commandments and keeps them, that person is one who loves me. One who loves me will be loved by my Father, and I will love them, and will reveal myself to them." 

@@ -15,7 +15,7 @@ So God turned away from the bad which he said he would do to his people.
 Moses turned, and went down from the mountain, with the two tablets of the covenant in his hand; tablets that were written on both their sides. They were written on one side and on the other. 
 The tablets were the work of God, and the writing was the writing of God, engraved on the tablets. 
 When Joshua heard the noise of the people as they shouted, he said to Moses, "There is the noise of war in the camp." 
-He said, "It isn't the voice of those who shout for victory. It is not the voice of those who cry for being overcome; but the noise of those who sing that I hear." 
+He said, "It isn't the voice of those who shout for victory. It isn't the voice of those who cry for being overcome; but the noise of those who sing that I hear." 
 As soon as he came near to the camp, he saw the calf and the dancing. Then Moses' anger grew hot, and he threw the tablets out of his hands, and broke them beneath the mountain. 
 He took the calf which they had made, and burned it with fire, ground it to powder, and scattered it on the water, and made the children of Israel drink it. 
 Moses said to Aaron, "What did these people do to you, that you have brought a great wrongdoing on them?" 

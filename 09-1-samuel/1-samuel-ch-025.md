@@ -12,7 +12,7 @@ Shall I then take my bread, my water, and my meat that I have killed for my shea
 So David's young men turned on their way and went back, and came and told him all these words. 
 David said to his men, "Every man put on his sword!" Every man put on his sword. David also put on his sword. About four hundred men followed David, and two hundred stayed by the baggage. 
 But one of the young men told Abigail, Nabal's wife, saying, "Look, David sent messengers out of the wilderness to greet our master; and he insulted them. 
-But the men were very good to us, and we were not harmed, and we didn't miss anything as long as we went with them, when we were in the fields. 
+But the men were very good to us, and we weren't harmed, and we didn't miss anything as long as we went with them, when we were in the fields. 
 They were a wall to us both by night and by day, all the while we were with them keeping the sheep. 
 Now know and consider what you will do; for bad is determined against our master and against all his house, for he is such a worthless fellow that one can't speak to him." 
 Then Abigail hurried and took two hundred loaves of bread, two containers of wine, five sheep ready dressed, five seahs of parched grain, one hundred clusters of raisins, and two hundred cakes of figs, and laid them on donkeys. 
@@ -25,7 +25,7 @@ She fell at his feet and said, "On me, my lord, on me be the blame! Please let y
 Please don't let my lord pay attention to this worthless fellow, Nabal, for as his name is, so is he. Nabal is his name, and folly is with him; but I, your servant, didn't see my lord's young men whom you sent. 
 Now, my lord, as God lives and as your soul lives, since God has withheld you from blood guiltiness and from avenging yourself with your own hand, now let your enemies and those who seek bad to my lord be as Nabal. 
 Now this present which your servant has brought to my lord, let it be given to the young men who follow my lord. 
-Please forgive the trespass of your servant. God will certainly make my lord a sure house, because my lord fights God's battles. Bad will not be found in you all your days. 
+Please forgive the trespass of your servant. God will certainly make my lord a sure house, because my lord fights God's battles. Bad won't be found in you all your days. 
 Though men may rise up to pursue you and to seek your soul, yet the soul of my lord will be bound in the bundle of life with your God. He will sling out the souls of your enemies as from a sling's pocket. 
 It will come to pass, when God has done to my lord according to all the good that he has spoken concerning you, and has appointed you prince over Israel, 
 that this shall be no grief to you, nor offense of heart to my lord, either that you have shed blood without cause, or that my lord has avenged himself. When God has dealt well with my lord, then remember your servant." 

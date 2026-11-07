@@ -15,7 +15,7 @@ When the hour had come, he sat down at the table with the twelve.
 He said to them, "I have eagerly wanted to eat this Passover with you before I suffer, 
 for I tell you, I will no longer by any means eat of it until it is fulfilled in God's reign." 
 He received a cup, and when he had given thanks, he said, "Take this and share it among yourselves, 
-for I tell you, I will not drink at all again from the fruit of the vine, until God's reign comes." 
+for I tell you, I won't drink at all again from the fruit of the vine, until God's reign comes." 
 He took bread, and when he had given thanks, he broke and gave it to them, saying, "This is my body which is given for you. Do this in memory of me." 
 Likewise, he took the cup after supper, saying, "This cup is the new binding arrangement in my blood, which is poured out for you. 
 But look, the hand of him who hands me over is with me on the table. 
@@ -55,7 +55,7 @@ They seized him and led him away, and brought him into the high priest's house. 
 When they had kindled a fire in the middle of the courtyard and had sat down together, Peter sat among them. 
 A certain servant girl saw him as he sat in the light, and looking intently at him, said, "This man also was with him." 
 He denied Jesus, saying, "Woman, I don't know him." 
-After a little while someone else saw him and said, "You also are one of them!" But Peter answered, "Man, I am not!" 
+After a little while someone else saw him and said, "You also are one of them!" But Peter answered, "Man, I'm not!" 
 After about one hour passed, another confidently affirmed, saying, "Truly this man also was with him, for he is a Galilean!" 
 But Peter said, "Man, I don't know what you are talking about!" Immediately, while he was still speaking, a rooster crowed. 
 The Lord turned and looked at Peter. Then Peter remembered the Lord's word, how he said to him, "Before the rooster crows you will disown me three times." 

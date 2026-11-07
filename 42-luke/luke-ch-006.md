@@ -37,7 +37,7 @@ But love your enemies, and do good, and lend, expecting nothing back; and your e
 Don't pass a verdict, and you won't be judged. Don't sentence, and you won't be sentenced. Set free, and you will be set free. 
 "Give, and it will be given to you: good measure, pressed down, shaken together, and running over, will be given to you. With the same measure you measure it will be measured back to you." 
 He spoke a story to them. "Can the blind guide the blind? Won't they both fall into a pit? 
-A student is not above his teacher, but everyone when he is fully trained will be like his teacher. 
+A student isn't above his teacher, but everyone when he is fully trained will be like his teacher. 
 Why do you see the speck of chaff that is in your brother's eye, but don't consider the beam that is in your own eye? 
 Or how can you tell your brother, 'Brother, let me remove the speck of chaff that is in your eye,' when you yourself don't see the beam that is in your own eye? You pretender! First remove the beam from your own eye, and then you can see clearly to remove the speck of chaff that is in your brother's eye. 
 "For there is no good tree that produces rotten fruit, nor again a rotten tree that produces good fruit. 
@@ -45,5 +45,5 @@ Each tree is known by its own fruit. People don't gather figs from thorns, nor d
 The good man out of the good treasure of his heart brings out that which is good, and the malicious man out of the malicious treasure of his heart brings out that which is malicious, for out of the overflow of the heart, his mouth speaks. 
 "Why do you call me, 'Lord, Lord,' and don't do the things which I say? 
 Everyone who comes to me, and hears my words and does them, I will show you who he is like. 
-He is like a man building a house, who dug and went deep and laid a foundation on the rock. When a flood arose, the stream broke against that house, and could not shake it, because it was founded on the rock. 
+He is like a man building a house, who dug and went deep and laid a foundation on the rock. When a flood arose, the stream broke against that house, and couldn't shake it, because it was founded on the rock. 
 But he who hears and doesn't do, is like a man who built a house on the earth without a foundation, against which the stream broke, and immediately it fell; and the ruin of that house was great." 

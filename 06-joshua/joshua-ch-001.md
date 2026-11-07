@@ -2,7 +2,7 @@
 "Moses my servant is dead. Now arise, go across this Jordan, you and all these people, to the land which I am giving to them, even to the children of Israel. 
 I have given you every place that the sole of your foot will tread on, as I told Moses. 
 From the wilderness and this Lebanon even to the great river, the river Euphrates, all the land of the Hittites, and to the great sea toward the going down of the sun, shall be your border. 
-No man will be able to stand before you all the days of your life. As I was with Moses, so I will be with you. I will not fail you nor forsake you. 
+No man will be able to stand before you all the days of your life. As I was with Moses, so I will be with you. I won't fail you nor forsake you. 
 "Be strong and courageous; for you shall cause this people to inherit the land which I swore to their fathers to give them. 
 Only be strong and very courageous. Be careful to observe to do according to all the law which Moses my servant commanded you. Don't turn from it to the right hand or to the left, that you may have good success wherever you go. 
 This book of the law shall not depart from your mouth, but you shall meditate on it day and night, that you may observe to do according to all that is written in it; for then you shall make your way prosperous, and then you shall have good success. 

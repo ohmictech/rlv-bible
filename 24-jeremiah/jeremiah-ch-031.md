@@ -9,7 +9,7 @@ Look, I will bring them from the north country, and gather them from the uttermo
 They will come with weeping. I will lead them with petitions. I will cause them to walk by rivers of waters, in a straight way in which they won't stumble; for I am a father to Israel. Ephraim is my firstborn. 
 "Hear God's word, you nations, and declare it in the distant islands. Say, 'He who scattered Israel will gather him, and keep him, as a shepherd does his flock.' 
 For God has ransomed Jacob, and bought back him from the hand of him who was stronger than he. 
-They will come and driftsg in the height of Zion, and will flow to the goodness of God, to the grain, to the new wine, to the oil, and to the young of the flock and of the herd. Their soul will be as a watered garden. They will not sorrow any more at all. 
+They will come and driftsg in the height of Zion, and will flow to the goodness of God, to the grain, to the new wine, to the oil, and to the young of the flock and of the herd. Their soul will be as a watered garden. They won't sorrow any more at all. 
 Then the virgin will rejoice in the dance, the young men and the old together; for I will turn their mourning into joy, and will comfort them, and make them rejoice from their sorrow. 
 I will satiate the soul of the priests with fatness, and my people will be satisfied with my goodness," says God. 
 God says: "A voice is heard in Ramah, lamentation and bitter weeping, Rachel weeping for her children. She refuses to be comforted for her children, because they are no more." 
@@ -37,4 +37,4 @@ God, who gives the sun for a light by day, and the ordinances of the moon and of
 God says: "If the sky above can be measured, and the foundations of the earth searched out beneath, then I will also cast off all the offspring of Israel for all that they have done," says God. 
 "Look, the days come," says God, "that the city will be built to God from the tower of Hananel to the gate of the corner. 
 The measuring line will go out further straight onward to the hill Gareb, and will turn toward Goah. 
-The whole valley of the dead bodies and of the ashes, and all the fields to the brook Kidron, to the corner of the horse gate toward the east, will be holy to God. It will not be plucked up or thrown down any more for the eras." 
+The whole valley of the dead bodies and of the ashes, and all the fields to the brook Kidron, to the corner of the horse gate toward the east, will be holy to God. It won't be plucked up or thrown down any more for the eras." 

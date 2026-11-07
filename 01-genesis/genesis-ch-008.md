@@ -9,7 +9,7 @@ Then he sent out a dove to see if the waters had gone down from the face of the 
 but the dove found nowhere to set her foot, and she came back to him in the ship, because the waters were still over the whole earth. He reached out his hand, took her, and brought her into the ship with him. 
 He waited another seven days, and again he sent the dove out of the ship. 
 The dove came back to him in the evening, and there in her beak was a freshly picked olive leaf. So Noah knew that the waters had gone down from the earth. 
-He waited another seven days and sent out the dove, and she did not come back to him again. 
+He waited another seven days and sent out the dove, and she didn't come back to him again. 
 In the six hundred first year, in the first month, the first day of the month, the waters were dried up from the earth. Noah removed the covering of the ship and looked, and the face of the ground was dry. 
 In the second month, on the twenty-seventh day of the month, the earth was dry. 
 God spoke to Noah, saying, 

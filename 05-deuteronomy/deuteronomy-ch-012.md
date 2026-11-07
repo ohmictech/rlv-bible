@@ -27,6 +27,6 @@ Only your holy things which you have, and your vows, you shall take and go to th
 You shall offer your burnt offerings, the meat and the blood, on your God's altar. The blood of your sacrifices shall be poured out on your God's altar, and you shall eat the meat. 
 Observe and hear all these words which I command you, that it may go well with you and with your children after you for the eras, when you do that which is good and right in your God's eyes. 
 When your God cuts off the nations from before you where you go in to dispossess them, and you dispossess them and dwell in their land, 
-be careful that you are not ensnared to follow them after they are destroyed from before you, and that you not inquire after their gods, saying, "How do these nations serve their gods? I will do likewise." 
+be careful that you aren't ensnared to follow them after they are destroyed from before you, and that you not inquire after their gods, saying, "How do these nations serve their gods? I will do likewise." 
 You shall not do so to your God; for every abomination to God, which he hates, they have done to their gods; for they even burn their sons and their daughters in the fire to their gods. 
 Whatever thing I command you, that you shall observe to do. You shall not add to it, nor take away from it. 

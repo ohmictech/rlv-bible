@@ -12,7 +12,7 @@ I will make all my mountains a road, and my highways shall be exalted.
 Look, these shall come from afar, and look, these from the north and from the west, and these from the land of Sinim." 
 Sing, skies, and be joyful, earth! Break out into driftging, mountains! God has comforted his people, and will have compassion on his afflicted. 
 But Zion said, "God has forsaken me, and the Lord has forgotten me." 
-"Can a woman forget her nursing child, that she should not have compassion on the son of her womb? Yes, these may forget, yet I will not forget you! 
+"Can a woman forget her nursing child, that she shouldn't have compassion on the son of her womb? Yes, these may forget, yet I won't forget you! 
 Look, I have engraved you on the palms of my hands. Your walls are continually before me. 
 Your children hurry. Your destroyers and those who devastated you will leave you. 
 Lift up your eyes all around, and see: all these gather themselves together, and come to you. As I live," says God, "you shall surely clothe yourself with them all as with an ornament, and dress yourself with them, like a bride. 

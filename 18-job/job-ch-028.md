@@ -5,7 +5,7 @@ He breaks open a shaft away from where people live. They are forgotten by the fo
 As for the earth, out of it comes bread. Underneath it is turned up as it were by fire. 
 Sapphires come from its rocks. It has dust of gold. 
 That path no bird of prey knows, neither has the falcon's eye seen it. 
-The proud animals have not trodden it, nor has the fierce lion passed by there. 
+The proud animals haven't trodden it, nor has the fierce lion passed by there. 
 He puts his hand on the flinty rock, and he overturns the mountains by the roots. 
 He cuts out channels among the rocks. His eye sees every precious thing. 
 He binds the streams that they don't trickle. The thing that is hidden he brings out to light. 
@@ -16,7 +16,7 @@ It can't be gotten for gold, neither will silver be weighed for its price.
 It can't be valued with the gold of Ophir, with the precious onyx, or the sapphire. 
 Gold and glass can't equal it, neither will it be exchanged for jewels of fine gold. 
 No mention will be made of coral or of crystal. Yes, the price of wisdom is above rubies. 
-The topaz of Ethiopia will not equal it. It won't be valued with pure gold. 
+The topaz of Ethiopia won't equal it. It won't be valued with pure gold. 
 Where then does wisdom come from? Where is the place of understanding? 
 Seeing it is hidden from the eyes of all living, and kept close from the birds of the sky. 
 Destruction and Death say, 'We have heard a rumor of it with our ears.' 

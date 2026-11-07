@@ -15,7 +15,7 @@ Of it he shall offer one out of each offering for a heave offering to God. It sh
 The flesh of the sacrifice of his offerings for wholeness for thanksgiving shall be eaten on the day of his offering. He shall not leave any of it until the morning. 
 "'But if the sacrifice of his offering is a vow, or a free will offering, it shall be eaten on the day that he offers his sacrifice. On the next day what remains of it shall be eaten, 
 but what remains of the meat of the sacrifice on the third day shall be burned with fire. 
-If any of the meat of the sacrifice of his offerings for wholeness is eaten on the third day, it will not be accepted, and it shall not be credited to him who offers it. It will be an abomination, and the soul who eats any of it will bear his guilt. 
+If any of the meat of the sacrifice of his offerings for wholeness is eaten on the third day, it won't be accepted, and it shall not be credited to him who offers it. It will be an abomination, and the soul who eats any of it will bear his guilt. 
 "'The meat that touches any unclean thing shall not be eaten. It shall be burned with fire. As for the meat, everyone who is clean may eat it; 
 but the soul who eats of the meat of the sacrifice of offerings for wholeness that belongs to God, having his uncleanness on him, that soul shall be cut off from his people. 
 When anyone touches any unclean thing, the uncleanness of man, or an unclean animal, or any unclean abomination, and eats some of the meat of the sacrifice of offerings for wholeness which belong to God, that soul shall be cut off from his people.'" 

@@ -4,7 +4,7 @@ the voice of one crying in the wilderness, 'Get the way of the Lord ready! Make 
 John came, immersing in the wilderness and preaching an immersion that marked a change of heart for the release of mistakes. 
 All the country of Judea and everyone in Jerusalem went out to him. They were immersed by him in the Jordan river, confessing their mistakes out loud. 
 John was clothed with camel's hair and a leather belt around his waist. He ate locusts and wild honey. 
-He preached, saying, "After me comes one mightier than I, whose sandal strap I am not worthy to bend down and untie. 
+He preached, saying, "After me comes one mightier than I, whose sandal strap I'm not worthy to bend down and untie. 
 I immersed you in water, but he will immerse you in the Holy Spirit." 
 In those days, Jesus came from Nazareth in Galilee and was immersed by John in the Jordan. 
 Immediately, coming up out of the water, he saw the sky splitting open and the Spirit coming down on him like a dove. 

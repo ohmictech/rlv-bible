@@ -1,4 +1,4 @@
-﻿"If you will return, Israel," says God, "if you will return to me, and if you will put away your abominations out of my sight; then you will not be removed; 
+﻿"If you will return, Israel," says God, "if you will return to me, and if you will put away your abominations out of my sight; then you won't be removed; 
 and you will swear, 'As God lives,' in truth, in justice, and in righteousness. The nations will bless themselves in him, and they will glory in him." 
 God says to the men of Judah and to Jerusalem, "Break up your fallow ground, and don't sow among thorns. 
 Circumcise yourselves to God, and take away the foreskins of your heart, you men of Judah and inhabitants of Jerusalem; lest my wrath go out like fire, and burn so that no one can quench it, because of the bad of your doings. 
@@ -24,8 +24,8 @@ I saw the earth and, look, it was waste and void, and the sky, and they had no l
 I saw the mountains, and look, they trembled, and all the hills moved back and forth. 
 I saw, and look, there was no man, and all the birds of the sky had fled. 
 I saw, and look, the fruitful field was a wilderness, and all its cities were broken down at the presence of God, before his fierce anger. 
-God says, "The whole land will be a desolation; yet I will not make a full end. 
-This the earth will mourn, and the sky above be black, because I have spoken it. I have planned it, and I have not repented, neither will I turn back from it." 
+God says, "The whole land will be a desolation; yet I won't make a full end. 
+This the earth will mourn, and the sky above be black, because I have spoken it. I have planned it, and I haven't repented, neither will I turn back from it." 
 Every city flees for the noise of the horsemen and archers. They go into the thickets and climb up on the rocks. Every city is forsaken, and not a man dwells therein. 
 You, when you are made desolate, what will you do? Though you clothe yourself with scarlet, though you deck yourself with ornaments of gold, though you enlarge your eyes with makeup, you make yourself beautiful in vain. Your lovers despise you. They seek your life. 
 I have heard a voice as of a woman in travail, the anguish as of her who gives birth to her first child, the voice of the daughter of Zion, who gasps for breath, who spreads her hands, saying, "Woe is me now! My soul faints before the murderers." 

@@ -7,7 +7,7 @@ So they divided the land between them to pass throughout it. Ahab went one way b
 As Obadiah was on the way, look, Elijah met him. He recognized him, and fell on his face, and said, "Is it you, my lord Elijah?" 
 He answered him, "It is I. Go, tell your lord, 'Look, Elijah is here!'" 
 He said, "How have I drifted, that you would deliver your servant into the hand of Ahab, to kill me? 
-As your God lives, there is no nation or kingdom where my lord has not sent to seek you. When they said, 'He is not here,' he took an oath of the kingdom and nation that they didn't find you. 
+As your God lives, there is no nation or kingdom where my lord hasn't sent to seek you. When they said, 'He isn't here,' he took an oath of the kingdom and nation that they didn't find you. 
 Now you say, 'Go, tell your lord, "Look, Elijah is here."' 
 It will happen, as soon as I leave you, that God's Spirit will carry you I don't know where; and so when I come and tell Ahab, and he can't find you, he will kill me. But I, your servant, have feared God from my youth. 
 Wasn't it told my lord what I did when Jezebel killed God's spokesmen, how I hid one hundred men of God's spokesmen with fifty to a cave, and fed them with bread and water? 
@@ -15,7 +15,7 @@ Now you say, 'Go, tell your lord, "Look, Elijah is here".' He will kill me."
 Elijah said, "As the God of Armies lives, before whom I stand, I will surely show myself to him today." 
 So Obadiah went to meet Ahab, and told him; and Ahab went to meet Elijah. 
 When Ahab saw Elijah, Ahab said to him, "Is that you, you troubler of Israel?" 
-He answered, "I have not troubled Israel, but you and your father's house, in that you have forsaken God's commandments and you have followed the Baals. 
+He answered, "I haven't troubled Israel, but you and your father's house, in that you have forsaken God's commandments and you have followed the Baals. 
 Now send, and gather to me all Israel to Mount Carmel, and four hundred fifty of the spokesmen of Baal, and four hundred of the spokesmen of the Asherah, who eat at Jezebel's table." 
 So Ahab sent to all the children of Israel, and gathered the spokesmen together to Mount Carmel. 
 Elijah came near to everyone, and said, "How long will you waver between the two sides? If God is the true God, follow him; but if Baal, then follow him." The people didn't say a word. 

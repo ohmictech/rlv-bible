@@ -23,6 +23,6 @@ A cheerful heart makes good medicine, but a crushed spirit dries up the bones.
 A guilty man receives a bribe in secret, to pervert the ways of justice. 
 Wisdom is before the face of one who has understanding, but the eyes of a fool wander to the ends of the earth. 
 A foolish son brings grief to his father, and bitterness to her who bore him. 
-Also to punish the righteous is not good, nor to flog officials for their integrity. 
+Also to punish the righteous isn't good, nor to flog officials for their integrity. 
 He who spares his words has knowledge. He who is even tempered is a man of understanding. 
 Even a fool, when he keeps silent, is counted wise. When he shuts his lips, he is thought to be discerning. 

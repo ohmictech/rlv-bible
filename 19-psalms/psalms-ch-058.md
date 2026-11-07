@@ -5,7 +5,7 @@ Their poison is like the poison of a snake, like a deaf cobra that stops its ear
 which doesn't listen to the voice of charmers, no matter how skillful the charmer may be. 
 Break their teeth, God, in their mouth. Break out the great teeth of the young lions, God. 
 Let them vanish like water that flows away. When they draw the bow, let their arrows be made blunt. 
-Let them be like a snail which melts and passes away, like the stillborn child, who has not seen the sun. 
+Let them be like a snail which melts and passes away, like the stillborn child, who hasn't seen the sun. 
 Before your pots can feel the heat of the thorns, he will sweep away the green and the burning alike. 
 The righteous shall rejoice when he sees the vengeance. He shall wash his feet in the blood of the guilty, 
 so that men shall say, "Most certainly there is a reward for the righteous. Most certainly there is a God who judges the earth." 

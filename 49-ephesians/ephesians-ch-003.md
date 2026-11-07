@@ -2,7 +2,7 @@
 if indeed you have heard of the household plan of God's gift that was given to me for you, 
 that is, how the secret was made known to me by an unveiling, just as I wrote before in a few words, 
 so that when you read it you can see how well I understand the secret of Christ. 
-In other generations it was not made known to people as it has now been unveiled by the Spirit to his set-apart sent ones and spokesmen, 
+In other generations it wasn't made known to people as it has now been unveiled by the Spirit to his set-apart sent ones and spokesmen, 
 that the nations are given the charge together with us, are parts of the same body, and share together in the promise in Christ Jesus through the Good News, 
 of which I became a servant by God's gift, given to me through the working of his power. 
 To me, the least of all the set-apart ones, this gift was given: to announce to the nations the riches of Christ that no one can trace out, 

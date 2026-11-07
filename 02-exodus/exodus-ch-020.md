@@ -4,7 +4,7 @@
 "You shall not make for yourselves an idol, nor any image of anything that is in the sky above, or that is on the earth beneath, or that is in the water under the earth: 
 you shall not bow yourself down to them, nor serve them, for I, your God, am a jealous God, visiting the guilt of the fathers on the children, on the third and on the fourth generation of those who hate me, 
 and showing loving kindness to thousands of those who love me and keep my commandments. 
-"You shall not misuse the name of your God, for God will not hold him guiltless who misuses his name. 
+"You shall not misuse the name of your God, for God won't hold him guiltless who misuses his name. 
 "Remember the Sabbath day, to keep it holy. 
 You shall labor six days, and do all your work, 
 but the seventh day is a Sabbath to your God. You shall not do any work in it, you, nor your son, nor your daughter, your male servant, nor your female servant, nor your livestock, nor your stranger who is within your gates; 

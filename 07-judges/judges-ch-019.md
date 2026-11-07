@@ -9,7 +9,7 @@ He arose early in the morning on the fifth day to depart; and the young lady's f
 When the man rose up to depart, he, and his concubine, and his servant, his father-in-law, the young lady's father, said to him, "Look, now the day draws toward evening, please stay all night. Look, the day is ending. Stay here, that your heart may be merry; and tomorrow go on your way early, that you may go home." 
 But the man wouldn't stay that night, but he rose up and went near Jebus (also called Jerusalem). With him were a couple of saddled donkeys. His concubine also was with him. 
 When they were by Jebus, the day was far spent; and the servant said to his master, "Please come and let's enter into this city of the Jebusites, and stay in it." 
-His master said to him, "We won't enter into the city of a foreigner that is not of the children of Israel; but we will pass over to Gibeah." 
+His master said to him, "We won't enter into the city of a foreigner that isn't of the children of Israel; but we will pass over to Gibeah." 
 He said to his servant, "Come and let's draw near to one of these places; and we will lodge in Gibeah, or in Ramah." 
 So they passed on and went their way; and the sun went down on them near Gibeah, which belongs to Benjamin. 
 They went over there, to go in to stay in Gibeah. He went in, and sat down in the street of the city; for there was no one who took them into his house to stay. 
@@ -27,4 +27,4 @@ Then the woman came in the dawning of the day, and fell down at the door of the 
 Her lord rose up in the morning and opened the doors of the house, and went out to go his way; and look, the woman his concubine had fallen down at the door of the house, with her hands on the threshold. 
 He said to her, "Get up, and let's get going!" but no one answered. Then he took her up on the donkey; and the man rose up, and went to his place. 
 When he had come into his house, he took a knife and cut up his concubine, and divided her, limb by limb, into twelve pieces, and sent her throughout all the borders of Israel. 
-It was so, that everyone who saw it said, "Such a deed has not been done or seen from the day that the children of Israel came up out of the land of Egypt to this day! Consider it, take counsel, and speak." 
+It was so, that everyone who saw it said, "Such a deed hasn't been done or seen from the day that the children of Israel came up out of the land of Egypt to this day! Consider it, take counsel, and speak." 

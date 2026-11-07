@@ -2,7 +2,7 @@
 "If you buy a Hebrew servant, he shall serve six years, and in the seventh he shall go out free without paying anything. 
 If he comes in by himself, he shall go out by himself. If he is married, then his wife shall go out with him. 
 If his master gives him a wife and she bears him sons or daughters, the wife and her children shall be her master's, and he shall go out by himself. 
-But if the servant shall plainly say, 'I love my master, my wife, and my children. I will not go out free;' 
+But if the servant shall plainly say, 'I love my master, my wife, and my children. I won't go out free;' 
 then his master shall bring him to God, and shall bring him to the door or to the doorpost, and his master shall bore his ear through with an awl, and he shall serve him for the eras. 
 "If a man sells his daughter to be a female servant, she shall not go out as the male servants do. 
 If she doesn't please her master, who has married her to himself, then he shall let her be bought back. He shall have no right to sell her to a foreign people, since he has dealt deceitfully with her. 
@@ -26,11 +26,11 @@ burning for burning, wound for wound, and bruise for bruise.
 "If a man strikes his servant's eye, or his maid's eye, and destroys it, he shall let him go free for his eye's sake. 
 If he strikes out his male servant's tooth, or his female servant's tooth, he shall let the servant go free for his tooth's sake. 
 "If a bull gores a man or a woman to death, the bull shall surely be stoned, and its meat shall not be eaten; but the owner of the bull shall not be held responsible. 
-But if the bull had a habit of goring in the past, and this has been testified to its owner, and he has not kept it in, but it has killed a man or a woman, the bull shall be stoned, and its owner shall also be put to death. 
+But if the bull had a habit of goring in the past, and this has been testified to its owner, and he hasn't kept it in, but it has killed a man or a woman, the bull shall be stoned, and its owner shall also be put to death. 
 If a ransom is imposed on him, then he shall give for the buying back of his life whatever is imposed. 
 Whether it has gored a son or has gored a daughter, according to this judgment it shall be done to him. 
 If the bull gores a male servant or a female servant, thirty shekels of silver shall be given to their master, and the ox shall be stoned. 
 "If a man opens a pit, or if a man digs a pit and doesn't cover it, and a bull or a donkey falls into it, 
 the owner of the pit shall make it good. He shall give money to its owner, and the dead animal shall be his. 
 "If one man's bull injures another's, so that it dies, then they shall sell the live bull, and divide its price; and they shall also divide the dead animal. 
-Or if it is known that the bull was in the habit of goring in the past, and its owner has not kept it in, he shall surely pay bull for bull, and the dead animal shall be his own. 
+Or if it is known that the bull was in the habit of goring in the past, and its owner hasn't kept it in, he shall surely pay bull for bull, and the dead animal shall be his own. 

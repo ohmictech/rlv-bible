@@ -1,21 +1,21 @@
 ﻿Ahab told Jezebel all that Elijah had done, and how he had killed all the spokesmen with the sword. 
 Then Jezebel sent a messenger to Elijah, saying, "So let the gods do to me, and more also, if I don't make your life as the life of one of them by tomorrow about this time!" 
 When he saw that, he arose and ran for his life, and came to Beersheba, which belongs to Judah, and left his servant there. 
-But he himself went a day's journey into the wilderness, and came and sat down under a juniper tree. Then he requested for himself that he might die, and said, "It is enough. Now, O God, take away my life; for I am not better than my fathers." 
+But he himself went a day's journey into the wilderness, and came and sat down under a juniper tree. Then he requested for himself that he might die, and said, "It is enough. Now, O God, take away my life; for I'm not better than my fathers." 
 He lay down and slept under a juniper tree; and look, an messenger touched him, and said to him, "Arise and eat!" 
 He looked, and look, there was at his head a cake baked on the coals, and a jar of water. He ate and drank, and lay down again. 
 God's messenger came again the second time, and touched him, and said, "Arise and eat, because the journey is too great for you." 
 He arose, and ate and drank, and went in the strength of that food forty days and forty nights to Horeb, God's Mountain. 
 He came to a cave there, and camped there; and look, God's word came to him, and he said to him, "What are you doing here, Elijah?" 
 He said, "I have been very jealous for the God of Armies; for the children of Israel have forsaken your covenant, thrown down your altars, and killed your spokesmen with the sword. I, even I only, am left; and they seek my life, to take it away." 
-He said, "Go out and stand on the mountain before God." Look, God passed by, and a great and strong wind tore the mountains and broke in pieces the rocks before God; but God was not in the wind. After the wind there was an earthquake; but God was not in the earthquake. 
-After the earthquake a fire passed; but God was not in the fire. After the fire, there was a still small voice. 
+He said, "Go out and stand on the mountain before God." Look, God passed by, and a great and strong wind tore the mountains and broke in pieces the rocks before God; but God wasn't in the wind. After the wind there was an earthquake; but God wasn't in the earthquake. 
+After the earthquake a fire passed; but God wasn't in the fire. After the fire, there was a still small voice. 
 When Elijah heard it, he wrapped his face in his mantle, went out, and stood in the entrance of the cave. Look, a voice came to him, and said, "What are you doing here, Elijah?" 
 He said, "I have been very jealous for the God of Armies; for the children of Israel have forsaken your covenant, thrown down your altars, and killed your spokesmen with the sword. I, even I only, am left; and they seek my life, to take it away." 
 God said to him, "Go, return on your way to the wilderness of Damascus. When you arrive, anoint Hazael to be king over Syria. 
 Anoint Jehu the son of Nimshi to be king over Israel; and anoint Elisha the son of Shaphat of Abel Meholah to be spokesman in your place. 
 He who escapes from the sword of Hazael, Jehu will kill; and he who escapes from the sword of Jehu, Elisha will kill. 
-Yet I reserved seven thousand in Israel, all the knees of which have not bowed to Baal, and every mouth that has not kissed him." 
+Yet I reserved seven thousand in Israel, all the knees of which haven't bowed to Baal, and every mouth that hasn't kissed him." 
 So he departed from there and found Elisha the son of Shaphat, who was plowing with twelve yoke of oxen before him, and he with the twelfth. Elijah went over to him and put his mantle on him. 
 Elisha left the oxen and ran after Elijah, and said, "Let me please kiss my father and my mother, and then I will follow you." He said to him, "Go back again; for what have I done to you?" 
 He returned from following him, and took the yoke of oxen, killed them, and boiled their meat with the oxen's equipment, and gave to the people; and they ate. Then he arose, and went after Elijah, and served him. 

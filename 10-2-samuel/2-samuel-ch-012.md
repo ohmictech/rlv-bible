@@ -10,17 +10,17 @@ Why have you despised God's word, to do that which is bad in his sight? You have
 Now the sword will never depart from your house, because you have despised me and have taken Uriah the Hittite's wife to be your wife.' 
 "This is what God says: 'Look, I will raise up bad against you out of your own house; and I will take your wives before your eyes and give them to your neighbor, and he will lie with your wives in the sight of this sun. 
 You did this secretly, but I will do this thing before all Israel, and before the sun.'" 
-David said to Nathan, "I have wronged God." Nathan said to David, "God also has put away your wrongdoing. You will not die. 
+David said to Nathan, "I have wronged God." Nathan said to David, "God also has put away your wrongdoing. You won't die. 
 However, because by this deed you have given great occasion to God's enemies to blaspheme, the child also who is born to you will surely die." 
 Then Nathan departed to his house. God struck the child that Uriah's wife bore to David, and he was very sick. 
 David begged God for the child; and David fasted, and went in and lay all night on the ground. 
-The elders of his house arose beside him, to raise him up from the earth; but he would not, and he didn't eat bread with them. 
+The elders of his house arose beside him, to raise him up from the earth; but he wouldn't, and he didn't eat bread with them. 
 On the seventh day, the child died. David's servants were afraid to tell him that the child was dead, for they said, "Look, while the child was yet alive, we spoke to him and he didn't listen to our voice. How will he then harm himself if we tell him that the child is dead?" 
 But when David saw that his servants were whispering together, David perceived that the child was dead; and David said to his servants, "Is the child dead?" They said, "He is dead." 
 Then David arose from the earth, and washed and anointed himself, and changed his clothing; and he came into God's house, and worshiped. Then he came to his own house; and when he requested, they set bread before him and he ate. 
 Then his servants said to him, "What is this that you have done? You fasted and wept for the child while he was alive, but when the child was dead, you rose up and ate bread." 
-He said, "While the child was yet alive, I fasted and wept; for I said, 'Who knows whether God will not be gracious to me, that the child may live?' 
-But now he is dead. Why should I fast? Can I bring him back again? I will go to him, but he will not return to me." 
+He said, "While the child was yet alive, I fasted and wept; for I said, 'Who knows whether God won't be gracious to me, that the child may live?' 
+But now he is dead. Why should I fast? Can I bring him back again? I will go to him, but he won't return to me." 
 David comforted Bathsheba his wife, and went in to her, and lay with her. She bore a son, and he called his name Solomon. God loved him; 
 and he sent by the hand of Nathan the spokesman, and he named him Jedidiah, for God's sake. 
 Now Joab fought against Rabbah of the children of Ammon, and took the royal city. 

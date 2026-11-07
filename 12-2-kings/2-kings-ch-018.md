@@ -9,7 +9,7 @@ He struck the Philistines to Gaza and its borders, from the tower of the watchme
 In the fourth year of King Hezekiah, which was the seventh year of Hoshea son of Elah king of Israel, Shalmaneser king of Assyria came up against Samaria and besieged it. 
 At the end of three years they took it. In the sixth year of Hezekiah, which was the ninth year of Hoshea king of Israel, Samaria was taken. 
 The king of Assyria carried Israel away to Assyria, and put them in Halah, and on the Habor, the river of Gozan, and in the cities of the Medes, 
-because they didn't obey their God's voice, but transgressed his covenant, even all that Moses the servant of God commanded, and would not hear it or do it. 
+because they didn't obey their God's voice, but transgressed his covenant, even all that Moses the servant of God commanded, and wouldn't hear it or do it. 
 Now in the fourteenth year of King Hezekiah, Sennacherib king of Assyria came up against all the fortified cities of Judah and took them. 
 Hezekiah king of Judah sent to the king of Assyria at Lachish, saying, "I have offended you. Withdraw from me. That which you put on me, I will bear." The king of Assyria appointed to Hezekiah king of Judah three hundred talents of silver and thirty talents of gold. 
 Hezekiah gave him all the silver that was found in God's house and in the treasures of the king's house. 
@@ -26,7 +26,7 @@ Have I now come up without God against this place to destroy it? God said to me,
 Then Eliakim the son of Hilkiah, Shebnah, and Joah, said to Rabshakeh, "Please speak to your servants in the Syrian language, for we understand it. Don't speak with us in the Jews' language, in the hearing of the people who are on the wall." 
 But Rabshakeh said to them, "Has my master sent me to your master and to you, to speak these words? Hasn't he sent me to the men who sit on the wall, to eat their own dung, and to drink their own urine with you?" 
 Then Rabshakeh stood and cried with a loud voice in the Jews' language, and spoke, saying, "Hear the word of the great king, the king of Assyria. 
-The king says, 'Don't let Hezekiah deceive you, for he will not be able to deliver you out of his hand. 
+The king says, 'Don't let Hezekiah deceive you, for he won't be able to deliver you out of his hand. 
 Don't let Hezekiah make you trust in God, saying, "God will surely deliver us, and this city shall not be given into the hand of the king of Assyria." 
 Don't listen to Hezekiah.' For the king of Assyria says, 'Make your peace with me, and come out to me; and everyone of you eat from his own vine, and everyone from his own fig tree, and everyone drink water from his own cistern; 
 until I come and take you away to a land like your own land, a land of grain and new wine, a land of bread and vineyards, a land of olive trees and of honey, that you may live and not die. Don't listen to Hezekiah when he persuades you, saying, "God will deliver us." 

@@ -6,7 +6,7 @@ The earth also is polluted under its inhabitants, because they have transgressed
 So the curse has devoured the earth, and those who dwell therein are found guilty. So the inhabitants of the earth are burned, and few men are left. 
 The new wine mourns. The vine languishes. All the merry-hearted sigh. 
 The mirth of tambourines ceases. The sound of those who rejoice ends. The joy of the harp ceases. 
-They will not drink wine with a song. Strong drink will be bitter to those who drink it. 
+They won't drink wine with a song. Strong drink will be bitter to those who drink it. 
 The confused city is broken down. Every house is shut up, that no man may come in. 
 There is a crying in the streets because of the wine. All joy is darkened. The mirth of the land is gone. 
 The city is left in desolation, and the gate is struck with destruction. 

@@ -20,6 +20,6 @@ Moreover God will deliver Israel also with you into the hand of the Philistines;
 Then Saul fell immediately his full length on the earth, and was terrified, because of Samuel's words. There was no strength in him, for he had eaten no bread all day long or all night long. 
 The woman came to Saul and saw that he was very troubled, and said to him, "Look, your servant has listened to your voice, and I have put my life in my hand, and have listened to your words which you spoke to me. 
 Now, please listen also to the voice of your servant, and let me set a morsel of bread before you. Eat, that you may have strength when you go on your way." 
-But he refused, and said, "I will not eat." But his servants, together with the woman, constrained him; and he listened to their voice. So he arose from the earth and sat on the bed. 
+But he refused, and said, "I won't eat." But his servants, together with the woman, constrained him; and he listened to their voice. So he arose from the earth and sat on the bed. 
 The woman had a fattened calf in the house. She hurried and killed it; and she took flour and kneaded it, and baked unleavened bread of it. 
 She brought it before Saul and before his servants, and they ate. Then they rose up and went away that night. 

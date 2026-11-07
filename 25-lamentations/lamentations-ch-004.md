@@ -5,7 +5,7 @@ The tongue of the nursing child clings to the roof of his mouth for thirst. The 
 Those who ate delicacies are desolate in the streets. Those who were brought up in purple embrace dunghills. 
 The guilt of the daughter of my people is greater than the wrongdoing of Sodom, which was overthrown as in a moment. No hands were laid on her. 
 Her nobles were purer than snow. They were whiter than milk. They were more ruddy in body than rubies. Their polishing was like sapphire. 
-Their appearance is blacker than a coal. They are not known in the streets. Their skin clings to their bones. It is withered. It has become like wood. 
+Their appearance is blacker than a coal. They aren't known in the streets. Their skin clings to their bones. It is withered. It has become like wood. 
 Those who are killed with the sword are better than those who are killed with hunger; for these pine away, stricken through, for lack of the fruits of the field. 
 The hands of the pitiful women have boiled their own children. They were their food in the destruction of the daughter of my people. 
 God has accomplished his wrath. He has poured out his fierce anger. He has kindled a fire in Zion, which has devoured its foundations. 
@@ -13,8 +13,8 @@ The kings of the earth didn't believe, neither did all the inhabitants of the wo
 It is because of the drifts of her spokesmen and the guilt of her priests, that have shed the blood of the just in the middle of her. 
 They wander as blind men in the streets. They are polluted with blood, So that men can't touch their garments. 
 "Go away!" they cried to them. "Unclean! Go away! Go away! Don't touch! When they fled away and wandered, men said among the nations, "They can't live here any more." 
-God's anger has scattered them. He will not pay attention to them any more. They didn't respect the persons of the priests. They didn't favor the elders. 
-Our eyes still fail, looking in vain for our help. In our watching we have watched for a nation that could not save. 
+God's anger has scattered them. He won't pay attention to them any more. They didn't respect the persons of the priests. They didn't favor the elders. 
+Our eyes still fail, looking in vain for our help. In our watching we have watched for a nation that couldn't save. 
 They hunt our steps, so that we can't go in our streets. Our end is near. Our days are fulfilled, for our end has come. 
 Our pursuers were swifter than the eagles of the sky. They chased us on the mountains. They set an ambush for us in the wilderness. 
 The breath of our nostrils, the anointed of God, was taken in their pits; of whom we said, under his shadow we will live among the nations. 

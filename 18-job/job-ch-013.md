@@ -1,5 +1,5 @@
 ﻿"Look, my eye has seen all this. My ear has heard and understood it. 
-What you know, I know also. I am not inferior to you. 
+What you know, I know also. I'm not inferior to you. 
 "Surely I would speak to the Almighty. I desire to reason with God. 
 But you are forgers of lies. You are all physicians of no value. 
 Oh that you would be completely silent! Then you would be wise. 
@@ -13,11 +13,11 @@ Your memorable sayings are proverbs of ashes. Your defenses are defenses of clay
 "Be silent! Leave me alone, that I may speak. Let come on me what will. 
 Why should I take my flesh in my teeth, and put my life in my hand? 
 Look, he will kill me. I have no hope. Nevertheless, I will maintain my ways before him. 
-This also will be my salvation, that a godless man will not come before him. 
+This also will be my salvation, that a godless man won't come before him. 
 Listen carefully to my speech. Let my declaration be in your ears. 
 See now, I have set my cause in order. I know that I am righteous. 
 Who is he who will contend with me? Then I would hold my peace and give up the spirit. 
-"Only don't do two things to me, then I will not hide myself from your face: 
+"Only don't do two things to me, then I won't hide myself from your face: 
 withdraw your hand far from me, and don't let your terror make me afraid. 
 Then call, and I will answer, or let me speak, and you answer me. 
 How many are my wrongdoings and my drift? Make me know my disobedience and my wrongdoing. 

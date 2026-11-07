@@ -31,7 +31,7 @@ You shall have one law for him who does anything unwittingly, for him who is nat
 Because he has despised God's word, and has broken his commandment, that soul shall be utterly cut off. His guilt shall be on him.'" 
 While the children of Israel were in the wilderness, they found a man gathering sticks on the Sabbath day. 
 Those who found him gathering sticks brought him to Moses and Aaron, and to all the congregation. 
-They put him in custody, because it had not been declared what should be done to him. 
+They put him in custody, because it hadn't been declared what should be done to him. 
 God said to Moses, "The man shall surely be put to death. All the congregation shall stone him with stones outside of the camp." 
 All the congregation brought him outside of the camp, and stoned him to death with stones, as God commanded Moses. 
 God spoke to Moses, saying, 

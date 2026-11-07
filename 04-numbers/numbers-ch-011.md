@@ -11,19 +11,19 @@ Moses heard the people weeping throughout their families, every man at the door 
 Moses said to God, "Why have you treated your servant so badly? Why haven't I found favor in your sight, that you lay the burden of all this people on me? 
 Have I conceived all this people? Have I brought them out, that you should tell me, 'Carry them in your bosom, as a nurse carries a nursing infant, to the land which you swore to their fathers'? 
 Where could I get meat to give all these people? They weep before me, saying, 'Give us meat, that we may eat.' 
-I am not able to bear all this people alone, because it is too heavy for me. 
+I'm not able to bear all this people alone, because it is too heavy for me. 
 If you treat me this way, please kill me right now, if I have found favor in your sight; and don't let me see my wretchedness." 
 God said to Moses, "Gather to me seventy men of the elders of Israel, whom you know to be the elders of the people and officers over them; and bring them to the Tent of Meeting, that they may stand there with you. 
 I will come down and talk with you there. I will take of the Spirit which is on you, and will put it on them; and they shall bear the burden of the people with you, that you don't bear it yourself alone. 
 "Say to the people, 'Sanctify yourselves in preparation for tomorrow, and you will eat meat; for you have wept in the ears of God, saying, "Who will give us meat to eat? It was well with us in Egypt." Therefore God will give you meat, and you will eat. 
-You will not eat just one day, or two days, or five days, or ten days, or twenty days, 
+You won't eat just one day, or two days, or five days, or ten days, or twenty days, 
 but a whole month, until it comes out at your nostrils, and it is loathsome to you; because you have rejected God who is among you, and have wept before him, saying, "Why did we come out of Egypt?"'" 
 Moses said, "The people, among whom I am, are six hundred thousand men on foot; and you have said, 'I will give them meat, that they may eat a whole month.' 
 Shall flocks and herds be slaughtered for them, to be sufficient for them? Shall all the fish of the sea be gathered together for them, to be sufficient for them?" 
 God said to Moses, "Has God's hand grown short? Now you will see whether my word will happen to you or not." 
 Moses went out, and told the people God's words; and he gathered seventy men of the elders of the people, and set them around the Tent. 
 God came down in the cloud, and spoke to him, and took of the Spirit that was on him, and put it on the seventy elders. When the Spirit rested on them, they prophesied, but they did so no more. 
-But two men remained in the camp. The name of one was Eldad, and the name of the other Medad; and the Spirit rested on them. They were of those who were written, but had not gone out to the Tent; and they prophesied in the camp. 
+But two men remained in the camp. The name of one was Eldad, and the name of the other Medad; and the Spirit rested on them. They were of those who were written, but hadn't gone out to the Tent; and they prophesied in the camp. 
 A young man ran, and told Moses, and said, "Eldad and Medad are prophesying in the camp!" 
 Joshua the son of Nun, the servant of Moses, one of his chosen men, answered, "My lord Moses, forbid them!" 
 Moses said to him, "Are you jealous for my sake? I wish that all God's people were spokesmen, that God would put his Spirit on them!" 

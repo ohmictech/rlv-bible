@@ -1,7 +1,7 @@
 ﻿When I came to you, brothers, I didn't come with great speech or wisdom, announcing to you the witness of God. 
 I decided not to know anything among you except Jesus Christ, and him crucified. 
 I was with you in weakness, in fear, and with much trembling. 
-My speech and my announcing were not in persuasive words of human wisdom, but in a demonstration of the Spirit and of power, 
+My speech and my announcing weren't in persuasive words of human wisdom, but in a demonstration of the Spirit and of power, 
 so that your trust wouldn't stand in the wisdom of people, but in the power of God. 
 We do speak wisdom, however, among those who are grown up, yet a wisdom not of this world nor of the rulers of this world, who are coming to nothing. 
 But we speak God's wisdom in a secret, the wisdom that has been hidden, which God marked out ahead of time before the eras for our weight, 

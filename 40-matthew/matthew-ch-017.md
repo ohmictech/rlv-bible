@@ -13,8 +13,8 @@ But I tell you that Elijah has come already, and they didn't recognize him, but 
 Then the students understood that he spoke to them about John the Baptist. 
 When they came to the crowd, a man came to him, kneeling down to him and saying, 
 "Lord, have mercy on my son, for he has seizures and suffers terribly, for he often falls into the fire, and often into the water. 
-So I brought him to your students, and they could not heal him." 
-Jesus answered, "You who do not trust! You twisted generation! How long will I be with you? How long will I put up with you? Bring him here to me." 
+So I brought him to your students, and they couldn't heal him." 
+Jesus answered, "You who don't trust! You twisted generation! How long will I be with you? How long will I put up with you? Bring him here to me." 
 Jesus rebuked the unclean spirit, and it went out of him, and the boy was healed from that hour. 
 Then the students came to Jesus privately, and said, "Why weren't we able to drive it out?" 
 He said to them, "Because of your lack of trust. Truly I tell you, if you have trust like a grain of mustard seed, you will tell this mountain, 'Move from here to there,' and it will move, and nothing will be impossible for you. 

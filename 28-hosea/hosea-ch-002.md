@@ -1,5 +1,5 @@
 ﻿"Say to your brothers, 'My people!' and to your sisters, 'My loved one!' 
-Contend with your mother! Contend, for she is not my wife, neither am I her husband; and let her put away her prostitution from her face, and her adulteries from between her breasts; 
+Contend with your mother! Contend, for she isn't my wife, neither am I her husband; and let her put away her prostitution from her face, and her adulteries from between her breasts; 
 lest I strip her naked, and make her bare as in the day that she was born, and make her like a wilderness, and set her like a dry land, and kill her with thirst. 
 Indeed, on her children I will have no mercy, for they are children of unfaithfulness. 
 Their mother has played the prostitute. She who conceived them has done shamefully; for she said, 'I will go after my lovers, who give me my bread and my water, my wool and my flax, my oil and my drink.' 
@@ -20,4 +20,4 @@ I will betroth you to me for the eras. Yes, I will betroth you to me in righteou
 I will even betroth you to me in faithfulness; and you shall know God. 
 It will happen in that day, that I will respond," says God. "I will respond to the sky, and they will respond to the earth; 
 and the earth will respond to the grain, and the new wine, and the oil; and they will respond to Jezreel. 
-I will sow her to me in the earth; and I will have mercy on her who had not obtained mercy; and I will tell those who were not my people, 'You are my people;' and they will say, 'You are My God!'" 
+I will sow her to me in the earth; and I will have mercy on her who hadn't obtained mercy; and I will tell those who weren't my people, 'You are my people;' and they will say, 'You are My God!'" 

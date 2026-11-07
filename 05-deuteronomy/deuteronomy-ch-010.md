@@ -7,7 +7,7 @@ I turned and came down from the mountain, and put the tablets in the ark which I
 From there they traveled to Gudgodah; and from Gudgodah to Jotbathah, a land of brooks of water. 
 At that time God set apart the tribe of Levi to bear the ark of God's covenant, to stand before God to minister to him, and to bless in his name, to this day. 
 So Levi has no portion nor inheritance with his brothers; God is his inheritance, according as your God spoke to him.) 
-I stayed on the mountain, as at the first time, forty days and forty nights; and God listened to me that time also. God would not destroy you. 
+I stayed on the mountain, as at the first time, forty days and forty nights; and God listened to me that time also. God wouldn't destroy you. 
 God said to me, "Arise, take your journey before the people; and they shall go in and possess the land which I swore to their fathers to give to them." 
 Now, Israel, what does your God require of you, but to fear your God, to walk in all his ways, to love him, and to serve your God with all your heart and with all your soul, 
 to keep God's commandments and statutes, which I command you today for your good? 

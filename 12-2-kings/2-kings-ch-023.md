@@ -19,7 +19,7 @@ He said, "Let him be! Let no one move his bones." So they let his bones alone, w
 All the houses also of the high places that were in the cities of Samaria, which the kings of Israel had made to provoke God to anger, Josiah took away, and did to them according to all the acts that he had done in Bethel. 
 He killed all the priests of the high places that were there, on the altars, and burned men's bones on them; and he returned to Jerusalem. 
 The king commanded everyone, saying, "Keep the Passover to your God, as it is written in this book of the covenant." 
-Surely there was not kept such a Passover from the days of the judges who judged Israel, nor in all the days of the kings of Israel, nor of the kings of Judah; 
+Surely there wasn't kept such a Passover from the days of the judges who judged Israel, nor in all the days of the kings of Israel, nor of the kings of Judah; 
 but in the eighteenth year of King Josiah, this Passover was kept to God in Jerusalem. 
 Moreover, Josiah removed those who had familiar spirits, the wizards, and the teraphim, and the idols, and all the abominations that were seen in the land of Judah and in Jerusalem, that he might confirm the words of the law which were written in the book that Hilkiah the priest found in God's house. 
 There was no king like him before him, who turned to God with all his heart, and with all his soul, and with all his might, according to all the law of Moses; and there was none like him who arose after him. 

@@ -9,7 +9,7 @@ Look, then I would wander far off. I would lodge in the wilderness." Selah.
 Confuse them, Lord, and confound their language, for I have seen violence and strife in the city. 
 Day and night they prowl around on its walls. Malice and abuse are also within her. 
 Destructive forces are within her. Threats and lies don't depart from her streets. 
-It was not an enemy who insulted me, then I could have endured it. Neither was it he who hated me who raised himself up against me, then I would have hidden myself from him. 
+It wasn't an enemy who insulted me, then I could have endured it. Neither was it he who hated me who raised himself up against me, then I would have hidden myself from him. 
 But it was you, a man like me, my companion, and my familiar friend. 
 We took sweet fellowship together. We walked in God's house with company. 
 Let death come suddenly on them. Let them go down alive into Hades. Guilt is among them, in their dwelling. 

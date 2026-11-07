@@ -1,5 +1,5 @@
 ﻿If I speak with the languages of people and of messengers, but don't have love, I have become a noisy gong or a clanging cymbal. 
-If I have the gift of speaking for God, and know all secrets and all knowledge, and if I have all trust, so as to move mountains, but don't have love, I am nothing. 
+If I have the gift of speaking for God, and know all secrets and all knowledge, and if I have all trust, so as to move mountains, but don't have love, I'm nothing. 
 If I give away everything I own to feed the poor, and if I hand over my body to be burned, but don't have love, it does me no good. 
 Love is patient and kind. Love doesn't envy. Love doesn't brag, and isn't proud, 
 doesn't behave badly, doesn't push for its own way, isn't easily provoked, keeps no record of wrongs; 

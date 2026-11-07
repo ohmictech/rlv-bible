@@ -1,5 +1,5 @@
 ﻿Afterward Moses and Aaron came, and said to Pharaoh, "This is what the God of Israel says, 'Let my people go, that they may hold a feast to me in the wilderness.'" 
-Pharaoh said, "Who is God, that I should listen to his voice to let Israel go? I don't know God, and moreover I will not let Israel go." 
+Pharaoh said, "Who is God, that I should listen to his voice to let Israel go? I don't know God, and moreover I won't let Israel go." 
 They said, "The God of the Hebrews has met with us. Please let us go three days' journey into the wilderness, and sacrifice to God, our God, lest he fall on us with pestilence, or with the sword." 
 The king of Egypt said to them, "Why do you, Moses and Aaron, take the people from their work? Get back to your burdens!" 
 Pharaoh said, "Look, the people of the land are now many, and you make them rest from their burdens." 
@@ -7,7 +7,7 @@ The same day Pharaoh commanded the taskmasters of the people and their officers,
 "You shall no longer give the people straw to make brick, as before. Let them go and gather straw for themselves. 
 You shall require from them the number of the bricks which they made before. You shall not diminish anything of it, for they are idle. So they cry, saying, 'Let's go and sacrifice to our God.' 
 Let heavier work be laid on the men, that they may labor in it. Don't let them pay any attention to lying words." 
-The taskmasters of the people went out with their officers, and they spoke to the people, saying, "This is what Pharaoh says: 'I will not give you straw. 
+The taskmasters of the people went out with their officers, and they spoke to the people, saying, "This is what Pharaoh says: 'I won't give you straw. 
 Go yourselves, get straw where you can find it, for nothing of your work shall be diminished.'" 
 So the people were scattered abroad throughout all the land of Egypt to gather stubble for straw. 
 The taskmasters were urgent saying, "Fulfill your work quota daily, as when there was straw!" 
@@ -20,4 +20,4 @@ The officers of the children of Israel saw that they were in trouble when it was
 They met Moses and Aaron, who stood along the way, as they came out from Pharaoh. 
 They said to them, "May God look at you and judge, because you have made us a stench to be abhorred in the eyes of Pharaoh, and in the eyes of his servants, to put a sword in their hand to kill us!" 
 Moses returned to God, and said, "Lord, why have you brought trouble on this people? Why is it that you have sent me? 
-Since I came to Pharaoh to speak in your name, he has brought trouble on this people. You have not rescued your people at all!" 
+Since I came to Pharaoh to speak in your name, he has brought trouble on this people. You haven't rescued your people at all!" 

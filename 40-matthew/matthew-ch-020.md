@@ -20,10 +20,10 @@ and will hand him over to the nations to mock, to whip, and to crucify, and the 
 Then the mother of the sons of Zebedee came to him with her sons, kneeling and asking a certain thing of him. 
 He said to her, "What do you want?" She said to him, "Command that these, my two sons, may sit, one on your right hand and one on your left hand, in your reign." 
 But Jesus answered, "You don't know what you are asking. Are you able to drink the cup I am about to drink, and be immersed as I am immersed?" They said to him, "We are able." 
-He said to them, "You will indeed drink my cup, and be immersed as I am immersed, but to sit on my right hand and on my left hand is not mine to give, but it is for those for whom it has been prepared by my Father." 
+He said to them, "You will indeed drink my cup, and be immersed as I am immersed, but to sit on my right hand and on my left hand isn't mine to give, but it is for those for whom it has been prepared by my Father." 
 When the ten heard it, they were indignant with the two brothers. 
 But Jesus summoned them, and said, "You know that the rulers of the nations lord it over them, and their great ones use their authority over them. 
-It will not be so among you, but whoever wants to become great among you will be your servant. 
+It won't be so among you, but whoever wants to become great among you will be your servant. 
 Whoever wants to be first among you will be your slave, 
 even as the Human One came not to be served, but to serve, and to give his life as a ransom price for everyone." 
 As they went out from Jericho, a great crowd followed him. 

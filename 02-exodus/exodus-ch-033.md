@@ -1,6 +1,6 @@
 ﻿God spoke to Moses, "Depart, go up from here, you and the people that you have brought up out of the land of Egypt, to the land of which I swore to Abraham, to Isaac, and to Jacob, saying, 'I will give it to your offspring.' 
 I will send an messenger before you; and I will drive out the Canaanite, the Amorite, and the Hittite, and the Perizzite, the Hivite, and the Jebusite. 
-Go to a land flowing with milk and honey; but I will not go up among you, for you are a stiff-necked people, lest I consume you on the way." 
+Go to a land flowing with milk and honey; but I won't go up among you, for you are a stiff-necked people, lest I consume you on the way." 
 When the people heard this bad news, they mourned; and no one put on his jewelry. 
 God had said to Moses, "Tell the children of Israel, 'You are a stiff-necked people. If I were to go up among you for one moment, I would consume you. So now take off your jewelry from you, that I may know what to do to you.'" 
 The children of Israel stripped themselves of their jewelry from Mount Horeb onward. 
@@ -17,7 +17,7 @@ How would people know that I have found favor in your sight, I and your people? 
 God said to Moses, "I will do this thing also that you have spoken; for you have found favor in my sight, and I know you by name." 
 Moses said, "Please show me your glory." 
 He said, "I will make all my goodness pass before you, and will proclaim God's name before you. I will be gracious to whom I will be gracious, and will show mercy on whom I will show mercy." 
-He said, "You cannot see my face, for man may not see me and live." 
+He said, "You can't see my face, for man may not see me and live." 
 God also said, "Look, there is a place by me, and you shall stand on the rock. 
 It will happen, while my glory passes by, that I will put you in a cleft of the rock, and will cover you with my hand until I have passed by; 
 then I will take away my hand, and you will see my back; but my face shall not be seen." 

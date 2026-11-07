@@ -20,7 +20,7 @@ These three were the sons of Noah, and from these the people of the whole earth 
 Noah, a farmer, began to plant a vineyard. 
 He drank some of the wine and got drunk, and he lay uncovered inside his tent. 
 Ham, the father of Canaan, saw the nakedness of his father, and told his two brothers outside. 
-Shem and Japheth took a garment, laid it across both their shoulders, and walked in backwards to cover their father's nakedness. Their faces were turned away, so they did not see their father's nakedness. 
+Shem and Japheth took a garment, laid it across both their shoulders, and walked in backwards to cover their father's nakedness. Their faces were turned away, so they didn't see their father's nakedness. 
 Noah woke from his wine and knew what his youngest son had done to him. 
 He said, "Canaan is cursed. He will be the lowest slave to his brothers." 
 He said, "Blessed be God, the God of Shem. Let Canaan be his slave. 

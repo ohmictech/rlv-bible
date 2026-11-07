@@ -15,4 +15,4 @@ Then he brought me to the door of the gate of God's house which was toward the n
 Then he said to me, "Have you seen this, son of man? You will again see yet greater abominations than these." 
 He brought me into the inner court of God's house; and I saw at the door of God's temple, between the porch and the altar, there were about twenty-five men with their backs toward God's temple and their faces toward the east. They were worshiping the sun toward the east. 
 Then he said to me, "Have you seen this, son of man? Is it a light thing to the house of Judah that they commit the abominations which they commit here? They have filled the land with violence, and have turned again to provoke me to anger. Look, they put the branch to their nose. 
-So I will also deal in wrath. My eye won't spare, neither will I have pity. Though they cry in my ears with a loud voice, yet I will not hear them." 
+So I will also deal in wrath. My eye won't spare, neither will I have pity. Though they cry in my ears with a loud voice, yet I won't hear them." 

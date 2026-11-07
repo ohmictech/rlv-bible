@@ -5,7 +5,7 @@ Pluck me out of the net that they have laid secretly for me, for you are my stro
 Into your hand I commend my spirit. You buy me back, God, God of truth. 
 I hate those who regard lying vanities, but I trust in God. 
 I will be glad and rejoice in your loving kindness, for you have seen my affliction. You have known my soul in adversities. 
-You have not shut me up into the hand of the enemy. You have set my feet in a large place. 
+You haven't shut me up into the hand of the enemy. You have set my feet in a large place. 
 Have mercy on me, God, for I am in distress. My eye, my soul, and my body waste away with grief. 
 My life is spent with sorrow, my years with sighing. My strength fails because of my guilt. My bones are wasted away. 
 Because of all my adversaries I have become utterly contemptible to my neighbors, a horror to my acquaintances. Those who saw me on the street fled from me. 

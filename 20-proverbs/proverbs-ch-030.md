@@ -1,6 +1,6 @@
 ﻿The words of Agur the son of Jakeh, the revelation: the man says to Ithiel, to Ithiel and Ucal: 
 "Surely I am the most ignorant man, and don't have a man's understanding. 
-I have not learned wisdom, neither do I have the knowledge of the Holy One. 
+I haven't learned wisdom, neither do I have the knowledge of the Holy One. 
 Who has ascended up into the sky, and descended? Who has gathered the wind in his fists? Who has bound the waters in his garment? Who has established all the ends of the earth? What is his name, and what is his son's name, if you know? 
 "Every word of God is flawless. He is a shield to those who take refuge in him. 
 Don't you add to his words, lest he reprove you, and you be found a liar. 
@@ -9,11 +9,11 @@ Remove far from me falsehood and lies. Give me neither poverty nor riches. Feed 
 lest I be full, deny you, and say, 'Who is God?' or lest I be poor, and steal, and so dishonor the name of my God. 
 "Don't slander a servant to his master, lest he curse you, and you be held guilty. 
 There is a generation that curses their father, and doesn't bless their mother. 
-There is a generation that is pure in their own eyes, yet are not washed from their filthiness. 
+There is a generation that is pure in their own eyes, yet aren't washed from their filthiness. 
 There is a generation, oh how lofty are their eyes! Their eyelids are lifted up. 
 There is a generation whose teeth are like swords, and their jaws like knives, to devour the poor from the earth, and the needy from among men. 
 "The leech has two daughters: 'Give, give.' "There are three things that are never satisfied; four that don't say, 'Enough!': 
-Hades, the barren womb, the earth that is not satisfied with water, and the fire that doesn't say, 'Enough!' 
+Hades, the barren womb, the earth that isn't satisfied with water, and the fire that doesn't say, 'Enough!' 
 "The eye that mocks at his father, and scorns obedience to his mother, the ravens of the valley shall pick it out, the young eagles shall eat it. 
 "There are three things which are too amazing for me, four which I don't understand: 
 The way of an eagle in the air, the way of a serpent on a rock, the way of a ship in the middle of the sea, and the way of a man with a maiden. 
@@ -22,7 +22,7 @@ The way of an eagle in the air, the way of a serpent on a rock, the way of a shi
 For a servant when he is king, a fool when he is filled with food, 
 for an unloved woman when she is married, and a servant who is heir to her mistress. 
 "There are four things which are little on the earth, but they are exceedingly wise: 
-The ants are not a strong people, yet they provide their food in the summer. 
+The ants aren't a strong people, yet they provide their food in the summer. 
 The hyraxes are but a feeble folk, yet make they their houses in the rocks. 
 The locusts have no king, yet they advance in ranks. 
 You can catch a lizard with your hands, yet it is in kings' palaces. 

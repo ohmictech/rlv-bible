@@ -9,7 +9,7 @@ The Scripture, foreseeing that God would make the nations right by trust, announ
 So those who are of trust are blessed along with Abraham, who trusted. 
 As many as are of the deeds of the law are under a curse. It is written, "Everyone who doesn't keep to everything written in the book of the law, to do it, is cursed." 
 Now it is clear that no one is made right by the law before God, for, "The one who is right will live by trust." 
-The law is not of trust, but, "The one who does them will live by them." 
+The law isn't of trust, but, "The one who does them will live by them." 
 Christ bought us out from the curse of the law, having become a curse for us. It is written, "Everyone who hangs on a tree is cursed," 
 so that the blessing of Abraham might come on the nations in Christ Jesus, so that we might receive the promise of the Spirit through trust. 
 Brothers, let me put it in human terms: even a person's binding arrangement, once it is confirmed, no one sets it aside or adds to it. 

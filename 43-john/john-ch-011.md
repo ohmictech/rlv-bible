@@ -1,7 +1,7 @@
 ﻿Now a certain man was sick, Lazarus from Bethany, of the village of Mary and her sister, Martha. 
 It was that Mary who had put perfume on the Lord and wiped his feet with her hair, whose brother Lazarus was sick. 
 The sisters sent to him, saying, "Lord, look, he for whom you have great affection is sick." 
-But when Jesus heard it, he said, "This sickness will not end in death. It is for God's honor, so that God's Son may be honored through it." 
+But when Jesus heard it, he said, "This sickness won't end in death. It is for God's honor, so that God's Son may be honored through it." 
 Now Jesus loved Martha, and her sister, and Lazarus. 
 When he heard that he was sick, he stayed two days in the place where he was. 
 Then after this he said to his students, "Let's go into Judea again." 
@@ -12,7 +12,7 @@ He said these things, and after that, he said to them, "Our friend Lazarus has f
 His students said, "Lord, if he has fallen asleep, he will get better." 
 Now Jesus had spoken of his death, but they thought that he spoke of taking rest in sleep. 
 So Jesus said to them plainly then, "Lazarus is dead. 
-I am glad for your sakes that I was not there, so that you may trust. Nevertheless, let's go to him." 
+I am glad for your sakes that I wasn't there, so that you may trust. Nevertheless, let's go to him." 
 Thomas, who is called Didymus, said to his fellow students, "Let's also go, that we may die with him." 
 So when Jesus came, he found that he had been in the tomb four days already. 
 Now Bethany was near Jerusalem, about two miles away. 
@@ -27,7 +27,7 @@ Whoever lives and trusts in me will never die. Do you trust this?"
 She said to him, "Yes, Lord. I have come to trust that you are the Christ, God's Son, he who comes into the world." 
 When she had said this, she went away and called her sister Mary aside privately, saying, "The Teacher is here and is calling you." 
 When she heard this, she arose quickly and went to him. 
-Now Jesus had not yet come into the village, but was in the place where Martha met him. 
+Now Jesus hadn't yet come into the village, but was in the place where Martha met him. 
 Then the Jewish people who were with her in the house and were consoling her, when they saw Mary, that she rose up quickly and went out, followed her, saying, "She is going to the tomb to weep there." 
 So when Mary came to where Jesus was and saw him, she fell down at his feet, saying to him, "Lord, if you had been here, my brother wouldn't have died." 
 When Jesus saw her weeping, and the Jewish people weeping who came with her, he groaned in the spirit and was troubled, 

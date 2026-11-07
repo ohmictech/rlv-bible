@@ -1,11 +1,11 @@
 ﻿I ask then, did God reject his people? Not a chance! I also am an Israelite, a descendant of Abraham, of the tribe of Benjamin. 
 God didn't reject his people, whom he foreknew. Or don't you know what the Scripture says about Elijah? How he pleads with God against Israel: 
 "Lord, they have killed your spokesmen. They have broken down your altars. I am left alone, and they seek my life." 
-But how does God answer him? "I have reserved for myself seven thousand men who have not bowed their knees to Baal." 
+But how does God answer him? "I have reserved for myself seven thousand men who haven't bowed their knees to Baal." 
 Even so too at this present time also there is also a remnant according to the choosing of favor. 
 And if by favor, then it is no longer of deeds; otherwise favor is no longer favor. 
 What then? That which Israel seeks for, that he didn't obtain, but the chosen ones obtained it, and the rest were hardened. 
-According as it is written, "God gave them a spirit of numbness, eyes that they should not see, and ears that they should not hear, to this very day." 
+According as it is written, "God gave them a spirit of numbness, eyes that they shouldn't see, and ears that they shouldn't hear, to this very day." 
 David says, "Let their table be made a snare, a trap, a stone in their way, and a payback to them. 
 Let their eyes be darkened, that they may not see. Always keep their backs bent." 
 I ask then, did they stumble so that they would fall? Not a chance! But by their fall rescue has come to the nations, to provoke them to jealousy. 
@@ -15,7 +15,7 @@ if by any means I may provoke to jealousy those who are my flesh, and may rescue
 If the rejection of them is the bringing back of the world, what would their acceptance be, but real life from the dead? 
 If the first fruit is set apart, so is the lump. If the root is set apart, so are the branches. 
 But if some of the branches were broken off, and you, being a wild olive, were grafted in among them and became partaker with them of the root and of the richness of the olive tree, 
-don't boast over the branches. But if you boast, remember that it is not you who support the root, but the root supports you. 
+don't boast over the branches. But if you boast, remember that it isn't you who support the root, but the root supports you. 
 You will say then, "Branches were broken off, so that I could be grafted in." 
 True; by their lack of trust they were broken off, and you stand by your trust. Don't be conceited, but fear; 
 for if God didn't spare the natural branches, neither will he spare you. 

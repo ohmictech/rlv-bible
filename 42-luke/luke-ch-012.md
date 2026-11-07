@@ -1,5 +1,5 @@
 ﻿Meanwhile, when a crowd of many thousands had gathered together, so that they trampled on each other, he began to tell his students first of all, "Beware of the yeast of the strict religious ones, which is pretending. 
-But there is nothing covered up that will not be revealed, nor hidden that will not be known. 
+But there is nothing covered up that won't be revealed, nor hidden that won't be known. 
 So whatever you have said in the darkness will be heard in the light. What you have spoken in the ear in the inner rooms will be proclaimed on the housetops. 
 "I tell you, my friends, don't be afraid of those who kill the body, and after that have no more that they can do. 
 But I will warn you whom you should fear. Fear him who after he has killed, has power to cast into Gehenna. Yes, I tell you, fear him. 
@@ -7,7 +7,7 @@ But I will warn you whom you should fear. Fear him who after he has killed, has 
 But the very hairs of your head are all counted. So don't be afraid. You are of more value than many sparrows. 
 "I tell you, everyone who acknowledges me in front of people, the Human One will also acknowledge them in front of the messengers of God; 
 but he who disowns me in the presence of men will be disowned in the presence of God's messengers. 
-Everyone who speaks a word against the Human One will be released, but those who slander the Holy Spirit will not be released. 
+Everyone who speaks a word against the Human One will be released, but those who slander the Holy Spirit won't be released. 
 When they bring you before the gathering places, the rulers, and the authorities, don't be anxious how or what you will answer or what you will say; 
 for the Holy Spirit will teach you at that same time what you must say." 
 One of the crowd said to him, "Teacher, tell my brother to divide the inheritance with me." 
@@ -18,13 +18,13 @@ He reasoned within himself, saying, 'What will I do, because I don't have room t
 He said, 'This is what I will do. I will pull down my barns, build bigger ones, and there I will store all my grain and my goods. 
 I will say to my life, "Life, you have plenty stored up for many years. Take it easy, eat, drink, and be merry."' 
 "But God said to him, 'You foolish one, tonight your life is required of you. The things which you have prepared, whose will they be?' 
-So is he who lays up treasure for himself, and is not rich toward God." 
+So is he who lays up treasure for himself, and isn't rich toward God." 
 He said to his students, "Therefore I tell you, don't be anxious for your life, what you will eat, nor yet for your body, what you will wear. 
 Life is more than food, and the body is more than clothing. 
 Consider the ravens: they don't sow, they don't reap, they have no warehouse or barn, and God feeds them. How much more valuable are you than birds! 
 Which of you by being anxious can add a cubit to his height? 
 If then you aren't able to do even the least things, why are you anxious about the rest? 
-Consider the lilies, how they grow. They don't toil, neither do they spin; yet I tell you, even Solomon in all his weight was not dressed like one of these. 
+Consider the lilies, how they grow. They don't toil, neither do they spin; yet I tell you, even Solomon in all his weight wasn't dressed like one of these. 
 But if this is how God clothes the grass in the field, which today exists and tomorrow is cast into the oven, how much more will he clothe you, you of little trust? 
 "Don't seek what you will eat or what you will drink; neither be anxious. 
 The nations of the world seek after all of these things, but your Father knows that you need these things. 

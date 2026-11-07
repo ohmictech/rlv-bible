@@ -19,7 +19,7 @@ There was no Passover like that kept in Israel from the days of Samuel the spoke
 This Passover was kept in the eighteenth year of the reign of Josiah. 
 After all this, when Josiah had prepared the temple, Neco king of Egypt went up to fight against Carchemish by the Euphrates, and Josiah went out against him. 
 But he sent ambassadors to him, saying, "What have I to do with you, you king of Judah? I come not against you today, but against the house with which I have war. God has commanded me to make haste. Beware that it is God who is with me, that he not destroy you." 
-Nevertheless Josiah would not turn his face from him, but disguised himself, that he might fight with him, and didn't listen to the words of Neco from the mouth of God, and came to fight in the valley of Megiddo. 
+Nevertheless Josiah wouldn't turn his face from him, but disguised himself, that he might fight with him, and didn't listen to the words of Neco from the mouth of God, and came to fight in the valley of Megiddo. 
 The archers shot at King Josiah; and the king said to his servants, "Take me away, because I am seriously wounded!" 
 So his servants took him out of the chariot, and put him in the second chariot that he had, and brought him to Jerusalem; and he died, and was buried in the tombs of his fathers. All Judah and Jerusalem mourned for Josiah. 
 Jeremiah lamented for Josiah, and all the singing men and driftsging women spoke of Josiah in their lamentations to this day; and they made them an ordinance in Israel. Look, they are written in the lamentations. 

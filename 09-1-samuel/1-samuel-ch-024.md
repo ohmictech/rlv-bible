@@ -7,10 +7,10 @@ He said to his men, "God forbid that I should do this thing to my lord, God's an
 So David checked his men with these words, and didn't allow them to rise against Saul. Saul rose up out of the cave, and went on his way. 
 David also arose afterward, and went out of the cave and cried after Saul, saying, "My lord the king!" When Saul looked behind him, David bowed with his face to the earth, and showed respect. 
 David said to Saul, "Why do you listen to men's words, saying, 'Look, David seeks to harm you'? 
-Look, today your eyes have seen how God had delivered you today into my hand in the cave. Some urged me to kill you, but I spared you. I said, 'I will not stretch out my hand against my lord, for he is God's anointed.' 
-Moreover, my father, look, yes, see the skirt of your robe in my hand; for in that I cut off the skirt of your robe and didn't kill you, know and see that there is neither bad nor disobedience in my hand. I have not wronged you, though you hunt for my life to take it. 
-May God judge between me and you, and may God avenge me of you; but my hand will not be on you. 
-As the proverb of the ancients says, 'Out of the guilty comes guilt;' but my hand will not be on you. 
+Look, today your eyes have seen how God had delivered you today into my hand in the cave. Some urged me to kill you, but I spared you. I said, 'I won't stretch out my hand against my lord, for he is God's anointed.' 
+Moreover, my father, look, yes, see the skirt of your robe in my hand; for in that I cut off the skirt of your robe and didn't kill you, know and see that there is neither bad nor disobedience in my hand. I haven't wronged you, though you hunt for my life to take it. 
+May God judge between me and you, and may God avenge me of you; but my hand won't be on you. 
+As the proverb of the ancients says, 'Out of the guilty comes guilt;' but my hand won't be on you. 
 Against whom has the king of Israel come out? Whom do you pursue? A dead dog? A flea? 
 May God be judge, and give sentence between me and you, and see, and plead my cause, and deliver me out of your hand." 
 It came to pass, when David had finished speaking these words to Saul, that Saul said, "Is that your voice, my son David?" Saul lifted up his voice and wept. 
@@ -18,5 +18,5 @@ He said to David, "You are more righteous than I; for you have done good to me, 
 You have declared today how you have dealt well with me, because when God had delivered me up into your hand, you didn't kill me. 
 If a man finds his enemy, will he let him go away unharmed? So may God reward you good for that which you have done to me today. 
 Now, look, I know that you will surely be king, and that the kingdom of Israel will be established in your hand. 
-Swear now to me by God that you will not cut off my offspring after me, and that you will not destroy my name out of my father's house." 
+Swear now to me by God that you won't cut off my offspring after me, and that you won't destroy my name out of my father's house." 
 David swore to Saul. Saul went home, but David and his men went up to the stronghold. 

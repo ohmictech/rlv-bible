@@ -5,9 +5,9 @@ Thus God showed me: look, God called for judgment by fire; and it dried up the g
 Then I said, "God, stop, I beg you! How could Jacob stand? He is small." 
 God relented concerning this. "This also shall not be," says God. 
 Thus he showed me: look, the Lord stood beside a wall made by a plumb line, with a plumb line in his hand. 
-God said to me, "Amos, what do you see?" I said, "A plumb line." Then the Lord said, "Look, I will set a plumb line in the middle of my people Israel. I will not again pass by them any more. 
+God said to me, "Amos, what do you see?" I said, "A plumb line." Then the Lord said, "Look, I will set a plumb line in the middle of my people Israel. I won't again pass by them any more. 
 The high places of Isaac will be desolate, the sanctuaries of Israel will be laid waste; and I will rise against the house of Jeroboam with the sword." 
-Then Amaziah the priest of Bethel sent to Jeroboam king of Israel, saying, "Amos has conspired against you in the middle of the house of Israel. The land is not able to bear all his words. 
+Then Amaziah the priest of Bethel sent to Jeroboam king of Israel, saying, "Amos has conspired against you in the middle of the house of Israel. The land isn't able to bear all his words. 
 Amos says, 'Jeroboam will die by the sword, and Israel shall surely be led away captive out of his land.'" 
 Amaziah also said to Amos, "You seer, go, flee away into the land of Judah, and there eat bread, and prophesy there, 
 but don't prophesy again any more at Bethel; for it is the king's sanctuary, and it is a royal house!" 

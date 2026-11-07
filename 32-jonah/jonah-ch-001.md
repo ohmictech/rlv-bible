@@ -10,7 +10,7 @@ He said to them, "I am a Hebrew, and I fear the God of the sky, who has made the
 Then the men were exceedingly afraid, and said to him, "What have you done?" For the men knew that he was fleeing from the presence of God, because he had told them. 
 Then they said to him, "What shall we do to you, that the sea may be calm to us?" For the sea grew more and more stormy. 
 He said to them, "Take me up, and throw me into the sea. Then the sea will be calm for you; for I know that because of me this great storm is on you." 
-Nevertheless the men rowed hard to get them back to the land; but they could not, for the sea grew more and more stormy against them. 
+Nevertheless the men rowed hard to get them back to the land; but they couldn't, for the sea grew more and more stormy against them. 
 So they cried to God, and said, "We beg you, God, we beg you, don't let us die for this man's life, and don't lay on us innocent blood; for you, God, have done as it pleased you." 
 So they took up Jonah and threw him into the sea; and the sea ceased its raging. 
 Then the men feared God exceedingly; and they offered a sacrifice to God and made vows. 

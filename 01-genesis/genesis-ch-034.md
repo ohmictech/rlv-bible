@@ -14,7 +14,7 @@ The sons of Jacob answered Shechem and Hamor his father with deceit when they sp
 and said to them, "We can't do this thing, to give our sister to one who is uncircumcised; for that is a reproach to us. 
 Only on this condition will we consent to you. If you will be as we are, that every male of you be circumcised, 
 then will we give our daughters to you; and we will take your daughters to us, and we will dwell with you, and we will become one people. 
-But if you will not listen to us and be circumcised, then we will take our sister, and we will be gone." 
+But if you won't listen to us and be circumcised, then we will take our sister, and we will be gone." 
 Their words pleased Hamor and Shechem, Hamor's son. 
 The young man didn't wait to do this thing, because he had delight in Jacob's daughter, and he was honored above all the house of his father. 
 Hamor and Shechem, his son, came to the gate of their city, and talked with the men of their city, saying, 

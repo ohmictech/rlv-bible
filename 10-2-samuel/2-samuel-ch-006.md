@@ -7,7 +7,7 @@ When they came to the threshing floor of Nacon, Uzzah reached for God's ark and 
 God's anger burned against Uzzah, and God struck him there for his error; and he died there by God's ark. 
 David was displeased because God had broken out against Uzzah; and he called that place Perez Uzzah to this day. 
 David was afraid of God that day; and he said, "How could God's ark come to me?" 
-So David would not move God's ark to be with him in David's city; but David carried it aside into Obed-Edom the Gittite's house. 
+So David wouldn't move God's ark to be with him in David's city; but David carried it aside into Obed-Edom the Gittite's house. 
 God's ark remained in Obed-Edom the Gittite's house three months; and God blessed Obed-Edom and all his house. 
 King David was told, "God has blessed the house of Obed-Edom, and all that belongs to him, because of God's ark." So David went and brought up God's ark from the house of Obed-Edom into David's city with joy. 
 When those who bore God's ark had gone six paces, he sacrificed an ox and a fattened calf. 

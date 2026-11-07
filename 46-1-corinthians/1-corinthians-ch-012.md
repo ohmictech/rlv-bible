@@ -11,8 +11,8 @@ and to another powerful works, and to another speaking for God, and to another t
 But the one and the same Spirit produces all of these, distributing to each one separately as he desires. 
 As the body is one and has many members, and all the members of the body, being many, are one body; so also is Christ. 
 In one Spirit we were all immersed into one body, whether Jewish people or Greeks, whether slaves or free; and we were all given one Spirit to drink. 
-The body is not one member, but many. 
-If the foot would say, "Because I'm not the hand, I'm not part of the body," it is not not part of the body. 
+The body isn't one member, but many. 
+If the foot would say, "Because I'm not the hand, I'm not part of the body," it isn't not part of the body. 
 If the ear would say, "Because I'm not the eye, I'm not part of the body," it's not not part of the body. 
 If the whole body were an eye, where would the hearing be? If the whole were hearing, where would the smelling be? 
 But now God has set the members, each one of them, in the body, just as he desired. 

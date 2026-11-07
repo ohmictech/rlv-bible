@@ -12,7 +12,7 @@ Elkanah went to Ramah to his house. The child served God before Eli the priest.
 Now the sons of Eli were guilty men. They didn't know God. 
 The custom of the priests with the people was that when anyone offered a sacrifice, the priest's servant came while the meat was boiling, with a fork of three teeth in his hand; 
 and he stabbed it into the pan, or kettle, or cauldron, or pot. The priest took all that the fork brought up for himself. They did this to all the Israelites who came there to Shiloh. 
-Yes, before they burned the fat, the priest's servant came, and said to the man who sacrificed, "Give meat to roast for the priest; for he will not accept boiled meat from you, but raw." 
+Yes, before they burned the fat, the priest's servant came, and said to the man who sacrificed, "Give meat to roast for the priest; for he won't accept boiled meat from you, but raw." 
 If the man said to him, "Let the fat be burned first, and then take as much as your soul desires;" then he would say, "No, but you shall give it to me now; and if not, I will take it by force." 
 The wrongdoing of the young men was very great before God; for the men despised God's offering. 
 But Samuel ministered before God, being a child, clothed with a linen ephod. 
@@ -21,14 +21,14 @@ Eli blessed Elkanah and his wife, and said, "May God give you offspring from thi
 God visited Hannah, and she conceived and bore three sons and two daughters. The child Samuel grew before God. 
 Now Eli was very old; and he heard all that his sons did to all Israel, and how that they slept with the women who served at the door of the Tent of Meeting. 
 He said to them, "Why do you do such things? I hear of your bad dealings from all these people. 
-No, my sons; for it is not a good report that I hear! You make God's people disobey. 
+No, my sons; for it isn't a good report that I hear! You make God's people disobey. 
 If one man wrongs another, God will judge him; but if a man wrongs God, who will intercede for him?" Notwithstanding, they didn't listen to the voice of their father, because God intended to kill them. 
 The child Samuel grew on, and increased in favor both with God and also with men. 
 A man of God came to Eli and said to him, "God says, 'Did I reveal myself to the house of your father when they were in Egypt in bondage to Pharaoh's house? 
 Didn't I choose him out of all the tribes of Israel to be my priest, to go up to my altar, to burn incense, to wear an ephod before me? Didn't I give to the house of your father all the offerings of the children of Israel made by fire? 
 Why do you kick at my sacrifice and at my offering, which I have commanded in my habitation, and honor your sons above me, to make yourselves fat with the best of all the offerings of Israel my people?' 
 "Therefore the God of Israel says, 'I said indeed that your house and the house of your father should walk before me for the eras.' But now God says, 'Far be it from me; for those who honor me I will honor, and those who despise me will be cursed. 
-Look, the days come that I will cut off your arm and the arm of your father's house, that there will not be an old man in your house. 
+Look, the days come that I will cut off your arm and the arm of your father's house, that there won't be an old man in your house. 
 You will see the affliction of my habitation, in all the wealth which I will give Israel. There shall not be an old man in your house for the eras. 
 The man of yours whom I don't cut off from my altar will consume your eyes and grieve your heart. All the increase of your house will die in the flower of their age. 
 This will be the sign to you that will come on your two sons, on Hophni and Phinehas: in one day they will both die. 

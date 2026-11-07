@@ -9,7 +9,7 @@ Lay your hand on him. Remember the battle, and do so no more.
 Look, the hope of him is in vain. Won't one be cast down even at the sight of him? 
 None is so fierce that he dare stir him up. Who then is he who can stand before me? 
 Who has first given to me, that I should repay him? Everything under the sky is mine. 
-"I will not keep silence concerning his limbs, nor his mighty strength, nor his goodly frame. 
+"I won't keep silence concerning his limbs, nor his mighty strength, nor his goodly frame. 
 Who can strip off his outer garment? Who will come within his jaws? 
 Who can open the doors of his face? Around his teeth is terror. 
 Strong scales are his pride, shut up together with a close seal. 
@@ -30,5 +30,5 @@ Clubs are counted as stubble. He laughs at the rushing of the javelin.
 His undersides are like sharp potsherds, leaving a trail in the mud like a threshing sledge. 
 He makes the deep to boil like a pot. He makes the sea like a pot of ointment. 
 He makes a path shine after him. One would think the deep had white hair. 
-On earth there is not his equal, that is made without fear. 
+On earth there isn't his equal, that is made without fear. 
 He sees everything that is high. He is king over all the sons of pride." 

@@ -5,10 +5,10 @@ When I lie down, I say, 'When will I arise, and the night be gone?' I toss and t
 My flesh is clothed with worms and clods of dust. My skin closes up, and breaks out afresh. 
 My days are swifter than a weaver's shuttle, and are spent without hope. 
 Oh remember that my life is a breath. My eye will no more see good. 
-The eye of him who sees me will see me no more. Your eyes will be on me, but I will not be. 
+The eye of him who sees me will see me no more. Your eyes will be on me, but I won't be. 
 As the cloud is consumed and vanishes away, so he who goes down to Hades will come up no more. 
 He will return no more to his house, neither will his place know him any more. 
-"So I will not keep silent. I will speak in the anguish of my spirit. I will complain in the bitterness of my soul. 
+"So I won't keep silent. I will speak in the anguish of my spirit. I will complain in the bitterness of my soul. 
 Am I a sea, or a sea monster, that you put a guard over me? 
 When I say, 'My bed will comfort me. My couch will ease my complaint,' 
 then you scare me with dreams and terrify me through visions, 
@@ -18,4 +18,4 @@ What is man, that you should magnify him, that you should set your mind on him,
 that you should visit him every morning, and test him every moment? 
 How long will you not look away from me, nor leave me alone until I swallow down my spittle? 
 If I have drifted, what do I do to you, you watcher of men? Why have you set me as a mark for you, so that I am a burden to myself? 
-Why do you not pardon my disobedience, and take away my guilt? Now will I lie down in the dust. You will seek me diligently, but I will not be." 
+Why do you not pardon my disobedience, and take away my guilt? Now will I lie down in the dust. You will seek me diligently, but I won't be." 

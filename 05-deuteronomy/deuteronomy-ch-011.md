@@ -1,5 +1,5 @@
 ﻿So you shall love your God, and keep his instructions, his statutes, his ordinances, and his commandments, always. 
-Know this day, for I don't speak with your children who have not known, and who have not seen the chastisement of your God, his greatness, his mighty hand, his outstretched arm, 
+Know this day, for I don't speak with your children who haven't known, and who haven't seen the chastisement of your God, his greatness, his mighty hand, his outstretched arm, 
 his signs, and his works, which he did in the middle of Egypt to Pharaoh the king of Egypt, and to all his land; 
 and what he did to the army of Egypt, to their horses, and to their chariots; how he made the water of the Red Sea to overflow them as they pursued you, and how God has destroyed them to this day; 
 and what he did to you in the wilderness until you came to this place; 
@@ -25,7 +25,7 @@ Every place on which the sole of your foot treads shall be yours: from the wilde
 No man will be able to stand before you. Your God will lay the fear of you and the dread of you on all the land that you tread on, as he has spoken to you. 
 Look, I set before you today a blessing and a curse: 
 the blessing, if you listen to the commandments of your God, which I command you today; 
-and the curse, if you do not listen to the commandments of your God, but turn away out of the way which I command you today, to go after other gods which you have not known. 
+and the curse, if you don't listen to the commandments of your God, but turn away out of the way which I command you today, to go after other gods which you haven't known. 
 It shall happen, when your God brings you into the land that you go to possess, that you shall set the blessing on Mount Gerizim, and the curse on Mount Ebal. 
 Aren't they beyond the Jordan, behind the way of the going down of the sun, in the land of the Canaanites who dwell in the Arabah near Gilgal, beside the oaks of Moreh? 
 You are to pass over the Jordan to go in to possess the land which your God gives you, and you shall possess it and dwell in it. 

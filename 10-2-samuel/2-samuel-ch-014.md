@@ -7,10 +7,10 @@ Your servant had two sons; and they both fought together in the field, and there
 Look, the whole family has risen against your servant, and they say, 'Deliver him who struck his brother, that we may kill him for the life of his brother whom he killed, and so destroy the heir also.' Thus they would quench my coal which is left, and would leave to my husband neither name nor remainder on the surface of the earth." 
 The king said to the woman, "Go to your house, and I will give a command concerning you." 
 The woman of Tekoa said to the king, "My lord, O king, may the guilt be on me, and on my father's house; and may the king and his throne be guiltless." 
-The king said, "Whoever says anything to you, bring him to me, and he will not bother you any more." 
+The king said, "Whoever says anything to you, bring him to me, and he won't bother you any more." 
 Then she said, "Please let the king remember your God, that the avenger of blood destroy not any more, lest they destroy my son." He said, "As God lives, not one hair of your son shall fall to the earth." 
 Then the woman said, "Please let your servant speak a word to my lord the king." He said, "Say on." 
-The woman said, "Why then have you devised such a thing against the people of God? In speaking this word the king is as one who is guilty, in that the king does not bring home again his banished one. 
+The woman said, "Why then have you devised such a thing against the people of God? In speaking this word the king is as one who is guilty, in that the king doesn't bring home again his banished one. 
 We must die, and are like water spilled on the ground, which can't be gathered up again; neither does God take away life, but devises means, that he who is banished not be an outcast from him. 
 Now, seeing that I have come to speak this word to my lord the king, it is because the people have made me afraid. Your servant said, 'I will now speak to the king; it may be that the king will perform the request of his servant.' 
 For the king will hear, to deliver his servant out of the hand of the man who would destroy me and my son together out of the inheritance of God. 
@@ -26,7 +26,7 @@ Now in all Israel there was no one to be so much praised as Absalom for his beau
 When he cut the hair of his head (now it was at every year's end that he cut it; because it was heavy on him, he cut it), he weighed the hair of his head at two hundred shekels, after the king's weight. 
 Three sons were born to Absalom, and one daughter, whose name was Tamar. She was a woman with a beautiful face. 
 Absalom lived two full years in Jerusalem, and he didn't see the king's face. 
-Then Absalom sent for Joab, to send him to the king, but he would not come to him. Then he sent again a second time, but he would not come. 
+Then Absalom sent for Joab, to send him to the king, but he wouldn't come to him. Then he sent again a second time, but he wouldn't come. 
 So he said to his servants, "Look, Joab's field is near mine, and he has barley there. Go and set it on fire." So Absalom's servants set the field on fire. 
 Then Joab arose and came to Absalom to his house, and said to him, "Why have your servants set my field on fire?" 
 Absalom answered Joab, "Look, I sent to you, saying, 'Come here, that I may send you to the king, to say, "Why have I come from Geshur? It would be better for me to be there still. Now, let me see the king's face; and if there is guilt in me, let him kill me."'" 

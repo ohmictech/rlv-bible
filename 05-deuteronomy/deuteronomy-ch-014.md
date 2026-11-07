@@ -21,7 +21,7 @@ Of all clean birds you may eat.
 You shall not eat of anything that dies of itself. You may give it to the foreigner living among you who is within your gates, that he may eat it; or you may sell it to a foreigner; for you are a holy people to your God. You shall not boil a young goat in its mother's milk. 
 You shall surely tithe all the increase of your seed, that which comes out of the field year by year. 
 You shall eat before your God, in the place which he chooses to cause his name to dwell, the tithe of your grain, of your new wine, and of your oil, and the firstborn of your herd and of your flock; that you may learn to fear your God always. 
-If the way is too long for you, so that you are not able to carry it because the place which your God shall choose to set his name there is too far from you, when your God blesses you, 
+If the way is too long for you, so that you aren't able to carry it because the place which your God shall choose to set his name there is too far from you, when your God blesses you, 
 then you shall turn it into money, bind up the money in your hand, and shall go to the place which your God shall choose. 
 You shall trade the money for whatever your soul desires: for cattle, or for sheep, or for wine, or for strong drink, or for whatever your soul asks of you. You shall eat there before your God, and you shall rejoice, you and your household. 
 You shall not forsake the Levite who is within your gates, for he has no portion nor inheritance with you. 

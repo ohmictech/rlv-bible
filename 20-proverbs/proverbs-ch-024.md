@@ -11,7 +11,7 @@ If you falter in the time of trouble, your strength is small.
 Rescue those who are being led away to death! Indeed, hold back those who are staggering to the slaughter! 
 If you say, "Look, we didn't know this," doesn't he who weighs the hearts consider it? He who keeps your soul, doesn't he know it? Shall he not give to every man according to his work? 
 My son, eat honey, for it is good, the droppings of the honeycomb, which are sweet to your taste; 
-so you shall know wisdom to be to your soul. If you have found it, then there will be a reward: Your hope will not be cut off. 
+so you shall know wisdom to be to your soul. If you have found it, then there will be a reward: Your hope won't be cut off. 
 Don't lay in wait, guilty man, against the habitation of the righteous. Don't destroy his resting place; 
 for a righteous man falls seven times and rises up again, but the guilty are overthrown by calamity. 
 Don't rejoice when your enemy falls. Don't let your heart be glad when he is overthrown, 
@@ -20,7 +20,7 @@ Don't fret yourself because of those who do bad, neither be envious of the guilt
 for there will be no reward to the bad man. The lamp of the guilty will be snuffed out. 
 My son, fear God and the king. Don't join those who are rebellious, 
 for their calamity will rise suddenly. Who knows what destruction may come from them both? 
-These also are sayings of the wise: To show partiality in judgment is not good. 
+These also are sayings of the wise: To show partiality in judgment isn't good. 
 He who says to the guilty, "You are righteous," peoples will curse him, and nations will abhor him 
 but it will go well with those who convict the guilty, and a rich blessing will come on them. 
 An honest answer is like a kiss on the lips. 

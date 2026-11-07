@@ -24,19 +24,19 @@ and said, "Whose daughter are you? Please tell me. Is there room in your father'
 She said to him, "I am the daughter of Bethuel the son of Milcah, whom she bore to Nahor." 
 She said moreover to him, "We have both straw and feed enough, and room to lodge in." 
 The man bowed his head, and worshiped God. 
-He said, "Blessed be the God of my master Abraham, who has not forsaken his loving kindness and his truth toward my master. As for me, God has led me on the way to the house of my master's relatives." 
+He said, "Blessed be the God of my master Abraham, who hasn't forsaken his loving kindness and his truth toward my master. As for me, God has led me on the way to the house of my master's relatives." 
 The young lady ran, and told her mother's house about these words. 
 Rebekah had a brother, and his name was Laban. Laban ran out to the man, to the spring. 
 When he saw the ring, and the bracelets on his sister's hands, and when he heard the words of Rebekah his sister, saying, "This is what the man said to me," he came to the man. Look, he was standing by the camels at the spring. 
 He said, "Come in, you blessed of God. Why do you stand outside? I have prepared the house, and room for the camels." 
 The man came into the house, and he unloaded the camels. He gave straw and feed for the camels, and water to wash his feet and the feet of the men who were with him. 
-Food was set before him to eat, but he said, "I will not eat until I have told my message." Laban said, "Speak on." 
+Food was set before him to eat, but he said, "I won't eat until I have told my message." Laban said, "Speak on." 
 He said, "I am Abraham's servant. 
 God has blessed my master greatly. He has become great. God has given him flocks and herds, silver and gold, male servants and female servants, and camels and donkeys. 
 Sarah, my master's wife, bore a son to my master when she was old. He has given all that he has to him. 
 My master made me swear, saying, 'You shall not take a wife for my son from the daughters of the Canaanites, in whose land I live, 
 but you shall go to my father's house, and to my relatives, and take a wife for my son.' 
-I asked my master, 'What if the woman will not follow me?' 
+I asked my master, 'What if the woman won't follow me?' 
 He said to me, 'God, before whom I walk, will send his messenger with you, and prosper your way. You shall take a wife for my son from my relatives, and of my father's house. 
 Then you will be clear from my oath, when you come to my relatives. If they don't give her to you, you shall be clear from my oath.' 
 I came today to the spring, and said, 'The God of my master Abraham, if now you do prosper my way which I go 

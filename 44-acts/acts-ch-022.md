@@ -15,7 +15,7 @@ He said, 'The God of our fathers has appointed you to know his will, and to see 
 You will be a witness for him to everyone of what you have seen and heard. 
 Now why do you wait? Get up, be immersed, and wash away your mistakes, calling on the name of the Lord.' 
 "When I had returned to Jerusalem and while I prayed in the temple courts, I fell into a trance 
-and saw him saying to me, 'Hurry and get out of Jerusalem quickly, because they will not receive your witness concerning me.' 
+and saw him saying to me, 'Hurry and get out of Jerusalem quickly, because they won't receive your witness concerning me.' 
 I said, 'Lord, they themselves know that I imprisoned and beat in every gathering place those who trusted in you. 
 When the blood of Stephen, your witness, was shed, I also was standing by, consenting to his death, and guarding the cloaks of those who killed him.' 
 "He said to me, 'Depart, for I will send you out far from here to the nations.' " 

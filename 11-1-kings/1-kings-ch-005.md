@@ -1,6 +1,6 @@
 ﻿Hiram king of Tyre sent his servants to Solomon, for he had heard that they had anointed him king in the place of his father, and Hiram had always loved David. 
 Solomon sent to Hiram, saying, 
-"You know that David my father could not build a house for the name of his God because of the wars which were around him on every side, until God put his enemies under the soles of his feet. 
+"You know that David my father couldn't build a house for the name of his God because of the wars which were around him on every side, until God put his enemies under the soles of his feet. 
 But now my God has given me rest on every side. There is no enemy and no bad occurrence. 
 Look, I intend to build a house for the name of my God, as God spoke to David my father, saying, 'Your son, whom I will set on your throne in your place shall build the house for my name.' 
 Now command that cedar trees be cut for me out of Lebanon. My servants will be with your servants; and I will give you wages for your servants according to all that you say. You know that there is nobody among us who knows how to cut timber like the Sidonians." 

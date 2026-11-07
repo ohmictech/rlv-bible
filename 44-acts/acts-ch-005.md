@@ -36,7 +36,7 @@ He said to them, "Men of Israel, be careful concerning these men, what you are a
 Before these days Theudas rose up, making himself out to be somebody, and about four hundred men joined him. He was slain; and all, as many as obeyed him, were dispersed and came to nothing. 
 After this man, Judas of Galilee rose up in the days of the enrollment, and drew away some people after him. He also died, and all, as many as obeyed him, were scattered abroad. 
 Now I tell you, withdraw from these men and leave them alone. If this counsel or this work is of people, it will be overthrown. 
-But if it is of God, you will not be able to overthrow it, and you would be found even to be fighting against God!" 
+But if it is of God, you won't be able to overthrow it, and you would be found even to be fighting against God!" 
 They agreed with him. Summoning the sent ones, they beat them and commanded them not to speak in the name of Jesus, and let them go. 
 They departed from the presence of the council, celebrating that they were counted worthy to suffer dishonor for Jesus' name. 
 Every day, in the temple courts and at home, they never stopped teaching and announcing the good news that Jesus is the Christ. 

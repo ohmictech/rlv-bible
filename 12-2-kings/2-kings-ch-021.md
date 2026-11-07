@@ -5,7 +5,7 @@ He built altars in God's house, of which God said, "I will put my name in Jerusa
 He built altars for all the army of the sky in the two courts of God's house. 
 He made his son to pass through the fire, practiced sorcery, used enchantments, and dealt with those who had familiar spirits and with wizards. He did much bad in God's sight, to provoke him to anger. 
 He set the engraved image of Asherah that he had made in the house of which God said to David and to Solomon his son, "In this house, and in Jerusalem, which I have chosen out of all the tribes of Israel, I will put my name for the eras; 
-I will not cause the feet of Israel to wander any more out of the land which I gave their fathers, if only they will observe to do according to all that I have commanded them, and according to all the law that my servant Moses commanded them." 
+I won't cause the feet of Israel to wander any more out of the land which I gave their fathers, if only they will observe to do according to all that I have commanded them, and according to all the law that my servant Moses commanded them." 
 But they didn't listen, and Manasseh seduced them to do that which is bad more than the nations did whom God destroyed before the children of Israel. 
 God spoke by his servants the spokesmen, saying, 
 "Because Manasseh king of Judah has done these abominations, and has done guiltily above all that the Amorites did, who were before him, and has also made Judah to drift with his idols; 

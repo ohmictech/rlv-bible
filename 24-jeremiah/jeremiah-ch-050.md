@@ -2,9 +2,9 @@
 "Declare among the nations and publish, and set up a standard; publish, and don't conceal; say, 'Babylon has been taken, Bel is disappointed, Merodach is dismayed! Her images are disappointed. Her idols are dismayed.' 
 For a nation comes up out of the north against her, which will make her land desolate, and no one will dwell in it. They have fled. They are gone, both man and animal. 
 "In those days, and in that time," says God, "the children of Israel will come, they and the children of Judah together; they will go on their way weeping, and will seek their God. 
-They will inquire concerning Zion with their faces turned toward it, saying, 'Come, and join yourselves to God in an perpetual covenant that will not be forgotten.' 
+They will inquire concerning Zion with their faces turned toward it, saying, 'Come, and join yourselves to God in an perpetual covenant that won't be forgotten.' 
 My people have been lost sheep. Their shepherds have caused them to go astray. They have turned them away on the mountains. They have gone from mountain to hill. They have forgotten their resting place. 
-Everyone who found them have devoured them. Their adversaries said, 'We are not guilty, because they have wronged God, the habitation of righteousness, even God, the hope of their fathers.' 
+Everyone who found them have devoured them. Their adversaries said, 'We aren't guilty, because they have wronged God, the habitation of righteousness, even God, the hope of their fathers.' 
 "Flee out of the middle of Babylon! Go out of the land of the Chaldeans, and be as the male goats before the flocks. 
 For, look, I will stir up and cause to come up against Babylon a company of great nations from the north country; and they will set themselves in array against her. She will be taken from there. Their arrows will be as of an expert mighty man. None of them will return in vain. 
 Chaldea will be a prey. Everyone who preys on her will be satisfied," says God. 

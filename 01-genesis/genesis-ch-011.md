@@ -4,7 +4,7 @@ They said to one another, "Come, let's make bricks and bake them thoroughly." Th
 They said, "Come, let's build ourselves a city, and a tower whose top reaches to the sky, and let's make a name for ourselves, or we will be scattered over the whole earth." 
 God came down to see the city and the tower that the human race was building. 
 God said, "Look, they are one people, and they all have one language, and this is only the beginning of what they will do. Nothing they plan will be out of their reach now. 
-Come, let us go down and confuse their language there, so they will not understand each other's speech." 
+Come, let us go down and confuse their language there, so they won't understand each other's speech." 
 So God scattered them from there over all the earth, and they stopped building the city. 
 That is why its name was called Babel, because there God confused the language of the whole earth. From there God scattered them over all the earth. 
 This is the account of the generations of Shem: Shem was one hundred years old when he fathered Arpachshad, two years after the flood. 
@@ -27,6 +27,6 @@ Terah was seventy years old when he fathered Abram, Nahor, and Haran.
 Now this is the account of Terah's family. Terah fathered Abram, Nahor, and Haran, and Haran fathered Lot. 
 Haran died in the land of his birth, in Ur of the Chaldeans, while his father Terah was still alive. 
 Abram and Nahor both married. Abram's wife was named Sarai, and Nahor's wife was named Milcah, the daughter of Haran. Haran was also the father of Iscah. 
-But Sarai could not have children. She had no child. 
+But Sarai couldn't have children. She had no child. 
 Terah took his son Abram, his grandson Lot the son of Haran, and his daughter-in-law Sarai, the wife of his son Abram. They set out from Ur of the Chaldeans to go to the land of Canaan. They came to Haran and lived there. 
 Terah lived two hundred five years in all, and then he died in Haran. 

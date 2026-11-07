@@ -21,7 +21,7 @@ By his knowledge, the depths were broken up, and the skies drop down the dew.
 My son, let them not depart from your eyes. Keep sound wisdom and discretion, 
 so they will be life to your soul, and grace for your neck. 
 Then you shall walk in your way securely. Your foot won't stumble. 
-When you lie down, you will not be afraid. Yes, you will lie down, and your sleep will be sweet. 
+When you lie down, you won't be afraid. Yes, you will lie down, and your sleep will be sweet. 
 Don't be afraid of sudden fear, neither of the desolation of the guilty, when it comes; 
 for God will be your confidence, and will keep your foot from being taken. 
 Don't withhold good from those to whom it is due, when it is in the power of your hand to do it. 

@@ -2,11 +2,11 @@
 I will send to Babylon strangers, who will winnow her. They will empty her land; for in the day of trouble they will be against her all around. 
 Against him who bends, let the archer bend his bow, also against him who lifts himself up in his coat of mail. Don't spare her young men! Utterly destroy all her army! 
 They will fall down slain in the land of the Chaldeans, and thrust through in her streets. 
-Israel is not forsaken, nor Judah, by his God, by the God of Armies; though their land is full of guilt against the Holy One of Israel. 
+Israel isn't forsaken, nor Judah, by his God, by the God of Armies; though their land is full of guilt against the Holy One of Israel. 
 "Flee out of the middle of Babylon! Everyone save his own life! Don't be cut off in her guilt, for it is the time of God's vengeance. He will give to her a recompense. 
 Babylon has been a golden cup in God's hand, who made all the earth drunk. The nations have drunk of her wine; the nations have gone mad. 
 Babylon has suddenly fallen and been destroyed! Wail for her! Take balm for her pain. Perhaps she may be healed. 
-"We would have healed Babylon, but she is not healed. Forsake her, and let's each go into his own country; for her judgment reaches to the sky, and is lifted up even to the skies. 
+"We would have healed Babylon, but she isn't healed. Forsake her, and let's each go into his own country; for her judgment reaches to the sky, and is lifted up even to the skies. 
 'God has produced our righteousness. Come, and let's declare in Zion the work of our God.' 
 "Make the arrows sharp! Hold the shields firmly! God has stirred up the spirit of the kings of the Medes, because his purpose is against Babylon, to destroy it; for it is the vengeance of God, the vengeance of his temple. 
 Set up a standard against the walls of Babylon! Make the watch strong! Set the watchmen, and prepare the ambushes; for God has both purposed and done that which he spoke concerning the inhabitants of Babylon. 
@@ -16,7 +16,7 @@ The God of Armies has sworn by himself, saying, 'Surely I will fill you with men
 When he utters his voice, there is a roar of waters in the sky, and he causes the vapors to ascend from the ends of the earth. He makes lightning for the rain, and brings the wind out of his treasuries. 
 "Every man has become stupid and without knowledge. Every goldsmith is disappointed by his image, for his molten images are falsehood, and there is no breath in them. 
 They are vanity, a work of delusion. In the time of their visitation, they will perish. 
-The portion of Jacob is not like these, for he formed all things, including the tribe of his inheritance. The God of Armies is his name. 
+The portion of Jacob isn't like these, for he formed all things, including the tribe of his inheritance. The God of Armies is his name. 
 "You are my battle ax and weapons of war. With you I will break the nations into pieces. With you I will destroy kingdoms. 
 With you I will break in pieces the horse and his rider. 
 With you I will break in pieces the chariot and him who rides therein. With you I will break in pieces man and woman. With you I will break in pieces the old man and the youth. With you I will break in pieces the young man and the virgin. 
@@ -41,7 +41,7 @@ When they are inflamed, I will make their feast, and I will make them drunk, tha
 "How Sheshach is taken! How the praise of the whole earth is seized! How Babylon has become a desolation among the nations! 
 The sea has come up on Babylon. She is covered with the multitude of its waves. 
 Her cities have become a desolation, a dry land, and a desert, a land in which no man dwells. No son of man passes by it. 
-I will execute judgment on Bel in Babylon, and I will bring out of his mouth that which he has swallowed up. The nations will not flow any more to him. Yes, the wall of Babylon will fall. 
+I will execute judgment on Bel in Babylon, and I will bring out of his mouth that which he has swallowed up. The nations won't flow any more to him. Yes, the wall of Babylon will fall. 
 "My people, go away from the middle of her, and each of you save yourselves from God's fierce anger. 
 Don't let your heart faint. Don't fear for the news that will be heard in the land. News will come one year, and after that in another year news will come, and violence in the land, ruler against ruler. 
 Look, the days come that I will execute judgment on the engraved images of Babylon; and her whole land will be confounded. All her slain will fall in the middle of her. 
@@ -61,4 +61,4 @@ Jeremiah wrote in a book all the bad that should come on Babylon, even all these
 Jeremiah said to Seraiah, "When you come to Babylon, then see that you read all these words, 
 and say, 'God, you have spoken concerning this place, to cut it off, that no one will dwell in it, neither man nor animal, but that it will be desolate for the eras.' 
 It will be, when you have finished reading this book, that you shall bind a stone to it, and cast it into the middle of the Euphrates. 
-Then you shall say, 'Thus will Babylon sink, and will not rise again because of the bad that I will bring on her; and they will be weary.'" Thus far are the words of Jeremiah. 
+Then you shall say, 'Thus will Babylon sink, and won't rise again because of the bad that I will bring on her; and they will be weary.'" Thus far are the words of Jeremiah. 

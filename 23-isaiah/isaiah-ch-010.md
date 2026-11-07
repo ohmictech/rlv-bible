@@ -1,7 +1,7 @@
 ﻿Woe to those who decree unrighteous decrees, and to the writers who write oppressive decrees 
 to deprive the needy of justice, and to rob the poor among my people of their rights, that widows may be their plunder, and that they may make the fatherless their prey! 
 What will you do in the day of visitation, and in the desolation which will come from afar? To whom will you flee for help? Where will you leave your wealth? 
-They will only bow down under the prisoners, and will fall under the slain. All this his anger is not turned away, but his hand is stretched out still. 
+They will only bow down under the prisoners, and will fall under the slain. All this his anger isn't turned away, but his hand is stretched out still. 
 Alas Assyrian, the rod of my anger, the staff in whose hand is my indignation! 
 I will send him against a profane nation, and against the people who anger me I will give him a command to take the plunder and to take the prey, and to tread them down like the mire of the streets. 
 However, he doesn't mean so, neither does his heart think so; but it is in his heart to destroy, and to cut off not a few nations. 
@@ -12,7 +12,7 @@ shall I not, as I have done to Samaria and her idols, so do to Jerusalem and her
 So it will happen that when the Lord has performed his whole work on Mount Zion and on Jerusalem, I will punish the fruit of the willful proud heart of the king of Assyria, and the insolence of his arrogant looks. 
 He has said, "By the strength of my hand I have done it, and by my wisdom, for I have understanding. I have removed the boundaries of the peoples, and have robbed their treasures. Like a valiant man I have brought down their rulers. 
 My hand has found the riches of the peoples like a nest, and like one gathers eggs that are abandoned, I have gathered all the earth. There was no one who moved their wing, or that opened their mouth, or chirped." 
-Should an ax brag against him who chops with it? Should a saw exalt itself above him who saws with it? As if a rod should lift those who lift it up, or as if a staff should lift up someone who is not wood. 
+Should an ax brag against him who chops with it? Should a saw exalt itself above him who saws with it? As if a rod should lift those who lift it up, or as if a staff should lift up someone who isn't wood. 
 So the Lord, GOD of Armies, will send among his fat ones leanness; and under his glory a burning will be kindled like the burning of fire. 
 The light of Israel will be for a fire, and his Holy One for a flame; and it will burn and devour his thorns and his briers in one day. 
 He will consume the glory of his forest and of his fruitful field, both soul and body. It will be as when a standard bearer faints. 

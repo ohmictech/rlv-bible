@@ -2,7 +2,7 @@
 My doctrine will drop as the rain. My speech will condense as the dew, as the misty rain on the tender grass, as the showers on the herb. 
 I will proclaim God's name. Ascribe greatness to our God! 
 The Rock: his work is perfect, for all his ways are just. A God of faithfulness who does no wrong, just and right is he. 
-They have dealt corruptly with him. They are not his children, because of their defect. They are a perverse and crooked generation. 
+They have dealt corruptly with him. They aren't his children, because of their defect. They are a perverse and crooked generation. 
 Is this the way you repay God, foolish and unwise people? Isn't he your father who has bought you? He has made you and established you. 
 Remember the days of old. Consider the years of many generations. Ask your father, and he will show you; your elders, and they will tell you. 
 When the Most High gave to the nations their inheritance, when he separated the children of men, he set the bounds of the peoples according to the number of the children of Israel. 
@@ -18,17 +18,17 @@ They sacrificed to demons, not God, to gods that they didn't know, to new gods t
 Of the Rock who became your father, you are unmindful, and have forgotten God who gave you birth. 
 God saw and abhorred, because of the provocation of his sons and his daughters. 
 He said, "I will hide my face from them. I will see what their end will be; for they are a very perverse generation, children in whom is no faithfulness. 
-They have moved me to jealousy with that which is not God. They have provoked me to anger with their vanities. I will move them to jealousy with those who are not a people. I will provoke them to anger with a foolish nation. 
+They have moved me to jealousy with that which isn't God. They have provoked me to anger with their vanities. I will move them to jealousy with those who aren't a people. I will provoke them to anger with a foolish nation. 
 A fire is kindled in my anger, that burns to the lowest Hades, devours the earth with its increase, and sets the foundations of the mountains on fire. 
 "I will heap bad things on them. I will spend my arrows on them. 
 They shall be wasted with hunger, and devoured with burning heat and bitter destruction. I will send the teeth of animals on them, with the venom of vipers that glide in the dust. 
 Outside the sword will bereave, and in the rooms, terror on both young man and virgin, the nursing infant with the gray-haired man. 
 I said that I would scatter them afar. I would make their memory to cease from among men; 
-were it not that I feared the provocation of the enemy, lest their adversaries should judge wrongly, lest they should say, 'Our hand is exalted; God has not done all this.'" 
+were it not that I feared the provocation of the enemy, lest their adversaries should judge wrongly, lest they should say, 'Our hand is exalted; God hasn't done all this.'" 
 They are a nation void of counsel. There is no understanding in them. 
 Oh that they were wise, that they understood this, that they would consider their latter end! 
 How could one chase a thousand, and two put ten thousand to flight, unless their Rock had sold them, and God had delivered them up? 
-Their rock is not as our Rock, even our enemies themselves concede. 
+Their rock isn't as our Rock, even our enemies themselves concede. 
 Their vine is of the vine of Sodom, of the fields of Gomorrah. Their grapes are poison grapes. Their clusters are bitter. 
 Their wine is the poison of serpents, the cruel venom of asps. 
 "Isn't this laid up in store with me, sealed up among my treasures? 

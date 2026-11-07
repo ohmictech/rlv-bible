@@ -9,7 +9,7 @@ because you know that whatever good anyone does, he will get the same back from 
 And you who are masters, do the same for them, and give up threats, because you know that their Master and yours is in the sky, and he plays no favorites. 
 Finally, be strong in the Lord, in his powerful might. 
 Put on God's whole armor, so that you can stand against the Slanderer's schemes. 
-Our struggle is not against flesh and blood, but against the ruling powers, against the authorities, against the world rulers of this darkness, against the spiritual forces of malice in the sky. 
+Our struggle isn't against flesh and blood, but against the ruling powers, against the authorities, against the world rulers of this darkness, against the spiritual forces of malice in the sky. 
 That is why you must put on God's whole armor, so that you can hold your ground on the bad day, and after you have done everything, stand. 
 So stand, with the belt of truth buckled around your waist and the breastplate of rightness in place, 
 and your feet fitted with the readiness that comes from the Good News of wholeness, 

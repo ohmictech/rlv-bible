@@ -1,8 +1,8 @@
 ﻿By David. Judge me, God, for I have walked in my integrity. I have trusted also in God without wavering. 
 Examine me, God, and prove me. Try my heart and my mind. 
 Your loving kindness is before my eyes. I have walked in your truth. 
-I have not sat with deceitful men, neither will I go in with hypocrites. 
-I hate the assembly of those who do bad, and will not sit with the guilty. 
+I haven't sat with deceitful men, neither will I go in with hypocrites. 
+I hate the assembly of those who do bad, and won't sit with the guilty. 
 I will wash my hands in innocence, so I will go about your altar, God, 
 that I may make the voice of thanksgiving to be heard and tell of all your wondrous deeds. 
 God, I love the habitation of your house, the place where your glory dwells. 

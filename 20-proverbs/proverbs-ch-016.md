@@ -26,7 +26,7 @@ There is a way which seems right to a man, but in the end it leads to death.
 The appetite of the laboring man labors for him, for his mouth urges him on. 
 A worthless man devises mischief. His speech is like a scorching fire. 
 A perverse man stirs up strife. A whisperer separates close friends. 
-A man of violence entices his neighbor, and leads him in a way that is not good. 
+A man of violence entices his neighbor, and leads him in a way that isn't good. 
 One who winks his eyes to plot perversities, one who compresses his lips, is bent on bad. 
 Gray hair is a crown of glory. It is attained by a life of righteousness. 
 One who is slow to anger is better than the mighty; one who rules his spirit, than he who takes a city. 

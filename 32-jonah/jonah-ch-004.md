@@ -7,5 +7,5 @@ God prepared a vine and made it to come up over Jonah, that it might be a shade 
 But God prepared a worm at dawn the next day, and it chewed on the vine so that it withered. 
 When the sun arose, God prepared a sultry east wind; and the sun beat on Jonah's head, so that he was faint and requested for himself that he might die. He said, "It is better for me to die than to live." 
 God said to Jonah, "Is it right for you to be angry about the vine?" He said, "I am right to be angry, even to death." 
-God said, "You have been concerned for the vine, for which you have not labored, neither made it grow; which came up in a night and perished in a night. 
+God said, "You have been concerned for the vine, for which you haven't labored, neither made it grow; which came up in a night and perished in a night. 
 Shouldn't I be concerned for Nineveh, that great city, in which are more than one hundred twenty thousand persons who can't discern between their right hand and their left hand, and also many animals?" 

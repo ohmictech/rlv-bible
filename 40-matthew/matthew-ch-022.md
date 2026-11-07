@@ -1,6 +1,6 @@
 ﻿Jesus answered and spoke to them again in stories, saying, 
 "The reign of the sky is like a certain king, who made a wedding feast for his son, 
-and sent out his slaves to call those who were invited to the wedding feast, but they would not come. 
+and sent out his slaves to call those who were invited to the wedding feast, but they wouldn't come. 
 Again he sent out other slaves, saying, 'Tell those who are invited, "Look, I have prepared my dinner. My cattle and my fattened calves are killed, and all things are ready. Come to the wedding feast!"' 
 But they paid no attention and went their ways, one to his own farm, another to his business. 
 And the rest grabbed his slaves, treated them badly, and killed them. 
@@ -29,7 +29,7 @@ In the rising again, then, whose wife will she be of the seven? They all had her
 But Jesus answered them, "You are wrong, not knowing the Scriptures, nor the power of God. 
 In the rising again they neither marry nor are given in marriage, but are like God's messengers in the sky. 
 But concerning the rising again of the dead, haven't you read that which was spoken to you by God, saying, 
-'I am the God of Abraham, and the God of Isaac, and the God of Jacob'? God is not the God of dead bodies, but of the living." 
+'I am the God of Abraham, and the God of Isaac, and the God of Jacob'? God isn't the God of dead bodies, but of the living." 
 When the crowds heard it, they were astonished at his teaching. 
 But the strict religious ones, when they heard that he had silenced the religious elite, gathered themselves together. 
 One of them, an expert in the law, asked him a question, testing him. 

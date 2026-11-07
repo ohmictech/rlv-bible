@@ -12,11 +12,11 @@ Shall they not teach you, tell you, and utter words out of their heart?
 While it is yet in its greenness, not cut down, it withers before any other reed. 
 So are the paths of everyone who forgets God. The hope of the godless man will perish, 
 whose confidence will break apart, whose trust is a spider's web. 
-He will lean on his house, but it will not stand. He will cling to it, but it will not endure. 
+He will lean on his house, but it won't stand. He will cling to it, but it won't endure. 
 He is green before the sun. His shoots go out along his garden. 
 His roots are wrapped around the rock pile. He sees the place of stones. 
-If he is destroyed from his place, then it will deny him, saying, 'I have not seen you.' 
+If he is destroyed from his place, then it will deny him, saying, 'I haven't seen you.' 
 Look, this is the joy of his way. Out of the earth, others will spring. 
-"Look, God will not cast away a blameless man, neither will he uphold the those who do bad. 
+"Look, God won't cast away a blameless man, neither will he uphold the those who do bad. 
 He will still fill your mouth with laughter, your lips with shouting. 
 Those who hate you will be clothed with shame. The tent of the guilty will be no more." 

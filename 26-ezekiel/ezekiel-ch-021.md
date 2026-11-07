@@ -2,7 +2,7 @@
 "Son of man, set your face toward Jerusalem, and preach toward the sanctuaries, and prophesy against the land of Israel. 
 Tell the land of Israel, 'God says: "Look, I am against you, and will draw my sword out of its sheath, and will cut off from you the righteous and the guilty. 
 Seeing then that I will cut off from you the righteous and the guilty, my sword will go out of its sheath against all flesh from the south to the north. 
-All flesh will know that I, God, have drawn my sword out of its sheath. It will not return any more."' 
+All flesh will know that I, God, have drawn my sword out of its sheath. It won't return any more."' 
 "Therefore sigh, you son of man. You shall sigh before their eyes with a broken heart and with bitterness. 
 It shall be, when they ask you, 'Why do you sigh?' that you shall say, 'Because of the news, for it comes! Every heart will melt, all hands will be feeble, every spirit will faint, and all knees will be weak as water. Look, it comes, and it shall be done, says God.'" 
 God's word came to me, saying, 
@@ -23,7 +23,7 @@ In his right hand was the lot for Jerusalem, to set battering rams, to open the 
 It will be to them as a false divination in their sight, who have sworn oaths to them; but he brings guilt to memory, that they may be taken. 
 "So God says: 'Because you have caused your guilt to be remembered, in that your rebellion are uncovered, so that in all your doings your mistakes appear; because you have come to memory, you will be taken with the hand. 
 "'You, deadly wounded guilty one, the prince of Israel, whose day has come, in the time of the guilt of the end, 
-God says: "Remove the turban, and take off the crown. This will not be as it was. Exalt that which is low, and humble that which is high. 
+God says: "Remove the turban, and take off the crown. This won't be as it was. Exalt that which is low, and humble that which is high. 
 I will overturn, overturn, overturn it. This also will be no more, until he comes whose right it is; and I will give it."' 
 "You, son of man, prophesy and say, 'The God says this concerning the children of Ammon, and concerning their reproach: "A sword! A sword is drawn! It is polished for the slaughter, to cause it to devour, that it may be as lightning; 
 while they see for you false visions, while they divine lies to you, to lay you on the necks of the guilty who are deadly wounded, whose day has come in the time of the guilt of the end. 

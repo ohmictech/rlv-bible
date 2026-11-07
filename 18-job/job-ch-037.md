@@ -20,5 +20,5 @@ Teach us what we will tell him, for we can't make our case by reason of darkness
 Will it be told him that I would speak? Or should a man wish that he were swallowed up? 
 Now men don't see the light which is bright in the skies, but the wind passes, and clears them. 
 Out of the north comes golden splendor. With God is awesome majesty. 
-We can't reach the Almighty. He is exalted in power. In justice and great righteousness, he will not oppress. 
+We can't reach the Almighty. He is exalted in power. In justice and great righteousness, he won't oppress. 
 So men revere him. He doesn't regard any who are wise of heart." 

@@ -13,13 +13,13 @@ Will you confide in him, that he will bring home your seed, and gather the grain
 "The wings of the ostrich wave proudly, but are they the feathers and plumage of love? 
 She leaves her eggs on the earth, warms them in the dust, 
 and forgets that the foot may crush them, or that the wild animal may trample them. 
-She deals harshly with her young ones, as if they were not hers. Though her labor is in vain, she is without fear, 
+She deals harshly with her young ones, as if they weren't hers. Though her labor is in vain, she is without fear, 
 because God has deprived her of wisdom, neither has he imparted to her understanding. 
 When she lifts up herself on high, she scorns the horse and his rider. 
 "Have you given the horse might? Have you clothed his neck with a quivering mane? 
 Have you made him to leap as a locust? The glory of his snorting is awesome. 
 He paws in the valley, and rejoices in his strength. He goes out to meet the armed men. 
-He mocks at fear, and is not dismayed, neither does he turn back from the sword. 
+He mocks at fear, and isn't dismayed, neither does he turn back from the sword. 
 The quiver rattles against him, the flashing spear and the javelin. 
 He eats up the ground with fierceness and rage, neither does he stand still at the sound of the trumpet. 
 As often as the trumpet sounds he snorts, 'Aha!' He smells the battle afar off, the thunder of the captains, and the shouting. 

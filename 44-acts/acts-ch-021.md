@@ -1,7 +1,7 @@
 ﻿When we had departed from them and had set sail, we came with a straight course to Cos, and the next day to Rhodes, and from there to Patara. 
 Having found a ship crossing over to Phoenicia, we went aboard and set sail. 
 When we had come in sight of Cyprus, leaving it on the left hand, we sailed to Syria and landed at Tyre, for the ship was there to unload her cargo. 
-Having found students, we stayed there seven days. These said to Paul through the Spirit that he should not go up to Jerusalem. 
+Having found students, we stayed there seven days. These said to Paul through the Spirit that he shouldn't go up to Jerusalem. 
 When those days were over, we departed and went on our journey. They all, with wives and children, brought us on our way until we were out of the city. Kneeling down on the beach, we prayed. 
 After saying goodbye to each other, we went on board the ship, and they returned home again. 
 When we had finished the voyage from Tyre, we arrived at Ptolemais. We greeted the brothers and stayed with them one day. 
@@ -11,7 +11,7 @@ As we stayed there some days, a certain spokesman named Agabus came down from Ju
 Coming to us and taking Paul's belt, he bound his own feet and hands, and said, "The Holy Spirit says: 'So the Jewish leaders at Jerusalem will bind the man who owns this belt, and will hand him over into the hands of the nations.'" 
 When we heard these things, both we and the people of that place begged him not to go up to Jerusalem. 
 Then Paul answered, "What are you doing, weeping and breaking my heart? I am ready not only to be bound, but also to die at Jerusalem for the name of the Lord Jesus." 
-When he would not be persuaded, we ceased, saying, "The Lord's will be done." 
+When he wouldn't be persuaded, we ceased, saying, "The Lord's will be done." 
 After these days we took up our baggage and went up to Jerusalem. 
 Some of the students from Caesarea also went with us, bringing one Mnason of Cyprus, an early student, with whom we would stay. 
 When we had come to Jerusalem, the brothers received us gladly. 

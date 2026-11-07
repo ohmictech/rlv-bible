@@ -26,13 +26,13 @@ They took fortified cities and a rich land, and possessed houses full of all goo
 "Nevertheless they were disobedient and rebelled against you, cast your law behind their back, killed your spokesmen that testified against them to turn them again to you, and they committed awful blasphemies. 
 So you delivered them into the hand of their adversaries, who distressed them. In the time of their trouble, when they cried to you, you heard from the sky; and according to your manifold mercies you gave them saviors who saved them out of the hands of their adversaries. 
 But after they had rest, they did bad again before you; you left them in the hands of their enemies, so that they had the dominion over them; yet when they returned and cried to you, you heard from the sky; and many times you delivered them according to your mercies, 
-and testified against them, that you might bring them again to your law. Yet they were arrogant, and didn't listen to your commandments, but wronged your ordinances (which if a man does, he shall live in them), turned their backs, stiffened their neck, and would not hear. 
-Yet many years you put up with them, and testified against them by your Spirit through your spokesmen. Yet they would not listen. So you gave them into the hand of the peoples of the lands. 
+and testified against them, that you might bring them again to your law. Yet they were arrogant, and didn't listen to your commandments, but wronged your ordinances (which if a man does, he shall live in them), turned their backs, stiffened their neck, and wouldn't hear. 
+Yet many years you put up with them, and testified against them by your Spirit through your spokesmen. Yet they wouldn't listen. So you gave them into the hand of the peoples of the lands. 
 "Nevertheless in your manifold mercies you didn't make a full end of them, nor forsake them; for you are a gracious and merciful God. 
 Now, our God, the great, the mighty, and the awesome God, who keeps covenant and loving kindness, don't let all the travail seem little before you that has come on us, on our kings, on our princes, on our priests, on our spokesmen, on our fathers, and on all your people, since the time of the kings of Assyria to this day. 
 However you are just in all that has come on us; for you have dealt truly, but we have done guiltily. 
-Also our kings, our princes, our priests, and our fathers have not kept your law, nor listened to your commandments and your testimonies with which you testified against them. 
-They have not served you in their kingdom, and in your great goodness that you gave them, and in the large and rich land which you gave before them. They didn't turn from their guilty works. 
+Also our kings, our princes, our priests, and our fathers haven't kept your law, nor listened to your commandments and your testimonies with which you testified against them. 
+They haven't served you in their kingdom, and in your great goodness that you gave them, and in the large and rich land which you gave before them. They didn't turn from their guilty works. 
 "Look, we are servants today, and as for the land that you gave to our fathers to eat its fruit and its good, look, we are servants in it. 
 It yields much increase to the kings whom you have set over us because of our mistakes. Also they have power over our bodies and over our livestock, at their pleasure, and we are in great distress. 
 Yet for all this, we make a sure covenant, and write it; and our princes, our Levites, and our priests, seal it." 

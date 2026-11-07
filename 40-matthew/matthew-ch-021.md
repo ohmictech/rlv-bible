@@ -18,7 +18,7 @@ He left them and went out of the city to Bethany, and camped there.
 Now in the morning, as he returned to the city, he was hungry. 
 Seeing a fig tree by the road, he came to it and found nothing on it but leaves. He said to it, "Let no fruit ever come from you again!" Immediately the fig tree withered away. 
 When the students saw it, they were amazed, saying, "How did the fig tree immediately wither away?" 
-Jesus answered them, "Truly I tell you, if you have trust and don't doubt, you will not only do what was done to the fig tree, but even if you told this mountain, 'Be taken up and thrown into the sea,' it would be done. 
+Jesus answered them, "Truly I tell you, if you have trust and don't doubt, you won't only do what was done to the fig tree, but even if you told this mountain, 'Be taken up and thrown into the sea,' it would be done. 
 All things, whatever you ask in prayer, trusting, you will receive." 
 When he had come into the temple courts, the high priests and the elders of the people came to him as he was teaching, and said, "By what authority do you do these things? Who gave you this authority?" 
 Jesus answered them, "I will also ask you one question. If you answer me, I will also tell you by what authority I do these things. 
@@ -26,7 +26,7 @@ The immersion of John, where was it from? From the sky or from people?" They rea
 But if we say, 'From people,' we fear the crowd, for all hold John as a spokesman." 
 They answered Jesus, and said, "We don't know." He also said to them, "Neither will I tell you by what authority I do these things. 
 But what do you think? A man had two sons, and he came to the first, and said, 'Son, go work today in my vineyard.' 
-He answered, 'I will not,' but afterward he felt sorry and went. 
+He answered, 'I won't,' but afterward he felt sorry and went. 
 He came to the second, and said the same thing. He answered, 'I'm going, sir,' but he didn't go. 
 Which of the two did the will of his father?" They said to him, "The first." Jesus said to them, "Truly I tell you that the tax collectors and those who sleep around are entering into God's reign before you. 
 John came to you in the way of rightness, and you didn't trust him, but the tax collectors and those who sleep around trusted him. When you saw it, you didn't even have a change of heart afterward, so that you would trust him. 

@@ -21,10 +21,10 @@ The sun will be turned into darkness, and the moon into blood, before the great 
 It will be that whoever will call on the name of the Lord will be made whole.' 
 "Men of Israel, hear these words! Jesus of Nazareth, a man whom God approved for you by powerful deeds and wonders and signs which God did through him among you, even as you yourselves know, 
 him, being handed over by the determined counsel and foreknowledge of God, you have taken by the hand of people who live as if there were no law, and you crucified and killed him; 
-whom God raised up, having freed him from the agony of death, because it was not possible that he should be held by it. 
-David says concerning him, 'I saw the Lord always before my face, for he is on my right hand, that I should not be moved. 
+whom God raised up, having freed him from the agony of death, because it wasn't possible that he should be held by it. 
+David says concerning him, 'I saw the Lord always before my face, for he is on my right hand, that I shouldn't be moved. 
 So my heart was glad, and my tongue celebrated. Moreover my flesh also will dwell in hope, 
-because you will not leave my life in Hades, neither will you allow your Holy One to see decay. 
+because you won't leave my life in Hades, neither will you allow your Holy One to see decay. 
 You made known to me the ways of life. You will make me full of gladness with your presence.' 
 "Brothers and sisters, I may tell you freely of the patriarch David, that he both died and was buried, and his tomb is with us to this day. 
 So, being a spokesman, and knowing that God had sworn with an oath to him that of the fruit of his body, according to the flesh, he would raise up the Christ to sit on his throne, 

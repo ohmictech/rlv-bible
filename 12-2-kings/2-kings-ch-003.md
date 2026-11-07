@@ -11,10 +11,10 @@ The king of Israel said, "Alas! God has called these three kings together to del
 But Jehoshaphat said, "Isn't there a spokesman of God here, that we may inquire of God by him?" One of the king of Israel's servants answered, "Elisha the son of Shaphat, who poured water on the hands of Elijah, is here." 
 Jehoshaphat said, "God's word is with him." So the king of Israel and Jehoshaphat and the king of Edom went down to him. 
 Elisha said to the king of Israel, "What have I to do with you? Go to the spokesmen of your father, and to the spokesmen of your mother." The king of Israel said to him, "No, for God has called these three kings together to deliver them into the hand of Moab." 
-Elisha said, "As the God of Armies lives, before whom I stand, surely, were it not that I respect the presence of Jehoshaphat the king of Judah, I would not look toward you, nor see you. 
+Elisha said, "As the God of Armies lives, before whom I stand, surely, were it not that I respect the presence of Jehoshaphat the king of Judah, I wouldn't look toward you, nor see you. 
 But now bring me a musician." When the musician played, God's hand came on him. 
 He said, "God says, 'Make this valley full of trenches.' 
-For God says, 'You will not see wind, neither will you see rain, yet that valley will be filled with water, and you will drink, both you and your livestock and your other animals. 
+For God says, 'You won't see wind, neither will you see rain, yet that valley will be filled with water, and you will drink, both you and your livestock and your other animals. 
 This is an easy thing in God's sight. He will also deliver the Moabites into your hand. 
 You shall strike every fortified city and every choice city, and shall fell every good tree, and stop all springs of water, and mar every good piece of land with stones.'" 
 In the morning, about the time of offering the sacrifice, look, water came by the way of Edom, and the country was filled with water. 
@@ -23,5 +23,5 @@ They rose up early in the morning, and the sun shone on the water, and the Moabi
 They said, "This is blood. The kings are surely destroyed, and they have struck each other. Now, Moab, to the plunder!" 
 When they came to the camp of Israel, the Israelites rose up and struck the Moabites, so that they fled before them; and they went forward into the land attacking the Moabites. 
 They beat down the cities; and on every good piece of land each man cast his stone, and filled it. They also stopped all the springs of water and cut down all the good trees, until in Kir Hareseth all they left was its stones; however the men armed with slings went around it and attacked it. 
-When the king of Moab saw that the battle was too severe for him, he took with him seven hundred men who drew a sword, to break through to the king of Edom; but they could not. 
+When the king of Moab saw that the battle was too severe for him, he took with him seven hundred men who drew a sword, to break through to the king of Edom; but they couldn't. 
 Then he took his oldest son who would have reigned in his place, and offered him for a burnt offering on the wall. There was great wrath against Israel; and they departed from him, and returned to their own land. 

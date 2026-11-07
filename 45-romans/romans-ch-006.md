@@ -11,8 +11,8 @@ For the death he died, he died to the drift once; but the life that he lives, he
 So consider yourselves dead to the drift, but alive to God in Christ Jesus our Lord. 
 So don't let the drift reign in your mortal body, to obey it in its cravings. 
 Also, don't give your hands and feet to the drift as tools of wrong, but present yourselves to God as alive from the dead, and your limbs as tools of rightness to God. 
-The drift will not dominate you, because you are not under law, but under favor. 
-What then? Should we drift because we are not under law but under favor? Never! 
+The drift won't dominate you, because you're not under law, but under favor. 
+What then? Should we drift because we're not under law but under favor? Never! 
 Don't you know that when you present yourselves as slaves and obey someone, you are the slaves of whoever you obey, whether of the drift to death, or of obedience to rightness? 
 But thanks be to God that, even though you were slaves of the drift, you became obedient from the heart to that form of teaching you were given to. 
 Being made free from the drift, you became slaves of rightness. 

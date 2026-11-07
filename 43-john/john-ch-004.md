@@ -15,7 +15,7 @@ but whoever drinks of the water that I will give them will never thirst again. T
 The woman said to him, "Sir, give me this water, so that I don't get thirsty, neither come all the way here to draw." 
 Jesus said to her, "Go, call your husband, and come here." 
 The woman answered, "I have no husband." Jesus said to her, "You said it well: 'I have no husband.' 
-for you have had five husbands; and he whom you now have is not your husband. This you have said truly." 
+for you have had five husbands; and he whom you now have isn't your husband. This you have said truly." 
 The woman said to him, "Sir, I can see that you are a spokesman. 
 Our ancestors worshiped on this mountain, and you Jewish people say that Jerusalem is the place where people should worship." 
 Jesus said to her, "Woman, trust me, the time is coming when you will worship the Father neither on this mountain nor in Jerusalem. 

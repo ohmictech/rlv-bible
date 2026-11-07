@@ -24,5 +24,5 @@ The north wind produces rain; so a backbiting tongue brings an angry face.
 It is better to dwell in the corner of the housetop than to share a house with a contentious woman. 
 Like cold water to a thirsty soul, so is good news from a far country. 
 Like a muddied spring and a polluted well, so is a righteous man who gives way before the guilty. 
-It is not good to eat much honey, nor is it honorable to seek one's own honor. 
+It isn't good to eat much honey, nor is it honorable to seek one's own honor. 
 Like a city that is broken down and without walls is a man whose spirit is without restraint. 

@@ -30,7 +30,7 @@ Because of your raging against me, and because your arrogance has come up into m
 "'This shall be the sign to you: You will eat this year that which grows of itself, and in the second year that which springs from it; and in the third year sow and reap and plant vineyards, and eat their fruit. 
 The remnant that is escaped of the house of Judah will again take root downward, and bear fruit upward. 
 Out of Jerusalem a remnant will go out, and survivors will escape from Mount Zion. The passion of the God of Armies will perform this.' 
-"Therefore God says concerning the king of Assyria, 'He will not come to this city, nor shoot an arrow there, neither will he come before it with shield, nor cast up a mound against it. 
+"Therefore God says concerning the king of Assyria, 'He won't come to this city, nor shoot an arrow there, neither will he come before it with shield, nor cast up a mound against it. 
 He will return the way that he came, and he won't come to this city,' says God. 
 'I will defend this city to save it, for my own sake, and for my servant David's sake.'" 
 Then God's messenger went out and struck one hundred and eighty-five thousand men in the camp of the Assyrians. When men arose early in the morning, look, these were all dead bodies. 

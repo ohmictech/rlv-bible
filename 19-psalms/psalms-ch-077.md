@@ -16,5 +16,5 @@ You have bought back your people with your arm, the sons of Jacob and Joseph. Se
 The waters saw you, God. The waters saw you, and they writhed. The depths also convulsed. 
 The clouds poured out water. The skies resounded with thunder. Your arrows also flashed around. 
 The voice of your thunder was in the whirlwind. The lightnings lit up the world. The earth trembled and shook. 
-Your way was through the sea, your paths through the great waters. Your footsteps were not known. 
+Your way was through the sea, your paths through the great waters. Your footsteps weren't known. 
 You led your people like a flock, by the hand of Moses and Aaron. 

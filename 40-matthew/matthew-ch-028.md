@@ -3,7 +3,7 @@ Look, there was a great earthquake, for a messenger of the Lord came down from t
 His appearance was like lightning, and his clothing white as snow. 
 Fear of him, the guards shook, and became like dead men. 
 The messenger said to the women, "Don't be afraid, for I know that you are looking for Jesus, who was crucified. 
-He is not here, for he has been raised, just as he said. Come, see the place where the Lord was lying. 
+He isn't here, for he has been raised, just as he said. Come, see the place where the Lord was lying. 
 Go quickly and tell his students, 'He has been raised from the dead, and look, he is going ahead of you into Galilee. There you will see him.' Look, I have told you." 
 They left the tomb quickly with fear and great joy, and ran to bring his students word. 
 As they went to tell his students, look, Jesus met them, saying, "Celebrate!" They came and took hold of his feet, and worshiped him. 

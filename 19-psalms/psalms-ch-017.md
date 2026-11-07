@@ -2,7 +2,7 @@
 Let my sentence come out of your presence. Let your eyes look on equity. 
 You have proved my heart. You have visited me in the night. You have tried me, and found nothing. I have resolved that my mouth shall not disobey. 
 As for the deeds of men, by the word of your lips, I have kept myself from the ways of the violent. 
-My steps have held fast to your paths. My feet have not slipped. 
+My steps have held fast to your paths. My feet haven't slipped. 
 I have called on you, for you will answer me, God. Turn your ear to me. Hear my speech. 
 Show your marvelous loving kindness, you who save those who take refuge by your right hand from their enemies. 
 Keep me as the apple of your eye. Hide me under the shadow of your wings, 

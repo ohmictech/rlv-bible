@@ -7,7 +7,7 @@ Look, I will bring a terror on you," says the Lord, GOD of Armies, "from everyon
 Of Edom, the God of Armies says: "Is wisdom no more in Teman? Has counsel perished from the prudent? Has their wisdom vanished? 
 Flee! Turn back! Dwell in the depths, inhabitants of Dedan; for I will bring the calamity of Esau on him when I visit him. 
 If grape gatherers came to you, would they not leave some gleaning grapes? If thieves came by night, wouldn't they steal until they had enough? 
-But I have made Esau bare, I have uncovered his secret places, and he will not be able to hide himself. His offspring is destroyed, with his brothers and his neighbors; and he is no more. 
+But I have made Esau bare, I have uncovered his secret places, and he won't be able to hide himself. His offspring is destroyed, with his brothers and his neighbors; and he is no more. 
 Leave your fatherless children. I will preserve them alive. Let your widows trust in me." 
 God says: "Look, they to whom it didn't pertain to drink of the cup will certainly drink; and are you he who will altogether go unpunished? You won't go unpunished, but you will surely drink. 
 I have sworn by myself," says God, "that Bozrah will become an astonishment, a reproach, a waste, and a curse. All its cities will be perpetual wastes." 
@@ -33,7 +33,7 @@ Their camels will be a booty, and the multitude of their livestock a plunder. I 
 Hazor will be a dwelling place of jackals, a desolation for the eras. No man will dwell there, neither will any son of man live therein." 
 God's word that came to Jeremiah the spokesman concerning Elam, in the beginning of the reign of Zedekiah king of Judah, saying, 
 "The God of Armies says: 'Look, I will break the bow of Elam, the chief of their might. 
-I will bring on Elam the four winds from the four quarters of the sky, and will scatter them toward all those winds. There will be no nation where the outcasts of Elam will not come. 
+I will bring on Elam the four winds from the four quarters of the sky, and will scatter them toward all those winds. There will be no nation where the outcasts of Elam won't come. 
 I will cause Elam to be dismayed before their enemies, and before those who seek their life. I will bring bad on them, even my fierce anger,' says God; 'and I will send the sword after them, until I have consumed them. 
 I will set my throne in Elam, and will destroy from there king and princes,' says God. 
 'But it will happen in the latter days that I will reverse the captivity of Elam,' says God." 

@@ -7,5 +7,5 @@ Oh come, let's worship and bow down. Let's kneel before God, our Maker,
 for he is our God. We are the people of his pasture, and the sheep in his care. Today, oh that you would hear his voice! 
 Don't harden your heart, as at Meribah, as in the day of Massah in the wilderness, 
 when your fathers tempted me, tested me, and saw my work. 
-Forty long years I was grieved with that generation, and said, "They are a people who err in their heart. They have not known my ways." 
+Forty long years I was grieved with that generation, and said, "They are a people who err in their heart. They haven't known my ways." 
 So I swore in my wrath, "They won't enter into my rest." 

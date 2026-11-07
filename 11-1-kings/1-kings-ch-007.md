@@ -44,7 +44,7 @@ the ten bases; the ten basins on the bases;
 the one sea; the twelve oxen under the sea; 
 the pots; the shovels; and the basins. All of these vessels, which Hiram made for King Solomon for God's house, were of burnished bronze. 
 The king cast them in the plain of the Jordan, in the clay ground between Succoth and Zarethan. 
-Solomon left all the vessels unweighed, because there were so many of them. The weight of the bronze could not be determined. 
+Solomon left all the vessels unweighed, because there were so many of them. The weight of the bronze couldn't be determined. 
 Solomon made all the vessels that were in God's house: the golden altar and the table that the show bread was on, of gold; 
 and the lamp stands, five on the right side and five on the left, in front of the inner sanctuary, of pure gold; and the flowers, the lamps, and the tongs, of gold; 
 the cups, the snuffers, the basins, the spoons, and the fire pans, of pure gold; and the hinges, both for the doors of the inner house, the most holy place, and for the doors of the house, of the temple, of gold. 

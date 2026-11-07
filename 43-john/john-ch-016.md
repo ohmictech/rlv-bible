@@ -1,6 +1,6 @@
 ﻿"I have said these things to you so that you wouldn't be tripped up. 
 They will put you out of the gathering places. Yes, the time is coming that whoever kills you will think that they offer service to God. 
-They will do these things because they have not known the Father nor me. 
+They will do these things because they haven't known the Father nor me. 
 But I have told you these things so that when the time comes, you may remember that I told you about them. I didn't tell you these things from the beginning, because I was with you. 
 But now I am going to him who sent me, and none of you asks me, 'Where are you going?' 
 But because I have told you these things, sorrow has filled your heart. 
@@ -10,10 +10,10 @@ about mistakes, because they don't trust in me;
 about rightness, because I am going to my Father, and you won't see me any more; 
 about the verdict, because the ruler of this world has been judged. 
 "I still have many things to tell you, but you can't bear them now. 
-However, when he, the Spirit of truth, has come, he will guide you into all truth, for he will not speak from himself; but whatever he hears, he will speak. He will tell you things that are coming. 
+However, when he, the Spirit of truth, has come, he will guide you into all truth, for he won't speak from himself; but whatever he hears, he will speak. He will tell you things that are coming. 
 He will give me weight, for he will take from what is mine and will tell it to you. 
 All things that the Father has are mine; I said that he takes of mine and will tell it to you. 
-"A little while, and you will not see me. Again a little while, and you will see me." 
+"A little while, and you won't see me. Again a little while, and you will see me." 
 Some of his students said to one another, "What is this that he says to us, 'A little while, and you won't see me, and again a little while, and you will see me,' and, 'Because I go to the Father'?" 
 They said, "What is this that he says, 'A little while'? We don't know what he is saying." 
 So Jesus perceived that they wanted to ask him, and he said to them, "Do you inquire among yourselves concerning this, that I said, 'A little while, and you won't see me, and again a little while, and you will see me'? 
@@ -29,5 +29,5 @@ I came from the Father and have come into the world. Again, I leave the world an
 His students said to him, "Look, now you are speaking plainly, and using no figures of speech. 
 Now we know that you know all things, and don't need for anyone to question you. By this we trust that you came from God." 
 Jesus answered them, "Do you now trust? 
-Look, the time is coming, yes, and has now come, that you will be scattered, everyone to his own place, and you will leave me alone. Yet I am not alone, because the Father is with me. 
+Look, the time is coming, yes, and has now come, that you will be scattered, everyone to his own place, and you will leave me alone. Yet I'm not alone, because the Father is with me. 
 I have told you these things, that in me you may have wholeness. In the world you have trouble; but cheer up! I have overcome the world." 

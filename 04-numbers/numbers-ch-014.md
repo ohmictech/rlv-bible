@@ -13,13 +13,13 @@ I will strike them with the pestilence, and disinherit them, and will make of yo
 Moses said to God, "Then the Egyptians will hear it; for you brought up this people in your might from among them. 
 They will tell it to the inhabitants of this land. They have heard that you God are among this people; for you God are seen face to face, and your cloud stands over them, and you go before them, in a pillar of cloud by day, and in a pillar of fire by night. 
 Now if you killed this people as one man, then the nations which have heard the fame of you will speak, saying, 
-'Because God was not able to bring this people into the land which he swore to them, he has slain them in the wilderness.' 
+'Because God wasn't able to bring this people into the land which he swore to them, he has slain them in the wilderness.' 
 Now please let the power of the Lord be great, according as you have spoken, saying, 
 'God is slow to anger, and abundant in loving kindness, forgiving guilt and disobedience; and he will by no means clear the guilty, visiting the guilt of the fathers on the children, on the third and on the fourth generation.' 
 Please pardon the guilt of this people according to the greatness of your loving kindness, and just as you have forgiven this people, from Egypt even until now." 
 God said, "I have pardoned according to your word; 
 but in very deed, as I live, and as all the earth shall be filled with God's glory 
-because all those men who have seen my glory and my signs, which I worked in Egypt and in the wilderness, yet have tempted me these ten times, and have not listened to my voice; 
+because all those men who have seen my glory and my signs, which I worked in Egypt and in the wilderness, yet have tempted me these ten times, and haven't listened to my voice; 
 surely they shall not see the land which I swore to their fathers, neither shall any of those who despised me see it. 
 But my servant Caleb, because he had another spirit with him, and has followed me fully, him I will bring into the land into which he went. His offspring shall possess it. 
 Since the Amalekite and the Canaanite dwell in the valley, tomorrow turn and go into the wilderness by the way to the Red Sea." 
@@ -40,6 +40,6 @@ Moses told these words to all the children of Israel, and the people mourned gre
 They rose up early in the morning and went up to the top of the mountain, saying, "Look, we are here, and will go up to the place which God has promised; for we have drifted." 
 Moses said, "Why now do you disobey the commandment of God, since it shall not prosper? 
 Don't go up, for God isn't among you; that way you won't be struck down before your enemies. 
-There the Amalekite and the Canaanite are before you, and you will fall by the sword because you turned back from following God; God will not be with you." 
+There the Amalekite and the Canaanite are before you, and you will fall by the sword because you turned back from following God; God won't be with you." 
 But they presumed to go up to the top of the mountain. Nevertheless, the ark of God's covenant and Moses didn't depart out of the camp. 
 Then the Amalekites came down, and the Canaanites who lived in that mountain, and struck them and beat them down even to Hormah. 

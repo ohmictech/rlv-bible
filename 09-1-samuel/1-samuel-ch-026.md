@@ -5,7 +5,7 @@ David sent out spies, and understood that Saul had certainly come.
 Then David arose and came to the place where Saul had encamped; and David saw the place where Saul lay, with Abner the son of Ner, the captain of his army. Saul lay within the place of the wagons, and the people were encamped around him. 
 Then David answered and said to Ahimelech the Hittite, and to Abishai the son of Zeruiah, brother of Joab, saying, "Who will go down with me to Saul to the camp?" Abishai said, "I will go down with you." 
 So David and Abishai came to the people by night; and, look, Saul lay sleeping within the place of the wagons, with his spear stuck in the ground at his head; and Abner and the people lay around him. 
-Then Abishai said to David, "God has delivered up your enemy into your hand today. Now please let me strike him with the spear to the earth at one stroke, and I will not strike him the second time." 
+Then Abishai said to David, "God has delivered up your enemy into your hand today. Now please let me strike him with the spear to the earth at one stroke, and I won't strike him the second time." 
 David said to Abishai, "Don't destroy him, for who can stretch out his hand against God's anointed, and be guiltless?" 
 David said, "As God lives, God will strike him; or his day shall come to die, or he shall go down into battle and perish. 
 God forbid that I should stretch out my hand against God's anointed; but now please take the spear that is at his head and the jar of water, and let's go." 
@@ -13,7 +13,7 @@ So David took the spear and the jar of water from Saul's head, and they went awa
 Then David went over to the other side, and stood on the top of the mountain far away, a great space being between them; 
 and David cried to the people, and to Abner the son of Ner, saying, "Don't you answer, Abner?" Then Abner answered, "Who are you who calls to the king?" 
 David said to Abner, "Aren't you a man? Who is like you in Israel? Why then have you not kept watch over your lord the king? One of the people came in to destroy your lord the king. 
-This thing isn't good that you have done. As God lives, you are worthy to die, because you have not kept watch over your lord, God's anointed. Now see where the king's spear is, and the jar of water that was at his head." 
+This thing isn't good that you have done. As God lives, you are worthy to die, because you haven't kept watch over your lord, God's anointed. Now see where the king's spear is, and the jar of water that was at his head." 
 Saul recognized David's voice, and said, "Is this your voice, my son David?" David said, "It is my voice, my lord, O king." 
 He said, "Why does my lord pursue his servant? What have I done? What bad is in my hand? 
 Now, please let my lord the king hear the words of his servant. If it is so that God has stirred you up against me, let him accept an offering. But if it is the children of men, they are cursed before God; for they have driven me out today that I shouldn't cling to God's inheritance, saying, 'Go, serve other gods!' 

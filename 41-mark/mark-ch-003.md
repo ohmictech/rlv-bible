@@ -9,7 +9,7 @@ from Jerusalem, from Idumaea, from beyond the Jordan, and from around Tyre and S
 He told his students to keep a little boat ready for him because of the crowd, so that they wouldn't crush him. 
 He had healed many, so that everyone who had diseases pressed in on him to touch him. 
 The unclean spirits, whenever they saw him, fell down before him and cried, "You are the Son of God!" 
-He sternly warned them that they should not make him known. 
+He sternly warned them that they shouldn't make him known. 
 He went up into the mountain and called to himself those whom he wanted, and they went to him. 
 He appointed twelve to be with him, and to send them out to preach 
 and to have authority to heal sicknesses and to drive out unclean spirits: 
@@ -21,8 +21,8 @@ The crowd came together again, so that they couldn't even eat bread.
 When his family heard it, they went out to seize him, for they said, "He has lost his mind." 
 The Bible teachers who came down from Jerusalem said, "He has Beelzebul," and, "He drives out unclean spirits by the ruler of the unclean spirits." 
 He called them to him and said to them in stories, "How can the Adversary drive out the Adversary? 
-If a reign is divided against itself, that reign cannot stand. 
-If a house is divided against itself, that house cannot stand. 
+If a reign is divided against itself, that reign can't stand. 
+If a house is divided against itself, that house can't stand. 
 If the Adversary has risen up against himself and is divided, he can't stand, but his end has come. 
 But no one can enter a strong man's house and plunder it unless he first ties up the strong man. Then he can plunder his house. 
 "Truly I tell you, all the mistakes of the children of people will be released, including their slanders, however they may slander, 

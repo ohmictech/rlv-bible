@@ -7,11 +7,11 @@ My people are destroyed for lack of knowledge. Because you have rejected knowled
 As they were multiplied, so they wronged me. I will change their glory into shame. 
 They feed on the wrongdoing of my people, and set their heart on their guilt. 
 It will be like people, like priest; and I will punish them for their ways, and will repay them for their deeds. 
-They will eat, and not have enough. They will play the prostitute, and will not increase; because they have abandoned listening to God. 
+They will eat, and not have enough. They will play the prostitute, and won't increase; because they have abandoned listening to God. 
 Prostitution, wine, and new wine take away understanding. 
 My people consult with their wooden idol, and answer to a stick of wood. Indeed the spirit of prostitution has led them astray, and they have been unfaithful to their God. 
 They sacrifice on the tops of the mountains, and burn incense on the hills, under oaks, poplars, and terebinths, because its shade is good. So your daughters play the prostitute, and your brides commit adultery. 
-I will not punish your daughters when they play the prostitute, nor your brides when they commit adultery; because the men consort with prostitutes, and they sacrifice with the shrine prostitutes; so the people without understanding will come to ruin. 
+I won't punish your daughters when they play the prostitute, nor your brides when they commit adultery; because the men consort with prostitutes, and they sacrifice with the shrine prostitutes; so the people without understanding will come to ruin. 
 "Though you, Israel, play the prostitute, yet don't let Judah offend; and don't come to Gilgal, neither go up to Beth Aven, nor swear, 'As God lives.' 
 For Israel has behaved extremely stubbornly, like a stubborn heifer. Then how will God feed them like a lamb in a meadow? 
 Ephraim is joined to idols. Leave him alone! 

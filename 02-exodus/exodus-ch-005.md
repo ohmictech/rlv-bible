@@ -1,23 +1,23 @@
-﻿Afterward Moses and Aaron came, and said to Pharaoh, "This is what the God of Israel says, 'Let my people go, that they can hold a feast to me in the wilderness.'" 
-Pharaoh said, "Who's God, that I should listen to his voice to let Israel go? I don't know God, and moreover I won't let Israel go." 
-They said, "The God of the Hebrews has met with us. Please let's go three days' journey into the wilderness, and sacrifice to God, our God, lest he fall on us with pestilence, or with the sword." 
-The king of Egypt said to them, "Why do you, Moses and Aaron, take the people from their work? Get back to your burdens!" 
-Pharaoh said, "Look, the people of the land are now many, and you make them rest from their burdens." 
-The same day Pharaoh commanded the taskmasters of the people and their officers, saying, 
-"You will no longer give the people straw to make brick, as before. Let them go and gather straw for themselves. 
-You will require from them the number of the bricks which they made before. You won't diminish anything of it, for they're idle. So they cry, saying, 'Let's go and sacrifice to our God.' 
-Let heavier work be laid on the men, that they can labor in it. Don't let them pay any attention to lying words." 
-The taskmasters of the people went out with their officers, and they spoke to the people, saying, "This is what Pharaoh says: 'I won't give you straw. 
-Go yourselves, get straw where you can find it, for nothing of your work will be diminished.'" 
-So the people were scattered abroad throughout all the land of Egypt to gather stubble for straw. 
-The taskmasters were urgent saying, "Fulfill your work quota daily, as when there was straw!" 
-The officers of the children of Israel, whom Pharaoh's taskmasters had set over them, were beaten, and were asked, "Why haven't you fulfilled your quota both yesterday and today, in making brick as before?" 
-Then the officers of the children of Israel came and cried to Pharaoh, saying, "Why do you deal this way with your servants? 
-No straw is given to your servants, and they tell us, 'Make brick!' and look, your servants are beaten; but the fault is in your own people." 
-But Pharaoh said, "You're idle! You're idle! So you say, 'Let's go and sacrifice to God.' 
-Go now, and work; for no straw will be given to you; yet you will deliver the same number of bricks!" 
-The officers of the children of Israel saw that they were in trouble when it was said, "You won't diminish anything from your daily quota of bricks!" 
-They met Moses and Aaron, who stood along the way, as they came out from Pharaoh. 
-They said to them, "May God look at you and judge, because you have made us a stench to be abhorred in the eyes of Pharaoh, and in the eyes of his servants, to put a sword in their hand to kill us!" 
-Moses returned to God, and said, "Lord, why have you brought trouble on this people? Why is it that you have sent me? 
-Since I came to Pharaoh to speak in your name, he has brought trouble on this people. You haven't rescued your people at all!" 
+﻿After that, Moses and Aaron went to Pharaoh and said, "This is what the God of Israel says: 'Let my people go so they can hold a festival for me in the wilderness.'" 
+Pharaoh said, "Who is God, that I should listen to him and let Israel go? I don't know God, and I'm not letting Israel go." 
+They said, "The God of the Hebrews has met with us. Please let us take a three day journey into the wilderness to sacrifice to God, our God, or he may hit us with disease or with the sword." 
+The king of Egypt said to them, "Moses and Aaron, why are you pulling the people away from their work? Get back to your labor!" 
+Pharaoh said, "There are more of them now than the land can carry, and you want to give them a break from their work?" 
+That same day Pharaoh gave orders to the slave drivers and the foremen: 
+"Stop giving the people straw for making bricks. Let them go and gather their own straw. 
+But make them produce the same number of bricks as before. Don't cut it at all. They have time on their hands, which is why they are crying out, 'Let's go and sacrifice to our God.' 
+Load more work on the men so they have to keep at it, and stop listening to lies." 
+So the slave drivers and foremen went out and told the people, "This is what Pharaoh says: 'I'm not giving you straw. 
+Go and get straw wherever you can find it, but your quota won't be cut at all.'" 
+So the people scattered all over Egypt to gather stubble for straw. 
+The slave drivers kept pressing them: "Finish your daily quota, just as you did when you had straw!" 
+Pharaoh's slave drivers beat the Israelite foremen they had put in charge, and asked, "Why haven't you finished your quota of bricks yesterday or today, the way you did before?" 
+Then the Israelite foremen went to Pharaoh and cried out, "Why are you treating us like this? 
+We're given no straw, and they tell us, 'Make bricks!' And when we can't, we're beaten. The fault is your own people's." 
+But Pharaoh said, "You're lazy, that's what you are, lazy. That's why you say, 'Let's go and sacrifice to God.' 
+Get to work. You'll get no straw, and you'll still deliver the same number of bricks." 
+The Israelite foremen saw they were in trouble when they were told, "You must not fall short of your daily quota of bricks." 
+As they were leaving Pharaoh they met Moses and Aaron, who were waiting for them, 
+and they said, "May God look at what you have done and judge you. You have made us stink in Pharaoh's eyes and in front of his officials, and you have put a sword in their hands to kill us." 
+Moses went back to God and said, "Lord, why have you brought this trouble on the people? Why did you send me at all? 
+Ever since I went to Pharaoh to speak in your name, he has done nothing but harm to this people, and you haven't rescued them at all." 

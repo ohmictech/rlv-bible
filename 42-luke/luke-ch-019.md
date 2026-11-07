@@ -12,7 +12,7 @@ As they heard these things, he went on and told a story, because he was near Jer
 He said therefore, "A certain nobleman went into a far country to receive for himself a reign and to return. 
 He called ten slaves of his and gave them ten large silver coins, and told them, 'Do business until I come.' 
 But his citizens hated him, and sent an envoy after him, saying, 'We don't want this man to reign over us.' 
-"When he had come back again, having received the reign, he commanded these slaves, to whom he had given the money, to be called to him, that he might know what they had gained by doing business. 
+"When he had come back again, having received the reign, he commanded these slaves, to whom he had given the money, to be called to him, so that he could learn what they had gained by doing business. 
 The first came before him, saying, 'Lord, your silver coin has made ten more.' 
 "He said to him, 'Well done, you good slave! Because you were found faithful with very little, you will have authority over ten cities.' 
 "The second came, saying, 'Your silver coin, Lord, has made five more.' 
@@ -20,7 +20,7 @@ The first came before him, saying, 'Lord, your silver coin has made ten more.'
 Another came, saying, 'Lord, look, your silver coin, which I kept laid away in a cloth, 
 for I feared you, because you are a hard man. You take up that which you didn't lay down, and reap that which you didn't sow.' 
 "He said to him, 'Out of your own mouth I will judge you, you malicious slave! You knew that I am a hard man, taking up that which I didn't lay down and reaping that which I didn't sow. 
-Then why didn't you deposit my money in the bank, and at my coming, I might have earned interest on it?' 
+Then why didn't you deposit my money in the bank, so that at my coming I would have earned interest on it?' 
 He said to those who stood by, 'Take the silver coin away from him and give it to him who has the ten.' 
 "They said to him, 'Lord, he has ten already!' 
 'For I tell you that to everyone who has, more will be given; but from him who doesn't have, even that which he has will be taken away from him. 
@@ -45,4 +45,4 @@ and will dash you and your children within you to the ground. They will not leav
 He entered into the temple courts and began to drive out those who bought and sold in it, 
 saying to them, "It is written, 'My house shall be a house of prayer,' but you have made it a 'den of robbers'!" 
 He was teaching daily in the temple courts, but the chief priests, the Bible teachers, and the leading men among the people sought to kill him. 
-They couldn't find what they might do, for everyone hung on to every word that he said. 
+They couldn't find what they could do, for everyone hung on to every word that he said. 

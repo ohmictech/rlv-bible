@@ -12,7 +12,7 @@ The strict religious man stood and prayed by himself like this: 'God, I thank yo
 I go without food twice a week. I give tithes of all that I get.' 
 But the tax collector, standing far away, wouldn't even lift up his eyes to the sky, but beat his chest, saying, 'God, be merciful to me, a man who drifts!' 
 I tell you, this man went down to his house made right rather than the other; for everyone who lifts himself up will be humbled, but he who humbles himself will be lifted up." 
-They were also bringing their babies to him, that he might touch them. But when the students saw it, they rebuked them. 
+They were also bringing their babies to him, so that he could touch them. But when the students saw it, they rebuked them. 
 Jesus called them to him, saying, "Let the little children come to me, and don't stop them, for God's reign belongs to people like these. 
 Truly I tell you, whoever doesn't welcome God's reign like a little child will in no way enter it." 
 A certain ruler asked him, saying, "Good Teacher, what must I do to be given charge of the real life of the era?" 

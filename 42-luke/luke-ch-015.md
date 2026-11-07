@@ -26,7 +26,7 @@ for this, my son, was dead and is alive again. He was lost and is found.' Then t
 He called one of the slaves to him and asked what was going on. 
 He said to him, 'Your brother has come, and your father has killed the fattened calf, because he has received him back safe and healthy.' 
 But he was angry and would not go in. Therefore his father came out and begged him. 
-But he answered his father, 'Look, these many years I have served you, and I never disobeyed a commandment of yours, but you never gave me a goat, that I might celebrate with my friends. 
+But he answered his father, 'Look, these many years I have served you, and I never disobeyed a commandment of yours, but you never gave me a goat, so that I could celebrate with my friends. 
 But when this your son came, who has devoured your living with prostitutes, you killed the fattened calf for him.' 
 "He said to him, 'Son, you are always with me, and all that is mine is yours. 
 But it was appropriate to celebrate and be glad, for this, your brother, was dead, and is alive again. He was lost, and is found.'" 

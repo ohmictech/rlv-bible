@@ -4,11 +4,11 @@ Jesus answered them, "Haven't you read what David did when he was hungry, he and
 how he went into the house of God, and ate the bread set out before God, and gave also to those who were with him, which isn't allowed to eat except for the priests alone?" 
 He said to them, "The Human One is lord of the Sabbath." 
 It also happened on another Sabbath that he entered into the gathering place and taught. There was a man there, and his right hand was withered. 
-The Bible teachers and the strict religious ones watched him, to see whether he would heal on the Sabbath, that they might find an accusation against him. 
+The Bible teachers and the strict religious ones watched him, to see whether he would heal on the Sabbath, so that they could find an accusation against him. 
 But he knew their thoughts, and he said to the man with the withered hand, "Get up and stand here in the middle." He got up and stood there. 
 Then Jesus said to them, "I will ask you something: Is it allowed on the Sabbath to do good, or to do harm? To rescue a life, or to kill?" 
 He looked around at them all, and said to the man, "Stretch out your hand." He did, and his hand was restored as sound as the other. 
-But they were filled with rage, and talked with one another about what they might do to Jesus. 
+But they were filled with rage, and talked with one another about what they could do to Jesus. 
 In these days, he went out to the mountain to pray, and he continued all night in prayer to God. 
 When it was day, he called his students, and from them he chose twelve, whom he also named those sent out: 
 Simon, whom he also named Peter; Andrew, his brother; James; John; Philip; Bartholomew; 

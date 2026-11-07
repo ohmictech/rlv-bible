@@ -26,7 +26,7 @@ But truly I tell you, there were many widows in Israel in the days of Elijah, wh
 Elijah was sent to none of them, except to Zarephath, in the land of Sidon, to a woman who was a widow. 
 There were many men with leprosy in Israel in the time of Elisha the spokesman, yet not one of them was made clean, except Naaman, the Syrian." 
 Everyone in the gathering place flared up as they heard these things. 
-They rose up, threw him out of the city, and led him to the brow of the hill that their city was built on, that they might throw him off the cliff. 
+They rose up, threw him out of the city, and led him to the brow of the hill that their city was built on, so that they could throw him off the cliff. 
 But he walked right through the middle of them and went on his way. 
 He came down to Capernaum, a city of Galilee. He was teaching them on the Sabbath day, 
 and they were astonished at his teaching, for his word was with authority. 

@@ -51,4 +51,4 @@ that the blood of all the spokesmen, which was shed from the founding of the wor
 from the blood of Abel to the blood of Zachariah, who was killed between the altar and the temple.' Yes, I tell you, it will be required of this generation. 
 How terrible for you experts in the law! For you took away the key of knowledge. You didn't enter in yourselves, and those who were entering in, you hindered." 
 As he said these things to them, the Bible teachers and the strict religious ones began to be terribly angry, and to press him with many questions, 
-lying in wait for him, and seeking to catch him in something he might say, that they might accuse him. 
+lying in wait for him, and seeking to catch him in something he might say, so that they could accuse him. 

@@ -1,7 +1,7 @@
 ﻿Now the feast of bread without yeast, which is called the Passover, was approaching. 
-The chief priests and the Bible teachers sought how they might put him to death, for they feared the people. 
+The chief priests and the Bible teachers sought how they could put him to death, for they feared the people. 
 The Adversary entered into Judas, who was also called Iscariot, who was counted with the twelve. 
-He went away and talked with the chief priests and captains about how he might hand him over to them. 
+He went away and talked with the chief priests and captains about how he could hand him over to them. 
 They were glad, and agreed to give him money. 
 He consented and sought an opportunity to hand him over to them in the absence of the crowd. 
 The day of bread without yeast came, on which the Passover lamb must be sacrificed. 
@@ -28,7 +28,7 @@ For who is greater, one who sits at the table, or one who serves? Isn't it he wh
 "But you are those who have continued with me in my trials. 
 I confer on you a reign, even as my Father conferred one on me, 
 that you may eat and drink at my table in my reign. You will sit on thrones, passing a verdict on the twelve tribes of Israel." 
-The Lord said, "Simon, Simon, look, the Adversary asked to have all of you, that he might sift you as wheat, 
+The Lord said, "Simon, Simon, look, the Adversary asked to have all of you, so that he could sift you like wheat, 
 but I prayed for you, that your trust wouldn't fail. And you, once you have turned back, strengthen your brothers." 
 He said to him, "Lord, I am ready to go with you both to prison and to death!" 
 He said, "I tell you, Peter, the rooster will by no means crow today until you have disowned me three times." 

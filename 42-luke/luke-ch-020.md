@@ -17,7 +17,7 @@ He will come and ruin these farmers, and will give the vineyard to others." When
 But he looked at them and said, "Then what is this that is written, 'The stone which the builders rejected was made the chief cornerstone'? 
 Everyone who falls on that stone will be broken to pieces, but it will crush whomever it falls on to dust." 
 The chief priests and the Bible teachers sought to lay hands on him that very time, but they feared the people, for they knew he had spoken this story against them. 
-They watched him and sent out spies, who pretended to be upright, that they might trap him in something he said, so as to deliver him up to the power and authority of the governor. 
+They watched him and sent out spies, who pretended to be upright, so that they could trap him in something he said, so as to deliver him up to the power and authority of the governor. 
 They asked him, "Teacher, we know that you say and teach what is right, and aren't partial to anyone, but truly teach the way of God. 
 Is it allowed for us to pay taxes to Caesar, or not?" 
 But he perceived their craftiness, and said to them, "Why do you test me? 

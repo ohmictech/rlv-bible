@@ -35,7 +35,7 @@ When those who fed them saw what had happened, they fled and told it in the city
 People went out to see what had happened. They came to Jesus and found the man from whom the unclean spirits had gone out, sitting at Jesus' feet, clothed and in his right mind; and they were afraid. 
 Those who saw it told them how he who had been possessed by unclean spirits was healed. 
 Everyone in the surrounding region of the Gadarenes asked him to leave them, for they were very much afraid. Then he entered into the boat and returned. 
-But the man from whom the unclean spirits had gone out begged him that he might go with him, but Jesus sent him away, saying, 
+But the man from whom the unclean spirits had gone out begged him to let him go with him, but Jesus sent him away, saying, 
 "Return to your house, and declare what great things God has done for you." He went his way, proclaiming throughout the whole city what great things Jesus had done for him. 
 When Jesus returned, the crowd welcomed him, for they were all waiting for him. 
 Look, a man named Jairus came. He was a leader of the gathering place. He fell down at Jesus' feet and begged him to come into his house, 

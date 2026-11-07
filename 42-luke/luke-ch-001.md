@@ -1,7 +1,7 @@
 ﻿Since many have undertaken to set in order a narrative concerning those matters which have been fulfilled among us, 
 even as those who from the beginning were eyewitnesses and servants of the word handed them down to us, 
 it seemed good to me also, having carefully traced everything from the first, to write it out for you in order, most excellent Theophilus; 
-that you might know the certainty of the things in which you were taught. 
+so that you would know the certainty of the things in which you were taught. 
 In the days of Herod, king of Judea, there was a priest named Zacharias, of the priestly division of Abijah. His wife was one of the daughters of Aaron, and her name was Elizabeth. 
 They were both upright before God, walking blamelessly in all the commandments and rules of the Lord. 
 But they had no child, because Elizabeth was barren, and they both were well advanced in years. 
@@ -51,7 +51,7 @@ His mercy is for generations and generations on those who fear him.
 He has shown strength with his arm. He has scattered the proud in the thoughts of their hearts. 
 He has brought rulers down from their thrones, and has lifted up the lowly. 
 He has filled the hungry with good things. He has sent the rich away empty. 
-He has helped Israel, his servant, that he might remember mercy, 
+He has helped Israel, his servant, remembering mercy, 
 as he spoke to our fathers, to Abraham and his offspring forever." 
 Mary stayed with her about three months, and then returned to her house. 
 Now the time came for Elizabeth to give birth, and she gave birth to a son. 

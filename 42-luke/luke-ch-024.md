@@ -42,7 +42,7 @@ While they still didn't trust it because of their joy, and were amazed, he said 
 They gave him a piece of a broiled fish and some honeycomb. 
 He took them, and ate in front of them. 
 He said to them, "This is what I told you while I was still with you, that all things which are written in the law of Moses, the spokesmen, and the psalms concerning me must be fulfilled." 
-Then he opened their minds, that they might understand the Scriptures. 
+Then he opened their minds, so that they could understand the Scriptures. 
 He said to them, "Thus it is written, and thus it was necessary for the Christ to suffer and to rise from the dead the third day, 
 and that a change of heart and release of mistakes should be preached in his name to all the nations, beginning at Jerusalem. 
 You are witnesses of these things. 

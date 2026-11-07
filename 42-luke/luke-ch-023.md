@@ -20,7 +20,7 @@ one who was thrown into prison for a certain revolt in the city, and for murder.
 Then Pilate spoke to them again, wanting to release Jesus, 
 but they shouted, saying, "Crucify! Crucify him!" 
 He said to them the third time, "Why? What bad thing has this man done? I have found no capital crime in him. I will therefore have him whipped and release him." 
-But they were urgent with loud voices, asking that he might be crucified. Their voices and the voices of the chief priests prevailed. 
+But they were urgent with loud voices, demanding that he be crucified. Their voices and the voices of the chief priests prevailed. 
 Pilate decreed that what they asked for should be done. 
 He released him who had been thrown into prison for uprising and murder, for whom they asked, but he delivered Jesus up to their will. 
 When they led him away, they grabbed one Simon of Cyrene, coming from the countryside, and laid the cross on him to carry it after Jesus. 

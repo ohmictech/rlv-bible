@@ -30,9 +30,9 @@ Some thought, because Judas had the money box, that Jesus said to him, "Buy what
 So after receiving the piece of bread, he went out immediately. It was night. 
 When he had gone out, Jesus said, "Now the Human One has been honored, and God has been honored in him. 
 If God has been honored in him, God will also honor him in himself, and he'll honor him immediately. 
-Little children, I'll be with you a little while longer. You'll seek me, and as I said to the Jewish leaders, 'Where I'm going, you can't come,' so now I tell you. 
+Little children, I'll be with you a little while longer. You'll seek me, and as I said to the Jewish leaders, 'Where I am going, you can't come,' so now I tell you. 
 A new commandment I give to you, that you love one another. Just as I have loved you, you also love one another. 
 By this everyone will know that you're my students, if you have love for one another." 
-Simon Peter said to him, "Lord, where are you going?" Jesus answered, "Where I'm going, you can't follow now, but you'll follow afterwards." 
+Simon Peter said to him, "Lord, where are you going?" Jesus answered, "Where I am going, you can't follow now, but you'll follow afterwards." 
 Peter said to him, "Lord, why can't I follow you now? I'll lay down my life for you." 
 Jesus answered him, "Will you lay down your life for me? Truly I tell you, the rooster won't crow until you have disowned me three times. 

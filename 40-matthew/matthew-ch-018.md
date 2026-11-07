@@ -17,7 +17,7 @@ But if he doesn't listen, take one or two more with you, so that at the mouth of
 If he refuses to listen to them, tell it to the gathering. If he refuses to hear the gathering also, let him be to you as an outsider or a tax collector. 
 Truly I tell you, whatever you forbid on earth will have been forbidden in the sky, and whatever you permit on earth will have been permitted in the sky. 
 Again, truly I tell you, that if two of you agree on earth about anything that they ask, it'll be done for them by my Father in the sky. 
-Where two or three are gathered together in my name, there I'm among them." 
+Where two or three are gathered together in my name, there I am among them." 
 Then Peter came and said to him, "Lord, how often will my brother drift against me, and I release him? Up to seven times?" 
 Jesus said to him, "I don't tell you up to seven times, but up to seventy times seven. 
 So the reign of the sky is like a certain king who wanted to settle accounts with his slaves. 

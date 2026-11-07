@@ -4,9 +4,9 @@ But those sacrifices are a yearly reminder of mistakes.
 It's impossible for the blood of bulls and goats to take mistakes away. 
 That's why, when he comes into the world, he says, "You didn't want sacrifice and offering, but you prepared a body for me. 
 You took no pleasure in whole burnt offerings and offerings for wrongdoing. 
-Then I said, 'Here I'm, it's written about me in the scroll of the book, I have come to do your will, O God.'" 
+Then I said, 'Here I am, it's written about me in the scroll of the book, I have come to do your will, O God.'" 
 First he says, "You didn't want and took no pleasure in sacrifices and offerings, whole burnt offerings and offerings for wrongdoing" (the ones offered according to the law), 
-Then he says, "Here I'm, I have come to do your will." He does away with the first to set up the second. 
+Then he says, "Here I am, I have come to do your will." He does away with the first to set up the second. 
 And by that will we have been set apart, once and for all, through the offering of the body of Jesus Christ. 
 Every priest stands day after day serving and offering the same sacrifices over and over, and those can never take mistakes away. 
 But this one, after he had offered a single sacrifice for wrongdoing for all time, sat down at the right hand of God, 

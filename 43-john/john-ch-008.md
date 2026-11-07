@@ -19,7 +19,7 @@ I'm one who testifies about myself, and the Father who sent me testifies about m
 They said to him, "Where is your Father?" Jesus answered, "You know neither me nor my Father. If you knew me, you'd know my Father also." 
 Jesus spoke these words in the treasury, as he taught in the temple courts. Yet no one arrested him, because his time hadn't yet come. 
 Jesus said again to them, "I'm going away, and you'll seek me, and you'll die in your mistakes. Where I go, you can't come." 
-The Jewish leaders said, "Will he kill himself, because he says, 'Where I'm going, you can't come'?" 
+The Jewish leaders said, "Will he kill himself, because he says, 'Where I am going, you can't come'?" 
 He said to them, "You're from beneath. I'm from above. You're of this world. I'm not of this world. 
 I said to you that you'll die in your mistakes; for unless you trust that I am the one, you'll die in your mistakes." 
 They said to him, "Who are you?" Jesus said to them, "Just what I have been saying to you from the beginning. 

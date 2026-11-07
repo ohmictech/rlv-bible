@@ -10,7 +10,7 @@ But we do see Jesus, who was made a little lower than the messengers for a while
 It was fitting that God, for whom everything exists and through whom everything exists, in bringing many children to weight, should make the one who leads them to rescue complete through suffering. 
 The one who sets apart and those who are set apart all come from one Father. That's why he isn't ashamed to call them brothers and sisters, 
 when he says, "I'll tell my brothers and sisters your name. In the middle of the gathering I'll sing your praise." 
-And again, "I'll put my trust in him." And again, "Here I'm, with the children God has given me." 
+And again, "I'll put my trust in him." And again, "Here I am, with the children God has given me." 
 Since the children share in flesh and blood, he also shared in the same things himself, so that through his death he might put out of work the one who holds the power of death, that's, the Slanderer, 
 and set free everyone who was held in slavery their whole lives by the fear of death. 
 Surely he doesn't come to the aid of messengers, but he comes to the aid of the offspring of Abraham. 

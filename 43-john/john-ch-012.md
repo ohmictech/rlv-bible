@@ -23,7 +23,7 @@ Philip came and told Andrew, and in turn, Andrew came with Philip, and they told
 Jesus answered them, "The time has come for the Human One to be honored. 
 Truly I tell you, unless a grain of wheat falls into the earth and dies, it remains by itself alone. But if it dies, it bears much fruit. 
 Whoever loves their life will lose it. Whoever hates their life in this world will keep it to the real life of the era. 
-If anyone serves me, let them follow me. Where I'm, there my servant will also be. If anyone serves me, the Father will honor them. 
+If anyone serves me, let them follow me. Where I am, there my servant will also be. If anyone serves me, the Father will honor them. 
 "Now my life is troubled. What can I say? 'Father, rescue me from this time'? But this is why I came to this hour. 
 Father, give honor to your name!" Then a voice came out of the sky, saying, "I have both given it honor and will give it honor again." 
 So the crowd who stood by and heard it said that it had thundered. Others said, "A messenger has spoken to him." 

@@ -9,7 +9,7 @@ Is that why all of you have conspired against me, and there's no one who disclos
 Then Doeg the Edomite, who stood by the servants of Saul, answered and said, "I saw the son of Jesse coming to Nob, to Ahimelech the son of Ahitub. 
 He inquired of God for him, gave him food, and gave him the sword of Goliath the Philistine." 
 Then the king sent to call Ahimelech the priest, the son of Ahitub, and all his father's house, the priests who were in Nob; and they all came to the king. 
-Saul said, "Hear now, you son of Ahitub." He answered, "Here I'm, my lord." 
+Saul said, "Hear now, you son of Ahitub." He answered, "Here I am, my lord." 
 Saul said to him, "Why have you conspired against me, you and the son of Jesse, in that you have given him bread, and a sword, and have inquired of God for him, that he should rise against me, to lie in wait, as it's today?" 
 Then Ahimelech answered the king, and said, "Who among all your servants is so faithful as David, who's the king's son-in-law, captain of your body guard, and honored in your house? 
 Have I today begun to inquire of God for him? Be it far from me! Don't let the king impute anything to his servant, nor to all the house of my father; for your servant knew nothing of all this, less or more." 

@@ -10,7 +10,7 @@ He dreamed yet another dream, and told it to his brothers, and said, "Look, I ha
 He told it to his father and to his brothers. His father rebuked him, and said to him, "What's this dream that you have dreamed? Will I and your mother and your brothers indeed come to bow ourselves down to the earth before you?" 
 His brothers envied him, but his father kept this saying in mind. 
 His brothers went to feed their father's flock in Shechem. 
-Israel said to Joseph, "Aren't your brothers feeding the flock in Shechem? Come, and I'll send you to them." He said to him, "Here I'm." 
+Israel said to Joseph, "Aren't your brothers feeding the flock in Shechem? Come, and I'll send you to them." He said to him, "Here I am." 
 He said to him, "Go now, see whether it's well with your brothers, and well with the flock; and bring me word again." So he sent him out of the valley of Hebron, and he came to Shechem. 
 A certain man found him, and look, he was wandering in the field. The man asked him, "What are you looking for?" 
 He said, "I'm looking for my brothers. Tell me, please, where they're feeding the flock." 

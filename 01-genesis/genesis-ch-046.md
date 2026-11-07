@@ -1,5 +1,5 @@
 ﻿Israel traveled with all that he had, and came to Beersheba, and offered sacrifices to the God of his father, Isaac. 
-God spoke to Israel in the visions of the night, and said, "Jacob, Jacob!" He said, "Here I'm." 
+God spoke to Israel in the visions of the night, and said, "Jacob, Jacob!" He said, "Here I am." 
 He said, "I'm the God of your father. Don't be afraid to go down into Egypt, for there I'll make of you a great nation. 
 I'll go down with you into Egypt. I'll also surely bring you up again. Joseph's hand will close your eyes." 
 Jacob rose up from Beersheba, and the sons of Israel carried Jacob, their father, their little ones, and their wives, in the wagons which Pharaoh had sent to carry him. 

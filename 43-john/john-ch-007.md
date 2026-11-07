@@ -33,7 +33,7 @@ The strict religious ones heard the crowd muttering these things concerning him,
 Then Jesus said, "I'll be with you a little while longer, then I go to him who sent me. 
 You'll seek me and won't find me. You can't come where I am." 
 The Jewish leaders said among themselves, "Where will this man go that we won't find him? Will he go to the scattered Jews among the Greeks and teach the Greeks? 
-What's this word that he said, 'You'll seek me and won't find me,' and 'Where I'm, you can't come'?" 
+What's this word that he said, 'You'll seek me and won't find me,' and 'Where I am, you can't come'?" 
 Now on the last and greatest day of the feast, Jesus stood and cried out, "If anyone is thirsty, let them come to me and drink! 
 Whoever trusts in me, as the Scripture has said, from within them will flow rivers of living water." 
 But he said this about the Spirit, which those trusting in him were to receive. The Holy Spirit wasn't yet given, because Jesus wasn't yet given honor. 

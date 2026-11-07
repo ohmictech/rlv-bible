@@ -4,7 +4,7 @@ David said to him, "Where do you come from?" He said to him, "I have escaped out
 David said to him, "How did it go? Please tell me." He answered, "The people have fled from the battle, and many of the people also have fallen and are dead. Saul and Jonathan his son are dead also." 
 David said to the young man who told him, "How do you know that Saul and Jonathan his son are dead?" 
 The young man who told him said, "As I happened by chance on Mount Gilboa, look, Saul was leaning on his spear; and look, the chariots and the horsemen followed close behind him. 
-When he looked behind him, he saw me and called to me. I answered, 'Here I'm.' 
+When he looked behind him, he saw me and called to me. I answered, 'Here I am.' 
 He said to me, 'Who are you?' I answered him, 'I'm an Amalekite.' 
 He said to me, 'Please stand beside me, and kill me, for anguish has taken hold of me because my life lingers in me.' 
 So I stood beside him and killed him, because I was sure that he couldn't live after he had fallen. I took the crown that was on his head and the bracelet that was on his arm, and have brought them here to my lord." 

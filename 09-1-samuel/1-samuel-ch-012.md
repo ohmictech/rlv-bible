@@ -1,6 +1,6 @@
 ﻿Samuel said to all Israel, "Look, I have listened to your voice in all that you said to me, and have made a king over you. 
 Now, look, the king walks before you. I'm old and gray-headed. Look, my sons are with you. I have walked before you from my youth to this day. 
-Here I'm. Witness against me before God and before his anointed. Whose ox have I taken? Whose donkey have I taken? Whom have I defrauded? Whom have I oppressed? Of whose hand have I taken a bribe to make me blind my eyes? I'll restore it to you." 
+Here I am. Witness against me before God and before his anointed. Whose ox have I taken? Whose donkey have I taken? Whom have I defrauded? Whom have I oppressed? Of whose hand have I taken a bribe to make me blind my eyes? I'll restore it to you." 
 They said, "You haven't defrauded us, nor oppressed us, neither have you taken anything from anyone's hand." 
 He said to them, "God is witness against you, and his anointed is witness today, that you haven't found anything in my hand." They said, "He's witness." 
 Samuel said to the people, "It's God who appointed Moses and Aaron, and that brought your fathers up out of the land of Egypt. 

@@ -23,7 +23,7 @@ David said to Ittai, "Go and pass over." Ittai the Gittite passed over, and all 
 All the country wept with a loud voice, and everyone passed over. The king also himself passed over the brook Kidron, and everyone passed over toward the way of the wilderness. 
 Look, Zadok also came, and all the Levites with him, bearing the ark of the covenant of God; and they set down God's ark; and Abiathar went up until everyone finished passing out of the city. 
 The king said to Zadok, "Carry God's ark back into the city. If I find favor in God's eyes, he'll bring me again, and show me both it and his habitation; 
-but if he says, 'I have no delight in you,' look, here I'm. Let him do to me as seems good to him." 
+but if he says, 'I have no delight in you,' look, here I am. Let him do to me as seems good to him." 
 The king said also to Zadok the priest, "Aren't you a seer? Return into the city in peace, and your two sons with you, Ahimaaz your son and Jonathan the son of Abiathar. 
 Look, I'll stay at the fords of the wilderness until word comes from you to inform me." 
 Zadok and Abiathar carried God's ark to Jerusalem again; and they stayed there. 

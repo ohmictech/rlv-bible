@@ -32,7 +32,7 @@ The waters become hard like stone, when the surface of the deep is frozen.
 Can you lead the constellations out in their season? Or can you guide the Bear with her cubs? 
 Do you know the laws of the sky? Can you establish its dominion over the earth? 
 "Can you lift up your voice to the clouds, that abundance of waters may cover you? 
-Can you send out lightnings, that they can go? Do they report to you, 'Here we're'? 
+Can you send out lightnings, that they can go? Do they report to you, 'Here we are'? 
 Who has put wisdom in the inward parts? Or who has given understanding to the mind? 
 Who can count the clouds by wisdom? Or who can pour out the containers of the sky, 
 when the dust runs into a mass, and the clods of earth stick together? 

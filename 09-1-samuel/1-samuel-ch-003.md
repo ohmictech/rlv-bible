@@ -1,11 +1,11 @@
 ﻿The child Samuel ministered to God before Eli. God's word was rare in those days. There weren't many visions, then. 
 At that time, when Eli was laid down in his place (now his eyes had begun to grow dim, so that he couldn't see), 
 and God's lamp hadn't yet gone out, and Samuel had laid down in God's temple where God's ark was, 
-God called Samuel. He said, "Here I'm." 
-He ran to Eli and said, "Here I'm; for you called me." He said, "I didn't call. Lie down again." He went and lay down. 
-God called yet again, "Samuel!" Samuel arose and went to Eli and said, "Here I'm; for you called me." He answered, "I didn't call, my son. Lie down again." 
+God called Samuel. He said, "Here I am." 
+He ran to Eli and said, "Here I am; for you called me." He said, "I didn't call. Lie down again." He went and lay down. 
+God called yet again, "Samuel!" Samuel arose and went to Eli and said, "Here I am; for you called me." He answered, "I didn't call, my son. Lie down again." 
 Now Samuel didn't yet know God, neither was God's word yet revealed to him. 
-God called Samuel again the third time. He arose and went to Eli and said, "Here I'm; for you called me." Eli perceived that God had called the child. 
+God called Samuel again the third time. He arose and went to Eli and said, "Here I am; for you called me." Eli perceived that God had called the child. 
 So Eli said to Samuel, "Go, lie down. It will be, if he calls you, that you will say, 'Speak, God; for your servant hears.'" So Samuel went and lay down in his place. 
 God came, and stood, and called as at other times, "Samuel! Samuel!" Then Samuel said, "Speak; for your servant hears." 
 God said to Samuel, "Look, I'll do a thing in Israel at which both the ears of everyone who hears it'll tingle. 
@@ -13,7 +13,7 @@ In that day I'll perform against Eli all that I have spoken concerning his house
 I have told him that I'll judge his house for the eras for the guilt which he knew, because his sons brought a curse on themselves, and he didn't restrain them. 
 So I have sworn to the house of Eli that the guilt of Eli's house won't be removed with sacrifice or offering for the eras." 
 Samuel lay until the morning, and opened the doors of God's house. Samuel was afraid to show Eli the vision. 
-Then Eli called Samuel and said, "Samuel, my son!" He said, "Here I'm." 
+Then Eli called Samuel and said, "Samuel, my son!" He said, "Here I am." 
 He said, "What's the thing that he has spoken to you? Please don't hide it from me. God do so to you, and more also, if you hide anything from me of all the things that he spoke to you." 
 Samuel told him every bit, and hid nothing from him. He said, "It's God. Let him do what seems good to him." 
 Samuel grew, and God was with him and let none of his words fall to the ground. 

@@ -53,10 +53,10 @@ Then Jesus said to him, "Put your sword back into its place, for everyone who ta
 Or do you think that I couldn't ask my Father, and he would even now send me more than twelve legions of messengers? 
 How then would the Scriptures be fulfilled that it must be so?" 
 At that time Jesus said to the crowds, "Have you come out against me with swords and clubs as if I were a robber? I sat daily in the temple courts teaching, and you didn't arrest me. 
-But all this has happened so that the Scriptures of the spokesmen might be fulfilled." Then all the students left him and fled. 
+But all this has happened so that the Scriptures of the spokesmen would be fulfilled." Then all the students left him and fled. 
 Those who had seized Jesus led him away to Caiaphas the high priest, where the Bible teachers and the elders were gathered together. 
 But Peter followed him at a distance as far as the courtyard of the high priest, and went in and sat with the officers to see how it would end. 
-Now the chief priests, the elders, and the whole council sought false witness against Jesus, that they might put him to death, 
+Now the chief priests, the elders, and the whole council sought false witness against Jesus, that they could put him to death, 
 but they found none, though many false witnesses came forward. At last two came 
 and said, "This man said, 'I can tear down the temple of God and build it in three days.'" 
 The high priest stood up and said to him, "Have you no answer? What is this that these testify against you?" 

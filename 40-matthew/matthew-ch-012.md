@@ -7,11 +7,11 @@ But I tell you that one greater than the temple is here.
 But if you had known what this means, 'I want mercy, and not sacrifice,' you wouldn't have sentenced the innocent. 
 For the Human One is Lord of the Sabbath." 
 He went on from there and went into their gathering place. 
-And there was a man with a withered hand. They asked him, "Is it allowed to heal on the Sabbath day?" so that they might accuse him. 
+And there was a man with a withered hand. They asked him, "Is it allowed to heal on the Sabbath day?" so that they could accuse him. 
 He said to them, "Who among you, if he has one sheep and it falls into a pit on the Sabbath day, won't grab hold of it and lift it out? 
 How much more valuable then is a person than a sheep! So it is allowed to do good on the Sabbath day." 
 Then he told the man, "Stretch out your hand." He stretched it out, and it was restored whole, just like the other. 
-But the strict religious ones went out and conspired against him, how they might kill him. 
+But the strict religious ones went out and conspired against him, how they could kill him. 
 Jesus, perceiving that, withdrew from there. Great crowds followed him, and he healed them all, 
 and commanded them that they should not make him known, 
 so that what was spoken through the spokesman Isaiah would come true: 

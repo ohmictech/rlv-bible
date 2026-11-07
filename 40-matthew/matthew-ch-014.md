@@ -33,4 +33,4 @@ When they got up into the boat, the wind ceased.
 Those who were in the boat came and worshiped him, saying, "You are truly the Son of God!" 
 When they had crossed over, they came to the land of Gennesaret. 
 When the people of that place recognized him, they sent into all that surrounding region and brought to him everyone who was sick. 
-And they begged him that they might just touch the fringe of his garment. As many as touched it were healed and made whole. 
+And they begged him to let them just touch the fringe of his garment. As many as touched it were healed and made whole. 

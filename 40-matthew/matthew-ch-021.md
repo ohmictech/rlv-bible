@@ -29,7 +29,7 @@ But what do you think? A man had two sons, and he came to the first, and said, '
 He answered, 'I will not,' but afterward he felt sorry and went. 
 He came to the second, and said the same thing. He answered, 'I'm going, sir,' but he didn't go. 
 Which of the two did the will of his father?" They said to him, "The first." Jesus said to them, "Truly I tell you that the tax collectors and those who sleep around are entering into God's reign before you. 
-For John came to you in the way of rightness, and you didn't trust him, but the tax collectors and those who sleep around trusted him. When you saw it, you didn't even have a change of heart afterward, so that you might trust him. 
+For John came to you in the way of rightness, and you didn't trust him, but the tax collectors and those who sleep around trusted him. When you saw it, you didn't even have a change of heart afterward, so that you would trust him. 
 "Hear another story. There was a man, the master of a house, who planted a vineyard. He put a hedge around it, dug a winepress in it, built a tower, leased it out to farmers, and went away to another country. 
 When the season for the fruit came near, he sent his slaves to the farmers to receive his fruit. 
 The farmers took his slaves, beat one, killed another, and stoned another. 

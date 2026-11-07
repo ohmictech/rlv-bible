@@ -1,7 +1,7 @@
 ﻿What should we say then? Should we continue in the drift, so that favor may overflow? 
-May it never be! We who died to the drift, how could we live in it any longer? 
+Never! We who died to the drift, how could we live in it any longer? 
 Or don't you know that all of us who were immersed into Christ Jesus were immersed into his death? 
-We were buried therefore with him through immersion into death, that just as Christ was raised from the dead through the weight of the Father, so we also might walk in newness of life. 
+We were buried with him through immersion into death, so that just as Christ was raised from the dead through the weight of the Father, we also would walk in newness of life. 
 For if we have become united with him in the likeness of his death, we will also be part of his rising; 
 knowing this, that our old man was crucified with him, that the body of the drift might be put out of work, so that we would no longer be slaves to the drift. 
 For he who has died has been freed from the drift. 
@@ -12,7 +12,7 @@ Thus consider yourselves also to be dead to the drift, but alive to God in Chris
 Therefore don't let the drift reign in your mortal body, that you should obey it in its cravings. 
 Also, do not present your members to the drift as instruments of wrong, but present yourselves to God as alive from the dead, and your members as instruments of rightness to God. 
 For the drift will not dominate you, for you are not under law, but under favor. 
-What then? Should we drift because we are not under law but under favor? May it never be! 
+What then? Should we drift because we are not under law but under favor? Never! 
 Don't you know that when you present yourselves as slaves and obey someone, you are the slaves of whomever you obey, whether of the drift to death, or of obedience to rightness? 
 But thanks be to God that, whereas you were slaves of the drift, you became obedient from the heart to that form of teaching to which you were handed over. 
 Being made free from the drift, you became slaves of rightness. 

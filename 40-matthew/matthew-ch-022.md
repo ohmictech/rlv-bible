@@ -12,7 +12,7 @@ Those slaves went out into the main roads and gathered together as many as they 
 and he said to him, 'Friend, how did you come in here not wearing wedding clothing?' He was speechless. 
 Then the king said to his slaves, 'Tie him hand and foot, take him away, and throw him into the outer darkness. That is where the crying and grinding of teeth will be.' 
 For many are called, but few chosen." 
-Then the strict religious ones went and made plans how they might trap him in his words. 
+Then the strict religious ones went and made plans how they could trap him in his words. 
 They sent their students to him, along with the Herodians, saying, "Teacher, we know that you are truthful, and teach the way of God in truth, no matter whom you teach, for you don't play favorites. 
 Tell us therefore, what do you think? Is it allowed to pay taxes to Caesar, or not?" 
 But Jesus perceived their malice, and said, "Why do you test me, you pretenders? 

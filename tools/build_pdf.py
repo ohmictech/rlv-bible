@@ -67,6 +67,8 @@ MARGIN_BOTTOM = 0.7 * inch
 GUTTER = 0.25 * inch
 
 GREY = colors.HexColor("#808080")
+DARK = colors.HexColor("#3A3A3A")
+VERSE_NUMBER_INK = "#3A3A3A"
 
 
 # --------------------------------------------------------------------------- io
@@ -164,38 +166,43 @@ def styles(justify: bool, base_size: float) -> dict[str, ParagraphStyle]:
         "body_first": ParagraphStyle("BodyFirst", parent=body, spaceBefore=round(base_size * 0.3, 2)),
         "chapter": ParagraphStyle(
             "Chapter",
-            fontName=SERIF_ITALIC,
-            fontSize=round(base_size * 1.15, 1),
-            leading=round(base_size * 1.45, 1),
-            spaceBefore=round(base_size * 1.1, 1),
-            spaceAfter=round(base_size * 0.5, 1),
+            fontName=SERIF,
+            fontSize=round(base_size * 0.86, 1),
+            leading=round(base_size * 1.25, 1),
+            charSpace=1.1,
+            textColor=DARK,
+            spaceBefore=round(base_size * 1.05, 1),
+            spaceAfter=round(base_size * 0.45, 1),
             alignment=TA_LEFT,
             keepWithNext=1,
         ),
         "book": ParagraphStyle(
             "Book",
             fontName=SERIF_BOLD,
-            fontSize=round(base_size * 1.8, 1),
-            leading=round(base_size * 2.1, 1),
+            fontSize=round(base_size * 1.45, 1),
+            leading=round(base_size * 1.8, 1),
             alignment=TA_CENTER,
+            charSpace=1.4,
             spaceBefore=0,
-            spaceAfter=round(base_size * 1.4, 1),
+            spaceAfter=round(base_size * 1.3, 1),
             keepWithNext=1,
         ),
         "title": ParagraphStyle(
             "TitlePage",
             fontName=SERIF_BOLD,
-            fontSize=34,
-            leading=40,
+            fontSize=32,
+            leading=38,
             alignment=TA_CENTER,
-            spaceAfter=6,
+            charSpace=5,
+            spaceAfter=10,
         ),
         "subtitle": ParagraphStyle(
             "SubtitlePage",
             fontName=SERIF_ITALIC,
-            fontSize=15,
-            leading=20,
+            fontSize=12,
+            leading=18,
             alignment=TA_CENTER,
+            charSpace=5.5,
         ),
         "colophon": ParagraphStyle(
             "Colophon",
@@ -208,9 +215,10 @@ def styles(justify: bool, base_size: float) -> dict[str, ParagraphStyle]:
         "contents_head": ParagraphStyle(
             "ContentsHead",
             fontName=SERIF_BOLD,
-            fontSize=18,
-            leading=22,
-            spaceAfter=18,
+            fontSize=15,
+            leading=20,
+            charSpace=3,
+            spaceAfter=20,
             alignment=TA_LEFT,
         ),
         "toc1": ParagraphStyle(
@@ -302,7 +310,7 @@ def verse_markup(verses: list[str], layout: str, number_size: float) -> list[str
     """Return paragraph markup strings, one per verse or one per chapter."""
 
     def marker(number: int) -> str:
-        return f'<super><font size="{number_size}" color="#7F7F7F">{number}</font></super>&nbsp;'
+        return f'<super><font size="{number_size}" color="{VERSE_NUMBER_INK}">{number}</font></super>&nbsp;'
 
     if layout == "inline":
         pieces = [f"{marker(index)}{escape(verse, {'\"': '&quot;'})}" for index, verse in enumerate(verses, start=1)]
@@ -317,13 +325,13 @@ def book_story(doc, book_state: dict, order: int, slug: str, book_dir: Path, lay
     key = f"book-{order:02d}"
     story.append(BookMarker(book_state, title, key))
     story.append(TocMarker(doc, 0, title, key))
-    story.append(Paragraph(escape(title), style["book"]))
+    story.append(Paragraph(escape(title.upper()), style["book"]))
     chapters = chapter_files(book_dir)
     number_size = round(style["body"].fontSize * 0.62, 1)
     for number, path in chapters:
         verses = read_chapter(path)
         if len(chapters) > 1:
-            story.append(Paragraph(f"Chapter {number}", style["chapter"]))
+            story.append(Paragraph(f"CHAPTER {number}", style["chapter"]))
         for index, chunk in enumerate(verse_markup(verses, layout, number_size)):
             paragraph_style = style["body_first"] if index == 0 else style["body"]
             story.append(Paragraph(chunk, paragraph_style))
@@ -333,14 +341,14 @@ def book_story(doc, book_state: dict, order: int, slug: str, book_dir: Path, lay
 def front_matter(doc, style: dict, include_contents: bool) -> list:
     story: list = [NextPageTemplate("front")]
     story.append(Spacer(1, 190))
-    story.append(Paragraph(TITLE, style["title"]))
-    story.append(Paragraph(SUBTITLE, style["subtitle"]))
+    story.append(Paragraph(TITLE.upper(), style["title"]))
+    story.append(Paragraph(SUBTITLE.upper(), style["subtitle"]))
     story.append(Spacer(1, 230))
     story.append(Paragraph(COLOPHON, style["colophon"]))
 
     if include_contents:
         story.append(PageBreak())
-        story.append(Paragraph("Contents", style["contents_head"]))
+        story.append(Paragraph("CONTENTS", style["contents_head"]))
         toc = TableOfContents()
         toc.levelStyles = [style["toc1"]]
         toc.dotsMinLevel = 0
@@ -381,7 +389,7 @@ def main(argv: list[str]) -> int:
     parser.add_argument("--layout", choices=("verse", "inline"), default="inline",
                         help="inline = verses run together per chapter (default), verse = one paragraph per verse")
     parser.add_argument("--columns", type=int, default=2, help="text columns per page, 1 or 2 (default 2)")
-    parser.add_argument("--font-size", type=float, default=8.5, help="body type size in points (default 8.5)")
+    parser.add_argument("--font-size", type=float, default=10, help="body type size in points (default 10)")
     parser.add_argument("--no-contents", action="store_true", help="skip the contents pages")
     parser.add_argument("--justify", action="store_true", help="justify the verse lines instead of ragged right")
     parser.add_argument("--out", default=str(ROOT / "build"), help="output directory")

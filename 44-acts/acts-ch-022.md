@@ -21,7 +21,7 @@ When the blood of Stephen, your witness, was shed, I also was standing by, conse
 "He said to me, 'Depart, for I will send you out far from here to the nations.' " 
 They listened to him until he said that; then they lifted up their voice and said, "Rid the land of this fellow, for he isn't fit to live!" 
 As they cried out, threw off their cloaks, and threw dust into the air, 
-the commanding officer commanded him to be brought into the barracks, ordering him to be examined by whipping, that he might know for what crime they shouted against him like that. 
+the commanding officer commanded him to be brought into the barracks, ordering him to be examined by whipping, so that he could learn for what crime they had shouted against him like that. 
 When they had tied him up with straps, Paul asked the centurion who stood by, "Is it allowed for you to whip a man who is a Roman, and not found guilty?" 
 When the centurion heard it, he went to the commanding officer and told him, "Watch what you are about to do, for this man is a Roman!" 
 The commanding officer came and asked him, "Tell me, are you a Roman?" He said, "Yes." 

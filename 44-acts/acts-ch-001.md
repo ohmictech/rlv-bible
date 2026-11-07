@@ -22,5 +22,5 @@ For it is written in the book of Psalms, 'Let his habitation be made desolate. L
 beginning from the immersion of John to the day that he was received up from us, of these one must become a witness with us of his rising from the dead." 
 They put forward two: Joseph called Barsabbas, who was also called Justus, and Matthias. 
 They prayed and said, "You, Lord, who know the hearts of everyone, show which one of these two you have chosen 
-to take part in this ministry and this sending out from which Judas fell away, that he might go to his own place." 
+to take part in this ministry and this sending out from which Judas fell away, to go to his own place." 
 They drew lots for them, and the lot fell on Matthias; and he was counted with the eleven sent ones. 

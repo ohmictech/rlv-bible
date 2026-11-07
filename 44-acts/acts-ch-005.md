@@ -12,7 +12,7 @@ Great awe came on the whole gathering, and on everyone who heard these things.
 By the hands of the sent ones many signs and wonders were done among the people. They were all with one accord in Solomon's covered walkway. 
 None of the rest dared to join them; however, the people honored them. 
 More who trusted were added to the Lord, crowds of both men and women. 
-They even carried out the sick into the streets and laid them on cots and mattresses, so that as Peter came by, at least his shadow might overshadow some of them. 
+They even carried out the sick into the streets and laid them on cots and mattresses, so that as Peter came by, at least his shadow would fall on some of them. 
 The crowd also came together from the cities around Jerusalem, bringing sick people and those who were oppressed by unclean spirits; and they were all healed. 
 But the high priest rose up, and everyone who was with him (which is the faction of the religious elite), and they were filled with jealousy 
 and laid hands on the sent ones, then put them in public custody. 
@@ -21,7 +21,7 @@ But a messenger of the Lord opened the prison doors by night, and brought them o
 When they heard this, they entered into the temple courts about daybreak and taught. But the high priest and those who were with him came and called the council together, with all the senate of the children of Israel, and sent to the prison to have them brought. 
 But the temple guards who came didn't find them in the prison. They returned and reported, 
 "We found the prison shut and locked, and the guards standing before the doors, but when we opened them, we found no one inside!" 
-Now when the high priest, the captain of the temple, and the chief priests heard these words, they were very puzzled about them and wondered what might come of this. 
+Now when the high priest, the captain of the temple, and the chief priests heard these words, they were very puzzled about them and wondered what would come of this. 
 One came and told them, "Look, the men whom you put in prison are in the temple courts, standing and teaching the people." 
 Then the captain went with the temple guards, and brought them without violence, for they were afraid that the people might stone them. 
 When they had brought them, they set them before the council. The high priest questioned them, 

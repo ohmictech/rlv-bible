@@ -21,7 +21,7 @@ He said, "The Jewish leaders have agreed to ask you to bring Paul down to the co
 Therefore don't yield to them, for more than forty men lie in wait for him, who have bound themselves under a curse to neither eat nor drink until they have killed him. Now they are ready, looking for the promise from you." 
 So the commanding officer let the young man go, charging him, "Tell no one that you have revealed these things to me." 
 He called to himself two of the centurions, and said, "Prepare two hundred soldiers to go as far as Caesarea, with seventy horsemen and two hundred men armed with spears, at nine at night." 
-He asked them to provide mounts, that they might set Paul on one, and bring him safely to Felix the governor. 
+He asked them to provide mounts, so that they could put Paul on one, and bring him safely to Felix the governor. 
 He wrote a letter like this: 
 "Claudius Lysias to the most excellent governor Felix: Greetings. 
 "This man was seized by the Jewish leaders, and was about to be killed by them when I came with the soldiers and rescued him, having learned that he was a Roman. 

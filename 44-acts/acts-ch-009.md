@@ -1,5 +1,5 @@
 ﻿But Saul, still breathing threats and slaughter against the students of the Lord, went to the high priest 
-and asked for letters from him to the gathering places of Damascus, that if he found any who were of the Way, whether men or women, he might bring them bound to Jerusalem. 
+and asked for letters from him to the gathering places of Damascus, that if he found any who were of the Way, whether men or women, he could bring them bound to Jerusalem. 
 As he traveled, he got close to Damascus, and suddenly a light from the sky shone around him. 
 He fell on the ground, and heard a voice saying to him, "Saul, Saul, why are you hunting me down?" 
 He said, "Who are you, Lord?" The Lord said, "I am Jesus, whom you are hunting down. 
@@ -9,7 +9,7 @@ Saul got up from the ground, and when his eyes were opened, he saw no one. They 
 He was without sight for three days, and neither ate nor drank. 
 Now there was a certain student at Damascus named Ananias. The Lord said to him in a vision, "Ananias!" He said, "Look, it's me, Lord." 
 The Lord said to him, "Get up and go to the street called Straight, and inquire in the house of Judah for one named Saul, a man of Tarsus. For look, he is praying, 
-and in a vision he has seen a man named Ananias coming in and laying his hands on him, that he might receive his sight." 
+and in a vision he has seen a man named Ananias coming in and laying his hands on him, so that he could receive his sight." 
 But Ananias answered, "Lord, I have heard from many about this man, how much harm he did to your set-apart ones at Jerusalem. 
 Here he has authority from the chief priests to bind everyone who calls on your name." 
 But the Lord said to him, "Go your way, for he is my chosen vessel to bear my name before the nations and kings, and the children of Israel. 
@@ -21,7 +21,7 @@ Immediately in the gathering places he proclaimed the Christ, that he is the Son
 Everyone who heard him were amazed, and said, "Isn't this he who in Jerusalem made havoc of those who called on this name? And he had come here intending to bring them bound before the chief priests!" 
 But Saul increased more in strength, and confounded the Jewish people living in Damascus, proving that this is the Christ. 
 When many days were fulfilled, the Jewish people conspired together to kill him, 
-but their plot became known to Saul. They watched the gates both day and night that they might kill him, 
+but their plot became known to Saul. They watched the gates both day and night so that they could kill him, 
 but his students took him by night and let him down through the wall, lowering him in a basket. 
 When Saul had come to Jerusalem, he tried to join the students; but they were all afraid of him, not trusting that he was a student. 
 But Barnabas took him and brought him to the sent ones, and declared to them how he had seen the Lord on the way, and that he had spoken to him, and how at Damascus he had spoken boldly in the name of Jesus. 

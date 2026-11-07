@@ -22,5 +22,5 @@ But Felix, having more exact knowledge concerning the Way, deferred them, saying
 He ordered the centurion that Paul should be kept in custody and should have some privileges, and not to forbid any of his friends to serve him or to visit him. 
 After some days, Felix came with Drusilla his wife, who was a Jewish woman, and sent for Paul and heard him concerning the trust in Christ Jesus. 
 As he reasoned about rightness, self-control, and the verdict to come, Felix was terrified, and answered, "Go your way for this time, and when it is convenient for me, I will summon you." 
-Meanwhile, he also hoped that money would be given to him by Paul, that he might release him. Therefore also he sent for him more often and talked with him. 
+Meanwhile, he also hoped that money would be given to him by Paul, so that he could release him. Therefore also he sent for him more often and talked with him. 
 But when two years were fulfilled, Felix was succeeded by Porcius Festus, and desiring to gain favor with the Jewish people, Felix left Paul in bonds. 

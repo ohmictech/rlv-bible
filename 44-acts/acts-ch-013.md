@@ -39,7 +39,7 @@ Be it known to you therefore, brothers, that through this man is proclaimed to y
 and by him everyone who trusts is made right from all things, from which you could not be made right by the law of Moses. 
 Beware therefore, that what is spoken in the spokesmen doesn't come on you: 
 'Look, you scoffers! Wonder and be destroyed, for I work a work in your days, a work which you will in no way trust, even if one declares it to you.'" 
-So when the Jewish people went out of the gathering place, the nations begged that these words might be told to them the next Sabbath. 
+So when the Jewish people went out of the gathering place, the nations begged that these words would be told to them the next Sabbath. 
 Now when the gathering place broke up, many of the Jewish people and of the devout converts followed Paul and Barnabas; who, speaking to them, urged them to continue in the favor of God. 
 The next Sabbath, almost the whole city was gathered together to hear the word of God. 
 But when the Jewish people saw the crowds, they were filled with jealousy, and contradicted the things which were spoken by Paul, and slandered. 

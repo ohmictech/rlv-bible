@@ -12,7 +12,7 @@ They listened to him because for a long time he had amazed them with his sorceri
 But when they trusted Philip announcing good news concerning God's reign and the name of Jesus Christ, they were immersed, both men and women. 
 Simon himself also trusted. Being immersed, he continued with Philip. Seeing signs and great powerful deeds occurring, he was amazed. 
 Now when the sent ones who were at Jerusalem heard that Samaria had received the word of God, they sent Peter and John to them, 
-who, when they had come down, prayed for them, that they might receive the Holy Spirit; 
+who, when they had come down, prayed for them, so that they would receive the Holy Spirit; 
 for as yet he had fallen on none of them. They had only been immersed in the name of Christ Jesus. 
 Then they laid their hands on them, and they received the Holy Spirit. 
 Now when Simon saw that the Holy Spirit was given through the laying on of the sent ones' hands, he offered them money, 

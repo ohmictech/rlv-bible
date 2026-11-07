@@ -10,7 +10,7 @@ Those who went in front and those who followed cried out, "Hosanna! Flourishing 
 Flourishing is the reign of our father David that is coming in the name of the Lord! Hosanna in the highest!" 
 Jesus entered the temple courts in Jerusalem. When he had looked around at everything, since it was already evening, he went out to Bethany with the twelve. 
 The next day, when they had come out from Bethany, he was hungry. 
-Seeing a fig tree in the distance with leaves, he went to see if perhaps he might find something on it. When he came to it, he found nothing but leaves, for it was not the season for figs. 
+Seeing a fig tree in the distance with leaves, he went to see if perhaps he could find something on it. When he came to it, he found nothing but leaves, for it was not the season for figs. 
 Jesus told it, "May no one ever eat fruit from you again!" and his students heard it. 
 They came to Jerusalem, and Jesus entered the temple courts and began to throw out those who were selling and buying there. He overturned the tables of the money changers and the seats of those who sold doves. 
 He wouldn't let anyone carry a container through the temple courts. 

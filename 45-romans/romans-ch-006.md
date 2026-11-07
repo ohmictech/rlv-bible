@@ -2,15 +2,15 @@
 Never! We who died to the drift, how could we live in it any longer? 
 Or don't you know that all of us who were immersed into Christ Jesus were immersed into his death? 
 We were buried with him through immersion into death, so that just as Christ was raised from the dead through the weight of the Father, we also would walk in newness of life. 
-For if we have become united with him in the likeness of his death, we will also be part of his rising; 
+For if we have become united with him in the way of his death, we will also be part of his rising; 
 knowing this, that our old man was crucified with him, that the body of the drift might be put out of work, so that we would no longer be slaves to the drift. 
 For he who has died has been freed from the drift. 
 But if we died with Christ, we trust that we will also live with him, 
-knowing that Christ, being raised from the dead, dies no more. Death no dominates him! 
-For the death that he died, he died to the drift once; but the life that he lives, he lives to God. 
-Thus consider yourselves also to be dead to the drift, but alive to God in Christ Jesus our Lord. 
-Therefore don't let the drift reign in your mortal body, that you should obey it in its cravings. 
-Also, do not present your members to the drift as instruments of wrong, but present yourselves to God as alive from the dead, and your members as instruments of rightness to God. 
+knowing that Christ, being raised from the dead, dies no more. Death no longer dominates him! 
+For the death he died, he died to the drift once; but the life that he lives, he lives to God. 
+So consider yourselves also to be dead to the drift, but alive to God in Christ Jesus our Lord. 
+Therefore don't let the drift reign in your mortal body, that you would obey it in its cravings. 
+Also, don't give your hands and feet to the drift as tools of wrong, but present yourselves to God as alive from the dead, and your limbs as tools of rightness to God. 
 For the drift will not dominate you, for you are not under law, but under favor. 
 What then? Should we drift because we are not under law but under favor? Never! 
 Don't you know that when you present yourselves as slaves and obey someone, you are the slaves of whomever you obey, whether of the drift to death, or of obedience to rightness? 

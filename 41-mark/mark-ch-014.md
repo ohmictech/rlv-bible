@@ -32,7 +32,7 @@ But he spoke all the more, "Even if I must die with you, I will not disown you."
 They came to a place named Gethsemane. He said to his students, "Sit here while I pray." 
 He took Peter, James, and John with him, and began to be greatly troubled and distressed. 
 He said to them, "My life is crushed with grief, even to death. Stay here and stay awake." 
-He went a little further, fell on the ground, and prayed that, if it were possible, the hour might pass from him. 
+He went a little further, fell on the ground, and prayed that, if it were possible, the hour would pass from him. 
 He said, "Abba, Father, all things are possible for you. Take this cup away from me. Yet not what I want, but what you want." 
 He came and found them sleeping, and said to Peter, "Simon, are you sleeping? Couldn't you stay awake one hour? 
 Stay awake and pray, so that you may not come into testing. The spirit is willing, but the flesh is weak." 
@@ -46,7 +46,7 @@ When he had come, he went straight to him and said, "Rabbi!" and kissed him.
 They laid their hands on him and seized him. 
 But one of those standing by drew his sword and struck the high priest's slave, and cut off his ear. 
 Jesus answered them, "Have you come out with swords and clubs to seize me, as if I were a robber? 
-I was with you every day in the temple courts teaching, and you didn't arrest me. But this is so that the Scriptures might be fulfilled." 
+I was with you every day in the temple courts teaching, and you didn't arrest me. But this is so that the Scriptures would be fulfilled." 
 They all left him, and fled. 
 A young man followed him, with only a linen cloth wrapped around his naked body, and they grabbed him, 
 but he left the linen cloth and fled from them naked. 

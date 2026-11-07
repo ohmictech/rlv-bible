@@ -1,34 +1,34 @@
-﻿He commanded the steward of his house, saying, "Fill the men's sacks with food, as much as they can carry, and put each man's money in his sack's mouth. 
-Put my cup, the silver cup, in the sack's mouth of the youngest, with his grain money." He did according to the word that Joseph had spoken. 
-As soon as the morning was light, the men were sent away, they and their donkeys. 
-When they had gone out of the city, and weren't yet far off, Joseph said to his steward, "Up, follow after the men. When you overtake them, ask them, 'Why have you rewarded bad for good? 
-Isn't this that from which my lord drinks, and by which he indeed divines? You have done bad in so doing.'" 
-He overtook them, and he spoke these words to them. 
-They said to him, "Why does my lord speak such words as these? Far be it from your servants that they should do such a thing! 
-Look, the money, which we found in our sacks' mouths, we brought again to you out of the land of Canaan. How then should we steal silver or gold out of your lord's house? 
-With whomever of your servants it's found, let him die, and we also will be my lord's slaves." 
-He said, "Now also let it be according to your words. He with whom it's found will be my slave; and you'll be blameless." 
-Then they hurried, and each man took his sack down to the ground, and each man opened his sack. 
-He searched, beginning with the oldest, and ending at the youngest. The cup was found in Benjamin's sack. 
-Then they tore their clothes, and each man loaded his donkey, and returned to the city. 
-Judah and his brothers came to Joseph's house, and he was still there. They fell on the ground before him. 
-Joseph said to them, "What deed is this that you have done? Don't you know that such a man as I can indeed do divination?" 
-Judah said, "What will we tell my lord? What will we speak? How will we clear ourselves? God has found out the guilt of your servants. Look, we're my lord's slaves, both we and he also in whose hand the cup is found." 
-He said, "Far be it from me that I should do so. The man in whose hand the cup is found, he'll be my slave; but as for you, go up in peace to your father." 
-Then Judah came near to him, and said, "Oh, my lord, please let your servant speak a word in my lord's ears, and don't let your anger burn against your servant; for you're even as Pharaoh. 
-My lord asked his servants, saying, 'Have you a father, or a brother?' 
-We said to my lord, 'We have a father, an old man, and a child of his old age, a little one; and his brother is dead, and he alone is left of his mother; and his father loves him.' 
-You said to your servants, 'Bring him down to me, that I can set my eyes on him.' 
-We said to my lord, 'The boy can't leave his father, for if he should leave his father, his father would die.' 
-You said to your servants, 'Unless your youngest brother comes down with you, you'll see my face no more.' 
-When we came up to your servant my father, we told him the words of my lord. 
-Our father said, 'Go again and buy us a little food.' 
-We said, 'We can't go down. If our youngest brother is with us, then we'll go down: for we can't see the man's face, unless our youngest brother is with us.' 
-Your servant, my father, said to us, 'You know that my wife bore me two sons. 
-One went out from me, and I said, "Surely he's torn in pieces;" and I haven't seen him since. 
-If you take this one also from me, and harm happens to him, you'll bring down my gray hairs with sorrow to Hades.' 
-Now when I come to your servant my father, and the boy isn't with us; since his life is bound up in the boy's life; 
-it'll happen, when he sees that the boy is no more, that he'll die. Your servants will bring down the gray hairs of your servant, our father, with sorrow to Hades. 
-Your servant became collateral for the boy to my father, saying, 'If I don't bring him to you, then I'll bear the blame to my father for the eras.' 
-Now, please let your servant stay instead of the boy, my lord's slave; and let the boy go up with his brothers. 
-How will I go up to my father, if the boy isn't with me?, lest I see the bad that will come on my father." 
+﻿Joseph told the manager of his house, "Fill the men's sacks with as much food as they can carry, and put each man's money in the mouth of his sack. 
+Put my cup, the silver one, in the mouth of the youngest one's sack, along with his grain money." He did exactly what Joseph said. 
+As soon as it was light, the men were sent off with their donkeys. 
+They had left the city and were not far away when Joseph said to his manager, "Get up and go after those men. When you catch them, say to them, 'Why have you paid good back with bad? 
+Isn't this the cup my master drinks from, the one he uses for divination? You've done a terrible thing.'" 
+He caught up with them and said exactly that. 
+They said to him, "Why would you say such a thing? We would never do that. 
+Look, we brought back to you from Canaan the money we found in the mouths of our sacks. So why would we steal silver or gold from your master's house? 
+Whichever one of us has it, let him die, and the rest of us will be my master's slaves." 
+He said, "Let it be as you say, but only the one who has it will be my slave. The rest of you can go free." 
+So each man quickly lowered his sack to the ground and opened it. 
+He searched them, starting with the oldest and ending with the youngest, and the cup was found in Benjamin's sack. 
+They tore their clothes. Then each man loaded his donkey and they went back to the city. 
+Judah and his brothers came to Joseph's house, and he was still there. They threw themselves on the ground in front of him. 
+Joseph said to them, "What have you done? Don't you know that a man like me can read signs?" 
+Judah said, "What can we say to my master? How can we prove we're innocent? God has found out our guilt. Here we are, all of us my master's slaves, including the one who had the cup." 
+He said, "I'd never do that. The man who had the cup will be my slave. The rest of you go back to your father in peace." 
+Then Judah came closer and said, "Please, my lord, let me say one thing to you, and please don't be angry with me, because you're like Pharaoh himself. 
+You asked us, 'Do you have a father, or a brother?' 
+We told you, 'We have an old father, and a child of his old age, a little one. His brother is dead, and he's the only one left of his mother, and his father loves him.' 
+You told us, 'Bring him down to me so I can see him.' 
+We said, 'The boy can't leave his father. If he left him, his father would die.' 
+You said, 'Unless your youngest brother comes down with you, you won't see my face again.' 
+When we went back to my father, we told him what you had said. 
+Then our father said, 'Go back and buy us a little food.' 
+We said, 'We can't go down. Not unless our youngest brother is with us, because we can't see the man's face unless he is.' 
+My father said to us, 'You know my wife had two sons. 
+One of them left me, and I said, "He must have been torn apart," and I haven't seen him since. 
+If you take this one from me too and something happens to him, you'll bring my gray head down to Hades in grief.' 
+So when I go back to my father and the boy isn't with us, and his life is tied up with the boy's life, 
+he'll see that the boy is gone and he'll die. We'll have brought our father's gray head down to Hades in grief. 
+I guaranteed the boy to my father. I said, 'If I don't bring him back to you, I'll carry the blame for the rest of my life.' 
+So please let me stay here as my master's slave in place of the boy, and let him go back with his brothers. 
+How can I go back to my father without him? I couldn't stand to see what it would do to him." 

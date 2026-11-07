@@ -1,29 +1,29 @@
-﻿God said to Jacob, "Arise, go up to Bethel, and live there. Make there an altar to God, who appeared to you when you fled from the face of Esau your brother." 
-Then Jacob said to his household, and to everyone who was with him, "Put away the foreign gods that are among you, purify yourselves, and change your garments. 
-Let's arise, and go up to Bethel. I'll make there an altar to God, who answered me in the day of my distress, and was with me on the way which I went." 
-They gave to Jacob all the foreign gods which were in their hands, and the rings which were in their ears; and Jacob hid them under the oak which was by Shechem. 
-They traveled, and a terror of God was on the cities that were around them, and they didn't pursue the sons of Jacob. 
-So Jacob came to Luz (that's, Bethel), which is in the land of Canaan, he and everyone who was with him. 
-He built an altar there, and called the place El Beth El; because there God was revealed to him, when he fled from the face of his brother. 
-Deborah, Rebekah's nurse, died, and she was buried below Bethel under the oak; and its name was called Allon Bacuth. 
-God appeared to Jacob again, when he came from Paddan Aram, and blessed him. 
-God said to him, "Your name is Jacob. Your name won't be Jacob any more, but your name will be Israel." He named him Israel. 
-God said to him, "I'm God Almighty. Be fruitful and multiply. A nation and a company of nations will be from you, and kings will come out of your body. 
-The land which I gave to Abraham and Isaac, I'll give it to you, and to your offspring after you I'll give the land." 
-God went up from him in the place where he spoke with him. 
-Jacob set up a pillar in the place where he spoke with him, a pillar of stone. He poured out a drink offering on it, and poured oil on it. 
-Jacob called the name of the place where God spoke with him "Bethel". 
-They traveled from Bethel. There was still some distance to come to Ephrath, and Rachel travailed. She had hard labor. 
-When she was in hard labor, the midwife said to her, "Don't be afraid, for now you'll have another son." 
-As her soul was departing (for she died), she named him Benoni, but his father named him Benjamin. 
-Rachel died, and was buried on the way to Ephrath (also called Bethlehem). 
-Jacob set up a pillar on her grave. The same is the Pillar of Rachel's grave to this day. 
-Israel traveled, and spread his tent beyond the tower of Eder. 
-While Israel lived in that land, Reuben went and lay with Bilhah, his father's concubine, and Israel heard of it. Now the sons of Jacob were twelve. 
-The sons of Leah: Reuben (Jacob's firstborn), Simeon, Levi, Judah, Issachar, and Zebulun. 
-The sons of Rachel: Joseph and Benjamin. 
-The sons of Bilhah (Rachel's servant): Dan and Naphtali. 
-The sons of Zilpah (Leah's servant): Gad and Asher. These are the sons of Jacob, who were born to him in Paddan Aram. 
-Jacob came to Isaac his father, to Mamre, to Kiriath Arba (which is Hebron), where Abraham and Isaac lived as foreigners. 
-The days of Isaac were one hundred eighty years. 
-Isaac gave up the spirit and died, and was gathered to his people, old and full of days. Esau and Jacob, his sons, buried him. 
+﻿God said to Jacob, "Get up and go to Bethel, and live there. Build an altar there to God, who appeared to you when you were running from your brother Esau." 
+So Jacob said to his household and to everyone with him, "Get rid of the foreign gods you have with you, make yourselves clean, and change your clothes. 
+Then let's get going and go up to Bethel. I'll build an altar there to God, who answered me when I was in trouble and was with me on the way I went." 
+So they handed Jacob all the foreign gods they had and the rings in their ears, and Jacob buried them under the oak tree near Shechem. 
+As they set out, a great terror from God fell on the cities around them, so nobody chased after Jacob's sons. 
+Jacob and everyone with him arrived at Luz, that is, Bethel, in the land of Canaan. 
+He built an altar there and named the place El Bethel, because God had revealed himself to him there when he was running from his brother. 
+Then Deborah, Rebekah's nurse, died and was buried under the oak below Bethel, and it was named Allon Bacuth. 
+God appeared to Jacob again when he came back from Paddan Aram and blessed him. 
+God said to him, "Your name is Jacob, but you won't be called Jacob anymore. Your name will be Israel." So he named him Israel. 
+God said to him, "I'm God Almighty. Be fruitful and multiply. A nation, in fact a whole group of nations, will come from you, and kings will come from your own body. 
+The land I gave to Abraham and Isaac I'll give to you, and I'll give the land to your offspring after you." 
+Then God went up from him at the place where he had spoken with him. 
+Jacob set up a stone pillar at the place where God had spoken with him, poured out a drink offering on it, and poured oil on it. 
+Jacob named the place where God had spoken with him Bethel. 
+They left Bethel, and when they were still some distance from Ephrath, Rachel went into labor, and it was a hard labor. 
+While she was struggling in labor, the midwife said to her, "Don't be afraid. You have another son coming." 
+As she was dying, she named him Benoni, but his father named him Benjamin. 
+So Rachel died and was buried on the road to Ephrath, that is, Bethlehem. 
+Jacob set up a pillar on her grave, and it still stands as Rachel's grave marker today. 
+Israel moved on and pitched his tent beyond the tower of Eder. 
+While Israel was living in that region, Reuben went and slept with Bilhah, his father's concubine, and Israel heard about it. Now Jacob had twelve sons. 
+Leah's sons were Reuben, Jacob's firstborn, then Simeon, Levi, Judah, Issachar, and Zebulun. 
+Rachel's sons were Joseph and Benjamin. 
+Bilhah, Rachel's servant, had Dan and Naphtali. 
+Zilpah, Leah's servant, had Gad and Asher. These were Jacob's sons, born to him in Paddan Aram. 
+Jacob came to his father Isaac at Mamre, near Kiriath Arba, that is, Hebron, where Abraham and Isaac had lived as foreigners. 
+Isaac lived a hundred and eighty years. 
+He breathed his last and died, and was gathered to his people, an old man who had lived a full life. His sons Esau and Jacob buried him. 

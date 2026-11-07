@@ -1,43 +1,43 @@
-﻿Now this is the history of the generations of Esau (that's, Edom). 
-Esau took his wives from the daughters of Canaan: Adah the daughter of Elon, the Hittite; and Oholibamah the daughter of Anah, the daughter of Zibeon, the Hivite; 
-and Basemath, Ishmael's daughter, sister of Nebaioth. 
-Adah bore to Esau Eliphaz. Basemath bore Reuel. 
-Oholibamah bore Jeush, Jalam, and Korah. These are the sons of Esau, who were born to him in the land of Canaan. 
-Esau took his wives, his sons, his daughters, and all the members of his household, with his livestock, all his animals, and all his possessions, which he had gathered in the land of Canaan, and went into a land away from his brother Jacob. 
-Their substance was too great for them to dwell together, and the land of their travels couldn't bear them because of their livestock. 
-Esau lived in the hill country of Seir. Esau is Edom. 
-This is the history of the generations of Esau the father of the Edomites in the hill country of Seir: 
-these are the names of Esau's sons: Eliphaz, the son of Adah, the wife of Esau; and Reuel, the son of Basemath, the wife of Esau. 
-The sons of Eliphaz were Teman, Omar, Zepho, and Gatam, and Kenaz. 
-Timna was concubine to Eliphaz, Esau's son; and she bore to Eliphaz Amalek. These are the descendants of Adah, Esau's wife. 
-These are the sons of Reuel: Nahath, Zerah, Shammah, and Mizzah. These were the descendants of Basemath, Esau's wife. 
-These were the sons of Oholibamah, the daughter of Anah, the daughter of Zibeon, Esau's wife: she bore to Esau Jeush, Jalam, and Korah. 
-These are the chiefs of the sons of Esau: the sons of Eliphaz the firstborn of Esau: chief Teman, chief Omar, chief Zepho, chief Kenaz, 
-chief Korah, chief Gatam, chief Amalek. These are the chiefs who came of Eliphaz in the land of Edom. These are the sons of Adah. 
-These are the sons of Reuel, Esau's son: chief Nahath, chief Zerah, chief Shammah, chief Mizzah. These are the chiefs who came of Reuel in the land of Edom. These are the sons of Basemath, Esau's wife. 
-These are the sons of Oholibamah, Esau's wife: chief Jeush, chief Jalam, chief Korah. These are the chiefs who came of Oholibamah the daughter of Anah, Esau's wife. 
-These are the sons of Esau (that's, Edom), and these are their chiefs. 
-These are the sons of Seir the Horite, the inhabitants of the land: Lotan, Shobal, Zibeon, Anah, 
-Dishon, Ezer, and Dishan. These are the chiefs who came of the Horites, the children of Seir in the land of Edom. 
-The children of Lotan were Hori and Heman. Lotan's sister was Timna. 
-These are the children of Shobal: Alvan, Manahath, Ebal, Shepho, and Onam. 
-These are the children of Zibeon: Aiah and Anah. This is Anah who found the hot springs in the wilderness, as he fed the donkeys of Zibeon his father. 
-These are the children of Anah: Dishon and Oholibamah, the daughter of Anah. 
-These are the children of Dishon: Hemdan, Eshban, Ithran, and Cheran. 
-These are the children of Ezer: Bilhan, Zaavan, and Akan. 
-These are the children of Dishan: Uz and Aran. 
-These are the chiefs who came of the Horites: chief Lotan, chief Shobal, chief Zibeon, chief Anah, 
-chief Dishon, chief Ezer, and chief Dishan. These are the chiefs who came of the Horites, according to their chiefs in the land of Seir. 
-These are the kings who reigned in the land of Edom, before any king reigned over the children of Israel. 
-Bela, the son of Beor, reigned in Edom. The name of his city was Dinhabah. 
-Bela died, and Jobab, the son of Zerah of Bozrah, reigned in his place. 
-Jobab died, and Husham of the land of the Temanites reigned in his place. 
-Husham died, and Hadad, the son of Bedad, who struck Midian in the field of Moab, reigned in his place. The name of his city was Avith. 
-Hadad died, and Samlah of Masrekah reigned in his place. 
-Samlah died, and Shaul of Rehoboth by the river, reigned in his place. 
-Shaul died, and Baal Hanan the son of Achbor reigned in his place. 
-Baal Hanan the son of Achbor died, and Hadar reigned in his place. The name of his city was Pau. His wife's name was Mehetabel, the daughter of Matred, the daughter of Mezahab. 
-These are the names of the chiefs who came from Esau, according to their families, after their places, and by their names: chief Timna, chief Alvah, chief Jetheth, 
-chief Oholibamah, chief Elah, chief Pinon, 
-chief Kenaz, chief Teman, chief Mibzar, 
-chief Magdiel, and chief Iram. These are the chiefs of Edom, according to their habitations in the land of their possession. This is Esau, the father of the Edomites. 
+﻿This is the family record of Esau, that is, Edom. 
+Esau married women from Canaan: Adah daughter of Elon the Hittite, and Oholibamah daughter of Anah and granddaughter of Zibeon the Hivite, 
+and Basemath, Ishmael's daughter and sister of Nebaioth. 
+Adah had Eliphaz for Esau, and Basemath had Reuel. 
+Oholibamah had Jeush, Jalam, and Korah. These were Esau's sons, born to him in the land of Canaan. 
+Esau took his wives, sons, daughters, and everyone in his household, along with his livestock, all his animals, and everything he had acquired in Canaan, and moved away from his brother Jacob to another land. 
+They had too much between them to live together, and the land where they were staying couldn't support them both because of all their livestock. 
+So Esau settled in the hill country of Seir. Esau is Edom. 
+This is the family record of Esau, the father of the Edomites, in the hill country of Seir. 
+These are the names of Esau's sons: Eliphaz, son of Esau's wife Adah, and Reuel, son of Esau's wife Basemath. 
+Eliphaz's sons were Teman, Omar, Zepho, Gatam, and Kenaz. 
+Timna was a concubine of Esau's son Eliphaz, and she had Amalek by him. These were the descendants of Esau's wife Adah. 
+Reuel's sons were Nahath, Zerah, Shammah, and Mizzah. These were the descendants of Esau's wife Basemath. 
+These were the sons of Esau's wife Oholibamah, daughter of Anah and granddaughter of Zibeon: she had Jeush, Jalam, and Korah by Esau. 
+These were the chiefs descended from Esau's sons. From Eliphaz, Esau's firstborn: Chief Teman, Chief Omar, Chief Zepho, Chief Kenaz, 
+Chief Korah, Chief Gatam, and Chief Amalek. These were the chiefs descended from Eliphaz in the land of Edom, the sons of Adah. 
+From Esau's son Reuel: Chief Nahath, Chief Zerah, Chief Shammah, and Chief Mizzah. These were the chiefs descended from Reuel in the land of Edom, the sons of Esau's wife Basemath. 
+From Esau's wife Oholibamah, daughter of Anah: Chief Jeush, Chief Jalam, and Chief Korah. These were the chiefs descended from Esau's wife Oholibamah. 
+These were the sons of Esau, that is, Edom, and these were their chiefs. 
+These were the sons of Seir the Horite, who lived in that land: Lotan, Shobal, Zibeon, Anah, 
+Dishon, Ezer, and Dishan. These were the Horite chiefs, the descendants of Seir, in the land of Edom. 
+Lotan's sons were Hori and Heman, and his sister was Timna. 
+Shobal's sons were Alvan, Manahath, Ebal, Shepho, and Onam. 
+Zibeon's sons were Aiah and Anah. This is the Anah who found the hot springs in the wilderness while he was tending his father Zibeon's donkeys. 
+Anah's children were Dishon and Oholibamah. 
+Dishon's sons were Hemdan, Eshban, Ithran, and Cheran. 
+Ezer's sons were Bilhan, Zaavan, and Akan. 
+Dishan's sons were Uz and Aran. 
+These were the Horite chiefs: Chief Lotan, Chief Shobal, Chief Zibeon, Chief Anah, 
+Chief Dishon, Chief Ezer, and Chief Dishan. These were the Horite chiefs, each over his own clan in the land of Seir. 
+These were the kings who ruled in the land of Edom before Israel had a king. 
+Bela son of Beor ruled in Edom, and his city was called Dinhabah. 
+When Bela died, Jobab son of Zerah, from Bozrah, took his place as king. 
+When Jobab died, Husham from the land of the Temanites took his place. 
+When Husham died, Hadad son of Bedad took his place. He was the one who defeated Midian in the country of Moab, and his city was called Avith. 
+When Hadad died, Samlah from Masrekah took his place. 
+When Samlah died, Shaul from Rehoboth on the river took his place. 
+When Shaul died, Baal Hanan son of Achbor took his place. 
+When Baal Hanan son of Achbor died, Hadar took his place. His city was called Pau, and his wife was Mehetabel, daughter of Matred and granddaughter of Mezahab. 
+These were the names of the chiefs descended from Esau, by their families and their locations: Chief Timna, Chief Alvah, Chief Jetheth, 
+Chief Oholibamah, Chief Elah, Chief Pinon, 
+Chief Kenaz, Chief Teman, Chief Mibzar, 
+Chief Magdiel, and Chief Iram. These were the chiefs of Edom, by their settlements in the land they possessed. This is Esau, the father of the Edomites. 

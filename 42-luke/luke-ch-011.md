@@ -34,14 +34,14 @@ The men of Nineveh will stand up at the verdict with this generation, and will s
 The lamp of the body is the eye. Therefore when your eye is good, your whole body is also full of light; but when it is malicious, your body also is full of darkness. 
 So see to it that the light in you isn't darkness. 
 If therefore your whole body is full of light, having no part dark, it will be wholly full of light, as when the lamp with its bright shining gives you light." 
-Now as he spoke, a certain Pharisee asked him to dine with him. He went in and sat at the table. 
-When the Pharisee saw it, he was amazed that he had not first immersed himself before dinner. 
-The Lord said to him, "Now you Pharisees make clean the outside of the cup and of the dish, but your inside is full of robbery and malice. 
+Now as he spoke, a certain strict religious man asked him to dine with him. He went in and sat at the table. 
+When the strict religious man saw it, he was amazed that he had not first immersed himself before dinner. 
+The Lord said to him, "Now you strict religious ones make clean the outside of the cup and of the dish, but your inside is full of robbery and malice. 
 You foolish ones, didn't he who made the outside make the inside also? 
 But give what is inside as a gift to the needy, and look, all things will be clean to you. 
-But how terrible for you Pharisees! For you tithe mint and rue and every herb, but you bypass right judgment and God's love. You should have done these without leaving the others undone. 
-How terrible for you Pharisees! For you love the best seats in the gathering places and the greetings in the marketplaces. 
-How terrible for you, Bible teachers and Pharisees, pretenders! For you are like unmarked tombs, and the people who walk over them don't know it." 
+But how terrible for you strict religious ones! For you tithe mint and rue and every herb, but you bypass right judgment and God's love. You should have done these without leaving the others undone. 
+How terrible for you strict religious ones! For you love the best seats in the gathering places and the greetings in the marketplaces. 
+How terrible for you, Bible teachers and strict religious ones, pretenders! For you are like unmarked tombs, and the people who walk over them don't know it." 
 One of the experts in the law answered him, "Teacher, in saying this you insult us also." 
 He said, "How terrible for you experts in the law also! For you load men with heavy burdens, and you yourselves won't even lift one finger to help carry them. 
 How terrible for you! For you build the tombs of the spokesmen, and your fathers killed them. 
@@ -50,5 +50,5 @@ Therefore also the wisdom of God said, 'I will send to them spokesmen and those 
 that the blood of all the spokesmen, which was shed from the founding of the world, may be required of this generation, 
 from the blood of Abel to the blood of Zachariah, who was killed between the altar and the temple.' Yes, I tell you, it will be required of this generation. 
 How terrible for you experts in the law! For you took away the key of knowledge. You didn't enter in yourselves, and those who were entering in, you hindered." 
-As he said these things to them, the Bible teachers and the Pharisees began to be terribly angry, and to press him with many questions, 
+As he said these things to them, the Bible teachers and the strict religious ones began to be terribly angry, and to press him with many questions, 
 lying in wait for him, and seeking to catch him in something he might say, that they might accuse him. 

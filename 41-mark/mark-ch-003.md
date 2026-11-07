@@ -3,7 +3,7 @@ They were watching him to see whether he would heal him on the Sabbath, so that 
 He said to the man whose hand was withered, "Stand up." 
 He said to them, "Is it allowed on the Sabbath to do good or to do harm, to rescue a life or to kill?" But they were silent. 
 He looked around at them in anger, grieved at how hard their hearts were, and said to the man, "Stretch out your hand." He stretched it out, and his hand was restored, as healthy as the other. 
-The Pharisees went out, and immediately conspired with the Herodians against him, how they might kill him. 
+The strict religious ones went out, and immediately conspired with the Herodians against him, how they might kill him. 
 Jesus withdrew to the sea with his students, and a great crowd followed him from Galilee, from Judea, 
 from Jerusalem, from Idumaea, from beyond the Jordan, and from around Tyre and Sidon. Hearing what great things he was doing, a great crowd came to him. 
 He told his students to keep a little boat ready for him because of the crowd, so that they wouldn't crush him. 

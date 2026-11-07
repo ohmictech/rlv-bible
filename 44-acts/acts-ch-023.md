@@ -3,10 +3,10 @@ The high priest, Ananias, commanded those who stood by him to strike him on the 
 Then Paul said to him, "God will strike you, you whitewashed wall! Do you sit to judge me according to the law, and command me to be struck contrary to the law?" 
 Those who stood by said, "Do you malign God's high priest?" 
 Paul said, "I didn't know, brothers, that he was high priest. For it is written, 'You shall not speak badly of a ruler of your people.'" 
-But when Paul perceived that the one part were Sadducees and the other Pharisees, he cried out in the council, "Men and brothers, I am a Pharisee, a son of Pharisees. Concerning the hope and rising of the dead I am being judged!" 
-When he had said this, an argument arose between the Pharisees and Sadducees, and the crowd was divided. 
-For the Sadducees say that there is no rising, and no messenger, and no spirit; but the Pharisees agree with all of these. 
-A great clamor arose, and some of the Bible teachers of the Pharisees' side stood up, and contended, saying, "We find nothing wrong with this man. But if a spirit or messenger has spoken to him, let's not fight against God!" 
+But when Paul perceived that the one part were of the religious elite and the other strict religious ones, he cried out in the council, "Men and brothers, I am a strict religious man, a son of strict religious ones. Concerning the hope and rising of the dead I am being judged!" 
+When he had said this, an argument arose between the strict religious ones and the religious elite, and the crowd was divided. 
+For the religious elite say that there is no rising, and no messenger, and no spirit; but the strict religious ones agree with all of these. 
+A great clamor arose, and some of the Bible teachers of the strict religious ones' side stood up, and contended, saying, "We find nothing wrong with this man. But if a spirit or messenger has spoken to him, let's not fight against God!" 
 When a great argument arose, the commanding officer, fearing that Paul would be torn in pieces by them, commanded the soldiers to go down and take him by force from among them and bring him into the barracks. 
 The following night, the Lord stood by him and said, "Cheer up, Paul, for as you have testified about me at Jerusalem, so you must testify also at Rome." 
 When it was day, some of the Jewish leaders banded together and bound themselves under a curse, saying that they would neither eat nor drink until they had killed Paul. 

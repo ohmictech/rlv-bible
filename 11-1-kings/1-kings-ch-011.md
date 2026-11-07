@@ -3,7 +3,7 @@ of the nations concerning which God said to the children of Israel, "You shall n
 He had seven hundred wives, princesses, and three hundred concubines. His wives turned his heart away. 
 When Solomon was old, his wives turned away his heart after other gods; and his heart was not perfect with his God, as the heart of David his father was. 
 For Solomon went after Ashtoreth the goddess of the Sidonians, and after Milcom the abomination of the Ammonites. 
-Solomon did that which was evil in God's sight, and didn't go fully after God, as David his father did. 
+Solomon did that which was bad in God's sight, and didn't go fully after God, as David his father did. 
 Then Solomon built a high place for Chemosh the abomination of Moab, on the mountain that is before Jerusalem, and for Molech the abomination of the children of Ammon. 
 So he did for all his foreign wives, who burned incense and sacrificed to their gods. 
 God was angry with Solomon, because his heart was turned away from the God of Israel, who had appeared to him twice, 

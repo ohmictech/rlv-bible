@@ -1,12 +1,12 @@
-﻿"You shall not spread a false report. Don't join your hand with the wicked to be a malicious witness. 
-"You shall not follow a crowd to do evil. You shall not testify in court to side with a multitude to pervert justice. 
+﻿"You shall not spread a false report. Don't join your hand with the guilty to be a malicious witness. 
+"You shall not follow a crowd to do bad things. You shall not testify in court to side with a multitude to pervert justice. 
 You shall not favor a poor man in his cause. 
 "If you meet your enemy's ox or his donkey going astray, you shall surely bring it back to him again. 
 If you see the donkey of him who hates you fallen down under his burden, don't leave him. You shall surely help him with it. 
 "You shall not deny justice to your poor people in their lawsuits. 
-"Keep far from a false charge, and don't kill the innocent and righteous; for I will not justify the wicked. 
+"Keep far from a false charge, and don't kill the innocent and righteous; for I will not justify the guilty. 
 "You shall take no bribe, for a bribe blinds those who have sight and perverts the words of the righteous. 
-"You shall not oppress an alien, for you know the heart of an alien, since you were aliens in the land of Egypt. 
+"You shall not oppress an alien, for you know the heart of an alien, mistakece you were aliens in the land of Egypt. 
 "For six years you shall sow your land, and shall gather in its increase, 
 but the seventh year you shall let it rest and lie fallow, that the poor of your people may eat; and what they leave the animal of the field shall eat. In the same way, you shall deal with your vineyard and with your olive grove. 
 "Six days you shall do your work, and on the seventh day you shall rest, that your ox and your donkey may have rest, and the son of your servant, and the alien may be refreshed. 
@@ -30,4 +30,4 @@ I will not drive them out from before you in one year, lest the land become deso
 Little by little I will drive them out from before you, until you have increased and inherit the land. 
 I will set your border from the Red Sea even to the sea of the Philistines, and from the wilderness to the River; for I will deliver the inhabitants of the land into your hand, and you shall drive them out before you. 
 You shall make no covenant with them, nor with their gods. 
-They shall not dwell in your land, lest they make you sin against me, for if you serve their gods, it will surely be a snare to you." 
+They shall not dwell in your land, lest they make you wrong me, for if you serve their gods, it will surely be a snare to you." 

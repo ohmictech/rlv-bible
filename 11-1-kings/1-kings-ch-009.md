@@ -6,7 +6,7 @@ then I will establish the throne of your kingdom over Israel for the eras, as I 
 But if you turn away from following me, you or your children, and not keep my commandments and my statutes which I have set before you, but go and serve other gods and worship them, 
 then I will cut off Israel out of the land which I have given them; and I will cast this house, which I have made holy for my name, out of my sight; and Israel will be a proverb and a byword among all peoples. 
 Though this house is so high, yet everyone who passes by it will be astonished and hiss; and they will say, 'Why has God done this to this land and to this house?' 
-and they will answer, 'Because they abandoned their God, who brought their fathers out of the land of Egypt, and embraced other gods, and worshiped them, and served them. Therefore God has brought all this evil on them.'" 
+and they will answer, 'Because they abandoned their God, who brought their fathers out of the land of Egypt, and embraced other gods, and worshiped them, and served them. Therefore God has brought all this bad on them.'" 
 At the end of twenty years, in which Solomon had built the two houses, God's house and the king's house 
 (now Hiram the king of Tyre had furnished Solomon with cedar trees and cypress trees, and with gold, according to all his desire), King Solomon gave Hiram twenty cities in the land of Galilee. 
 Hiram came out of Tyre to see the cities which Solomon had given him; and they didn't please him. 
@@ -22,7 +22,7 @@ their children who were left after them in the land, whom the children of Israel
 But of the children of Israel Solomon made no bondservants; but they were the men of war, his servants, his princes, his captains, and rulers of his chariots and of his horsemen. 
 These were the five hundred fifty chief officers who were over Solomon's work, who ruled over the people who labored in the work. 
 But Pharaoh's daughter came up out of David's city to her house which Solomon had built for her. Then he built Millo. 
-Solomon offered burnt offerings and peace offerings on the altar which he built to God three times per year, burning incense with them on the altar that was before God. So he finished the house. 
+Solomon offered burnt offerings and offerings for wholeness on the altar which he built to God three times per year, burning incense with them on the altar that was before God. So he finished the house. 
 King Solomon made a fleet of ships in Ezion Geber, which is beside Eloth, on the shore of the Red Sea, in the land of Edom. 
 Hiram sent in the fleet his servants, sailors who had knowledge of the sea, with the servants of Solomon. 
 They came to Ophir, and fetched from there gold, four hundred and twenty talents, and brought it to King Solomon. 

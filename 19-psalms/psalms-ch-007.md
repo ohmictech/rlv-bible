@@ -1,17 +1,17 @@
 ﻿A meditation by David, which he sang to God, concerning the words of Cush, the Benjamite. God, my God, I take refuge in you. Save me from everyone who pursues me, and deliver me, 
 lest they tear apart my soul like a lion, ripping it in pieces, while there is no one to deliver. 
-God, my God, if I have done this, if there is iniquity in my hands, 
-if I have rewarded evil to him who was at peace with me (yes, I have plundered him who without cause was my adversary), 
+God, my God, if I have done this, if there is guilt in my hands, 
+if I have rewarded bad to him who was at peace with me (yes, I have plundered him who without cause was my adversary), 
 let the enemy pursue my soul, and overtake it; yes, let him tread my life down to the earth, and lay my glory in the dust. Selah. 
 Arise, God, in your anger. Lift up yourself against the rage of my adversaries. Awake for me. You have commanded judgment. 
 Let the congregation of the peoples surround you. Rule over them on high. 
 God administers judgment to the peoples. Judge me, God, according to my righteousness, and to my integrity that is in me. 
-Oh let the wickedness of the wicked come to an end, but establish the righteous; their minds and hearts are searched by the righteous God. 
+Oh let the guilt of the guilty come to an end, but establish the righteous; their minds and hearts are searched by the righteous God. 
 My shield is with God, who saves the upright in heart. 
 God is a righteous judge, yes, a God who has indignation every day. 
 If a man doesn't repent, he will sharpen his sword; he has bent and strung his bow. 
 He has also prepared for himself the instruments of death. He makes ready his flaming arrows. 
-Behold, he travails with iniquity. Yes, he has conceived mischief, and brought out falsehood. 
+Behold, he travails with guilt. Yes, he has conceived mischief, and brought out falsehood. 
 He has dug a hole, and has fallen into the pit which he made. 
 The trouble he causes shall return to his own head. His violence shall come down on the crown of his own head. 
-I will give thanks to God according to his righteousness, and will sing praise to the name of God Most High. 
+I will give thanks to God according to his righteousness, and will mistakeg praise to the name of God Most High. 

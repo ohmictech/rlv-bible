@@ -24,12 +24,12 @@ After the treaty made with him he will work deceitfully; for he will come up and
 In a time of security he will come even on the fattest places of the province. He will do that which his fathers have not done, nor his fathers' fathers. He will scatter among them prey, plunder, and wealth. Yes, he will devise his plans against the strongholds, but only for a time. 
 "He will stir up his power and his courage against the king of the south with a great army; and the king of the south will wage war in battle with an exceedingly great and mighty army, but he won't stand; for they will devise plans against him. 
 Yes, those who eat of his delicacies will destroy him, and his army will be swept away. Many will fall down slain. 
-As for both these kings, their hearts will be to do evil, and they will speak lies at one table; but it won't prosper, for the end will still be at the appointed time. 
+As for both these kings, their hearts will be to do bad things, and they will speak lies at one table; but it won't prosper, for the end will still be at the appointed time. 
 Then he will return into his land with great wealth. His heart will be against the holy covenant. He will take action, and return to his own land. 
 "He will return at the appointed time and come into the south; but it won't be in the latter time as it was in the former. 
 For ships of Kittim will come against him. Therefore he will be grieved, and will return, and have indignation against the holy covenant, and will take action. He will even return, and have regard to those who forsake the holy covenant. 
 "Forces from him will profane the sanctuary, even the fortress, and will take away the continual burnt offering. Then they will set up the abomination that makes desolate. 
-He will corrupt those who do wickedly against the covenant by flatteries; but the people who know their God will be strong and take action. 
+He will corrupt those who do guiltyly against the covenant by flatteries; but the people who know their God will be strong and take action. 
 "Those who are wise among the people will instruct many; yet they will fall by the sword and by flame, by captivity and by plunder, many days. 
 Now when they fall, they will be helped with a little help; but many will join themselves to them with flatteries. 
 Some of those who are wise will fall, to refine them, and to purify, and to make them white, even to the time of the end, because it is yet for the time appointed. 

@@ -3,10 +3,10 @@ Abraham said about Sarah his wife, "She is my sister." Abimelech king of Gerar s
 But God came to Abimelech in a dream of the night, and said to him, "Behold, you are a dead man, because of the woman whom you have taken; for she is a man's wife." 
 Now Abimelech had not come near her. He said, "Lord, will you kill even a righteous nation? 
 Didn't he tell me, 'She is my sister'? She, even she herself, said, 'He is my brother.' I have done this in the integrity of my heart and the innocence of my hands." 
-God said to him in the dream, "Yes, I know that in the integrity of your heart you have done this, and I also withheld you from sinning against me. Therefore I didn't allow you to touch her. 
+God said to him in the dream, "Yes, I know that in the integrity of your heart you have done this, and I also withheld you from wronging me. Therefore I didn't allow you to touch her. 
 Now therefore, restore the man's wife. For he is a spokesman, and he will pray for you, and you will live. If you don't restore her, know for sure that you will die, you, and everyone who is yours." 
 Abimelech rose early in the morning, and called all his servants, and told all these things in their ear. The men were very scared. 
-Then Abimelech called Abraham, and said to him, "What have you done to us? How have I sinned against you, that you have brought on me and on my kingdom a great sin? You have done deeds to me that ought not to be done!" 
+Then Abimelech called Abraham, and said to him, "What have you done to us? How have I wronged you, that you have brought on me and on my kingdom a great mistake? You have done deeds to me that ought not to be done!" 
 Abimelech said to Abraham, "What did you see, that you have done this thing?" 
 Abraham said, "Because I thought, 'Surely the fear of God is not in this place. They will kill me for my wife's sake.' 
 Besides, she is indeed my sister, the daughter of my father, but not the daughter of my mother; and she became my wife. 

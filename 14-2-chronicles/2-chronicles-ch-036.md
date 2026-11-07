@@ -2,17 +2,17 @@
 Joahaz was twenty-three years old when he began to reign; and he reigned three months in Jerusalem. 
 The king of Egypt removed him from office at Jerusalem, and fined the land one hundred talents of silver and a talent of gold. 
 The king of Egypt made Eliakim his brother king over Judah and Jerusalem, and changed his name to Jehoiakim. Neco took Joahaz his brother, and carried him to Egypt. 
-Jehoiakim was twenty-five years old when he began to reign, and he reigned eleven years in Jerusalem. He did that which was evil in his God's sight. 
+Jehoiakim was twenty-five years old when he began to reign, and he reigned eleven years in Jerusalem. He did that which was bad in his God's sight. 
 Nebuchadnezzar king of Babylon came up against him, and bound him in fetters to carry him to Babylon. 
 Nebuchadnezzar also carried some of the vessels of God's house to Babylon, and put them in his temple at Babylon. 
 Now the rest of the acts of Jehoiakim, and his abominations which he did, and that which was found in him, behold, they are written in the book of the kings of Israel and Judah; and Jehoiachin his son reigned in his place. 
-Jehoiachin was eight years old when he began to reign, and he reigned three months and ten days in Jerusalem. He did that which was evil in God's sight. 
+Jehoiachin was eight years old when he began to reign, and he reigned three months and ten days in Jerusalem. He did that which was bad in God's sight. 
 At the return of the year, King Nebuchadnezzar sent and brought him to Babylon, with the valuable vessels of God's house, and made Zedekiah his brother king over Judah and Jerusalem. 
 Zedekiah was twenty-one years old when he began to reign, and he reigned eleven years in Jerusalem. 
-He did that which was evil in his God's sight. He didn't humble himself before Jeremiah the spokesman speaking from God's mouth. 
+He did that which was bad in his God's sight. He didn't humble himself before Jeremiah the spokesman speaking from God's mouth. 
 He also rebelled against King Nebuchadnezzar, who had made him swear by God; but he stiffened his neck, and hardened his heart against turning to the God of Israel. 
 Moreover all the chiefs of the priests and the people trespassed very greatly after all the abominations of the nations; and they polluted God's house which he had made holy in Jerusalem. 
-The God of their fathers, sent to them by his messengers, rising up early and sending, because he had compassion on his people and on his dwelling place; 
+The God of their fathers, sent to them by his messengers, rimistakeg up early and sending, because he had compassion on his people and on his dwelling place; 
 but they mocked the messengers of God, despised his words, and scoffed at his spokesmen, until God's wrath arose against his people, until there was no remedy. 
 Therefore he brought on them the king of the Chaldeans, who killed their young men with the sword in the house of their sanctuary, and had no compassion on young man or virgin, old man or infirm. He gave them all into his hand. 
 All the vessels of God's house, great and small, and the treasures of God's house, and the treasures of the king and of his princes, all these he brought to Babylon. 

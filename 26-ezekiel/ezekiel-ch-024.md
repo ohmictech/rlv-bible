@@ -20,7 +20,7 @@ The people asked me, "Won't you tell us what these things mean to us, that you a
 Then I said to them, "God's word came to me, saying, 
 'Speak to the house of Israel, "The God says: 'Behold, I will profane my sanctuary, the pride of your power, the desire of your eyes, and that which your soul pities; and your sons and your daughters whom you have left behind will fall by the sword. 
 You will do as I have done. You won't cover your lips or eat mourner's bread. 
-Your turbans will be on your heads, and your sandals on your feet. You won't mourn or weep; but you will pine away in your iniquities, and moan one toward another. 
+Your turbans will be on your heads, and your sandals on your feet. You won't mourn or weep; but you will pine away in your guilt, and moan one toward another. 
 Thus Ezekiel will be a sign to you; according to all that he has done, you will do. When this comes, then you will know that I am God.'"'" 
 "You, son of man, shouldn't it be in the day when I take from them their strength, the joy of their glory, the desire of their eyes, and that whereupon they set their heart, their sons and their daughters 
 that in that day he who escapes will come to you, to cause you to hear it with your ears? 

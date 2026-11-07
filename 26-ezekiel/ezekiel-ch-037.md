@@ -3,9 +3,9 @@ He caused me to pass by them all around; and behold, there were very many in the
 He said to me, "Son of man, can these bones live?" I answered, "God, you know." 
 Again he said to me, "Prophesy over these bones, and tell them, 'You dry bones, hear God's word. 
 The God says to these bones: "Behold, I will cause breath to enter into you, and you will live. 
-I will lay sinews on you, and will bring up flesh on you, and cover you with skin, and put breath in you, and you will live. Then you will know that I am God."'" 
+I will lay mistakeews on you, and will bring up flesh on you, and cover you with skin, and put breath in you, and you will live. Then you will know that I am God."'" 
 So I prophesied as I was commanded. As I prophesied, there was a noise, and behold, there was an earthquake. Then the bones came together, bone to its bone. 
-I saw, and, behold, there were sinews on them, and flesh came up, and skin covered them above; but there was no breath in them. 
+I saw, and, behold, there were mistakeews on them, and flesh came up, and skin covered them above; but there was no breath in them. 
 Then he said to me, "Prophesy to the wind, prophesy, son of man, and tell the wind, 'The God says: "Come from the four winds, breath, and breathe on these slain, that they may live."'" 
 So I prophesied as he commanded me, and the breath came into them, and they lived, and stood up on their feet, an exceedingly great army. 
 Then he said to me, "Son of man, these bones are the whole house of Israel. Behold, they say, 'Our bones are dried up, and our hope is lost. We are completely cut off.' 
@@ -20,7 +20,7 @@ tell them, 'The God says: "Behold, I will take the stick of Joseph, which is in 
 The sticks on which you write will be in your hand before their eyes."' 
 Say to them, 'The God says: "Behold, I will take the children of Israel from among the nations where they have gone, and will gather them on every side, and bring them into their own land. 
 I will make them one nation in the land, on the mountains of Israel. One king will be king to them all. They will no longer be two nations. They won't be divided into two kingdoms any more at all. 
-They won't defile themselves any more with their idols, nor with their detestable things, nor with any of their transgressions; but I will save them out of all their dwelling places in which they have sinned, and will cleanse them. So they will be my people, and I will be their God. 
+They won't defile themselves any more with their idols, nor with their detestable things, nor with any of their rebellion; but I will save them out of all their dwelling places in which they have missed the mark, and will cleanse them. So they will be my people, and I will be their God. 
 "'"My servant David will be king over them. They all will have one shepherd. They will also walk in my ordinances and observe my statutes, and do them. 
 They will dwell in the land that I have given to Jacob my servant, in which your fathers lived. They will dwell therein, they, and their children, and their children's children, for the eras. David my servant will be their prince for the eras. 
 Moreover I will make a covenant of peace with them. It will be an perpetual covenant with them. I will place them, multiply them, and will set my sanctuary among them for the eras more. 

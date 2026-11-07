@@ -2,7 +2,7 @@
 The woman said to the serpent, "We may eat fruit from the trees of the garden, 
 but not the fruit of the tree which is in the middle of the garden. God has said, 'You shall not eat of it. You shall not touch it, lest you die.'" 
 The serpent said to the woman, "You won't really die, 
-for God knows that in the day you eat it, your eyes will be opened, and you will be like God, knowing good and evil." 
+for God knows that in the day you eat it, your eyes will be opened, and you will be like God, knowing good and bad." 
 When the woman saw that the tree was good for food, and that it was a delight to the eyes, and that the tree was to be desired to make one wise, she took some of its fruit, and ate. Then she gave some to her husband with her, and he ate it, too. 
 Their eyes were opened, and they both knew that they were naked. They sewed fig leaves together, and made coverings for themselves. 
 They heard God's voice walking in the garden in the cool of the day, and the man and his wife hid themselves from the presence of God among the trees of the garden. 
@@ -19,6 +19,6 @@ It will yield thorns and thistles to you; and you will eat the herb of the field
 You will eat bread by the sweat of your face until you return to the ground, for you were taken out of it. For you are dust, and you shall return to dust." 
 The man called his wife Eve because she would be the mother of all the living. 
 God made garments of animal skins for Adam and for his wife, and clothed them. 
-God said, "Behold, the man has become like one of us, knowing good and evil. Now, lest he reach out his hand, and also take of the tree of life, and eat, and live for the eras, " 
+God said, "Behold, the man has become like one of us, knowing good and bad. Now, lest he reach out his hand, and also take of the tree of life, and eat, and live for the eras, " 
 Therefore God sent him out from the garden of Eden, to till the ground from which he was taken. 
 So he drove out the man; and he placed cherubim at the east of the garden of Eden, and a flaming sword which turned every way, to guard the way to the tree of life. 

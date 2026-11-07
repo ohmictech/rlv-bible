@@ -2,7 +2,7 @@
 "Speak to Aaron, and to his sons, and to all the children of Israel, and say to them, 'This is the thing which God has commanded: 
 Whatever man there is of the house of Israel who kills a bull, or lamb, or goat in the camp, or who kills it outside the camp, 
 and hasn't brought it to the door of the Tent of Meeting to offer it as an offering to God before God's tabernacle: blood shall be imputed to that man. He has shed blood. That man shall be cut off from among his people. 
-This is to the end that the children of Israel may bring their sacrifices, which they sacrifice in the open field, that they may bring them to God, to the door of the Tent of Meeting, to the priest, and sacrifice them for sacrifices of peace offerings to God. 
+This is to the end that the children of Israel may bring their sacrifices, which they sacrifice in the open field, that they may bring them to God, to the door of the Tent of Meeting, to the priest, and sacrifice them for sacrifices of offerings for wholeness to God. 
 The priest shall sprinkle the blood on God's altar at the door of the Tent of Meeting, and burn the fat for a pleasant aroma to God. 
 They shall no more sacrifice their sacrifices to the goat idols, after which they play the prostitute. This shall be a statute for the eras to them throughout their generations.' 
 "You shall say to them, 'Any man there is of the house of Israel, or of the strangers who live as foreigners among them, who offers a burnt offering or sacrifice, 
@@ -13,4 +13,4 @@ Therefore I have said to the children of Israel, "No person among you may eat bl
 "'Whatever man there is of the children of Israel, or of the strangers who live as foreigners among them, who takes in hunting any animal or bird that may be eaten, he shall pour out its blood, and cover it with dust. 
 For as to the life of all flesh, its blood is with its life. Therefore I said to the children of Israel, "You shall not eat the blood of any kind of flesh; for the life of all flesh is its blood. Whoever eats it shall be cut off." 
 "'Every person that eats what dies of itself, or that which is torn by animals, whether he is native-born or a foreigner, shall wash his clothes, and bathe himself in water, and be unclean until the evening. Then he shall be clean. 
-But if he doesn't wash them, or bathe his flesh, then he shall bear his iniquity.'" 
+But if he doesn't wash them, or bathe his flesh, then he shall bear his guilt.'" 

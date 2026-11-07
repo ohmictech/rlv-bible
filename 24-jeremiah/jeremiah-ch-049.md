@@ -20,7 +20,7 @@ As in the overthrow of Sodom and Gomorrah and its neighbor cities," says God, "n
 Therefore hear the counsel of God, that he has taken against Edom, and his purposes that he has purposed against the inhabitants of Teman: Surely they will drag them away, the little ones of the flock. Surely he will make their habitation desolate over them. 
 The earth trembles at the noise of their fall; there is a cry, the noise which is heard in the Red Sea. 
 Behold, he will come up and fly as the eagle, and spread out his wings against Bozrah. The heart of the mighty men of Edom at that day will be as the heart of a woman in her pangs. 
-Of Damascus: "Hamath and Arpad are confounded, for they have heard evil news. They have melted away. There is sorrow on the sea. It can't be quiet. 
+Of Damascus: "Hamath and Arpad are confounded, for they have heard bad news. They have melted away. There is sorrow on the sea. It can't be quiet. 
 Damascus has grown feeble, she turns herself to flee, and trembling has seized her. Anguish and sorrows have taken hold of her, as of a woman in travail. 
 How is the city of praise not forsaken, the city of my joy? 
 Therefore her young men will fall in her streets, and all the men of war will be brought to silence in that day," says the God of Armies. 
@@ -34,6 +34,6 @@ Hazor will be a dwelling place of jackals, a desolation for the eras. No man wil
 God's word that came to Jeremiah the spokesman concerning Elam, in the beginning of the reign of Zedekiah king of Judah, saying, 
 "The God of Armies says: 'Behold, I will break the bow of Elam, the chief of their might. 
 I will bring on Elam the four winds from the four quarters of the sky, and will scatter them toward all those winds. There will be no nation where the outcasts of Elam will not come. 
-I will cause Elam to be dismayed before their enemies, and before those who seek their life. I will bring evil on them, even my fierce anger,' says God; 'and I will send the sword after them, until I have consumed them. 
+I will cause Elam to be dismayed before their enemies, and before those who seek their life. I will bring bad on them, even my fierce anger,' says God; 'and I will send the sword after them, until I have consumed them. 
 I will set my throne in Elam, and will destroy from there king and princes,' says God. 
 'But it will happen in the latter days that I will reverse the captivity of Elam,' says God." 

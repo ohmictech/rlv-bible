@@ -8,11 +8,11 @@ They also had a few small fish, and having blessed them, he told the students to
 They ate and were filled. They took up seven baskets of broken pieces that were left over. 
 Those who had eaten were about four thousand. Then he sent them away. 
 Immediately he got into the boat with his students and came into the region of Dalmanutha. 
-The Pharisees came out and began to question him, asking him for a sign from the sky and testing him. 
+The strict religious ones came out and began to question him, asking him for a sign from the sky and testing him. 
 He sighed deeply in his spirit and said, "Why does this generation look for a sign? Truly I tell you, no sign will be given to this generation." 
 He left them, and getting into the boat again, he went to the other side. 
 They had forgotten to take bread, and they didn't have more than one loaf in the boat with them. 
-He warned them, saying, "Watch out. Be on your guard against the yeast of the Pharisees and the yeast of Herod." 
+He warned them, saying, "Watch out. Be on your guard against the yeast of the strict religious ones and the yeast of Herod." 
 They reasoned with one another, saying, "It's because we have no bread." 
 Jesus knew it and said to them, "Why are you reasoning about having no bread? Don't you see or understand yet? Is your heart still hardened? 
 Having eyes, don't you see? Having ears, don't you hear? Don't you remember? 

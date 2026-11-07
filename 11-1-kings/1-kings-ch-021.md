@@ -7,23 +7,23 @@ He said to her, "Because I spoke to Naboth the Jezreelite, and said to him, 'Giv
 Jezebel his wife said to him, "Do you now govern the kingdom of Israel? Arise, and eat bread, and let your heart be merry. I will give you the vineyard of Naboth the Jezreelite." 
 So she wrote letters in Ahab's name and sealed them with his seal, and sent the letters to the elders and to the nobles who were in his city, who lived with Naboth. 
 She wrote in the letters, saying, "Proclaim a fast, and set Naboth on high among the people. 
-Set two men, wicked fellows, before him, and let them testify against him, saying, 'You cursed God and the king!' Then carry him out, and stone him to death." 
+Set two men, guilty fellows, before him, and let them testify against him, saying, 'You cursed God and the king!' Then carry him out, and stone him to death." 
 The men of his city, even the elders and the nobles who lived in his city, did as Jezebel had instructed them in the letters which she had written and sent to them. 
 They proclaimed a fast, and set Naboth on high among the people. 
-The two men, the wicked fellows, came in and sat before him. The wicked fellows testified against him, even against Naboth, in the presence of the people, saying, "Naboth cursed God and the king!" Then they carried him out of the city and stoned him to death with stones. 
+The two men, the guilty fellows, came in and sat before him. The guilty fellows testified against him, even against Naboth, in the presence of the people, saying, "Naboth cursed God and the king!" Then they carried him out of the city and stoned him to death with stones. 
 Then they sent to Jezebel, saying, "Naboth has been stoned and is dead." 
 When Jezebel heard that Naboth had been stoned and was dead, Jezebel said to Ahab, "Arise, take possession of the vineyard of Naboth the Jezreelite, which he refused to give you for money; for Naboth is not alive, but dead." 
 When Ahab heard that Naboth was dead, Ahab rose up to go down to the vineyard of Naboth the Jezreelite, to take possession of it. 
 God's word came to Elijah the Tishbite, saying, 
 "Arise, go down to meet Ahab king of Israel, who dwells in Samaria. Behold, he is in the vineyard of Naboth, where he has gone down to take possession of it. 
 You shall speak to him, saying, 'God says, "Have you killed and also taken possession?"' You shall speak to him, saying, 'God says, "In the place where dogs licked the blood of Naboth, dogs will lick your blood, even yours."'" 
-Ahab said to Elijah, "Have you found me, my enemy?" He answered, "I have found you, because you have sold yourself to do that which is evil in God's sight. 
-Behold, I will bring evil on you, and will utterly sweep you away and will cut off from Ahab everyone who urinates against a wall, and him who is shut up and him who is left at large in Israel. 
-I will make your house like the house of Jeroboam the son of Nebat, and like the house of Baasha the son of Ahijah, for the provocation with which you have provoked me to anger, and have made Israel to sin." 
+Ahab said to Elijah, "Have you found me, my enemy?" He answered, "I have found you, because you have sold yourself to do that which is bad in God's sight. 
+Behold, I will bring bad on you, and will utterly sweep you away and will cut off from Ahab everyone who urinates against a wall, and him who is shut up and him who is left at large in Israel. 
+I will make your house like the house of Jeroboam the son of Nebat, and like the house of Baasha the son of Ahijah, for the provocation with which you have provoked me to anger, and have made Israel to miss the mark." 
 God also spoke of Jezebel, saying, "The dogs will eat Jezebel by the rampart of Jezreel. 
 The dogs will eat whoever dies of Ahab in the city; and the birds of the sky will eat whoever dies in the field." 
-But there was no one like Ahab, who sold himself to do that which was evil in God's sight, whom Jezebel his wife stirred up. 
+But there was no one like Ahab, who sold himself to do that which was bad in God's sight, whom Jezebel his wife stirred up. 
 He did very abominably in following idols, according to all that the Amorites did, whom God cast out before the children of Israel. 
 When Ahab heard those words, he tore his clothes, put sackcloth on his body, fasted, lay in sackcloth, and went about despondently. 
 God's word came to Elijah the Tishbite, saying, 
-"See how Ahab humbles himself before me? Because he humbles himself before me, I will not bring the evil in his days; but I will bring the evil on his house in his son's day." 
+"See how Ahab humbles himself before me? Because he humbles himself before me, I will not bring the bad in his days; but I will bring the bad on his house in his son's day." 

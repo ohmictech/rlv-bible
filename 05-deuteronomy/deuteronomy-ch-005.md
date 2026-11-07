@@ -6,7 +6,7 @@ God spoke with you face to face on the mountain out of the middle of the fire,
 "I am your God, who brought you out of the land of Egypt, out of the house of bondage. 
 "You shall have no other gods before me. 
 "You shall not make a carved image for yourself, any likeness of what is in heaven above, or what is on the earth beneath, or that is in the water under the earth. 
-You shall not bow yourself down to them, nor serve them, for I, your God, am a jealous God, visiting the iniquity of the fathers on the children and on the third and on the fourth generation of those who hate me 
+You shall not bow yourself down to them, nor serve them, for I, your God, am a jealous God, visiting the guilt of the fathers on the children and on the third and on the fourth generation of those who hate me 
 and showing loving kindness to thousands of those who love me and keep my commandments. 
 "You shall not misuse the name of your God; for God will not hold him guiltless who misuses his name. 
 "Observe the Sabbath day, to keep it holy, as your God commanded you. 

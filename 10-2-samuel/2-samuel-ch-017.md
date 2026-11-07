@@ -11,7 +11,7 @@ Even he who is valiant, whose heart is as the heart of a lion, will utterly melt
 But I counsel that all Israel be gathered together to you, from Dan even to Beersheba, as the sand that is by the sea for multitude; and that you go to battle in your own person. 
 So we will come on him in some place where he will be found, and we will light on him as the dew falls on the ground, then we will not leave so much as one of him and of all the men who are with him. 
 Moreover, if he has gone into a city, then all Israel will bring ropes to that city, and we will draw it into the river, until there isn't one small stone found there." 
-Absalom and all the men of Israel said, "The counsel of Hushai the Archite is better than the counsel of Ahithophel." For God had ordained to defeat the good counsel of Ahithophel, to the intent that God might bring evil on Absalom. 
+Absalom and all the men of Israel said, "The counsel of Hushai the Archite is better than the counsel of Ahithophel." For God had ordained to defeat the good counsel of Ahithophel, to the intent that God might bring bad on Absalom. 
 Then Hushai said to Zadok and to Abiathar the priests, "Ahithophel counseled Absalom and the elders of Israel that way; and I have counseled this way. 
 Now therefore send quickly, and tell David, saying, 'Don't lodge tonight at the fords of the wilderness, but by all means pass over, lest the king be swallowed up, and everyone who is with him.'" 
 Now Jonathan and Ahimaaz were staying by En Rogel; and a female servant used to go and report to them, and they went and told King David; for they couldn't risk being seen coming into the city. 
@@ -25,5 +25,5 @@ Then David came to Mahanaim. Absalom passed over the Jordan, he and all the men 
 Absalom set Amasa over the army instead of Joab. Now Amasa was the son of a man whose name was Ithra the Israelite, who went in to Abigail the daughter of Nahash, sister to Zeruiah, Joab's mother. 
 Israel and Absalom encamped in the land of Gilead. 
 When David had come to Mahanaim, Shobi the son of Nahash of Rabbah of the children of Ammon, and Machir the son of Ammiel of Lodebar, and Barzillai the Gileadite of Rogelim, 
-brought beds, basins, earthen vessels, wheat, barley, meal, parched grain, beans, lentils, roasted grain, 
+brought beds, bamistakes, earthen vessels, wheat, barley, meal, parched grain, beans, lentils, roasted grain, 
 honey, butter, sheep, and cheese of the herd, for David and for the people who were with him to eat; for they said, "The people are hungry, weary, and thirsty in the wilderness." 

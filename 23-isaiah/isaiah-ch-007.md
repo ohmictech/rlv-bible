@@ -2,7 +2,7 @@
 David's house was told, "Syria is allied with Ephraim." His heart trembled, and the heart of his people, as the trees of the forest tremble with the wind. 
 Then God said to Isaiah, "Go out now to meet Ahaz, you, and Shearjashub your son, at the end of the conduit of the upper pool, on the highway of the fuller's field. 
 Tell him, 'Be careful, and keep calm. Don't be afraid, neither let your heart be faint because of these two tails of smoking torches, for the fierce anger of Rezin and Syria, and of the son of Remaliah. 
-Because Syria, Ephraim, and the son of Remaliah, have plotted evil against you, saying, 
+Because Syria, Ephraim, and the son of Remaliah, have plotted bad against you, saying, 
 "Let's go up against Judah, and tear it apart, and let's divide it among ourselves, and set up a king within it, even the son of Tabeel." 
 This is what God says: "It shall not stand, neither shall it happen." 
 For the head of Syria is Damascus, and the head of Damascus is Rezin. Within sixty-five years Ephraim shall be broken in pieces, so that it shall not be a people. 
@@ -12,8 +12,8 @@ God spoke again to Ahaz, saying,
 But Ahaz said, "I won't ask. I won't tempt God." 
 He said, "Listen now, house of David. Is it not enough for you to try the patience of men, that you will try the patience of my God also? 
 Therefore the Lord himself will give you a sign. Behold, the virgin will conceive, and bear a son, and shall call his name Immanuel. 
-He shall eat butter and honey when he knows to refuse the evil and choose the good. 
-For before the child knows to refuse the evil and choose the good, the land whose two kings you abhor shall be forsaken. 
+He shall eat butter and honey when he knows to refuse the bad and choose the good. 
+For before the child knows to refuse the bad and choose the good, the land whose two kings you abhor shall be forsaken. 
 God will bring on you, on your people, and on your father's house days that have not come, from the day that Ephraim departed from Judah, even the king of Assyria. 
 It will happen in that day that God will whistle for the fly that is in the uttermost part of the rivers of Egypt, and for the bee that is in the land of Assyria. 
 They shall come, and shall all rest in the desolate valleys, in the clefts of the rocks, on all thorn hedges, and on all pastures. 

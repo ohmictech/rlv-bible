@@ -4,7 +4,7 @@ Strap your sword on your thigh, O mighty one, in your splendor and your majesty.
 In your majesty ride on victoriously on behalf of truth, humility, and righteousness. Let your right hand display awesome deeds. 
 Your arrows are sharp. The nations fall under you, with arrows in the heart of the king's enemies. 
 Your throne, God, is for all the eras. A scepter of equity is the scepter of your kingdom. 
-You have loved righteousness, and hated wickedness. Therefore God, your God, has anointed you with the oil of gladness above your fellows. 
+You have loved righteousness, and hated guilt. Therefore God, your God, has anointed you with the oil of gladness above your fellows. 
 All your garments smell like myrrh, aloes, and cassia. Out of ivory palaces stringed instruments have made you glad. 
 Kings' daughters are among your honorable women. At your right hand the queen stands in gold of Ophir. 
 Listen, daughter, consider, and turn your ear. Forget your own people, and also your father's house. 

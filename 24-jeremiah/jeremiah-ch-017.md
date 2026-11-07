@@ -1,6 +1,6 @@
-﻿"The sin of Judah is written with a pen of iron, and with the point of a diamond. It is engraved on the tablet of their heart, and on the horns of your altars. 
+﻿"The mistake of Judah is written with a pen of iron, and with the point of a diamond. It is engraved on the tablet of their heart, and on the horns of your altars. 
 Even their children remember their altars and their Asherah poles by the green trees on the high hills. 
-My mountain in the field, I will give your substance and all your treasures for a plunder, and your high places, because of sin, throughout all your borders. 
+My mountain in the field, I will give your substance and all your treasures for a plunder, and your high places, because of wrongdoing, throughout all your borders. 
 You, even of yourself, will discontinue from your heritage that I gave you. I will cause you to serve your enemies in the land which you don't know, for you have kindled a fire in my anger which will burn for the eras." 
 God says: "Cursed is the man who trusts in man, relies on strength of flesh, and whose heart departs from God. 
 For he will be like a bush in the desert, and will not see when good comes, but will inhabit the parched places in the wilderness, an uninhabited salt land. 
@@ -14,8 +14,8 @@ God, the hope of Israel, everyone who forsakes you will be disappointed. Those w
 Heal me, O God, and I will be healed. Save me, and I will be saved; for you are my praise. 
 Behold, they ask me, "Where is God's word? Let it be fulfilled now." 
 As for me, I have not hurried from being a shepherd after you. I haven't desired the woeful day. You know. That which came out of my lips was before your face. 
-Don't be a terror to me. You are my refuge in the day of evil. 
-Let them be disappointed who persecute me, but don't let me be disappointed. Let them be dismayed, but don't let me be dismayed. Bring on them the day of evil, and destroy them with double destruction. 
+Don't be a terror to me. You are my refuge in the day of bad. 
+Let them be disappointed who persecute me, but don't let me be disappointed. Let them be dismayed, but don't let me be dismayed. Bring on them the day of bad, and destroy them with double destruction. 
 God said this to me: "Go and stand in the gate of the children of the people, through which the kings of Judah come in and by which they go out, and in all the gates of Jerusalem. 
 Tell them, 'Hear God's word, you kings of Judah, all Judah, and all the inhabitants of Jerusalem, that enter in by these gates: 
 God says, "Be careful, and bear no burden on the Sabbath day, nor bring it in by the gates of Jerusalem. 

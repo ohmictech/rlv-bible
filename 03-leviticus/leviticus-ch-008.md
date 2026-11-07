@@ -1,5 +1,5 @@
 ﻿God spoke to Moses, saying, 
-"Take Aaron and his sons with him, and the garments, and the anointing oil, and the bull of the sin offering, and the two rams, and the basket of unleavened bread; 
+"Take Aaron and his sons with him, and the garments, and the anointing oil, and the bull of the offering for mistakes, and the two rams, and the basket of unleavened bread; 
 and assemble all the congregation at the door of the Tent of Meeting." 
 Moses did as God commanded him; and the congregation was assembled at the door of the Tent of Meeting. 
 Moses said to the congregation, "This is the thing which God has commanded to be done." 
@@ -8,10 +8,10 @@ He put the tunic on him, tied the sash on him, clothed him with the robe, put th
 He placed the breastplate on him. He put the Urim and Thummim in the breastplate. 
 He set the turban on his head. He set the golden plate, the holy crown, on the front of the turban, as God commanded Moses. 
 Moses took the anointing oil, and anointed the tabernacle and all that was in it, and sanctified them. 
-He sprinkled it on the altar seven times, and anointed the altar and all its vessels, and the basin and its base, to sanctify them. 
+He sprinkled it on the altar seven times, and anointed the altar and all its vessels, and the bamistake and its base, to sanctify them. 
 He poured some of the anointing oil on Aaron's head, and anointed him, to sanctify him. 
 Moses brought Aaron's sons, and clothed them with tunics, and tied sashes on them, and put headbands on them, as God commanded Moses. 
-He brought the bull of the sin offering, and Aaron and his sons laid their hands on the head of the bull of the sin offering. 
+He brought the bull of the offering for mistakes, and Aaron and his sons laid their hands on the head of the bull of the offering for mistakes. 
 He killed it; and Moses took the blood, and put it around on the horns of the altar with his finger, and purified the altar, and poured out the blood at the base of the altar, and sanctified it, to make things right for it. 
 He took all the fat that was on the innards, and the cover of the liver, and the two kidneys, and their fat; and Moses burned it on the altar. 
 But the bull, and its skin, and its meat, and its dung, he burned with fire outside the camp, as God commanded Moses. 

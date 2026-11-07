@@ -12,7 +12,7 @@ Mizraim became the father of Ludim, Anamim, Lehabim, Naphtuhim,
 Pathrusim, Casluhim (where the Philistines came from), and Caphtorim. 
 Canaan became the father of Sidon his firstborn, Heth, 
 the Jebusite, the Amorite, the Girgashite, 
-the Hivite, the Arkite, the Sinite, 
+the Hivite, the Arkite, the Mistakeite, 
 the Arvadite, the Zemarite, and the Hamathite. 
 The sons of Shem: Elam, Asshur, Arpachshad, Lud, Aram, Uz, Hul, Gether, and Meshech. 
 Arpachshad became the father of Shelah, and Shelah became the father of Eber. 

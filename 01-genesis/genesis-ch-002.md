@@ -6,7 +6,7 @@ No plant of the field was yet on the earth, and no herb of the field had yet spr
 but a mist went up from the earth, and watered the whole surface of the ground. 
 God formed man from the dust of the ground, and breathed into his nostrils the breath of life; and man became a living soul. 
 God planted a garden eastward, in Eden, and there he put the man whom he had formed. 
-Out of the ground God made every tree to grow that is pleasant to the sight, and good for food, including the tree of life in the middle of the garden and the tree of the knowledge of good and evil. 
+Out of the ground God made every tree to grow that is pleasant to the sight, and good for food, including the tree of life in the middle of the garden and the tree of the knowledge of good and bad. 
 A river went out of Eden to water the garden; and from there it was parted, and became the source of four rivers. 
 The name of the first is Pishon: it flows through the whole land of Havilah, where there is gold; 
 and the gold of that land is good. Bdellium and onyx stone are also there. 
@@ -14,7 +14,7 @@ The name of the second river is Gihon. It is the same river that flows through t
 The name of the third river is Hiddekel. This is the one which flows in front of Assyria. The fourth river is the Euphrates. 
 God took the man, and put him into the garden of Eden to cultivate and keep it. 
 God commanded the man, saying, "You may freely eat of every tree of the garden; 
-but you shall not eat of the tree of the knowledge of good and evil; for in the day that you eat of it, you will surely die." 
+but you shall not eat of the tree of the knowledge of good and bad; for in the day that you eat of it, you will surely die." 
 God said, "It is not good for the man to be alone. I will make him a helper comparable to him." 
 Out of the ground God formed every animal of the field, and every bird of the sky, and brought them to the man to see what he would call them. Whatever the man called every living creature became its name. 
 The man gave names to all livestock, and to the birds of the sky, and to every animal of the field; but for man there was not found a helper comparable to him. 

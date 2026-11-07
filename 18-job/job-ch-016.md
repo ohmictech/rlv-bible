@@ -8,7 +8,7 @@ But now, God, you have surely worn me out. You have made all my company desolate
 You have shriveled me up. This is a witness against me. My leanness rises up against me. It testifies to my face. 
 He has torn me in his wrath and persecuted me. He has gnashed on me with his teeth. My adversary sharpens his eyes on me. 
 They have gaped on me with their mouth. They have struck me on the cheek reproachfully. They gather themselves together against me. 
-God delivers me to the ungodly, and casts me into the hands of the wicked. 
+God delivers me to the ungodly, and casts me into the hands of the guilty. 
 I was at ease, and he broke me apart. Yes, he has taken me by the neck, and dashed me to pieces. He has also set me up for his target. 
 His archers surround me. He splits my kidneys apart, and does not spare. He pours out my bile on the ground. 
 He breaks me with breach on breach. He runs at me like a giant. 

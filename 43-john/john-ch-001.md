@@ -21,7 +21,7 @@ He declared it openly and didn't deny it: "I am not the Christ."
 They asked him, "What then? Are you Elijah?" He said, "I am not." "Are you the Spokesman?" He answered, "No." 
 They said therefore to him, "Who are you? Give us an answer to take back to those who sent us. What do you say about yourself?" 
 He said, "I am the voice of one crying in the wilderness, 'Make straight the way of the Lord,' as Isaiah the spokesman said." 
-The ones who had been sent were from the Pharisees. 
+The ones who had been sent were from the strict religious ones. 
 They asked him, "Why then do you immerse if you are not the Christ, nor Elijah, nor the Spokesman?" 
 John answered them, "I immerse in water, but among you stands one whom you don't know. 
 He is the one who comes after me, whose sandal strap I'm not worthy to loosen." 

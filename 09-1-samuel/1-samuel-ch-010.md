@@ -5,7 +5,7 @@ They will greet you and give you two loaves of bread, which you shall receive fr
 "After that you will come to the hill of God, where the garrison of the Philistines is; and it will happen, when you have come there to the city, that you will meet a band of spokesmen coming down from the high place with a lute, a tambourine, a pipe, and a harp before them; and they will be prophesying. 
 Then God's Spirit will come mightily on you, then you will prophesy with them and will be turned into another man. 
 Let it be, when these signs have come to you, that you do what is appropriate for the occasion; for God is with you. 
-"Go down ahead of me to Gilgal; and behold, I will come down to you to offer burnt offerings and to sacrifice sacrifices of peace offerings. Wait seven days, until I come to you and show you what you are to do." 
+"Go down ahead of me to Gilgal; and behold, I will come down to you to offer burnt offerings and to sacrifice sacrifices of offerings for wholeness. Wait seven days, until I come to you and show you what you are to do." 
 It was so, that when he had turned his back to go from Samuel, God gave him another heart; and all those signs happened that day. 
 When they came there to the hill, behold, a band of spokesmen met him; and the Spirit of God came mightily on him, and he prophesied among them. 
 When everyone who knew him before saw that, behold, he prophesied with the spokesmen, then the people said to one another, "What is this that has come to the son of Kish? Is Saul also among the spokesmen?" 

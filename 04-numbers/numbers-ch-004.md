@@ -11,7 +11,7 @@ They shall put it and all its vessels within a covering of sealskin, and shall p
 "On the golden altar they shall spread a blue cloth, and cover it with a covering of sealskin, and shall put in its poles. 
 "They shall take all the vessels of ministry with which they minister in the sanctuary, and put them in a blue cloth, cover them with a covering of sealskin, and shall put them on the frame. 
 "They shall take away the ashes from the altar, and spread a purple cloth on it. 
-They shall put on it all its vessels with which they minister about it, the fire pans, the meat hooks, the shovels, and the basins, all the vessels of the altar; and they shall spread on it a covering of sealskin, and put in its poles. 
+They shall put on it all its vessels with which they minister about it, the fire pans, the meat hooks, the shovels, and the bamistakes, all the vessels of the altar; and they shall spread on it a covering of sealskin, and put in its poles. 
 "When Aaron and his sons have finished covering the sanctuary and all the furniture of the sanctuary, as the camp moves forward; after that, the sons of Kohath shall come to carry it; but they shall not touch the sanctuary, lest they die. The sons of Kohath shall carry these things belonging to the Tent of Meeting. 
 "The duty of Eleazar the son of Aaron the priest shall be the oil for the light, the sweet incense, the continual meal offering, and the anointing oil, the requirements of all the tabernacle, and of all that is in it, the sanctuary, and its furnishings." 
 God spoke to Moses and to Aaron, saying, 

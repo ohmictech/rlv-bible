@@ -10,7 +10,7 @@ You uncovered your bow. You called for your sworn arrows. Selah. You split the e
 The mountains saw you, and were afraid. The storm of waters passed by. The deep roared and lifted up its hands on high. 
 The sun and moon stood still in the sky at the light of your arrows as they went, at the shining of your glittering spear. 
 You marched through the land in wrath. You threshed the nations in anger. 
-You went out for the salvation of your people, for the salvation of your anointed. You crushed the head of the land of wickedness. You stripped them head to foot. Selah. 
+You went out for the salvation of your people, for the salvation of your anointed. You crushed the head of the land of guilt. You stripped them head to foot. Selah. 
 You pierced the heads of his warriors with their own spears. They came as a whirlwind to scatter me, gloating as if to devour the wretched in secret. 
 You trampled the sea with your horses, churning mighty waters. 
 I heard, and my body trembled. My lips quivered at the voice. Rottenness enters into my bones, and I tremble in my place because I must wait quietly for the day of trouble, for the coming up of the people who invade us. 

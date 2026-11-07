@@ -25,4 +25,4 @@ For he looks to the ends of the earth, and sees under the whole sky.
 He establishes the force of the wind. Yes, he measures out the waters by measure. 
 When he made a decree for the rain, and a way for the lightning of the thunder, 
 then he saw it, and declared it. He established it, yes, and searched it out. 
-To man he said, 'Behold, the fear of the Lord, that is wisdom. To depart from evil is understanding.'" 
+To man he said, 'Behold, the fear of the Lord, that is wisdom. To depart from what is bad is understanding.'" 

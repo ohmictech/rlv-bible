@@ -1,10 +1,10 @@
 ﻿Now the men of Israel had sworn in Mizpah, saying, "None of us will give his daughter to Benjamin as a wife." 
 The people came to Bethel and sat there until evening before God, and lifted up their voices, and wept severely. 
 They said, "The God of Israel, why has this happened in Israel, that there should be one tribe lacking in Israel today?" 
-On the next day, the people rose early and built an altar there, and offered burnt offerings and peace offerings. 
+On the next day, the people rose early and built an altar there, and offered burnt offerings and offerings for wholeness. 
 The children of Israel said, "Who is there among all the tribes of Israel who didn't come up in the assembly to God?" For they had made a great oath concerning him who didn't come up to God to Mizpah, saying, "He shall surely be put to death." 
 The children of Israel grieved for Benjamin their brother, and said, "There is one tribe cut off from Israel today. 
-How shall we provide wives for those who remain, since we have sworn by God that we will not give them of our daughters to wives?" 
+How shall we provide wives for those who remain, mistakece we have sworn by God that we will not give them of our daughters to wives?" 
 They said, "What one is there of the tribes of Israel who didn't come up to God to Mizpah?" Behold, no one came from Jabesh Gilead to the camp to the assembly. 
 For when the people were counted, behold, there were none of the inhabitants of Jabesh Gilead there. 
 The congregation sent twelve thousand of the most valiant men there, and commanded them, saying, "Go and strike the inhabitants of Jabesh Gilead with the edge of the sword, with the women and the little ones. 
@@ -13,7 +13,7 @@ They found among the inhabitants of Jabesh Gilead four hundred young virgins who
 The whole congregation sent and spoke to the children of Benjamin who were in the rock of Rimmon, and proclaimed peace to them. 
 Benjamin returned at that time; and they gave them the women whom they had saved alive of the women of Jabesh Gilead. There still weren't enough for them. 
 The people grieved for Benjamin, because God had made a breach in the tribes of Israel. 
-Then the elders of the congregation said, "How shall we provide wives for those who remain, since the women are destroyed out of Benjamin?" 
+Then the elders of the congregation said, "How shall we provide wives for those who remain, mistakece the women are destroyed out of Benjamin?" 
 They said, "There must be an inheritance for those who are escaped of Benjamin, that a tribe not be blotted out from Israel. 
 However, we may not give them wives of our daughters, for the children of Israel had sworn, saying, 'Cursed is he who gives a wife to Benjamin.'" 
 They said, "Behold, there is a feast of God from year to year in Shiloh, which is on the north of Bethel, on the east side of the highway that goes up from Bethel to Shechem, and on the south of Lebonah." 

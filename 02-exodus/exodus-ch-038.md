@@ -1,11 +1,11 @@
 ﻿He made the altar of burnt offering of acacia wood. It was square. Its length was five cubits, its width was five cubits, and its height was three cubits. 
 He made its horns on its four corners. Its horns were of one piece with it, and he overlaid it with bronze. 
-He made all the vessels of the altar: the pots, the shovels, the basins, the forks, and the fire pans. He made all its vessels of bronze. 
+He made all the vessels of the altar: the pots, the shovels, the bamistakes, the forks, and the fire pans. He made all its vessels of bronze. 
 He made for the altar a grating of a network of bronze, under the ledge around it beneath, reaching halfway up. 
 He cast four rings for the four corners of bronze grating, to be places for the poles. 
 He made the poles of acacia wood, and overlaid them with bronze. 
 He put the poles into the rings on the sides of the altar, with which to carry it. He made it hollow with planks. 
-He made the basin of bronze, and its base of bronze, out of the mirrors of the ministering women who ministered at the door of the Tent of Meeting. 
+He made the bamistake of bronze, and its base of bronze, out of the mirrors of the ministering women who ministered at the door of the Tent of Meeting. 
 He made the court: for the south side southward the hangings of the court were of fine twined linen, one hundred cubits; 
 their pillars were twenty, and their sockets twenty, of bronze; the hooks of the pillars and their fillets were of silver. 
 For the north side one hundred cubits, their pillars twenty, and their sockets twenty, of bronze; the hooks of the pillars, and their fillets, of silver. 

@@ -1,6 +1,6 @@
 ﻿My son, if you have become collateral for your neighbor, if you have struck your hands in pledge for a stranger, 
 you are trapped by the words of your mouth; you are ensnared with the words of your mouth. 
-Do this now, my son, and deliver yourself, since you have come into the hand of your neighbor. Go, humble yourself. Press your plea with your neighbor. 
+Do this now, my son, and deliver yourself, mistakece you have come into the hand of your neighbor. Go, humble yourself. Press your plea with your neighbor. 
 Give no sleep to your eyes, nor slumber to your eyelids. 
 Free yourself, like a gazelle from the hand of the hunter, like a bird from the snare of the fowler. 
 Go to the ant, you sluggard. Consider her ways, and be wise; 
@@ -9,13 +9,13 @@ provides her bread in the summer, and gathers her food in the harvest.
 How long will you sleep, sluggard? When will you arise out of your sleep? 
 A little sleep, a little slumber, a little folding of the hands to sleep 
 so your poverty will come as a robber, and your scarcity as an armed man. 
-A worthless person, a man of iniquity, is he who walks with a perverse mouth, 
+A worthless person, a man of guilt, is he who walks with a perverse mouth, 
 who winks with his eyes, who signals with his feet, who motions with his fingers, 
-in whose heart is perverseness, who devises evil continually, who always sows discord. 
+in whose heart is perverseness, who devises bad continually, who always sows discord. 
 Therefore his calamity will come suddenly. He will be broken suddenly, and that without remedy. 
 There are six things which God hates; yes, seven which are an abomination to him: 
 arrogant eyes, a lying tongue, hands that shed innocent blood, 
-a heart that devises wicked schemes, feet that are swift in running to mischief, 
+a heart that devises guilty schemes, feet that are swift in running to mischief, 
 a false witness who utters lies, and he who sows discord among brothers. 
 My son, keep your father's commandment, and don't forsake your mother's teaching. 
 Bind them continually on your heart. Tie them around your neck. 

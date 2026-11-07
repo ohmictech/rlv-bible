@@ -17,7 +17,7 @@ Even so, let your light shine in front of people, that they may see your good de
 "Don't think that I came to break up the law or the prophets. I didn't come to break up, but to fill completely. 
 For truly, I tell you, until the sky and earth pass away, not even one smallest letter or one tiny pen stroke will in any way pass away from the law, until all things are accomplished. 
 So whoever breaks one of the least of these commands and teaches others to do the same will be called least in the reign of the sky. But whoever does them and teaches them will be called great in the reign of the sky. 
-For I tell you the truth, unless your rightness runs deeper than the Bible teachers and Pharisees, there is no way you will enter into the reign of the sky. 
+For I tell you the truth, unless your rightness runs deeper than the Bible teachers and strict religious ones, there is no way you will enter into the reign of the sky. 
 "You have heard that it was said to the ancient ones, 'You should not murder,' and 'Whoever murders will be liable to the verdict.' 
 But I tell you that everyone who is angry with his brother without a cause will be liable to the verdict. Whoever says to his brother, 'Empty head!' will be in danger of the council. Whoever says, 'Moron!' will be in danger of the fire of Gehenna. 
 "So if you are offering your gift at the altar and there remember that your brother has something against you, 

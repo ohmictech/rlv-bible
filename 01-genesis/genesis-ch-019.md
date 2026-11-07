@@ -4,7 +4,7 @@ He urged them greatly, and they came in with him, and entered into his house. He
 But before they lay down, the men of the city, the men of Sodom, surrounded the house, both young and old, everyone from every quarter. 
 They called to Lot, and said to him, "Where are the men who came in to you this night? Bring them out to us, that we may have sex with them." 
 Lot went out to them through the door, and shut the door after himself. 
-He said, "Please, my brothers, don't act so wickedly. 
+He said, "Please, my brothers, don't act so guiltyly. 
 See now, I have two virgin daughters. Please let me bring them out to you, and you may do to them what seems good to you. Only don't do anything to these men, because they have come under the shadow of my roof." 
 They said, "Stand back!" Then they said, "This one fellow came in to live as a foreigner, and he appoints himself a judge. Now we will deal worse with you than with them!" They pressed hard on the man Lot, and came near to break the door. 
 But the men reached out their hand, and brought Lot into the house to them, and shut the door. 
@@ -12,11 +12,11 @@ They struck the men who were at the door of the house with blindness, both small
 The men said to Lot, "Do you have anybody else here? Sons-in-law, your sons, your daughters, and whomever you have in the city, bring them out of the place: 
 for we will destroy this place, because the outcry against them has grown so great before God that God has sent us to destroy it." 
 Lot went out, and spoke to his sons-in-law, who were pledged to marry his daughters, and said, "Get up! Get out of this place, for God will destroy the city!" But he seemed to his sons-in-law to be joking. 
-When the morning came, then the messengers hurried Lot, saying, "Get up! Take your wife and your two daughters who are here, lest you be consumed in the iniquity of the city." 
+When the morning came, then the messengers hurried Lot, saying, "Get up! Take your wife and your two daughters who are here, lest you be consumed in the guilt of the city." 
 But he lingered; and the men grabbed his hand, his wife's hand, and his two daughters' hands, God being merciful to him; and they took him out, and set him outside of the city. 
 It came to pass, when they had taken them out, that he said, "Escape for your life! Don't look behind you, and don't stay anywhere in the plain. Escape to the mountains, lest you be consumed!" 
 Lot said to them, "Oh, not so, my lord. 
-See now, your servant has found favor in your sight, and you have magnified your loving kindness, which you have shown to me in saving my life. I can't escape to the mountain, lest evil overtake me, and I die. 
+See now, your servant has found favor in your sight, and you have magnified your loving kindness, which you have shown to me in saving my life. I can't escape to the mountain, lest bad overtake me, and I die. 
 See now, this city is near to flee to, and it is a little one. Oh let me escape there (isn't it a little one?), and my soul will live." 
 He said to him, "Behold, I have granted your request concerning this thing also, that I will not overthrow the city of which you have spoken. 
 Hurry, escape there, for I can't do anything until you get there." Therefore the name of the city was called Zoar. 

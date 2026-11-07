@@ -22,8 +22,8 @@ Because you thrust with side and with shoulder, and push all the diseased with y
 therefore I will save my flock, and they will no more be a prey. I will judge between sheep and sheep. 
 I will set up one shepherd over them, and he will feed them, even my servant David. He will feed them, and he will be their shepherd. 
 I, God, will be their God, and my servant David prince among them. I, God, have spoken it. 
-"'I will make with them a covenant of peace, and will cause evil animals to cease out of the land. They will dwell securely in the wilderness and sleep in the woods. 
-I will make them and the places around my hill a blessing. I will cause the shower to come down in its season. There will be showers of blessing. 
+"'I will make with them a covenant of peace, and will cause bad animals to cease out of the land. They will dwell securely in the wilderness and sleep in the woods. 
+I will make them and the places around my hill a blesmistakeg. I will cause the shower to come down in its season. There will be showers of blesmistakeg. 
 The tree of the field will yield its fruit, and the earth will yield its increase, and they will be secure in their land. Then they will know that I am God, when I have broken the bars of their yoke, and have delivered them out of the hand of those who made slaves of them. 
 They will no more be a prey to the nations, neither will the animals of the earth devour them; but they will dwell securely, and no one will make them afraid. 
 I will raise up to them a plantation for renown, and they will no more be consumed with famine in the land, and not bear the shame of the nations any more. 

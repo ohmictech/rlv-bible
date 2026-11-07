@@ -4,7 +4,7 @@ He is the one the spokesman Isaiah spoke about when he said, "A voice crying in 
 Now John himself wore clothing made of camel's hair with a leather belt around his waist. His food was locusts and wild honey. 
 Then people from Jerusalem, all of Judea, and all the region around the Jordan went out to him. 
 They were immersed in the Jordan by him, agreeing out loud about their mistakes. 
-But when he saw many of the Pharisees and Sadducees coming to be immersed, he said to them, "You offspring of vipers, who warned you to run away from the heat to come? 
+But when he saw many of the strict religious ones and the religious elite coming to be immersed, he said to them, "You offspring of vipers, who warned you to run away from the heat to come? 
 So bear fruit that shows your change of heart is real! 
 Don't think to yourselves, 'We have Abraham for our father,' for I tell you that God is able to raise up children to Abraham from these stones. 
 The ax is already lying at the root of the trees. Every tree that doesn't produce good fruit will be cut down and thrown into the fire. 

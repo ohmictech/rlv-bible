@@ -8,10 +8,10 @@ He got up and went to his house.
 But when the crowds saw it, they were amazed and made much of God, who had given such authority to people. 
 As Jesus went on from there, he saw a man called Matthew sitting at the tax collection office. He said to him, "Follow me." He got up and followed him. 
 As he sat in the house, many tax collectors and those who miss the mark came and sat down with Jesus and his students. 
-When the Pharisees saw it, they said to his students, "Why does your teacher eat with tax collectors and those who miss the mark?" 
+When the strict religious ones saw it, they said to his students, "Why does your teacher eat with tax collectors and those who miss the mark?" 
 When Jesus heard it, he said to them, "Those who are healthy have no need for a doctor, but those who are sick do. 
 But you go and learn what this means: 'I want mercy, and not sacrifice,' for I came not to call the ones who are in the right, but to call those who miss the mark to a change of heart." 
-Then John's students came to him, saying, "Why do we and the Pharisees go without food often, but your students don't go without food?" 
+Then John's students came to him, saying, "Why do we and the strict religious ones go without food often, but your students don't go without food?" 
 Jesus said to them, "Can the friends of the bridegroom mourn as long as the bridegroom is with them? But the days will come when the bridegroom is taken away from them, and then they will go without food. 
 No one puts a piece of unshrunk cloth on an old garment, for the patch would tear away from the garment, and a worse hole is made. 
 Neither do people put new wine into old wineskins, or else the skins would burst, the wine would spill, and the skins would be broken up. No, they put new wine into fresh wineskins, and both are preserved." 
@@ -31,7 +31,7 @@ Then their eyes were opened. Jesus strictly commanded them, saying, "See that no
 But they went out and spread the news about him in all that land. 
 As they went out, suddenly a man who could not speak, possessed by an unclean spirit, was brought to him. 
 When the unclean spirit was driven out, the man who could not speak spoke. The crowds were amazed, saying, "Nothing like this has ever been seen in Israel!" 
-But the Pharisees said, "By the ruler of the unclean spirits, he drives out unclean spirits." 
+But the strict religious ones said, "By the ruler of the unclean spirits, he drives out unclean spirits." 
 Jesus went about all the cities and the villages, teaching in their gathering places and preaching the good news of the reign, and healing every disease and every sickness among the people. 
 But when he saw the crowds, he was moved with deep compassion for them, because they were harassed and scattered, like sheep without a shepherd. 
 Then he said to his students, "The harvest indeed is plentiful, but the workers are few. 

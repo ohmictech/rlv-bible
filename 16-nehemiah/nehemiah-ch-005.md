@@ -1,7 +1,7 @@
 ﻿Then there arose a great cry of the people and of their wives against their brothers the Jews. 
 For there were some who said, "We, our sons and our daughters, are many. Let us get grain, that we may eat and live." 
 There were also some who said, "We are mortgaging our fields, our vineyards, and our houses. Let us get grain, because of the famine." 
-There were also some who said, "We have borrowed money for the king's tribute using our fields and our vineyards as collateral. 
+There were also some who said, "We have borrowed money for the king's tribute umistakeg our fields and our vineyards as collateral. 
 Yet now our flesh is as the flesh of our brothers, our children as their children. Behold, we bring our sons and our daughters into bondage to be servants, and some of our daughters have been brought into bondage. It is also not in our power to help it, because other men have our fields and our vineyards." 
 I was very angry when I heard their cry and these words. 
 Then I consulted with myself, and contended with the nobles and the rulers, and said to them, "You exact usury, everyone of his brother." I held a great assembly against them. 

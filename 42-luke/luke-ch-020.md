@@ -24,7 +24,7 @@ But he perceived their craftiness, and said to them, "Why do you test me?
 Show me a silver coin. Whose image and inscription are on it?" They answered, "Caesar's." 
 He said to them, "Then give to Caesar the things that are Caesar's, and to God the things that are God's." 
 They weren't able to trap him in his words before the people. They were amazed at his answer and were silent. 
-Some of the Sadducees came to him, those who deny that there is a rising from the dead. 
+Some of the religious elite came to him, those who deny that there is a rising from the dead. 
 They asked him, "Teacher, Moses wrote to us that if a man's brother dies having a wife, and he is childless, his brother should take the wife and raise up children for his brother. 
 There were therefore seven brothers. The first took a wife, and died childless. 
 The second took her as wife, and he died childless. 

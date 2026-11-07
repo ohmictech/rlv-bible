@@ -15,21 +15,21 @@ For this time I will send all my plagues against your heart, against your offici
 For now I would have stretched out my hand, and struck you and your people with pestilence, and you would have been cut off from the earth; 
 but indeed for this cause I have made you stand: to show you my power, and that my name may be declared throughout all the earth, 
 because you still exalt yourself against my people, that you won't let them go. 
-Behold, tomorrow about this time I will cause it to rain a very grievous hail, such as has not been in Egypt since the day it was founded even until now. 
+Behold, tomorrow about this time I will cause it to rain a very grievous hail, such as has not been in Egypt mistakece the day it was founded even until now. 
 Now therefore command that all of your livestock and all that you have in the field be brought into shelter. The hail will come down on every man and animal that is found in the field, and isn't brought home, and they will die."'" 
 Those who feared God's word among the servants of Pharaoh made their servants and their livestock flee into the houses. 
 Whoever didn't respect God's word left his servants and his livestock in the field. 
 God said to Moses, "Stretch out your hand toward the sky, that there may be hail in all the land of Egypt, on man, and on animal, and on every herb of the field, throughout the land of Egypt." 
 Moses stretched out his rod toward the heavens, and God sent thunder and hail; and lightning flashed down to the earth. God rained hail on the land of Egypt. 
-So there was very severe hail, and lightning mixed with the hail, such as had not been in all the land of Egypt since it became a nation. 
+So there was very severe hail, and lightning mixed with the hail, such as had not been in all the land of Egypt mistakece it became a nation. 
 The hail struck throughout all the land of Egypt all that was in the field, both man and animal; and the hail struck every herb of the field, and broke every tree of the field. 
 Only in the land of Goshen, where the children of Israel were, there was no hail. 
-Pharaoh sent and called for Moses and Aaron, and said to them, "I have sinned this time. God is righteous, and I and my people are wicked. 
+Pharaoh sent and called for Moses and Aaron, and said to them, "I have missed the mark this time. God is righteous, and I and my people are guilty. 
 Pray to God; for there has been enough of mighty thunderings and hail. I will let you go, and you shall stay no longer." 
 Moses said to him, "As soon as I have gone out of the city, I will spread out my hands to God. The thunders shall cease, and there will not be any more hail; that you may know that the earth is God's. 
 But as for you and your servants, I know that you don't yet fear God." 
 The flax and the barley were struck, for the barley had ripened and the flax was blooming. 
 But the wheat and the spelt were not struck, for they had not grown up. 
 Moses went out of the city from Pharaoh, and spread out his hands to God; and the thunders and hail ceased, and the rain was not poured on the earth. 
-When Pharaoh saw that the rain and the hail and the thunders had ceased, he sinned yet more, and hardened his heart, he and his servants. 
+When Pharaoh saw that the rain and the hail and the thunders had ceased, he missed the mark yet more, and hardened his heart, he and his servants. 
 The heart of Pharaoh was hardened, and he didn't let the children of Israel go, just as God had spoken through Moses. 

@@ -3,20 +3,20 @@
 if, when he sees the sword come on the land, he blows the trumpet and warns the people, 
 then whoever hears the sound of the trumpet and doesn't heed the warning, if the sword comes and takes him away, his blood will be on his own head. 
 He heard the sound of the trumpet and didn't take warning. His blood will be on him; whereas if he had heeded the warning, he would have delivered his soul. 
-But if the watchman sees the sword come and doesn't blow the trumpet, and the people aren't warned, and the sword comes and takes any person from among them, he is taken away in his iniquity, but his blood I will require at the watchman's hand.' 
+But if the watchman sees the sword come and doesn't blow the trumpet, and the people aren't warned, and the sword comes and takes any person from among them, he is taken away in his guilt, but his blood I will require at the watchman's hand.' 
 "So you, son of man, I have set you a watchman to the house of Israel. Therefore hear the word from my mouth, and give them warnings from me. 
-When I tell the wicked, 'O wicked man, you will surely die,' and you don't speak to warn the wicked from his way, that wicked man will die in his iniquity, but I will require his blood at your hand. 
-Nevertheless, if you warn the wicked of his way to turn from it, and he doesn't turn from his way; he will die in his iniquity, but you have delivered your soul. 
-"You, son of man, tell the house of Israel: 'You say this, "Our transgressions and our sins are on us, and we pine away in them. How then can we live?"' 
-Tell them, '"As I live," says God, "I have no pleasure in the death of the wicked, but that the wicked turn from his way and live. Turn, turn from your evil ways! For why will you die, house of Israel?"' 
-"You, son of man, tell the children of your people, 'The righteousness of the righteous will not deliver him in the day of his disobedience. And as for the wickedness of the wicked, he will not fall by it in the day that he turns from his wickedness; neither will he who is righteous be able to live by it in the day that he sins. 
-When I tell the righteous that he will surely live, if he trusts in his righteousness and commits iniquity, none of his righteous deeds will be remembered; but he will die in his iniquity that he has committed. 
-Again, when I say to the wicked, "You will surely die," if he turns from his sin and does that which is lawful and right, 
-if the wicked restore the pledge, give again that which he had taken by robbery, walk in the statutes of life, committing no iniquity, he will surely live. He will not die. 
-None of his sins that he has committed will be remembered against him. He has done that which is lawful and right. He will surely live. 
+When I tell the guilty, 'O guilty man, you will surely die,' and you don't speak to warn the guilty from his way, that guilty man will die in his guilt, but I will require his blood at your hand. 
+Nevertheless, if you warn the guilty of his way to turn from it, and he doesn't turn from his way; he will die in his guilt, but you have delivered your soul. 
+"You, son of man, tell the house of Israel: 'You say this, "Our rebellion and our mistakes are on us, and we pine away in them. How then can we live?"' 
+Tell them, '"As I live," says God, "I have no pleasure in the death of the guilty, but that the guilty turn from his way and live. Turn, turn from your bad ways! For why will you die, house of Israel?"' 
+"You, son of man, tell the children of your people, 'The righteousness of the righteous will not deliver him in the day of his disobedience. And as for the guilt of the guilty, he will not fall by it in the day that he turns from his guilt; neither will he who is righteous be able to live by it in the day that he misses the mark. 
+When I tell the righteous that he will surely live, if he trusts in his righteousness and commits guilt, none of his righteous deeds will be remembered; but he will die in his guilt that he has committed. 
+Again, when I say to the guilty, "You will surely die," if he turns from his mistake and does that which is lawful and right, 
+if the guilty restore the pledge, give again that which he had taken by robbery, walk in the statutes of life, committing no guilt, he will surely live. He will not die. 
+None of his mistakes that he has committed will be remembered against him. He has done that which is lawful and right. He will surely live. 
 "'Yet the children of your people say, "The way of the Lord is not fair;" but as for them, their way is not fair. 
-When the righteous turns from his righteousness and commits iniquity, he will even die therein. 
-When the wicked turns from his wickedness and does that which is lawful and right, he will live by it. 
+When the righteous turns from his righteousness and commits guilt, he will even die therein. 
+When the guilty turns from his guilt and does that which is lawful and right, he will live by it. 
 Yet you say, "The way of the Lord is not fair." House of Israel, I will judge every one of you after his ways.'" 
 In the twelfth year of our captivity, in the tenth month, in the fifth day of the month, one who had escaped out of Jerusalem came to me, saying, "The city has been defeated!" 
 Now God's hand had been on me in the evening, before he who had escaped came; and he had opened my mouth until he came to me in the morning; and my mouth was opened, and I was no longer mute. 

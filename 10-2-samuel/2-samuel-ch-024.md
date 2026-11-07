@@ -7,14 +7,14 @@ then they came to Gilead and to the land of Tahtim Hodshi; and they came to Dan 
 and came to the stronghold of Tyre, and to all the cities of the Hivites and of the Canaanites; and they went out to the south of Judah, at Beersheba. 
 So when they had gone back and forth through all the land, they came to Jerusalem at the end of nine months and twenty days. 
 Joab gave up the sum of the counting of the people to the king; and there were in Israel eight hundred thousand valiant men who drew the sword, and the men of Judah were five hundred thousand men. 
-David's heart struck him after he had counted the people. David said to God, "I have sinned greatly in that which I have done. But now, God, put away, I beg you, the iniquity of your servant; for I have done very foolishly." 
+David's heart struck him after he had counted the people. David said to God, "I have missed the mark greatly in that which I have done. But now, God, put away, I beg you, the guilt of your servant; for I have done very foolishly." 
 When David rose up in the morning, God's word came to the spokesman Gad, David's seer, saying, 
 "Go and speak to David, 'God says, "I offer you three things. Choose one of them, that I may do it to you."'" 
 So Gad came to David, and told him, saying, "Shall seven years of famine come to you in your land? Or will you flee three months before your foes while they pursue you? Or shall there be three days' pestilence in your land? Now answer, and consider what answer I shall return to him who sent me." 
 David said to Gad, "I am in distress. Let us fall now into God's hand, for his mercies are great. Let me not fall into man's hand." 
 So God sent a pestilence on Israel from the morning even to the appointed time; and seventy thousand men died of the people from Dan even to Beersheba. 
 When the messenger stretched out his hand toward Jerusalem to destroy it, God relented of the disaster, and said to the messenger who destroyed the people, "It is enough. Now withdraw your hand." God's messenger was by the threshing floor of Araunah the Jebusite. 
-David spoke to God when he saw the messenger who struck the people, and said, "Behold, I have sinned, and I have done perversely; but these sheep, what have they done? Please let your hand be against me, and against my father's house." 
+David spoke to God when he saw the messenger who struck the people, and said, "Behold, I have missed the mark, and I have done perversely; but these sheep, what have they done? Please let your hand be against me, and against my father's house." 
 Gad came that day to David and said to him, "Go up, build an altar to God on the threshing floor of Araunah the Jebusite." 
 David went up according to the saying of Gad, as God commanded. 
 Araunah looked out, and saw the king and his servants coming on toward him. Then Araunah went out and bowed himself before the king with his face to the ground. 
@@ -22,4 +22,4 @@ Araunah said, "Why has my lord the king come to his servant?" David said, "To bu
 Araunah said to David, "Let my lord the king take and offer up what seems good to him. Behold, the cattle for the burnt offering, and the threshing sledges and the yokes of the oxen for the wood. 
 All this, O king, does Araunah give to the king." Araunah said to the king, "May your God accept you." 
 The king said to Araunah, "No, but I will most certainly buy it from you for a price. I will not offer burnt offerings to my God which cost me nothing." So David bought the threshing floor and the oxen for fifty shekels of silver. 
-David built an altar to God there, and offered burnt offerings and peace offerings. So God was entreated for the land, and the plague was removed from Israel. 
+David built an altar to God there, and offered burnt offerings and offerings for wholeness. So God was entreated for the land, and the plague was removed from Israel. 

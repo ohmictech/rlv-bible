@@ -8,7 +8,7 @@ I will give thanks to you with uprightness of heart, when I learn your righteous
 I will observe your statutes. Don't utterly forsake me. BETH 
 How can a young man keep his way pure? By living according to your word. 
 With my whole heart I have sought you. Don't let me wander from your commandments. 
-I have hidden your word in my heart, that I might not sin against you. 
+I have hidden your word in my heart, that I might not wrong you. 
 Blessed are you, God. Teach me your statutes. 
 With my lips, I have declared all the ordinances of your mouth. 
 I have rejoiced in the way of your testimonies, as much as in all riches. 
@@ -50,7 +50,7 @@ Remember your word to your servant, because you gave me hope.
 This is my comfort in my affliction, for your word has revived me. 
 The arrogant mock me excessively, but I don't swerve from your law. 
 I remember your ordinances of old, God, and have comforted myself. 
-Indignation has taken hold on me, because of the wicked who forsake your law. 
+Indignation has taken hold on me, because of the guilty who forsake your law. 
 Your statutes have been my songs in the house where I live. 
 I have remembered your name, God, in the night, and I obey your law. 
 This is my way, that I keep your precepts. HETH 
@@ -58,7 +58,7 @@ God is my portion. I promised to obey your words.
 I sought your favor with my whole heart. Be merciful to me according to your word. 
 I considered my ways, and turned my steps to your statutes. 
 I will hurry, and not delay, to obey your commandments. 
-The ropes of the wicked bind me, but I won't forget your law. 
+The ropes of the guilty bind me, but I won't forget your law. 
 At midnight I will rise to give thanks to you, because of your righteous ordinances. 
 I am a friend of everyone who fears you, of those who observe your precepts. 
 The earth is full of your loving kindness, God. Teach me your statutes. TETH 
@@ -92,13 +92,13 @@ Your laws remain to this day, for all things serve you.
 Unless your law had been my delight, I would have perished in my affliction. 
 I will never forget your precepts, for with them, you have revived me. 
 I am yours. Save me, for I have sought your precepts. 
-The wicked have waited for me, to destroy me. I will consider your statutes. 
+The guilty have waited for me, to destroy me. I will consider your statutes. 
 I have seen a limit to all perfection, but your commands are boundless. MEM 
 How I love your law! It is my meditation all day. 
 Your commandments make me wiser than my enemies, for your commandments are always with me. 
 I have more understanding than all my teachers, for your testimonies are my meditation. 
 I understand more than the aged, because I have kept your precepts. 
-I have kept my feet from every evil way, that I might observe your word. 
+I have kept my feet from every bad way, that I might observe your word. 
 I have not turned away from your ordinances, for you have taught me. 
 How sweet are your promises to my taste, more than honey to my mouth! 
 Through your precepts, I get understanding; therefore I hate every false way. NUN 
@@ -107,16 +107,16 @@ I have sworn, and have confirmed it, that I will obey your righteous ordinances.
 I am afflicted very much. Revive me, God, according to your word. 
 Accept, I beg you, the willing offerings of my mouth. God, teach me your ordinances. 
 My soul is continually in my hand, yet I won't forget your law. 
-The wicked have laid a snare for me, yet I haven't gone astray from your precepts. 
+The guilty have laid a snare for me, yet I haven't gone astray from your precepts. 
 I have taken your testimonies as a heritage for the eras, for they are the joy of my heart. 
 I have set my heart to perform your statutes for the eras, even to the end. SAMEKH 
 I hate double-minded men, but I love your law. 
 You are my hiding place and my shield. I hope in your word. 
-Depart from me, you evildoers, that I may keep the commandments of my God. 
+Depart from me, you those who do bad, that I may keep the commandments of my God. 
 Uphold me according to your word, that I may live. Let me not be ashamed of my hope. 
 Hold me up, and I will be safe, and will have respect for your statutes continually. 
 You reject everyone who strays from your statutes, for their deceit is in vain. 
-You put away all the wicked of the earth like dross. Therefore I love your testimonies. 
+You put away all the guilty of the earth like dross. Therefore I love your testimonies. 
 My flesh trembles for fear of you. I am afraid of your judgments. AYIN 
 I have done what is just and righteous. Don't leave me to my oppressors. 
 Ensure your servant's well-being. Don't let the proud oppress me. 
@@ -130,7 +130,7 @@ Your testimonies are wonderful, therefore my soul keeps them.
 The entrance of your words gives light. It gives understanding to the simple. 
 I opened my mouth wide and panted, for I longed for your commandments. 
 Turn to me, and have mercy on me, as you always do to those who love your name. 
-Establish my footsteps in your word. Don't let any iniquity have dominion over me. 
+Establish my footsteps in your word. Don't let any guilt have dominion over me. 
 Buy me back from the oppression of man, so I will observe your precepts. 
 Make your face shine on your servant. Teach me your statutes. 
 Streams of tears run down my eyes, because they don't observe your law. TZADHE 
@@ -147,12 +147,12 @@ I have called to you. Save me! I will obey your statutes.
 I rise before dawn and cry for help. I put my hope in your words. 
 My eyes stay open through the night watches, that I might meditate on your word. 
 Hear my voice according to your loving kindness. Revive me, God, according to your ordinances. 
-They draw near who follow after wickedness. They are far from your law. 
+They draw near who follow after guilt. They are far from your law. 
 You are near, God. All your commandments are truth. 
 Of old I have known from your testimonies, that you have founded them for the eras. RESH 
 Consider my affliction, and deliver me, for I don't forget your law. 
 Plead my cause, and buy me back! Revive me according to your promise. 
-Salvation is far from the wicked, for they don't seek your statutes. 
+Salvation is far from the guilty, for they don't seek your statutes. 
 Great are your tender mercies, God. Revive me according to your ordinances. 
 Many are my persecutors and my adversaries. I haven't swerved from your testimonies. 
 I look at the faithless with loathing, because they don't observe your word. 
@@ -169,7 +169,7 @@ I have obeyed your precepts and your testimonies, for all my ways are before you
 Let my cry come before you, God. Give me understanding according to your word. 
 Let my supplication come before you. Deliver me according to your word. 
 Let my lips utter praise, for you teach me your statutes. 
-Let my tongue sing of your word, for all your commandments are righteousness. 
+Let my tongue mistakeg of your word, for all your commandments are righteousness. 
 Let your hand be ready to help me, for I have chosen your precepts. 
 I have longed for your salvation, God. Your law is my delight. 
 Let my soul live, that I may praise you. Let your ordinances help me. 

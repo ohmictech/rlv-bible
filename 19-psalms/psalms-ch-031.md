@@ -7,14 +7,14 @@ I hate those who regard lying vanities, but I trust in God.
 I will be glad and rejoice in your loving kindness, for you have seen my affliction. You have known my soul in adversities. 
 You have not shut me up into the hand of the enemy. You have set my feet in a large place. 
 Have mercy on me, God, for I am in distress. My eye, my soul, and my body waste away with grief. 
-For my life is spent with sorrow, my years with sighing. My strength fails because of my iniquity. My bones are wasted away. 
+For my life is spent with sorrow, my years with sighing. My strength fails because of my guilt. My bones are wasted away. 
 Because of all my adversaries I have become utterly contemptible to my neighbors, a horror to my acquaintances. Those who saw me on the street fled from me. 
 I am forgotten from their hearts like a dead man. I am like broken pottery. 
 For I have heard the slander of many, terror on every side, while they conspire together against me, they plot to take away my life. 
 But I trust in you, God. I said, "You are my God." 
 My times are in your hand. Deliver me from the hand of my enemies, and from those who persecute me. 
 Make your face to shine on your servant. Save me in your loving kindness. 
-Let me not be disappointed, God, for I have called on you. Let the wicked be disappointed. Let them be silent in Hades. 
+Let me not be disappointed, God, for I have called on you. Let the guilty be disappointed. Let them be silent in Hades. 
 Let the lying lips be mute, which speak against the righteous insolently, with pride and contempt. 
 Oh how great is your goodness, which you have laid up for those who fear you, which you have worked for those who take refuge in you, before the sons of men! 
 In the shelter of your presence you will hide them from the plotting of man. You will keep them secretly in a dwelling away from the strife of tongues. 

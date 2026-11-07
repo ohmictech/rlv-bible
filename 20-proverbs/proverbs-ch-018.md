@@ -1,8 +1,8 @@
 ﻿A man who isolates himself pursues selfishness, and defies all sound judgment. 
 A fool has no delight in understanding, but only in revealing his own opinion. 
-When wickedness comes, contempt also comes, and with shame comes disgrace. 
+When guilt comes, contempt also comes, and with shame comes disgrace. 
 The words of a man's mouth are like deep waters. The fountain of wisdom is like a flowing brook. 
-To be partial to the faces of the wicked is not good, nor to deprive the innocent of justice. 
+To be partial to the faces of the guilty is not good, nor to deprive the innocent of justice. 
 A fool's lips come into strife, and his mouth invites beatings. 
 A fool's mouth is his destruction, and his lips are a snare to his soul. 
 The words of a gossip are like dainty morsels: they go down into a person's innermost parts. 

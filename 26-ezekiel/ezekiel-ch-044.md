@@ -7,9 +7,9 @@ You shall tell the rebellious, even the house of Israel, 'The God says: "You hou
 in that you have brought in foreigners, uncircumcised in heart and uncircumcised in flesh, to be in my sanctuary, to profane it, even my house, when you offer my bread, the fat and the blood; and they have broken my covenant, to add to all your abominations. 
 You have not performed the duty of my holy things; but you have set performers of my duty in my sanctuary for yourselves." 
 The God says, "No foreigner, uncircumcised in heart and uncircumcised in flesh, shall enter into my sanctuary, of any foreigners who are among the children of Israel. 
-"'"But the Levites who went far from me when Israel went astray, who went astray from me after their idols, they will bear their iniquity. 
+"'"But the Levites who went far from me when Israel went astray, who went astray from me after their idols, they will bear their guilt. 
 Yet they shall be ministers in my sanctuary, having oversight at the gates of the house, and ministering in the house. They shall kill the burnt offering and the sacrifice for the people, and they shall stand before them to minister to them. 
-Because they ministered to them before their idols, and became a stumbling block of iniquity to the house of Israel, therefore I have lifted up my hand against them," says God, "and they will bear their iniquity. 
+Because they ministered to them before their idols, and became a stumbling block of guilt to the house of Israel, therefore I have lifted up my hand against them," says God, "and they will bear their guilt. 
 They shall not come near to me, to execute the office of priest to me, nor to come near to any of my holy things, to the things that are most holy; but they will bear their shame and their abominations which they have committed. 
 Yet I will make them performers of the duty of the house, for all its service and for all that will be done therein. 
 "'"But the Levitical priests, the sons of Zadok, who performed the duty of my sanctuary when the children of Israel went astray from me, shall come near to me to minister to me. They shall stand before me to offer to me the fat and the blood," says God. 
@@ -24,8 +24,8 @@ They shall teach my people the difference between the holy and the common, and c
 "'"In a controversy they shall stand to judge. They shall judge it according to my ordinances. They shall keep my laws and my statutes in all my appointed feasts. They shall make my Sabbaths holy. 
 "'"They shall go in to no dead person to defile themselves; but for father, or for mother, or for son, or for daughter, for brother, or for sister who has had no husband, they may defile themselves. 
 After he is cleansed, they shall reckon to him seven days. 
-In the day that he goes into the sanctuary, into the inner court, to minister in the sanctuary, he shall offer his sin offering," says God. 
+In the day that he goes into the sanctuary, into the inner court, to minister in the sanctuary, he shall offer his offering for mistakes," says God. 
 "'They shall have an inheritance: I am their inheritance; and you shall give them no possession in Israel. I am their possession. 
-They shall eat the meal offering, and the sin offering, and the trespass offering; and every devoted thing in Israel shall be theirs. 
-The first of all the first fruits of every thing, and every offering of everything, of all your offerings, shall be for the priest. You shall also give to the priests the first of your dough, to cause a blessing to rest on your house. 
+They shall eat the meal offering, and the offering for mistakes, and the trespass offering; and every devoted thing in Israel shall be theirs. 
+The first of all the first fruits of every thing, and every offering of everything, of all your offerings, shall be for the priest. You shall also give to the priests the first of your dough, to cause a blesmistakeg to rest on your house. 
 The priests shall not eat of anything that dies of itself or is torn, whether it is bird or animal. 

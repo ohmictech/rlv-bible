@@ -16,7 +16,7 @@ He went up against the inhabitants of Debir: now the name of Debir before was Ki
 Caleb said, "He who strikes Kiriath Sepher, and takes it, to him I will give Achsah my daughter as wife." 
 Othniel the son of Kenaz, the brother of Caleb, took it: and he gave him Achsah his daughter as wife. 
 When she came, she had him ask her father for a field. She got off her donkey, and Caleb said, "What do you want?" 
-She said, "Give me a blessing. Because you have set me in the land of the South, give me also springs of water." So he gave her the upper springs and the lower springs. 
+She said, "Give me a blesmistakeg. Because you have set me in the land of the South, give me also springs of water." So he gave her the upper springs and the lower springs. 
 This is the inheritance of the tribe of the children of Judah according to their families. 
 The farthest cities of the tribe of the children of Judah toward the border of Edom in the South were Kabzeel, Eder, Jagur, 
 Kinah, Dimonah, Adadah, 

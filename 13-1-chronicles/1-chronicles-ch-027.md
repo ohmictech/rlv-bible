@@ -29,6 +29,6 @@ Over the olive trees and the sycamore trees that were in the lowland was Baal Ha
 Over the herds that fed in Sharon was Shitrai the Sharonite. Over the herds that were in the valleys was Shaphat the son of Adlai. 
 Over the camels was Obil the Ishmaelite. Over the donkeys was Jehdeiah the Meronothite. Over the flocks was Jaziz the Hagrite. 
 All these were the rulers of the property which was King David's. 
-Also Jonathan, David's uncle, was a counselor, a man of understanding, and a scribe. Jehiel the son of Hachmoni was with the king's sons. 
+Also Jonathan, David's uncle, was a counselor, a man of understanding, and a Bible teacher. Jehiel the son of Hachmoni was with the king's sons. 
 Ahithophel was the king's counselor. Hushai the Archite was the king's friend. 
 After Ahithophel was Jehoiada the son of Benaiah, and Abiathar. Joab was the captain of the king's army. 

@@ -14,7 +14,7 @@ Then Tattenai, the governor beyond the River, Shetharbozenai, and their companio
 The elders of the Jews built and prospered, through the prophesying of Haggai the spokesman and Zechariah the son of Iddo. They built and finished it, according to the commandment of the God of Israel, and according to the decree of Cyrus, Darius, and Artaxerxes king of Persia. 
 This house was finished on the third day of the month Adar, which was in the sixth year of the reign of Darius the king. 
 The children of Israel, the priests, the Levites, and the rest of the children of the captivity, kept the dedication of this house of God with joy. 
-They offered at the dedication of this house of God one hundred bulls, two hundred rams, four hundred lambs; and for a sin offering for all Israel, twelve male goats, according to the number of the tribes of Israel. 
+They offered at the dedication of this house of God one hundred bulls, two hundred rams, four hundred lambs; and for an offering for mistakes for all Israel, twelve male goats, according to the number of the tribes of Israel. 
 They set the priests in their divisions and the Levites in their courses, for the service of God which is at Jerusalem, as it is written in the book of Moses. 
 The children of the captivity kept the Passover on the fourteenth day of the first month. 
 Because the priests and the Levites had purified themselves together, everyone was pure. They killed the Passover for all the children of the captivity, for their brothers the priests, and for themselves. 

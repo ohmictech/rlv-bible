@@ -49,5 +49,5 @@ Also thus said the king, 'Blessed be the God of Israel, who has given one to sit
 All the guests of Adonijah were afraid, and rose up, and each man went his way. 
 Adonijah was afraid because of Solomon; and he arose, and went, and hung onto the horns of the altar. 
 Solomon was told, "Behold, Adonijah fears King Solomon; for, behold, he is hanging onto the horns of the altar, saying, 'Let King Solomon swear to me first that he will not kill his servant with the sword.'" 
-Solomon said, "If he shows himself a worthy man, not a hair of his shall fall to the earth; but if wickedness is found in him, he shall die." 
+Solomon said, "If he shows himself a worthy man, not a hair of his shall fall to the earth; but if guilt is found in him, he shall die." 
 So King Solomon sent, and they brought him down from the altar. He came and bowed down to King Solomon; and Solomon said to him, "Go to your house." 

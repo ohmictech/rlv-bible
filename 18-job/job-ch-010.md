@@ -1,18 +1,18 @@
 ﻿"My soul is weary of my life. I will give free course to my complaint. I will speak in the bitterness of my soul. 
 I will tell God, 'Do not condemn me. Show me why you contend with me. 
-Is it good to you that you should oppress, that you should despise the work of your hands, and smile on the counsel of the wicked? 
+Is it good to you that you should oppress, that you should despise the work of your hands, and smile on the counsel of the guilty? 
 Do you have eyes of flesh? Or do you see as man sees? 
 Are your days as the days of mortals, or your years as man's years, 
-that you inquire after my iniquity, and search after my sin? 
-Although you know that I am not wicked, there is no one who can deliver out of your hand. 
+that you inquire after my guilt, and search after my mistake? 
+Although you know that I am not guilty, there is no one who can deliver out of your hand. 
 "'Your hands have framed me and fashioned me altogether, yet you destroy me. 
 Remember, I beg you, that you have fashioned me as clay. Will you bring me into dust again? 
 Haven't you poured me out like milk, and curdled me like cheese? 
-You have clothed me with skin and flesh, and knit me together with bones and sinews. 
+You have clothed me with skin and flesh, and knit me together with bones and misses the markews. 
 You have granted me life and loving kindness. Your visitation has preserved my spirit. 
 Yet you hid these things in your heart. I know that this is with you: 
-if I sin, then you mark me. You will not acquit me from my iniquity. 
-If I am wicked, woe to me. If I am righteous, I still will not lift up my head, being filled with disgrace, and conscious of my affliction. 
+if I miss the mark, then you mark me. You will not acquit me from my guilt. 
+If I am guilty, woe to me. If I am righteous, I still will not lift up my head, being filled with disgrace, and conscious of my affliction. 
 If my head is held high, you hunt me like a lion. Again you show yourself powerful to me. 
 You renew your witnesses against me, and increase your indignation on me. Changes and warfare are with me. 
 "'Why, then, have you brought me out of the womb? I wish I had given up the spirit, and no eye had seen me. 

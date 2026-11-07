@@ -12,12 +12,12 @@ When the inhabitants of the land, the Canaanites, saw the mourning in the floor 
 His sons did to him just as he commanded them, 
 for his sons carried him into the land of Canaan, and buried him in the cave of the field of Machpelah, which Abraham bought with the field, as a possession for a burial site, from Ephron the Hittite, near Mamre. 
 Joseph returned into Egypt, he, and his brothers, and all that went up with him to bury his father, after he had buried his father. 
-When Joseph's brothers saw that their father was dead, they said, "It may be that Joseph will hate us, and will fully pay us back for all the evil which we did to him." 
+When Joseph's brothers saw that their father was dead, they said, "It may be that Joseph will hate us, and will fully pay us back for all the bad which we did to him." 
 They sent a message to Joseph, saying, "Your father commanded before he died, saying, 
-'You shall tell Joseph, "Now please forgive the disobedience of your brothers, and their sin, because they did evil to you."' Now, please forgive the disobedience of the servants of the God of your father." Joseph wept when they spoke to him. 
+'You shall tell Joseph, "Now please forgive the disobedience of your brothers, and their mistake, because they did bad to you."' Now, please forgive the disobedience of the servants of the God of your father." Joseph wept when they spoke to him. 
 His brothers also went and fell down before his face; and they said, "Behold, we are your servants." 
 Joseph said to them, "Don't be afraid, for am I in the place of God? 
-As for you, you meant evil against me, but God meant it for good, to save many people alive, as is happening today. 
+As for you, you meant bad against me, but God meant it for good, to save many people alive, as is happening today. 
 Now therefore don't be afraid. I will provide for you and your little ones." He comforted them, and spoke kindly to them. 
 Joseph lived in Egypt, he, and his father's house. Joseph lived one hundred ten years. 
 Joseph saw Ephraim's children to the third generation. The children also of Machir, the son of Manasseh, were born on Joseph's knees. 

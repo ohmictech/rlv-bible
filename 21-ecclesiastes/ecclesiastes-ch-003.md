@@ -13,8 +13,8 @@ I know that there is nothing better for them than to rejoice, and to do good as 
 Also that every man should eat and drink, and enjoy good in all his labor, is the gift of God. 
 I know that whatever God does, it shall be for the eras. Nothing can be added to it, nor anything taken from it; and God has done it, that men should fear before him. 
 That which is has been long ago, and that which is to be has been long ago. God seeks again that which is passed away. 
-Moreover I saw under the sun, in the place of justice, that wickedness was there; and in the place of righteousness, that wickedness was there. 
-I said in my heart, "God will judge the righteous and the wicked; for there is a time there for every purpose and for every work." 
+Moreover I saw under the sun, in the place of justice, that guilt was there; and in the place of righteousness, that guilt was there. 
+I said in my heart, "God will judge the righteous and the guilty; for there is a time there for every purpose and for every work." 
 I said in my heart, "As for the sons of men, God tests them, so that they may see that they themselves are like animals. 
 For that which happens to the sons of men happens to animals. Even one thing happens to them. As the one dies, so the other dies. Yes, they have all one breath; and man has no advantage over the animals, for all is vanity. 
 All go to one place. All are from the dust, and all turn to dust again. 

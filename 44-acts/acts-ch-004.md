@@ -1,4 +1,4 @@
-﻿As they spoke to the people, the priests and the captain of the temple and the Sadducees came to them, 
+﻿As they spoke to the people, the priests and the captain of the temple and the religious elite came to them, 
 being upset because they taught the people and proclaimed in Jesus the rising from the dead. 
 They laid hands on them, and put them in custody until the next day, for it was now evening. 
 But many of those who heard the word trusted, and the number of the men came to be about five thousand. 

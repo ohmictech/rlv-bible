@@ -36,4 +36,4 @@ Jonadab said to the king, "Behold, the king's sons are coming! It is as your ser
 As soon as he had finished speaking, behold, the king's sons came, and lifted up their voices and wept. The king also and all his servants wept bitterly. 
 But Absalom fled and went to Talmai the son of Ammihur, king of Geshur. David mourned for his son every day. 
 So Absalom fled and went to Geshur, and was there three years. 
-King David longed to go out to Absalom, for he was comforted concerning Amnon, since he was dead. 
+King David longed to go out to Absalom, for he was comforted concerning Amnon, mistakece he was dead. 

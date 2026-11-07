@@ -10,8 +10,8 @@ Therefore Eli said to Samuel, "Go, lie down. It shall be, if he calls you, that 
 God came, and stood, and called as at other times, "Samuel! Samuel!" Then Samuel said, "Speak; for your servant hears." 
 God said to Samuel, "Behold, I will do a thing in Israel at which both the ears of everyone who hears it will tingle. 
 In that day I will perform against Eli all that I have spoken concerning his house, from the beginning even to the end. 
-For I have told him that I will judge his house for the eras for the iniquity which he knew, because his sons brought a curse on themselves, and he didn't restrain them. 
-Therefore I have sworn to the house of Eli that the iniquity of Eli's house shall not be removed with sacrifice or offering for the eras." 
+For I have told him that I will judge his house for the eras for the guilt which he knew, because his sons brought a curse on themselves, and he didn't restrain them. 
+Therefore I have sworn to the house of Eli that the guilt of Eli's house shall not be removed with sacrifice or offering for the eras." 
 Samuel lay until the morning, and opened the doors of God's house. Samuel was afraid to show Eli the vision. 
 Then Eli called Samuel and said, "Samuel, my son!" He said, "Here I am." 
 He said, "What is the thing that he has spoken to you? Please don't hide it from me. God do so to you, and more also, if you hide anything from me of all the things that he spoke to you." 

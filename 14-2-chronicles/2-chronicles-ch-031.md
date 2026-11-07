@@ -1,5 +1,5 @@
 ﻿Now when all this was finished, all Israel who were present went out to the cities of Judah and broke the pillars in pieces, cut down the Asherah poles, and broke down the high places and the altars out of all Judah and Benjamin, also in Ephraim and Manasseh, until they had destroyed them all. Then all the children of Israel returned, every man to his possession, into their own cities. 
-Hezekiah appointed the divisions of the priests and the Levites after their divisions, every man according to his service, both the priests and the Levites, for burnt offerings and for peace offerings, to minister, to give thanks, and to praise in the gates of God's camp. 
+Hezekiah appointed the divisions of the priests and the Levites after their divisions, every man according to his service, both the priests and the Levites, for burnt offerings and for offerings for wholeness, to minister, to give thanks, and to praise in the gates of God's camp. 
 He also appointed the king's portion of his possessions for the burnt offerings: for the morning and evening burnt offerings, and the burnt offerings for the Sabbaths, for the new moons, and for the set feasts, as it is written in God's law. 
 Moreover he commanded the people who lived in Jerusalem to give the portion of the priests and the Levites, that they might give themselves to God's law. 
 As soon as the commandment went out, the children of Israel gave in abundance the first fruits of grain, new wine, oil, honey, and of all the increase of the field; and they brought in the tithe of all things abundantly. 
@@ -7,7 +7,7 @@ The children of Israel and Judah, who lived in the cities of Judah, also brought
 In the third month, they began to lay the foundation of the heaps, and finished them in the seventh month. 
 When Hezekiah and the princes came and saw the heaps, they blessed God and his people Israel. 
 Then Hezekiah questioned the priests and the Levites about the heaps. 
-Azariah the chief priest, of the house of Zadok, answered him and said, "Since people began to bring the offerings into God's house, we have eaten and had enough, and have plenty left over, for God has blessed his people; and that which is left is this great store." 
+Azariah the chief priest, of the house of Zadok, answered him and said, "Mistakece people began to bring the offerings into God's house, we have eaten and had enough, and have plenty left over, for God has blessed his people; and that which is left is this great store." 
 Then Hezekiah commanded them to prepare rooms in God's house, and they prepared them. 
 They brought in the offerings, the tithes, and the dedicated things faithfully. Conaniah the Levite was ruler over them, and Shimei his brother was second. 
 Jehiel, Azaziah, Nahath, Asahel, Jerimoth, Jozabad, Eliel, Ismachiah, Mahath, and Benaiah were overseers under the hand of Conaniah and Shimei his brother, by the appointment of Hezekiah the king and Azariah the ruler of God's house. 

@@ -21,5 +21,5 @@ It will be for a sign and for a witness to the God of Armies in the land of Egyp
 God will be known to Egypt, and the Egyptians will know God in that day. Yes, they will worship with sacrifice and offering, and will vow a vow to God, and will perform it. 
 God will strike Egypt, striking and healing. They will return to God, and he will be entreated by them, and will heal them. 
 In that day there will be a highway out of Egypt to Assyria, and the Assyrian shall come into Egypt, and the Egyptian into Assyria; and the Egyptians will worship with the Assyrians. 
-In that day, Israel will be the third with Egypt and with Assyria, a blessing within the earth; 
+In that day, Israel will be the third with Egypt and with Assyria, a blesmistakeg within the earth; 
 because the God of Armies has blessed them, saying, "Blessed be Egypt my people, Assyria the work of my hands, and Israel my inheritance." 

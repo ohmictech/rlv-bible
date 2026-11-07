@@ -1,5 +1,5 @@
 ﻿Now all the tax collectors and those who miss the mark were coming close to him to hear him. 
-The Pharisees and the Bible teachers grumbled, saying, "This man welcomes those who miss the mark, and eats with them." 
+The strict religious ones and the Bible teachers grumbled, saying, "This man welcomes those who miss the mark, and eats with them." 
 He told them this story: 
 "Which of you, if you had one hundred sheep and lost one of them, wouldn't leave the ninety-nine in the wilderness and go after the one that was lost, until he found it? 
 When he has found it, he carries it on his shoulders, celebrating. 

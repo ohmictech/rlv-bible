@@ -2,7 +2,7 @@
 "Can a man be profitable to God? Surely he who is wise is profitable to himself. 
 Is it any pleasure to the Almighty that you are righteous? Or does it benefit him that you make your ways perfect? 
 Is it for your piety that he reproves you, that he enters with you into judgment? 
-Isn't your wickedness great? Neither is there any end to your iniquities. 
+Isn't your guilt great? Neither is there any end to your guilt. 
 For you have taken pledges from your brother for nothing, and stripped the naked of their clothing. 
 You haven't given water to the weary to drink, and you have withheld bread from the hungry. 
 But as for the mighty man, he had the earth. The honorable man, he lived in it. 
@@ -12,10 +12,10 @@ or darkness, so that you can not see, and floods of waters cover you.
 "Isn't God in the heights of heaven? See the height of the stars, how high they are! 
 You say, 'What does God know? Can he judge through the thick darkness? 
 Thick clouds are a covering to him, so that he doesn't see. He walks on the vault of the sky.' 
-Will you keep the old way, which wicked men have trodden, 
+Will you keep the old way, which guilty men have trodden, 
 who were snatched away before their time, whose foundation was poured out as a stream, 
 who said to God, 'Depart from us!' and, 'What can the Almighty do for us?' 
-Yet he filled their houses with good things, but the counsel of the wicked is far from me. 
+Yet he filled their houses with good things, but the counsel of the guilty is far from me. 
 The righteous see it, and are glad. The innocent ridicule them, 
 saying, 'Surely those who rose up against us are cut off. The fire has consumed their remnant.' 
 "Acquaint yourself with him now, and be at peace. By it, good will come to you. 

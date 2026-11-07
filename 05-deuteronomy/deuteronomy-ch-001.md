@@ -32,13 +32,13 @@ and in the wilderness where you have seen how that your God carried you, as a ma
 Yet in this thing you didn't believe your God, 
 who went before you on the way, to seek out a place for you to pitch your tents in: in fire by night, to show you by what way you should go, and in the cloud by day. 
 God heard the voice of your words and was angry, and swore, saying, 
-"Surely not one of these men of this evil generation shall see the good land which I swore to give to your fathers, 
+"Surely not one of these men of this bad generation shall see the good land which I swore to give to your fathers, 
 except Caleb the son of Jephunneh. He shall see it. I will give the land that he has trodden on to him and to his children, because he has wholly followed God." 
 Also God was angry with me for your sakes, saying, "You also shall not go in there. 
 Joshua the son of Nun, who stands before you, shall go in there. Encourage him, for he shall cause Israel to inherit it. 
-Moreover your little ones, whom you said would be captured or killed, your children, who today have no knowledge of good or evil, shall go in there. I will give it to them, and they shall possess it. 
+Moreover your little ones, whom you said would be captured or killed, your children, who today have no knowledge of good or bad, shall go in there. I will give it to them, and they shall possess it. 
 But as for you, turn, and take your journey into the wilderness by the way to the Red Sea." 
-Then you answered and said to me, "We have sinned against God. We will go up and fight, according to all that our God commanded us." Every man of you put on his weapons of war, and presumed to go up into the hill country. 
+Then you answered and said to me, "We have wronged God. We will go up and fight, according to all that our God commanded us." Every man of you put on his weapons of war, and presumed to go up into the hill country. 
 God said to me, "Tell them, 'Don't go up and don't fight; for I am not among you, lest you be struck before your enemies.'" 
 So I spoke to you, and you didn't listen; but you rebelled against the commandment of God, and were presumptuous, and went up into the hill country. 
 The Amorites, who lived in that hill country, came out against you and chased you as bees do, and beat you down in Seir, even to Hormah. 

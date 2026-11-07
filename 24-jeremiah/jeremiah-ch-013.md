@@ -7,7 +7,7 @@ After many days, God said to me, "Arise, go to the Euphrates, and take the belt 
 Then I went to the Euphrates, and dug, and took the belt from the place where I had hidden it; and behold, the belt was ruined. It was profitable for nothing. 
 Then God's word came to me, saying, 
 "God says, 'In this way I will ruin the pride of Judah, and the great pride of Jerusalem. 
-This evil people, who refuse to hear my words, who walk in the stubbornness of their heart, and have gone after other gods to serve them and to worship them, will even be as this belt, which is profitable for nothing. 
+This bad people, who refuse to hear my words, who walk in the stubbornness of their heart, and have gone after other gods to serve them and to worship them, will even be as this belt, which is profitable for nothing. 
 For as the belt clings to the waist of a man, so I have caused the whole house of Israel and the whole house of Judah to cling to me,' says God; 'that they may be to me for a people, for a name, for praise, and for glory; but they would not hear.' 
 "Therefore you shall speak to them this word: 'The God of Israel says, "Every container should be filled with wine."' They will tell you, 'Do we not certainly know that every container should be filled with wine?' 
 Then tell them, 'God says, "Behold, I will fill all the inhabitants of this land, even the kings who sit on David's throne, the priests, the spokesmen, and all the inhabitants of Jerusalem, with drunkenness. 
@@ -19,8 +19,8 @@ Say to the king and to the queen mother, "Humble yourselves. Sit down, for your 
 The cities of the South are shut up, and there is no one to open them. Judah is carried away captive: everyone. They are wholly carried away captive. 
 Lift up your eyes, and see those who come from the north. Where is the flock that was given to you, your beautiful flock? 
 What will you say when he sets over you as head those whom you have yourself taught to be friends to you? Won't sorrows take hold of you, as of a woman in travail? 
-If you say in your heart, "Why have these things come on me?" Your skirts are uncovered because of the greatness of your iniquity, and your heels suffer violence. 
-Can the Ethiopian change his skin, or the leopard his spots? Then may you also do good, who are accustomed to do evil. 
+If you say in your heart, "Why have these things come on me?" Your skirts are uncovered because of the greatness of your guilt, and your heels suffer violence. 
+Can the Ethiopian change his skin, or the leopard his spots? Then may you also do good, who are accustomed to do bad things. 
 "Therefore I will scatter them as the stubble that passes away by the wind of the wilderness. 
 This is your lot, the portion measured to you from me," says God, "because you have forgotten me, and trusted in falsehood." 
 Therefore I will also uncover your skirts on your face, and your shame will appear. 

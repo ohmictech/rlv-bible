@@ -1,6 +1,6 @@
 ﻿Woe to those who are at ease in Zion, and to those who are secure on the mountain of Samaria, the notable men of the chief of the nations, to whom the house of Israel come! 
 Go to Calneh, and see. From there go to Hamath the great. Then go down to Gath of the Philistines. Are they better than these kingdoms? Is their border greater than your border? 
-Alas for you who put far away the evil day, and cause the seat of violence to come near, 
+Alas for you who put far away the bad day, and cause the seat of violence to come near, 
 who lie on beds of ivory, and stretch themselves on their couches, and eat the lambs out of the flock, and the calves out of the middle of the stall, 
 who strum on the strings of a harp, who invent for themselves instruments of music, like David; 
 who drink wine in bowls, and anoint themselves with the best oils, but they are not grieved for the affliction of Joseph. 

@@ -7,8 +7,8 @@ The Lord said, "Listen to what the unjust judge says.
 Won't God give his chosen ones justice, who cry out to him day and night, and yet he exercises patience with them? 
 I tell you that he will give them justice quickly. Nevertheless, when the Human One comes, will he find trust on the land?" 
 He also spoke this story to certain people who were convinced of their own rightness, and who despised all others: 
-"Two men went up into the temple to pray; one was a Pharisee, and the other was a tax collector. 
-The Pharisee stood and prayed by himself like this: 'God, I thank you that I am not like the rest of people: robbers, wrongdoers, adulterers, or even like this tax collector. 
+"Two men went up into the temple to pray; one was a strict religious man, and the other was a tax collector. 
+The strict religious man stood and prayed by himself like this: 'God, I thank you that I am not like the rest of people: robbers, wrongdoers, adulterers, or even like this tax collector. 
 I go without food twice a week. I give tithes of all that I get.' 
 But the tax collector, standing far away, wouldn't even lift up his eyes to the sky, but beat his chest, saying, 'God, be merciful to me, a man who misses the mark!' 
 I tell you, this man went down to his house made right rather than the other; for everyone who lifts himself up will be humbled, but he who humbles himself will be lifted up." 

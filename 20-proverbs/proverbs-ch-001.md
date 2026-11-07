@@ -7,13 +7,13 @@ to understand a proverb and parables, the words and riddles of the wise.
 The fear of God is the beginning of knowledge, but the foolish despise wisdom and instruction. 
 My son, listen to your father's instruction, and don't forsake your mother's teaching; 
 for they will be a garland to grace your head, and chains around your neck. 
-My son, if sinners entice you, don't consent. 
+My son, if those who miss the mark entice you, don't consent. 
 If they say, "Come with us. Let's lie in wait for blood. Let's lurk secretly for the innocent without cause. 
 Let's swallow them up alive like Hades, and whole, like those who go down into the pit. 
 We'll find all valuable wealth. We'll fill our houses with plunder. 
 You shall cast your lot among us. We'll all have one purse" 
 my son, don't walk on the path with them. Keep your foot from their path, 
-for their feet run to evil. They hurry to shed blood. 
+for their feet run to bad. They hurry to shed blood. 
 For the net is spread in vain in the sight of any bird; 
 but these lay in wait for their own blood. They lurk secretly for their own lives. 
 So are the ways of everyone who is greedy for gain. It takes away the life of its owners. 

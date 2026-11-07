@@ -1,4 +1,4 @@
-﻿The children of Israel did that which was evil in God's sight, so God delivered them into the hand of Midian seven years. 
+﻿The children of Israel did that which was bad in God's sight, so God delivered them into the hand of Midian seven years. 
 The hand of Midian prevailed against Israel; and because of Midian the children of Israel made themselves the dens which are in the mountains, the caves, and the strongholds. 
 So it was, when Israel had sown, that the Midianites, the Amalekites, and the children of the east came up against them. 
 They encamped against them, and destroyed the increase of the earth, until you come to Gaza. They left no sustenance in Israel, and no sheep, ox, or donkey. 

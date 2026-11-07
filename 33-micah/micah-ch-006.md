@@ -4,13 +4,13 @@ My people, what have I done to you? How have I burdened you? Answer me!
 For I brought you up out of the land of Egypt, and bought back you out of the house of bondage. I sent before you Moses, Aaron, and Miriam. 
 My people, remember now what Balak king of Moab devised, and what Balaam the son of Beor answered him from Shittim to Gilgal, that you may know the righteous acts of God." 
 How shall I come before God, and bow myself before the exalted God? Shall I come before him with burnt offerings, with calves a year old? 
-Will God be pleased with thousands of rams? With tens of thousands of rivers of oil? Shall I give my firstborn for my disobedience? The fruit of my body for the sin of my soul? 
+Will God be pleased with thousands of rams? With tens of thousands of rivers of oil? Shall I give my firstborn for my disobedience? The fruit of my body for the mistake of my soul? 
 He has shown you, O man, what is good. What does God require of you, but to act justly, to love mercy, and to walk humbly with your God? 
 God's voice calls to the city, and wisdom fears your name, "Listen to the rod, and he who appointed it. 
-Are there yet treasures of wickedness in the house of the wicked, and a short ephah that is accursed? 
+Are there yet treasures of guilt in the house of the guilty, and a short ephah that is accursed? 
 Shall I tolerate dishonest scales, and a bag of deceitful weights? 
 Her rich men are full of violence, her inhabitants speak lies, and their tongue is deceitful in their speech. 
-Therefore I also have struck you with a grievous wound. I have made you desolate because of your sins. 
+Therefore I also have struck you with a grievous wound. I have made you desolate because of your mistakes. 
 You shall eat, but not be satisfied. Your hunger will be within you. You will store up, but not save, and that which you save I will give up to the sword. 
 You will sow, but won't reap. You will tread the olives, but won't anoint yourself with oil; and crush grapes, but won't drink the wine. 
-For the statutes of Omri are kept, and all the works of Ahab's house. You walk in their counsels, that I may make you a ruin, and your inhabitants a hissing. You will bear the reproach of my people." 
+For the statutes of Omri are kept, and all the works of Ahab's house. You walk in their counsels, that I may make you a ruin, and your inhabitants a hismistakeg. You will bear the reproach of my people." 

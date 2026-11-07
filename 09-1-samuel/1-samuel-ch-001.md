@@ -13,7 +13,7 @@ As she continued praying before God, Eli saw her mouth.
 Now Hannah spoke in her heart. Only her lips moved, but her voice was not heard. Therefore Eli thought she was drunk. 
 Eli said to her, "How long will you be drunk? Get rid of your wine!" 
 Hannah answered, "No, my lord, I am a woman of a sorrowful spirit. I have not been drinking wine or strong drink, but I poured out my soul before God. 
-Don't consider your servant a wicked woman; for I have been speaking out of the abundance of my complaint and my provocation." 
+Don't consider your servant a guilty woman; for I have been speaking out of the abundance of my complaint and my provocation." 
 Then Eli answered, "Go in peace; and may the God of Israel grant your petition that you have asked of him." 
 She said, "Let your servant find favor in your sight." So the woman went her way and ate; and her facial expression wasn't sad any more. 
 They rose up in the morning early and worshiped God, then returned and came to their house to Ramah. Then Elkanah knew Hannah his wife; and God remembered her. 

@@ -2,7 +2,7 @@
 "How long will you hunt for words? Consider, and afterwards we will speak. 
 Why are we counted as animals, which have become unclean in your sight? 
 You who tear yourself in your anger, will the earth be forsaken for you? Or will the rock be removed out of its place? 
-"Yes, the light of the wicked will be put out. The spark of his fire won't shine. 
+"Yes, the light of the guilty will be put out. The spark of his fire won't shine. 
 The light will be dark in his tent. His lamp above him will be put out. 
 The steps of his strength will be shortened. His own counsel will cast him down. 
 For he is cast into a net by his own feet, and he wanders into its mesh. 

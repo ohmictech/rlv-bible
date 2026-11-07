@@ -10,12 +10,12 @@ So what will the lord of the vineyard do? He will come and ruin those farmers an
 Haven't you even read this Scripture: 'The stone the builders rejected has become the cornerstone. 
 This was from the Lord. It is marvelous in our eyes'?" 
 They tried to seize him, but they feared the crowd, for they knew that he had spoken the story against them. They left him and went away. 
-They sent some of the Pharisees and the Herodians to him, to trap him in his words. 
+They sent some of the strict religious ones and the Herodians to him, to trap him in his words. 
 When they had come, they asked him, "Teacher, we know that you are honest and don't defer to anyone, for you aren't partial to anyone, but truly teach the way of God. Is it allowed to pay taxes to Caesar, or not? 
 Should we pay, or shouldn't we?" But he knew their pretense and said to them, "Why are you testing me? Bring me a silver coin, that I may look at it." 
 They brought it. He said to them, "Whose is this image and inscription?" They said to him, "Caesar's." 
 Jesus answered them, "Give to Caesar what belongs to Caesar, and to God what belongs to God." And they were amazed at him. 
-Some Sadducees, who say there is no rising from the dead, came to him and asked him, 
+Some of the religious elite, who say there is no rising from the dead, came to him and asked him, 
 "Teacher, Moses wrote for us, 'If a man's brother dies and leaves a wife behind but leaves no children, his brother should take the widow and raise up children for his brother.' 
 There were seven brothers. The first took a wife, and dying left no offspring. 
 The second took her, and died, leaving no children behind him. The third likewise; 

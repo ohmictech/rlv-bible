@@ -1,4 +1,4 @@
-﻿There happened to be there a wicked fellow, whose name was Sheba the son of Bichri, a Benjamite; and he blew the trumpet, and said, "We have no portion in David, neither have we inheritance in the son of Jesse. Every man to his tents, Israel!" 
+﻿There happened to be there a guilty fellow, whose name was Sheba the son of Bichri, a Benjamite; and he blew the trumpet, and said, "We have no portion in David, neither have we inheritance in the son of Jesse. Every man to his tents, Israel!" 
 So all the men of Israel went up from following David, and followed Sheba the son of Bichri; but the men of Judah joined with their king, from the Jordan even to Jerusalem. 
 David came to his house at Jerusalem; and the king took the ten women his concubines, whom he had left to keep the house, and put them in custody and provided them with sustenance, but didn't go in to them. So they were shut up to the day of their death, living in widowhood. 
 Then the king said to Amasa, "Call me the men of Judah together within three days, and be here present." 
@@ -22,5 +22,5 @@ The matter is not so. But a man of the hill country of Ephraim, Sheba the son of
 Then the woman went to everyone in her wisdom. They cut off the head of Sheba the son of Bichri, and threw it out to Joab. He blew the trumpet, and they were dispersed from the city, every man to his tent. Then Joab returned to Jerusalem to the king. 
 Now Joab was over all the army of Israel, Benaiah the son of Jehoiada was over the Cherethites and over the Pelethites, 
 Adoram was over the men subject to forced labor, Jehoshaphat the son of Ahilud was the recorder, 
-Sheva was scribe, Zadok and Abiathar were priests, 
+Sheva was Bible teacher, Zadok and Abiathar were priests, 
 and Ira the Jairite was chief minister to David. 

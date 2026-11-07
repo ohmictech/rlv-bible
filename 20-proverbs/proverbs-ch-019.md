@@ -25,5 +25,5 @@ The sluggard buries his hand in the dish; he will not so much as bring it to his
 Flog a scoffer, and the simple will learn prudence; rebuke one who has understanding, and he will gain knowledge. 
 He who robs his father and drives away his mother is a son who causes shame and brings reproach. 
 If you stop listening to instruction, my son, you will stray from the words of knowledge. 
-A corrupt witness mocks justice, and the mouth of the wicked gulps down iniquity. 
+A corrupt witness mocks justice, and the mouth of the guilty gulps down guilt. 
 Penalties are prepared for scoffers, and beatings for the backs of fools. 

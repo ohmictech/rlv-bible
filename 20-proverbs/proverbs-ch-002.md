@@ -9,9 +9,9 @@ that he may guard the paths of justice, and preserve the way of his saints.
 Then you will understand righteousness and justice, equity and every good path. 
 For wisdom will enter into your heart. Knowledge will be pleasant to your soul. 
 Discretion will watch over you. Understanding will keep you, 
-to deliver you from the way of evil, from the men who speak perverse things, 
+to deliver you from the way of bad, from the men who speak perverse things, 
 who forsake the paths of uprightness, to walk in the ways of darkness, 
-who rejoice to do evil, and delight in the perverseness of evil, 
+who rejoice to do bad things, and delight in the perverseness of bad, 
 who are crooked in their ways, and wayward in their paths, 
 to deliver you from the strange woman, even from the foreigner who flatters with her words, 
 who forsakes the friend of her youth, and forgets the covenant of her God; 
@@ -19,4 +19,4 @@ for her house leads down to death, her paths to the departed spirits.
 None who go to her return again, neither do they attain to the paths of life. 
 Therefore walk in the way of good men, and keep the paths of the righteous. 
 For the upright will dwell in the land. The perfect will remain in it. 
-But the wicked will be cut off from the land. The treacherous will be rooted out of it. 
+But the guilty will be cut off from the land. The treacherous will be rooted out of it. 

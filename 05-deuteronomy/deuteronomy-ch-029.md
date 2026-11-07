@@ -18,7 +18,7 @@ and you have seen their abominations and their idols of wood, stone, silver, and
 lest there should be among you man, woman, family, or tribe whose heart turns away today from our God, to go to serve the gods of those nations; lest there should be among you a root that produces bitter poison; 
 and it happen, when he hears the words of this curse, that he bless himself in his heart, saying, "I shall have peace, though I walk in the stubbornness of my heart," to destroy the moist with the dry. 
 God will not pardon him, but then God's anger and his jealousy will smoke against that man, and all the curse that is written in this book will fall on him, and God will blot out his name from under the sky. 
-God will set him apart for evil out of all the tribes of Israel, according to all the curses of the covenant written in this book of the law. 
+God will set him apart for bad out of all the tribes of Israel, according to all the curses of the covenant written in this book of the law. 
 The generation to come, your children who will rise up after you, and the foreigner who will come from a far land, will say, when they see the plagues of that land, and the sicknesses with which God has made it sick, 
 that all of its land is sulfur, salt, and burning, that it is not sown, doesn't produce, nor does any grass grow in it, like the overthrow of Sodom, Gomorrah, Admah, and Zeboiim, which God overthrew in his anger, and in his wrath. 
 Even all the nations will say, "Why has God done this to this land? What does the heat of this great anger mean?" 

@@ -1,4 +1,4 @@
-﻿Therefore when the Lord knew that the Pharisees had heard that Jesus was making and immersing more students than John 
+﻿Therefore when the Lord knew that the strict religious ones had heard that Jesus was making and immersing more students than John 
 (although Jesus himself didn't immerse, but his students), 
 he left Judea and departed into Galilee. 
 He needed to pass through Samaria. 

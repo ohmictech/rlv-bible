@@ -5,7 +5,7 @@ Your words have supported him who was falling, you have made the feeble knees fi
 But now it has come to you, and you faint. It touches you, and you are troubled. 
 Isn't your piety your confidence? Isn't the integrity of your ways your hope? 
 "Remember, now, who ever perished, being innocent? Or where were the upright cut off? 
-According to what I have seen, those who plow iniquity and sow trouble, reap the same. 
+According to what I have seen, those who plow guilt and sow trouble, reap the same. 
 By the breath of God they perish. By the blast of his anger are they consumed. 
 The roaring of the lion, and the voice of the fierce lion, the teeth of the young lions, are broken. 
 The old lion perishes for lack of prey. The cubs of the lioness are scattered abroad. 

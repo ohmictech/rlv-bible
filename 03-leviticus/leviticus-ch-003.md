@@ -1,12 +1,12 @@
-﻿"'If his offering is a sacrifice of peace offerings, if he offers it from the herd, whether male or female, he shall offer it without defect before God. 
+﻿"'If his offering is a sacrifice of offerings for wholeness, if he offers it from the herd, whether male or female, he shall offer it without defect before God. 
 He shall lay his hand on the head of his offering, and kill it at the door of the Tent of Meeting. Aaron's sons, the priests, shall sprinkle the blood around on the altar. 
-He shall offer of the sacrifice of peace offerings an offering made by fire to God. The fat that covers the innards, and all the fat that is on the innards, 
+He shall offer of the sacrifice of offerings for wholeness an offering made by fire to God. The fat that covers the innards, and all the fat that is on the innards, 
 and the two kidneys, and the fat that is on them, which is by the loins, and the cover on the liver, with the kidneys, he shall take away. 
 Aaron's sons shall burn it on the altar on the burnt offering, which is on the wood that is on the fire: it is an offering made by fire, of a pleasant aroma to God. 
-"'If his offering for a sacrifice of peace offerings to God is from the flock, either male or female, he shall offer it without defect. 
+"'If his offering for a sacrifice of offerings for wholeness to God is from the flock, either male or female, he shall offer it without defect. 
 If he offers a lamb for his offering, then he shall offer it before God; 
 and he shall lay his hand on the head of his offering, and kill it before the Tent of Meeting. Aaron's sons shall sprinkle its blood around on the altar. 
-He shall offer from the sacrifice of peace offerings an offering made by fire to God; its fat, the entire tail fat, he shall take away close to the backbone; and the fat that covers the entrails, and all the fat that is on the entrails, 
+He shall offer from the sacrifice of offerings for wholeness an offering made by fire to God; its fat, the entire tail fat, he shall take away close to the backbone; and the fat that covers the entrails, and all the fat that is on the entrails, 
 and the two kidneys, and the fat that is on them, which is by the loins, and the cover on the liver, with the kidneys, he shall take away. 
 The priest shall burn it on the altar: it is the food of the offering made by fire to God. 
 "'If his offering is a goat, then he shall offer it before God. 

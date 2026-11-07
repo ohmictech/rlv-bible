@@ -6,7 +6,7 @@ Ahab said to Obadiah, "Go through the land, to all the springs of water, and to 
 So they divided the land between them to pass throughout it. Ahab went one way by himself, and Obadiah went another way by himself. 
 As Obadiah was on the way, behold, Elijah met him. He recognized him, and fell on his face, and said, "Is it you, my lord Elijah?" 
 He answered him, "It is I. Go, tell your lord, 'Behold, Elijah is here!'" 
-He said, "How have I sinned, that you would deliver your servant into the hand of Ahab, to kill me? 
+He said, "How have I missed the mark, that you would deliver your servant into the hand of Ahab, to kill me? 
 As your God lives, there is no nation or kingdom where my lord has not sent to seek you. When they said, 'He is not here,' he took an oath of the kingdom and nation that they didn't find you. 
 Now you say, 'Go, tell your lord, "Behold, Elijah is here."' 
 It will happen, as soon as I leave you, that God's Spirit will carry you I don't know where; and so when I come and tell Ahab, and he can't find you, he will kill me. But I, your servant, have feared God from my youth. 
@@ -41,6 +41,6 @@ Elijah said to them, "Seize the spokesmen of Baal! Don't let one of them escape!
 Elijah said to Ahab, "Get up, eat and drink; for there is the sound of abundance of rain." 
 So Ahab went up to eat and to drink. Elijah went up to the top of Carmel; and he bowed himself down on the earth, and put his face between his knees. 
 He said to his servant, "Go up now and look toward the sea." He went up and looked, then said, "There is nothing." He said, "Go again" seven times. 
-On the seventh time, he said, "Behold, a small cloud, like a man's hand, is rising out of the sea." He said, "Go up, tell Ahab, 'Get ready and go down, so that the rain doesn't stop you.'" 
+On the seventh time, he said, "Behold, a small cloud, like a man's hand, is rimistakeg out of the sea." He said, "Go up, tell Ahab, 'Get ready and go down, so that the rain doesn't stop you.'" 
 In a little while, the sky grew black with clouds and wind, and there was a great rain. Ahab rode, and went to Jezreel. 
 God's hand was on Elijah; and he tucked his cloak into his belt and ran before Ahab to the entrance of Jezreel. 

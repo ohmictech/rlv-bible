@@ -4,7 +4,7 @@ She has sent out her maidens. She cries from the highest places of the city:
 "Whoever is simple, let him turn in here!" As for him who is void of understanding, she says to him, 
 "Come, eat some of my bread, Drink some of the wine which I have mixed! 
 Leave your simple ways, and live. Walk in the way of understanding." 
-One who corrects a mocker invites insult. One who reproves a wicked man invites abuse. 
+One who corrects a mocker invites insult. One who reproves a guilty man invites abuse. 
 Don't reprove a scoffer, lest he hate you. Reprove a wise person, and he will love you. 
 Instruct a wise person, and he will be still wiser. Teach a righteous person, and he will increase in learning. 
 The fear of God is the beginning of wisdom. The knowledge of the Holy One is understanding. 

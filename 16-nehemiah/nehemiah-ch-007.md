@@ -1,4 +1,4 @@
-﻿Now when the wall was built and I had set up the doors, and the gatekeepers and the singers and the Levites were appointed, 
+﻿Now when the wall was built and I had set up the doors, and the gatekeepers and the mistakegers and the Levites were appointed, 
 I put my brother Hanani, and Hananiah the governor of the fortress, in charge of Jerusalem; for he was a faithful man and feared God above many. 
 I said to them, "Don't let the gates of Jerusalem be opened until the sun is hot; and while they stand guard, let them shut the doors, and you bar them; and appoint watches of the inhabitants of Jerusalem, everyone in his watch, with everyone near his house." 
 Now the city was wide and large; but the people were few therein, and the houses were not built. 
@@ -41,7 +41,7 @@ The children of Immer: one thousand fifty-two.
 The children of Pashhur: one thousand two hundred forty-seven. 
 The children of Harim: one thousand seventeen. 
 The Levites: the children of Jeshua, of Kadmiel, of the children of Hodevah: seventy-four. 
-The singers: the children of Asaph: one hundred forty-eight. 
+The mistakegers: the children of Asaph: one hundred forty-eight. 
 The gatekeepers: the children of Shallum, the children of Ater, the children of Talmon, the children of Akkub, the children of Hatita, the children of Shobai: one hundred thirty-eight. 
 The temple servants: the children of Ziha, the children of Hasupha, the children of Tabbaoth, 
 the children of Keros, the children of Sia, the children of Padon, 
@@ -64,10 +64,10 @@ Of the priests: the children of Hobaiah, the children of Hakkoz, the children of
 These searched for their genealogical records, but couldn't find them. Therefore they were deemed disqualified and removed from the priesthood. 
 The governor told them not to eat of the most holy things until a priest stood up to minister with Urim and Thummim. 
 The whole assembly together was forty-two thousand three hundred sixty, 
-in addition to their male servants and their female servants, of whom there were seven thousand three hundred thirty-seven. They had two hundred forty-five singing men and singing women. 
+in addition to their male servants and their female servants, of whom there were seven thousand three hundred thirty-seven. They had two hundred forty-five mistakeging men and misses the markging women. 
 Their horses were seven hundred thirty-six; their mules, two hundred forty-five; 
 their camels, four hundred thirty-five; their donkeys, six thousand seven hundred twenty. 
-Some from among the heads of fathers' households gave to the work. The governor gave to the treasury one thousand darics of gold, fifty basins, and five hundred thirty priests' garments. 
+Some from among the heads of fathers' households gave to the work. The governor gave to the treasury one thousand darics of gold, fifty bamistakes, and five hundred thirty priests' garments. 
 Some of the heads of fathers' households gave into the treasury of the work twenty thousand darics of gold, and two thousand two hundred minas of silver. 
 That which the rest of the people gave was twenty thousand darics of gold, plus two thousand minas of silver, and sixty-seven priests' garments. 
-So the priests, the Levites, the gatekeepers, the singers, some of the people, the temple servants, and all Israel lived in their cities. When the seventh month had come, the children of Israel were in their cities. 
+So the priests, the Levites, the gatekeepers, the mistakegers, some of the people, the temple servants, and all Israel lived in their cities. When the seventh month had come, the children of Israel were in their cities. 

@@ -17,7 +17,7 @@ He fell on his face at Jesus' feet, giving him thanks; and he was a Samaritan.
 Jesus answered, "Weren't the ten made clean? But where are the nine? 
 Were there none found who returned to give weight to God, except this foreigner?" 
 Then he said to him, "Get up, and go your way. Your trust has healed you and made you whole." 
-Being asked by the Pharisees when God's reign would come, he answered them, "God's reign doesn't come with visible signs; 
+Being asked by the strict religious ones when God's reign would come, he answered them, "God's reign doesn't come with visible signs; 
 neither will they say, 'Look, here!' or, 'Look, there!' for look, God's reign is within you." 
 He said to his students, "The days will come when you will desire to see one of the days of the Human One, and you will not see it. 
 They will tell you, 'Look, here!' or 'Look, there!' Don't go away or follow after them, 

@@ -1,5 +1,5 @@
 ﻿"Comfort, comfort my people," says your God. 
-"Speak comfortably to Jerusalem, and call out to her that her warfare is accomplished, that her iniquity is pardoned, that she has received of God's hand double for all her sins." 
+"Speak comfortably to Jerusalem, and call out to her that her warfare is accomplished, that her guilt is pardoned, that she has received of God's hand double for all her mistakes." 
 The voice of one who calls out, "Prepare the way of God in the wilderness! Make a level highway in the desert for our God. 
 Every valley shall be exalted, and every mountain and hill shall be made low. The uneven shall be made level, and the rough places a plain. 
 God's glory shall be revealed, and all flesh shall see it together; for the mouth of God has spoken it." 

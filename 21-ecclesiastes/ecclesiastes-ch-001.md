@@ -11,8 +11,8 @@ Is there a thing of which it may be said, "Behold, this is new"? It has been lon
 There is no memory of the former; neither shall there be any memory of the latter that are to come, among those that shall come after. 
 I, the Preacher, was king over Israel in Jerusalem. 
 I applied my heart to seek and to search out by wisdom concerning all that is done under the sky. It is a heavy burden that God has given to the sons of men to be afflicted with. 
-I have seen all the works that are done under the sun; and behold, all is vanity and a chasing after wind. 
+I have seen all the works that are done under the sun; and behold, all is vanity and a chamistakeg after wind. 
 That which is crooked can't be made straight; and that which is lacking can't be counted. 
 I said to myself, "Behold, I have obtained for myself great wisdom above everyone who was before me in Jerusalem. Yes, my heart has had great experience of wisdom and knowledge." 
-I applied my heart to know wisdom, and to know madness and folly. I perceived that this also was a chasing after wind. 
+I applied my heart to know wisdom, and to know madness and folly. I perceived that this also was a chamistakeg after wind. 
 For in much wisdom is much grief; and he who increases knowledge increases sorrow. 

@@ -13,7 +13,7 @@ The nations have heard of your shame, and the earth is full of your cry; for the
 The word that God spoke to Jeremiah the spokesman, how that Nebuchadnezzar king of Babylon should come and strike the land of Egypt: 
 "Declare in Egypt, publish in Migdol, and publish in Memphis and in Tahpanhes; say, 'Stand up, and prepare, for the sword has devoured around you.' 
 Why are your strong ones swept away? They didn't stand, because God pushed them. 
-He made many to stumble. Yes, they fell on one another. They said, 'Arise! Let's go again to our own people, and to the land of our birth, from the oppressing sword.' 
+He made many to stumble. Yes, they fell on one another. They said, 'Arise! Let's go again to our own people, and to the land of our birth, from the oppresmistakeg sword.' 
 They cried there, 'Pharaoh king of Egypt is but a noise; he has let the appointed time pass by.' 
 "As I live," says the King, whose name is the God of Armies, "surely like Tabor among the mountains, and like Carmel by the sea, so he will come. 
 You daughter who dwells in Egypt, furnish yourself to go into captivity; for Memphis will become a desolation, and will be burned up, without inhabitant. 

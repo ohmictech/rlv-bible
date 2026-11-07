@@ -6,7 +6,7 @@ Jehoshaphat stood in the assembly of Judah and Jerusalem, in God's house, before
 and he said, "the God of our fathers, aren't you God in heaven? Aren't you ruler over all the kingdoms of the nations? Power and might are in your hand, so that no one is able to withstand you. 
 Didn't you, our God, drive out the inhabitants of this land before your people Israel, and give it to the offspring of Abraham your friend for the eras? 
 They lived in it, and have built you a sanctuary in it for your name, saying, 
-'If evil comes on us, the sword, judgment, pestilence, or famine, we will stand before this house, and before you (for your name is in this house), and cry to you in our affliction, and you will hear and save.' 
+'If bad comes on us, the sword, judgment, pestilence, or famine, we will stand before this house, and before you (for your name is in this house), and cry to you in our affliction, and you will hear and save.' 
 Now, behold, the children of Ammon and Moab and Mount Seir, whom you would not let Israel invade when they came out of the land of Egypt, but they turned away from them, and didn't destroy them; 
 behold, how they reward us, to come to cast us out of your possession, which you have given us to inherit. 
 Our God, will you not judge them? For we have no might against this great company that comes against us. We don't know what to do, but our eyes are on you." 
@@ -18,8 +18,8 @@ You will not need to fight this battle. Set yourselves, stand still, and see the
 Jehoshaphat bowed his head with his face to the ground; and all Judah and the inhabitants of Jerusalem fell down before God, worshiping God. 
 The Levites, of the children of the Kohathites and of the children of the Korahites, stood up to praise the God of Israel, with an exceedingly loud voice. 
 They rose early in the morning and went out into the wilderness of Tekoa. As they went out, Jehoshaphat stood and said, "Listen to me, Judah and you inhabitants of Jerusalem! Believe in your God, so you will be established! Believe his spokesmen, so you will prosper." 
-When he had taken counsel with the people, he appointed those who were to sing to God and give praise in holy array as they go out before the army, and say, "Give thanks to God, for his loving kindness endures for the eras." 
-When they began to sing and to praise, God set ambushers against the children of Ammon, Moab, and Mount Seir, who had come against Judah; and they were struck. 
+When he had taken counsel with the people, he appointed those who were to miss the markg to God and give praise in holy array as they go out before the army, and say, "Give thanks to God, for his loving kindness endures for the eras." 
+When they began to miss the markg and to praise, God set ambushers against the children of Ammon, Moab, and Mount Seir, who had come against Judah; and they were struck. 
 For the children of Ammon and Moab stood up against the inhabitants of Mount Seir to utterly kill and destroy them. When they had finished the inhabitants of Seir, everyone helped to destroy each other. 
 When Judah came to the place overlooking the wilderness, they looked at the multitude; and behold, they were dead bodies fallen to the earth, and there were none who escaped. 
 When Jehoshaphat and his people came to take their plunder, they found among them in abundance both riches and dead bodies with precious jewels, which they stripped off for themselves, more than they could carry away. They took plunder for three days, it was so much. 
@@ -32,6 +32,6 @@ So Jehoshaphat reigned over Judah. He was thirty-five years old when he began to
 He walked in the way of Asa his father, and didn't turn away from it, doing that which was right in God's eyes. 
 However the high places were not taken away, and the people had still not set their hearts on the God of their fathers. 
 Now the rest of the acts of Jehoshaphat, first and last, behold, they are written in the history of Jehu the son of Hanani, which is included in the book of the kings of Israel. 
-After this, Jehoshaphat king of Judah joined himself with Ahaziah king of Israel. The same did very wickedly. 
+After this, Jehoshaphat king of Judah joined himself with Ahaziah king of Israel. The same did very guiltyly. 
 He joined himself with him to make ships to go to Tarshish. They made the ships in Ezion Geber. 
 Then Eliezer the son of Dodavahu of Mareshah prophesied against Jehoshaphat, saying, "Because you have joined yourself with Ahaziah, God has destroyed your works." The ships were wrecked, so that they were not able to go to Tarshish. 

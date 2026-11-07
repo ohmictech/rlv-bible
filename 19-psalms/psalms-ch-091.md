@@ -5,9 +5,9 @@ He will cover you with his feathers. Under his wings you will take refuge. His f
 You shall not be afraid of the terror by night, nor of the arrow that flies by day, 
 nor of the pestilence that walks in darkness, nor of the destruction that wastes at noonday. 
 A thousand may fall at your side, and ten thousand at your right hand; but it will not come near you. 
-You will only look with your eyes, and see the recompense of the wicked. 
+You will only look with your eyes, and see the recompense of the guilty. 
 Because you have made God your refuge, and the Most High your dwelling place, 
-no evil shall happen to you, neither shall any plague come near your dwelling. 
+no bad shall happen to you, neither shall any plague come near your dwelling. 
 For he will put his messengers in charge of you, to guard you in all your ways. 
 They will bear you up in their hands, so that you won't dash your foot against a stone. 
 You will tread on the lion and cobra. You will trample the young lion and the serpent underfoot. 

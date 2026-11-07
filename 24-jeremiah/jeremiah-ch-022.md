@@ -19,7 +19,7 @@ Therefore God says concerning Jehoiakim the son of Josiah, king of Judah: "They 
 He will be buried with the burial of a donkey, drawn and cast out beyond the gates of Jerusalem." 
 "Go up to Lebanon, and cry out. Lift up your voice in Bashan, and cry from Abarim; for all your lovers have been destroyed. 
 I spoke to you in your prosperity, but you said, 'I will not listen.' This has been your way from your youth, that you didn't obey my voice. 
-The wind will feed all your shepherds, and your lovers will go into captivity. Surely then you will be ashamed and confounded for all your wickedness. 
+The wind will feed all your shepherds, and your lovers will go into captivity. Surely then you will be ashamed and confounded for all your guilt. 
 Inhabitant of Lebanon, who makes your nest in the cedars, how greatly to be pitied you will be when pangs come on you, the pain as of a woman in travail! 
 "As I live," says God, "though Coniah the son of Jehoiakim king of Judah were the signet on my right hand, I would still pluck you from there. 
 I would give you into the hand of those who seek your life, and into the hand of them of whom you are afraid, even into the hand of Nebuchadnezzar king of Babylon, and into the hand of the Chaldeans. 

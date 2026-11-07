@@ -1,5 +1,5 @@
 ﻿He left there and came into the region of Judea and beyond the Jordan. Crowds gathered to him again, and as he usually did, he taught them again. 
-Pharisees came to him, testing him, and asked, "Is it allowed for a man to divorce his wife?" 
+strict religious ones came to him, testing him, and asked, "Is it allowed for a man to divorce his wife?" 
 He answered, "What did Moses command you?" 
 They said, "Moses allowed a man to write a certificate of divorce and to divorce her." 
 But Jesus said to them, "He wrote you this commandment because your hearts were hard. 

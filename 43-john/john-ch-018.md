@@ -1,6 +1,6 @@
 ﻿When Jesus had spoken these words, he went out with his students over the brook Kidron, where there was a garden, into which he and his students entered. 
 Now Judas, who handed him over, also knew the place, for Jesus often met there with his students. 
-Judas then, having taken a detachment of soldiers and temple guards from the chief priests and the Pharisees, came there with lanterns, torches, and weapons. 
+Judas then, having taken a detachment of soldiers and temple guards from the chief priests and the strict religious ones, came there with lanterns, torches, and weapons. 
 Jesus therefore, knowing all the things that were happening to him, went out and said to them, "Who are you looking for?" 
 They answered him, "Jesus of Nazareth." Jesus said to them, "I am the one." Judas also, who handed him over, was standing with them. 
 When therefore he said to them, "I am the one," they went backward and fell to the ground. 

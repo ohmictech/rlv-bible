@@ -31,7 +31,7 @@ The donkey said to Balaam, "Am I not your donkey, on which you have ridden all y
 Then God opened the eyes of Balaam, and he saw God's messenger standing in the way, with his sword drawn in his hand; and he bowed his head, and fell on his face. 
 God's messenger said to him, "Why have you struck your donkey these three times? Behold, I have come out as an adversary, because your way is perverse before me. 
 The donkey saw me, and turned away before me these three times. Unless she had turned away from me, surely now I would have killed you, and saved her alive." 
-Balaam said to God's messenger, "I have sinned; for I didn't know that you stood in the way against me. Now therefore, if it displeases you, I will go back again." 
+Balaam said to God's messenger, "I have missed the mark; for I didn't know that you stood in the way against me. Now therefore, if it displeases you, I will go back again." 
 God's messenger said to Balaam, "Go with the men; but you shall only speak the word that I shall speak to you." So Balaam went with the princes of Balak. 
 When Balak heard that Balaam had come, he went out to meet him to the City of Moab, which is on the border of the Arnon, which is in the utmost part of the border. 
 Balak said to Balaam, "Didn't I earnestly send for you to summon you? Why didn't you come to me? Am I not able indeed to promote you to honor?" 

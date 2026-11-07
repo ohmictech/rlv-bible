@@ -12,10 +12,10 @@ But if any man hates his neighbor, lies in wait for him, rises up against him, s
 then the elders of his city shall send and bring him there, and deliver him into the hand of the avenger of blood, that he may die. 
 Your eye shall not pity him, but you shall purge the innocent blood from Israel that it may go well with you. 
 You shall not remove your neighbor's landmark, which they of old time have set, in your inheritance which you shall inherit, in the land that your God gives you to possess. 
-One witness shall not rise up against a man for any iniquity, or for any sin that he sins. At the mouth of two witnesses, or at the mouth of three witnesses, shall a matter be established. 
+One witness shall not rise up against a man for any guilt, or for any mistake that he misses the mark. At the mouth of two witnesses, or at the mouth of three witnesses, shall a matter be established. 
 If an unrighteous witness rises up against any man to testify against him of wrongdoing, 
 then both the men, between whom the controversy is, shall stand before God, before the priests and the judges who shall be in those days; 
 and the judges shall make diligent inquisition; and behold, if the witness is a false witness, and has testified falsely against his brother, 
-then you shall do to him as he had thought to do to his brother. So you shall remove the evil from among you. 
-Those who remain shall hear, and fear, and will never again commit any such evil among you. 
+then you shall do to him as he had thought to do to his brother. So you shall remove the bad from among you. 
+Those who remain shall hear, and fear, and will never again commit any such bad among you. 
 Your eyes shall not pity: life for life, eye for eye, tooth for tooth, hand for hand, foot for foot. 

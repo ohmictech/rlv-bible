@@ -2,10 +2,10 @@
 The peoples will take them, and bring them to their place. The house of Israel will possess them in God's land for servants and for handmaids. They will take as captives those whose captives they were; and they shall rule over their oppressors. 
 It will happen in the day that God will give you rest from your sorrow, from your trouble, and from the hard service in which you were made to serve, 
 that you will take up this parable against the king of Babylon, and say, "How the oppressor has ceased! The golden city has ceased!" 
-God has broken the staff of the wicked, the scepter of the rulers, 
+God has broken the staff of the guilty, the scepter of the rulers, 
 who struck the peoples in wrath with a continual stroke, who ruled the nations in anger, with a persecution that no one restrained. 
 The whole earth is at rest, and is quiet. They break out in song. 
-Yes, the cypress trees rejoice with you, with the cedars of Lebanon, saying, "Since you are humbled, no lumberjack has come up against us." 
+Yes, the cypress trees rejoice with you, with the cedars of Lebanon, saying, "Mistakece you are humbled, no lumberjack has come up against us." 
 Hades from beneath has moved for you to meet you at your coming. It stirs up the departed spirits for you, even all the rulers of the earth. It has raised up from their thrones all the kings of the nations. 
 They all will answer and ask you, "Have you also become as weak as we are? Have you become like us?" 
 Your pomp is brought down to Hades, with the sound of your stringed instruments. Maggots are spread out under you, and worms cover you. 
@@ -17,8 +17,8 @@ Those who see you will stare at you. They will ponder you, saying, "Is this the 
 who made the world like a wilderness, and overthrew its cities, who didn't release his prisoners to their home?" 
 All the kings of the nations sleep in glory, everyone in his own house. 
 But you are cast away from your tomb like an abominable branch, clothed with the slain who are thrust through with the sword, who go down to the stones of the pit; like a dead body trodden under foot. 
-You will not join them in burial, because you have destroyed your land. You have killed your people. The offspring of evildoers will not be named for the eras. 
-Prepare for slaughter of his children because of the iniquity of their fathers, that they not rise up and possess the earth, and fill the surface of the world with cities. 
+You will not join them in burial, because you have destroyed your land. You have killed your people. The offspring of those who do bad will not be named for the eras. 
+Prepare for slaughter of his children because of the guilt of their fathers, that they not rise up and possess the earth, and fill the surface of the world with cities. 
 "I will rise up against them," says the God of Armies, "and cut off from Babylon name and remnant, and son and son's son," says God. 
 "I will also make it a possession for the porcupine, and pools of water. I will sweep it with the broom of destruction," says the God of Armies. 
 The God of Armies has sworn, saying, "Surely, as I have thought, so shall it happen; and as I have purposed, so shall it stand: 

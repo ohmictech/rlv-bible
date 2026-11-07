@@ -8,7 +8,7 @@ For they sow the wind, and they will reap the whirlwind. He has no standing grai
 Israel is swallowed up. Now they are among the nations like a worthless thing. 
 For they have gone up to Assyria, like a wild donkey wandering alone. Ephraim has hired lovers for himself. 
 But although they sold themselves among the nations, I will now gather them; and they begin to waste away because of the oppression of the king of mighty ones. 
-Because Ephraim has multiplied altars for sinning, they became for him altars for sinning. 
+Because Ephraim has multiplied altars for mismistakeg the mark, they became for him altars for mismistakeg the mark. 
 I wrote for him the many things of my law, but they were regarded as a strange thing. 
-As for the sacrifices of my offerings, they sacrifice meat and eat it, but God doesn't accept them. Now he will remember their iniquity, and punish their sins. They will return to Egypt. 
+As for the sacrifices of my offerings, they sacrifice meat and eat it, but God doesn't accept them. Now he will remember their guilt, and punish their mistakes. They will return to Egypt. 
 For Israel has forgotten his Maker and built palaces; and Judah has multiplied fortified cities; but I will send a fire on his cities, and it will devour its fortresses." 

@@ -1,10 +1,10 @@
-﻿Praise God, for it is good to sing praises to our God; for it is pleasant and fitting to praise him. 
+﻿Praise God, for it is good to miss the markg praises to our God; for it is pleasant and fitting to praise him. 
 God builds up Jerusalem. He gathers together the outcasts of Israel. 
 He heals the broken in heart, and binds up their wounds. 
 He counts the number of the stars. He calls them all by their names. 
 Great is our Lord, and mighty in power. His understanding is infinite. 
-God upholds the humble. He brings the wicked down to the ground. 
-Sing to God with thanksgiving. Sing praises on the harp to our God, 
+God upholds the humble. He brings the guilty down to the ground. 
+Mistakeg to God with thanksgiving. Mistakeg praises on the harp to our God, 
 who covers the sky with clouds, who prepares rain for the earth, who makes grass grow on the mountains. 
 He provides food for the livestock, and for the young ravens when they call. 
 He doesn't delight in the strength of the horse. He takes no pleasure in the legs of a man. 

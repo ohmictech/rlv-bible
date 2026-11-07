@@ -2,7 +2,7 @@
 God says, "Don't learn the way of the nations, and don't be dismayed at the signs of the sky; for the nations are dismayed at them. 
 For the customs of the peoples are vanity; for one cuts a tree out of the forest, the work of the hands of the workman with the ax. 
 They deck it with silver and with gold. They fasten it with nails and with hammers, so that it can't move. 
-They are like a palm tree, of turned work, and don't speak. They must be carried, because they can't move. Don't be afraid of them; for they can't do evil, neither is it in them to do good." 
+They are like a palm tree, of turned work, and don't speak. They must be carried, because they can't move. Don't be afraid of them; for they can't do bad things, neither is it in them to do good." 
 There is no one like you, God. You are great, and your name is great in might. 
 Who shouldn't fear you, King of the nations? For it belongs to you. Because among all the wise men of the nations, and in all their royal estate, there is no one like you. 
 But they are together brutish and foolish, instructed by idols! It is just wood. 

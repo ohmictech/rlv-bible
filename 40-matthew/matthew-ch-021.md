@@ -42,5 +42,5 @@ They told him, "He will badly ruin those bad men, and will lease out the vineyar
 Jesus said to them, "Did you never read in the Scriptures, 'The stone which the builders rejected was made the cornerstone. This was from the Lord. It is amazing in our eyes'? 
 "That is why I tell you, God's reign will be taken away from you and will be given to a nation producing its fruit. 
 He who falls on this stone will be shattered, but on whomever it falls, it will crush him to dust." 
-When the high priests and the Pharisees heard his stories, they perceived that he spoke about them. 
+When the high priests and the strict religious ones heard his stories, they perceived that he spoke about them. 
 When they sought to seize him, they feared the crowds, because they considered him to be a spokesman. 

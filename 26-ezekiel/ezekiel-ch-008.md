@@ -6,7 +6,7 @@ Then he said to me, "Son of man, lift up your eyes now the way toward the north.
 He said to me, "Son of man, do you see what they do? Even the great abominations that the house of Israel commit here, that I should go far off from my sanctuary? But you will again see yet other great abominations." 
 He brought me to the door of the court; and when I looked, behold, a hole in the wall. 
 Then he said to me, "Son of man, dig now in the wall." When I had dug in the wall, I saw a door. 
-He said to me, "Go in, and see the wicked abominations that they do here." 
+He said to me, "Go in, and see the guilty abominations that they do here." 
 So I went in and looked, and saw every form of creeping things, abominable animals, and all the idols of the house of Israel, portrayed around on the wall. 
 Seventy men of the elders of the house of Israel stood before them. In the middle of them Jaazaniah the son of Shaphan stood, every man with his censer in his hand; and the smell of the cloud of incense went up. 
 Then he said to me, "Son of man, have you seen what the elders of the house of Israel do in the dark, every man in his rooms of imagery? For they say, 'God doesn't see us. God has forsaken the land.'" 

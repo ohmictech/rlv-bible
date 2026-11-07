@@ -1,6 +1,6 @@
 ﻿These are the sons of Israel: Reuben, Simeon, Levi, Judah, Issachar, Zebulun, 
 Dan, Joseph, Benjamin, Naphtali, Gad, and Asher. 
-The sons of Judah: Er, Onan, and Shelah, which three were born to him of Shua's daughter the Canaanitess. Er, Judah's firstborn, was wicked in God's sight; and he killed him. 
+The sons of Judah: Er, Onan, and Shelah, which three were born to him of Shua's daughter the Canaanitess. Er, Judah's firstborn, was guilty in God's sight; and he killed him. 
 Tamar his daughter-in-law bore him Perez and Zerah. All the sons of Judah were five. 
 The sons of Perez: Hezron and Hamul. 
 The sons of Zerah: Zimri, Ethan, Heman, Calcol, and Dara, five of them in all. 
@@ -52,4 +52,4 @@ Salma the father of Bethlehem, and Hareph the father of Beth Gader.
 Shobal the father of Kiriath Jearim had sons: Haroeh, half of the Menuhoth. 
 The families of Kiriath Jearim: the Ithrites, the Puthites, the Shumathites, and the Mishraites; from them came the Zorathites and the Eshtaolites. 
 The sons of Salma: Bethlehem, the Netophathites, Atroth Beth Joab, and half of the Manahathites, the Zorites. 
-The families of scribes who lived at Jabez: the Tirathites, the Shimeathites, and the Sucathites. These are the Kenites who came from Hammath, the father of the house of Rechab. 
+The families of Bible teachers who lived at Jabez: the Tirathites, the Shimeathites, and the Sucathites. These are the Kenites who came from Hammath, the father of the house of Rechab. 

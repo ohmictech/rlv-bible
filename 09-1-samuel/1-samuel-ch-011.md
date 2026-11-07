@@ -12,4 +12,4 @@ On the next day, Saul put the people in three companies; and they came into the 
 The people said to Samuel, "Who is he who said, 'Shall Saul reign over us?' Bring those men, that we may put them to death!" 
 Saul said, "No man shall be put to death today; for today God has rescued Israel." 
 Then Samuel said to the people, "Come! Let's go to Gilgal, and renew the kingdom there." 
-Everyone went to Gilgal; and there they made Saul king before God in Gilgal. There they offered sacrifices of peace offerings before God; and there Saul and all the men of Israel rejoiced greatly. 
+Everyone went to Gilgal; and there they made Saul king before God in Gilgal. There they offered sacrifices of offerings for wholeness before God; and there Saul and all the men of Israel rejoiced greatly. 

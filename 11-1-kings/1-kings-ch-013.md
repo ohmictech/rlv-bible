@@ -30,5 +30,5 @@ The spokesman took up the body of the man of God, and laid it on the donkey, and
 He laid his body in his own grave; and they mourned over him, saying, "Alas, my brother!" 
 After he had buried him, he spoke to his sons, saying, "When I am dead, bury me in the tomb in which the man of God is buried. Lay my bones beside his bones. 
 For the saying which he cried by God's word against the altar in Bethel, and against all the houses of the high places which are in the cities of Samaria, will surely happen." 
-After this thing, Jeroboam didn't turn from his evil way, but again made priests of the high places from among everyone. Whoever wanted to, he consecrated him, that there might be priests of the high places. 
-This thing became sin to the house of Jeroboam, even to cut it off and to destroy it from off the surface of the earth. 
+After this thing, Jeroboam didn't turn from his bad way, but again made priests of the high places from among everyone. Whoever wanted to, he consecrated him, that there might be priests of the high places. 
+This thing became mistake to the house of Jeroboam, even to cut it off and to destroy it from off the surface of the earth. 

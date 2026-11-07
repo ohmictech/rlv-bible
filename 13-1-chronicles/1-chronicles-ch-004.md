@@ -7,7 +7,7 @@ Naarah bore him Ahuzzam, Hepher, Temeni, and Haahashtari. These were the sons of
 The sons of Helah were Zereth, Izhar, and Ethnan. 
 Hakkoz became the father of Anub, Zobebah, and the families of Aharhel the son of Harum. 
 Jabez was more honorable than his brothers. His mother named him Jabez, saying, "Because I bore him with sorrow." 
-Jabez called on the God of Israel, saying, "Oh that you would bless me indeed, and enlarge my border! May your hand be with me, and may you keep me from evil, that I may not cause pain!" God granted him that which he requested. 
+Jabez called on the God of Israel, saying, "Oh that you would bless me indeed, and enlarge my border! May your hand be with me, and may you keep me from what is bad, that I may not cause pain!" God granted him that which he requested. 
 Chelub the brother of Shuhah became the father of Mehir, who was the father of Eshton. 
 Eshton became the father of Beth Rapha, Paseah, and Tehinnah the father of Ir Nahash. These are the men of Recah. 
 The sons of Kenaz: Othniel and Seraiah. The sons of Othniel: Hathath. 

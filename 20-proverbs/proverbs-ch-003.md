@@ -4,7 +4,7 @@ Don't let kindness and truth forsake you. Bind them around your neck. Write them
 So you will find favor, and good understanding in the sight of God and man. 
 Trust in God with all your heart, and don't lean on your own understanding. 
 In all your ways acknowledge him, and he will make your paths straight. 
-Don't be wise in your own eyes. Fear God, and depart from evil. 
+Don't be wise in your own eyes. Fear God, and depart from what is bad. 
 It will be health to your body, and nourishment to your bones. 
 Honor God with your substance, with the first fruits of all your increase; 
 so your barns will be filled with plenty, and your vats will overflow with new wine. 
@@ -22,14 +22,14 @@ My son, let them not depart from your eyes. Keep sound wisdom and discretion,
 so they will be life to your soul, and grace for your neck. 
 Then you shall walk in your way securely. Your foot won't stumble. 
 When you lie down, you will not be afraid. Yes, you will lie down, and your sleep will be sweet. 
-Don't be afraid of sudden fear, neither of the desolation of the wicked, when it comes; 
+Don't be afraid of sudden fear, neither of the desolation of the guilty, when it comes; 
 for God will be your confidence, and will keep your foot from being taken. 
 Don't withhold good from those to whom it is due, when it is in the power of your hand to do it. 
 Don't say to your neighbor, "Go, and come again; tomorrow I will give it to you," when you have it by you. 
-Don't devise evil against your neighbor, since he dwells securely by you. 
+Don't devise bad against your neighbor, mistakece he dwells securely by you. 
 Don't strive with a man without cause, if he has done you no harm. 
 Don't envy the man of violence. Choose none of his ways. 
 For the perverse is an abomination to God, but his friendship is with the upright. 
-God's curse is in the house of the wicked, but he blesses the habitation of the righteous. 
+God's curse is in the house of the guilty, but he blesses the habitation of the righteous. 
 Surely he mocks the mockers, but he gives grace to the humble. 
 The wise will inherit glory, but shame will be the promotion of fools. 

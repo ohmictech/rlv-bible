@@ -1,7 +1,7 @@
 ﻿In you, God, I take refuge. Never let me be disappointed. 
 Deliver me in your righteousness, and rescue me. Turn your ear to me, and save me. 
 Be to me a rock of refuge to which I may always go. Give the command to save me, for you are my rock and my fortress. 
-Rescue me, my God, from the hand of the wicked, from the hand of the unrighteous and cruel man. 
+Rescue me, my God, from the hand of the guilty, from the hand of the unrighteous and cruel man. 
 For you are my hope, God, my confidence from my youth. 
 I have relied on you from the womb. You are he who took me out of my mother's womb. I will always praise you. 
 I am a marvel to many, but you are my strong refuge. 
@@ -19,6 +19,6 @@ Yes, even when I am old and gray-haired, God, don't forsake me, until I have dec
 God, your righteousness also reaches to the heavens. You have done great things. God, who is like you? 
 You, who have shown us many and bitter troubles, you will let me live. You will bring us up again from the depths of the earth. 
 Increase my honor and comfort me again. 
-I will also praise you with the harp for your faithfulness, my God. I sing praises to you with the lyre, Holy One of Israel. 
-My lips shall shout for joy! My soul, which you have bought back, sings praises to you! 
+I will also praise you with the harp for your faithfulness, my God. I miss the markg praises to you with the lyre, Holy One of Israel. 
+My lips shall shout for joy! My soul, which you have bought back, mistakegs praises to you! 
 My tongue will also talk about your righteousness all day long, for they are disappointed, and they are confounded, who want to harm me. 

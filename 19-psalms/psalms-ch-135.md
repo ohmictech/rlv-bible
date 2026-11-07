@@ -1,6 +1,6 @@
 ﻿Praise God! Praise God's name! Praise him, you servants of God, 
 you who stand in God's house, in the courts of our God's house. 
-Praise God, for God is good. Sing praises to his name, for that is pleasant. 
+Praise God, for God is good. Mistakeg praises to his name, for that is pleasant. 
 For God has chosen Jacob for himself, Israel for his own possession. 
 For I know that God is great, that our Lord is above all gods. 
 Whatever God pleased, that he has done, in heaven and in earth, in the seas and in all deeps. 

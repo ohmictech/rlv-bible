@@ -3,8 +3,8 @@ A man shall be as a hiding place from the wind, and a covert from the storm, as 
 The eyes of those who see will not be dim, and the ears of those who hear will listen. 
 The heart of the rash will understand knowledge, and the tongue of the stammerers will be ready to speak plainly. 
 The fool will no longer be called noble, nor the scoundrel be highly respected. 
-For the fool will speak folly, and his heart will work iniquity, to practice profanity, and to utter error against God, to make empty the soul of the hungry, and to cause the drink of the thirsty to fail. 
-The ways of the scoundrel are evil. He devises wicked plans to destroy the humble with lying words, even when the needy speaks right. 
+For the fool will speak folly, and his heart will work guilt, to practice profanity, and to utter error against God, to make empty the soul of the hungry, and to cause the drink of the thirsty to fail. 
+The ways of the scoundrel are bad. He devises guilty plans to destroy the humble with lying words, even when the needy speaks right. 
 But the noble devises noble things, and he will continue in noble things. 
 Rise up, you women who are at ease! Hear my voice! You careless daughters, give ear to my speech! 
 For days beyond a year you will be troubled, you careless women; for the vintage will fail. The harvest won't come. 

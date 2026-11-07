@@ -1,8 +1,8 @@
 ﻿Oh that my head were waters, and my eyes a spring of tears, that I might weep day and night for the slain of the daughter of my people! 
 Oh that I had in the wilderness a lodging place of wayfaring men, that I might leave my people and go from them! For they are all adulterers, an assembly of treacherous men. 
-"They bend their tongue, as their bow, for falsehood. They have grown strong in the land, but not for truth; for they proceed from evil to evil, and they don't know me," says God. 
+"They bend their tongue, as their bow, for falsehood. They have grown strong in the land, but not for truth; for they proceed from what is bad to bad, and they don't know me," says God. 
 "Everyone beware of his neighbor, and don't trust in any brother; for every brother will utterly supplant, and every neighbor will go around like a slanderer. 
-Friends deceive each other, and will not speak the truth. They have taught their tongue to speak lies. They weary themselves committing iniquity. 
+Friends deceive each other, and will not speak the truth. They have taught their tongue to speak lies. They weary themselves committing guilt. 
 Your habitation is in the middle of deceit. Through deceit, they refuse to know me," says God. 
 Therefore the God of Armies says, "Behold, I will melt them and test them; for how should I deal with the daughter of my people? 
 Their tongue is a deadly arrow. It speaks deceit. One speaks peaceably to his neighbor with his mouth, but in his heart, he waits to ambush him. 

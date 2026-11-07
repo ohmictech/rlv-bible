@@ -2,7 +2,7 @@
 Therefore when Paul and Barnabas had no small discord and discussion with them, they appointed Paul, Barnabas, and some others of them to go up to Jerusalem to the sent ones and elders about this question. 
 They, being sent on their way by the gathering, passed through both Phoenicia and Samaria, declaring the turning of the nations. They caused great joy to all the brothers. 
 When they had come to Jerusalem, they were received by the gathering and the sent ones and the elders, and they reported everything that God had done with them. 
-But some of the faction of the Pharisees who had trusted rose up, saying, "It is necessary to circumcise them, and to command them to keep the law of Moses." 
+But some of the faction of the strict religious ones who had trusted rose up, saying, "It is necessary to circumcise them, and to command them to keep the law of Moses." 
 The sent ones and the elders were gathered together to see about this matter. 
 When there had been much discussion, Peter rose up and said to them, "Brothers, you know that a good while ago God made a choice among you that by my mouth the nations should hear the word of the Good News and trust. 
 God, who knows the heart, testified about them, giving them the Holy Spirit, just like he did to us. 

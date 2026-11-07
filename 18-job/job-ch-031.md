@@ -1,6 +1,6 @@
 ﻿"I made a covenant with my eyes; how then should I look lustfully at a young woman? 
 For what is the portion from God above, and the heritage from the Almighty on high? 
-Is it not calamity to the unrighteous, and disaster to the workers of iniquity? 
+Is it not calamity to the unrighteous, and disaster to the workers of guilt? 
 Doesn't he see my ways, and count all my steps? 
 "If I have walked with falsehood, and my foot has hurried to deceit 
 (let me be weighed in an even balance, that God may know my integrity); 
@@ -8,7 +8,7 @@ if my step has turned out of the way, if my heart walked after my eyes, if any d
 then let me sow, and let another eat. Yes, let the produce of my field be rooted out. 
 "If my heart has been enticed to a woman, and I have laid wait at my neighbor's door, 
 then let my wife grind for another, and let others sleep with her. 
-For that would be a heinous crime. Yes, it would be an iniquity to be punished by the judges, 
+For that would be a heinous crime. Yes, it would be an guilt to be punished by the judges, 
 for it is a fire that consumes to destruction, and would root out all my increase. 
 "If I have despised the cause of my male servant or of my female servant, when they contended with me, 
 what then will I do when God rises up? When he visits, what will I answer him? 
@@ -25,12 +25,12 @@ For calamity from God is a terror to me. Because of his majesty, I can do nothin
 If I have rejoiced because my wealth was great, and because my hand had gotten much; 
 if I have seen the sun when it shined, or the moon moving in splendor, 
 and my heart has been secretly enticed, and my hand threw a kiss from my mouth; 
-this also would be an iniquity to be punished by the judges, for I would have denied the God who is above. 
-"If I have rejoiced at the destruction of him who hated me, or lifted up myself when evil found him 
-(I have certainly not allowed my mouth to sin by asking his life with a curse); 
+this also would be an guilt to be punished by the judges, for I would have denied the God who is above. 
+"If I have rejoiced at the destruction of him who hated me, or lifted up myself when bad found him 
+(I have certainly not allowed my mouth to miss the mark by asking his life with a curse); 
 if the men of my tent have not said, 'Who can find one who has not been filled with his meat?' 
 (the foreigner has not camped in the street, but I have opened my doors to the traveler); 
-if like Adam I have covered my transgressions, by hiding my iniquity in my heart, 
+if like Adam I have covered my rebellion, by hiding my guilt in my heart, 
 because I feared the great multitude, and the contempt of families terrified me, so that I kept silence, and didn't go out of the door 
 oh that I had one to hear me! Behold, here is my signature! Let the Almighty answer me! Let the accuser write my indictment! 
 Surely I would carry it on my shoulder, and I would bind it to me as a crown. 

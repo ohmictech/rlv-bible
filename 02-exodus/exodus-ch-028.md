@@ -35,9 +35,9 @@ a golden bell and a pomegranate, a golden bell and a pomegranate, around the hem
 It shall be on Aaron to minister: and its sound shall be heard when he goes in to the holy place before God, and when he comes out, that he not die. 
 "You shall make a plate of pure gold, and engrave on it, like the engravings of a signet, 'HOLY TO THE God.' 
 You shall put it on a lace of blue, and it shall be on the sash. It shall be on the front of the sash. 
-It shall be on Aaron's forehead, and Aaron shall bear the iniquity of the holy things, which the children of Israel shall make holy in all their holy gifts; and it shall be always on his forehead, that they may be accepted before God. 
+It shall be on Aaron's forehead, and Aaron shall bear the guilt of the holy things, which the children of Israel shall make holy in all their holy gifts; and it shall be always on his forehead, that they may be accepted before God. 
 You shall weave the tunic with fine linen. You shall make a turban of fine linen. You shall make a sash, the work of the embroiderer. 
 "You shall make tunics for Aaron's sons. You shall make sashes for them. You shall make headbands for them, for glory and for beauty. 
 You shall put them on Aaron your brother, and on his sons with him, and shall anoint them, and consecrate them, and sanctify them, that they may minister to me in the priest's office. 
 You shall make them linen pants to cover their naked flesh. They shall reach from the waist even to the thighs. 
-They shall be on Aaron and on his sons, when they go in to the Tent of Meeting, or when they come near to the altar to minister in the holy place, that they don't bear iniquity, and die. This shall be a statute for the eras to him and to his offspring after him. 
+They shall be on Aaron and on his sons, when they go in to the Tent of Meeting, or when they come near to the altar to minister in the holy place, that they don't bear guilt, and die. This shall be a statute for the eras to him and to his offspring after him. 

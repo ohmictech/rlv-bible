@@ -2,7 +2,7 @@
 God's sons saw that men's daughters were beautiful, and they took any that they wanted for themselves as wives. 
 God said, "My Spirit will not strive with man for the eras, because he also is flesh; so his days will be one hundred twenty years." 
 The Nephilim were on the earth in those days, and also after that, when God's sons came in to men's daughters and had children with them. Those were the mighty men who were of old, men of renown. 
-God saw that the wickedness of man was great on the earth, and that every imagination of the thoughts of man's heart was continually only evil. 
+God saw that the guilt of man was great on the earth, and that every imagination of the thoughts of man's heart was continually only bad. 
 God was sorry that he had made man on the earth, and it grieved him in his heart. 
 God said, "I will destroy man whom I have created from the surface of the ground, man, along with animals, creeping things, and birds of the sky, for I am sorry that I have made them." 
 But Noah found favor in God's eyes. 

@@ -15,6 +15,6 @@ but the women, the little ones, the livestock, and all that is in the city, even
 Thus you shall do to all the cities which are very far off from you, which are not of the cities of these nations. 
 But of the cities of these peoples that your God gives you for an inheritance, you shall save alive nothing that breathes; 
 but you shall utterly destroy them: the Hittite, the Amorite, the Canaanite, the Perizzite, the Hivite, and the Jebusite, as your God has commanded you; 
-that they not teach you to follow all their abominations, which they have done for their gods; so would you sin against your God. 
+that they not teach you to follow all their abominations, which they have done for their gods; so would you wrong your God. 
 When you shall besiege a city a long time, in making war against it to take it, you shall not destroy its trees by wielding an ax against them; for you may eat of them. You shall not cut them down, for is the tree of the field man, that it should be besieged by you? 
 Only the trees that you know are not trees for food, you shall destroy and cut them down. You shall build bulwarks against the city that makes war with you, until it falls. 

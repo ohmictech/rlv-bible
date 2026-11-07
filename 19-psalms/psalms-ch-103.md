@@ -1,15 +1,15 @@
 ﻿By David. Praise God, my soul! All that is within me, praise his holy name! 
 Praise God, my soul, and don't forget all his benefits, 
-who forgives all your sins, who heals all your diseases, 
+who forgives all your mistakes, who heals all your diseases, 
 who buys back your life from destruction, who crowns you with loving kindness and tender mercies, 
 who satisfies your desire with good things, so that your youth is renewed like the eagle's. 
 God executes righteous acts, and justice for everyone who is oppressed. 
 He made known his ways to Moses, his deeds to the children of Israel. 
 God is merciful and gracious, slow to anger, and abundant in loving kindness. 
 He will not always accuse; neither will he stay angry for the eras. 
-He has not dealt with us according to our sins, nor repaid us for our iniquities. 
+He has not dealt with us according to our mistakes, nor repaid us for our guilt. 
 For as the heavens are high above the earth, so great is his loving kindness toward those who fear him. 
-As far as the east is from the west, so far has he removed our transgressions from us. 
+As far as the east is from the west, so far has he removed our rebellion from us. 
 Like a father has compassion on his children, so God has compassion on those who fear him. 
 For he knows how we are made. He remembers that we are dust. 
 As for man, his days are like grass. As a flower of the field, so he flourishes. 

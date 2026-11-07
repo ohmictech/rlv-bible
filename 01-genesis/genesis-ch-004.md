@@ -4,7 +4,7 @@ As time passed, Cain brought an offering to God from the fruit of the ground.
 Abel also brought some of the firstborn of his flock and of its fat. God respected Abel and his offering, 
 but he didn't respect Cain and his offering. Cain was very angry, and the expression on his face fell. 
 God said to Cain, "Why are you angry? Why has the expression of your face fallen? 
-If you do well, won't it be lifted up? If you don't do well, sin crouches at the door. Its desire is for you, but you are to rule over it." 
+If you do well, won't it be lifted up? If you don't do well, mistake crouches at the door. Its desire is for you, but you are to rule over it." 
 Cain said to Abel, his brother, "Let's go into the field." While they were in the field, Cain rose up against Abel, his brother, and killed him. 
 God said to Cain, "Where is Abel, your brother?" He said, "I don't know. Am I my brother's keeper?" 
 God said, "What have you done? The voice of your brother's blood cries to me from the ground. 
@@ -20,7 +20,7 @@ Lamech took two wives: the name of the first one was Adah, and the name of the s
 Adah gave birth to Jabal, who was the father of those who dwell in tents and have livestock. 
 His brother's name was Jubal, who was the father of everyone who handles the harp and pipe. 
 Zillah also gave birth to Tubal Cain, the forger of every cutting instrument of bronze and iron. Tubal Cain's sister was Naamah. 
-Lamech said to his wives, "Adah and Zillah, hear my voice. You wives of Lamech, listen to my speech, for I have slain a man for wounding me, a young man for bruising me. 
+Lamech said to his wives, "Adah and Zillah, hear my voice. You wives of Lamech, listen to my speech, for I have slain a man for wounding me, a young man for bruimistakeg me. 
 If Cain will be avenged seven times, truly Lamech seventy-seven times." 
 Adam knew his wife again. She gave birth to a son, and named him Seth, saying, "for God has given me another child instead of Abel, for Cain killed him." 
 A son was also born to Seth, and he named him Enosh. At that time men began to call on God's name. 

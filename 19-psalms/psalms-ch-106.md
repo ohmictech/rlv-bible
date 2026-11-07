@@ -3,7 +3,7 @@ Who can utter the mighty acts of God, or fully declare all his praise?
 Blessed are those who keep justice. Blessed is one who does what is right at all times. 
 Remember me, God, with the favor that you show to your people. Visit me with your salvation, 
 that I may see the prosperity of your chosen, that I may rejoice in the gladness of your nation, that I may glory with your inheritance. 
-We have sinned with our fathers. We have committed iniquity. We have done wickedly. 
+We have missed the mark with our fathers. We have committed guilt. We have done guiltyly. 
 Our fathers didn't understand your wonders in Egypt. They didn't remember the multitude of your loving kindnesses, but were rebellious at the sea, even at the Red Sea. 
 Nevertheless he saved them for his name's sake, that he might make his mighty power known. 
 He rebuked the Red Sea also, and it was dried up; so he led them through the depths, as through a desert. 
@@ -15,7 +15,7 @@ but gave in to craving in the desert, and tested God in the wasteland.
 He gave them their request, but sent leanness into their soul. 
 They envied Moses also in the camp, and Aaron, God's saint. 
 The earth opened and swallowed up Dathan, and covered the company of Abiram. 
-A fire was kindled in their company. The flame burned up the wicked. 
+A fire was kindled in their company. The flame burned up the guilty. 
 They made a calf in Horeb, and worshiped a molten image. 
 Thus they exchanged their glory for an image of a bull that eats grass. 
 They forgot God, their Savior, who had done great things in Egypt, 
@@ -40,7 +40,7 @@ Thus they were defiled with their works, and prostituted themselves in their dee
 Therefore God burned with anger against his people. He abhorred his inheritance. 
 He gave them into the hand of the nations. Those who hated them ruled over them. 
 Their enemies also oppressed them. They were brought into subjection under their hand. 
-He rescued them many times, but they were rebellious in their counsel, and were brought low in their iniquity. 
+He rescued them many times, but they were rebellious in their counsel, and were brought low in their guilt. 
 Nevertheless he regarded their distress, when he heard their cry. 
 He remembered for them his covenant, and repented according to the multitude of his loving kindnesses. 
 He made them also to be pitied by everyone who carried them captive. 

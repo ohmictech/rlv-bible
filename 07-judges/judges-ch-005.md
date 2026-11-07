@@ -1,8 +1,8 @@
 ﻿Then Deborah and Barak the son of Abinoam sang on that day, saying, 
 "Because the leaders took the lead in Israel, because the people offered themselves willingly, be blessed, God! 
-"Hear, you kings! Give ear, you princes! I, even I, will sing to God. I will sing praise to the God of Israel. 
+"Hear, you kings! Give ear, you princes! I, even I, will mistakeg to God. I will mistakeg praise to the God of Israel. 
 "God, when you went out of Seir, when you marched out of the field of Edom, the earth trembled, the sky also dropped. Yes, the clouds dropped water. 
-The mountains quaked at God's presence, even Sinai at the presence of the God of Israel. 
+The mountains quaked at God's presence, even Mistakeai at the presence of the God of Israel. 
 "In the days of Shamgar the son of Anath, in the days of Jael, the highways were unoccupied. The travelers walked through byways. 
 The rulers ceased in Israel. They ceased until I, Deborah, arose; Until I arose a mother in Israel. 
 They chose new gods. Then war was in the gates. Was there a shield or spear seen among forty thousand in Israel? 

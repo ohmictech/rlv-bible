@@ -10,7 +10,7 @@ Isn't the whole land before you? Please separate yourself from me. If you go to 
 Lot lifted up his eyes, and saw all the plain of the Jordan, that it was well-watered everywhere, before God destroyed Sodom and Gomorrah, like the garden of God, like the land of Egypt, as you go to Zoar. 
 So Lot chose the Plain of the Jordan for himself. Lot traveled east, and they separated themselves from one another. 
 Abram lived in the land of Canaan, and Lot lived in the cities of the plain, and moved his tent as far as Sodom. 
-Now the men of Sodom were exceedingly wicked and sinners against God. 
+Now the men of Sodom were exceedingly guilty and those who miss the mark against God. 
 God said to Abram, after Lot was separated from him, "Now, lift up your eyes, and look from the place where you are, northward and southward and eastward and westward, 
 for I will give all the land which you see to you and to your offspring for the eras. 
 I will make your offspring as the dust of the earth, so that if a man can count the dust of the earth, then your offspring may also be counted. 

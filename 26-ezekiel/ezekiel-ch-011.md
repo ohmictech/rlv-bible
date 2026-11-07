@@ -1,5 +1,5 @@
 ﻿Moreover the Spirit lifted me up and brought me to the east gate of God's house, which looks eastward. Behold, twenty-five men were at the door of the gate; and I saw among them Jaazaniah the son of Azzur, and Pelatiah the son of Benaiah, princes of the people. 
-He said to me, "Son of man, these are the men who devise iniquity, and who give wicked counsel in this city; 
+He said to me, "Son of man, these are the men who devise guilt, and who give guilty counsel in this city; 
 who say, 'The time is not near to build houses. This is the cauldron, and we are the meat.' 
 Therefore prophesy against them. Prophesy, son of man." 
 God's Spirit fell on me, and he said to me, "Speak, 'God says: "Thus you have said, house of Israel; for I know the things that come into your mind. 

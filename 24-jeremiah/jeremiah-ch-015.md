@@ -8,9 +8,9 @@ I have winnowed them with a fan in the gates of the land. I have bereaved them o
 Their widows are increased more than the sand of the seas. I have brought on them against the mother of the young men a destroyer at noonday. I have caused anguish and terrors to fall on her suddenly. 
 She who has borne seven languishes. She has given up the spirit. Her sun has gone down while it was yet day. She has been disappointed and confounded. I will deliver their residue to the sword before their enemies," says God. 
 Woe is me, my mother, that you have borne me, a man of strife, and a man of contention to the whole earth! I have not lent, neither have men lent to me; yet every one of them curses me. 
-God said, "Most certainly I will strengthen you for good. Most certainly I will cause the enemy to make supplication to you in the time of evil and in the time of affliction. 
+God said, "Most certainly I will strengthen you for good. Most certainly I will cause the enemy to make supplication to you in the time of bad and in the time of affliction. 
 Can one break iron, even iron from the north, and bronze? 
-I will give your substance and your treasures for a plunder without price, and that for all your sins, even in all your borders. 
+I will give your substance and your treasures for a plunder without price, and that for all your mistakes, even in all your borders. 
 I will make them to pass with your enemies into a land which you don't know; for a fire is kindled in my anger, which will burn on you." 
 God, you know. Remember me, visit me, and avenge me of my persecutors. You are patient, so don't take me away. Know that for your sake I have suffered reproach. 
 Your words were found, and I ate them. Your words were to me a joy and the rejoicing of my heart, for I am called by your name, God, God of Armies. 
@@ -18,4 +18,4 @@ I didn't sit in the assembly of those who make merry and rejoice. I sat alone be
 Why is my pain perpetual, and my wound incurable, which refuses to be healed? Will you indeed be to me as a deceitful brook, like waters that fail? 
 Therefore God says, "If you return, then I will bring you again, that you may stand before me; and if you take out the precious from the vile, you will be as my mouth. They will return to you, but you will not return to them. 
 I will make you to this people a fortified bronze wall. They will fight against you, but they will not prevail against you; for I am with you to save you and to deliver you," says God. 
-"I will deliver you out of the hand of the wicked, and I will buy you back out of the hand of the terrible." 
+"I will deliver you out of the hand of the guilty, and I will buy you back out of the hand of the terrible." 

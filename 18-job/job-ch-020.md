@@ -1,15 +1,15 @@
 ﻿Then Zophar the Naamathite answered, 
 "Therefore my thoughts answer me, even by reason of my haste that is in me. 
 I have heard the reproof which puts me to shame. The spirit of my understanding answers me. 
-Don't you know this from old time, since man was placed on earth, 
-that the triumphing of the wicked is short, the joy of the godless but for a moment? 
+Don't you know this from old time, mistakece man was placed on earth, 
+that the triumphing of the guilty is short, the joy of the godless but for a moment? 
 Though his height mount up to the heavens, and his head reach to the clouds, 
 yet he will perish for the eras like his own dung. Those who have seen him will say, 'Where is he?' 
 He will fly away as a dream, and will not be found. Yes, he will be chased away like a vision of the night. 
 The eye which saw him will see him no more, neither will his place see him any more. 
 His children will seek the favor of the poor. His hands will give back his wealth. 
 His bones are full of his youth, but youth will lie down with him in the dust. 
-"Though wickedness is sweet in his mouth, though he hide it under his tongue, 
+"Though guilt is sweet in his mouth, though he hide it under his tongue, 
 though he spare it, and will not let it go, but keep it still within his mouth, 
 yet his food in his bowels is turned. It is cobra venom within him. 
 He has swallowed down riches, and he will vomit them up again. God will cast them out of his belly. 
@@ -24,6 +24,6 @@ When he is about to fill his belly, God will cast the fierceness of his wrath on
 He will flee from the iron weapon. The bronze arrow will strike him through. 
 He draws it out, and it comes out of his body. Yes, the glittering point comes out of his liver. Terrors are on him. 
 All darkness is laid up for his treasures. An unfanned fire will devour him. It will consume that which is left in his tent. 
-The heavens will reveal his iniquity. The earth will rise up against him. 
+The heavens will reveal his guilt. The earth will rise up against him. 
 The increase of his house will depart. They will rush away in the day of his wrath. 
-This is the portion of a wicked man from the heritage appointed to him by God." 
+This is the portion of a guilty man from the heritage appointed to him by God." 

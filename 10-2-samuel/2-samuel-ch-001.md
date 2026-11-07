@@ -23,5 +23,5 @@ From the blood of the slain, from the fat of the mighty, Jonathan's bow didn't t
 Saul and Jonathan were lovely and pleasant in their lives. In their death, they were not divided. They were swifter than eagles. They were stronger than lions. 
 You daughters of Israel, weep over Saul, who clothed you delicately in scarlet, who put ornaments of gold on your clothing. 
 How the mighty have fallen in the middle of the battle! Jonathan was slain on your high places. 
-I am distressed for you, my brother Jonathan. You have been very pleasant to me. Your love to me was wonderful, surpassing the love of women. 
+I am distressed for you, my brother Jonathan. You have been very pleasant to me. Your love to me was wonderful, surpasmistakeg the love of women. 
 How the mighty have fallen, and the weapons of war have perished!" 

@@ -10,7 +10,7 @@ They are all plain to him who understands, right to those who find knowledge.
 Receive my instruction rather than silver, knowledge rather than choice gold. 
 For wisdom is better than rubies. All the things that may be desired can't be compared to it. 
 "I, wisdom, have made prudence my dwelling. Find out knowledge and discretion. 
-The fear of God is to hate evil. I hate pride, arrogance, the evil way, and the perverse mouth. 
+The fear of God is to hate bad. I hate pride, arrogance, the bad way, and the perverse mouth. 
 Counsel and sound knowledge are mine. I have understanding and power. 
 By me kings reign, and princes decree justice. 
 By me princes rule, nobles, and all the righteous rulers of the earth. 
@@ -33,4 +33,4 @@ rejoicing in his whole world. My delight was with the sons of men.
 Hear instruction, and be wise. Don't refuse it. 
 Blessed is the man who hears me, watching daily at my gates, waiting at my door posts. 
 For whoever finds me finds life, and will obtain favor from God. 
-But he who sins against me wrongs his own soul. Everyone who hates me love death." 
+But he who wrongs me wrongs his own soul. Everyone who hates me love death." 

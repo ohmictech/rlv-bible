@@ -8,12 +8,12 @@ They traveled from Etham, and turned back to Pihahiroth, which is before Baal Ze
 They traveled from before Hahiroth, and crossed through the middle of the sea into the wilderness. They went three days' journey in the wilderness of Etham, and encamped in Marah. 
 They traveled from Marah, and came to Elim. In Elim, there were twelve springs of water and seventy palm trees, and they encamped there. 
 They traveled from Elim, and encamped by the Red Sea. 
-They traveled from the Red Sea, and encamped in the wilderness of Sin. 
-They traveled from the wilderness of Sin, and encamped in Dophkah. 
+They traveled from the Red Sea, and encamped in the wilderness of Mistake. 
+They traveled from the wilderness of Mistake, and encamped in Dophkah. 
 They traveled from Dophkah, and encamped in Alush. 
 They traveled from Alush, and encamped in Rephidim, where there was no water for the people to drink. 
-They traveled from Rephidim, and encamped in the wilderness of Sinai. 
-They traveled from the wilderness of Sinai, and encamped in Kibroth Hattaavah. 
+They traveled from Rephidim, and encamped in the wilderness of Mistakeai. 
+They traveled from the wilderness of Mistakeai, and encamped in Kibroth Hattaavah. 
 They traveled from Kibroth Hattaavah, and encamped in Hazeroth. 
 They traveled from Hazeroth, and encamped in Rithmah. 
 They traveled from Rithmah, and encamped in Rimmon Perez. 

@@ -5,7 +5,7 @@ He said to Jehoshaphat, "Will you go with me to battle to Ramoth Gilead?" Jehosh
 Jehoshaphat said to the king of Israel, "Please inquire first for God's word." 
 Then the king of Israel gathered the spokesmen together, about four hundred men, and said to them, "Should I go against Ramoth Gilead to battle, or should I refrain?" They said, "Go up; for the Lord will deliver it into the hand of the king." 
 But Jehoshaphat said, "Isn't there here a spokesman of God, that we may inquire of him?" 
-The king of Israel said to Jehoshaphat, "There is yet one man by whom we may inquire of God, Micaiah the son of Imlah; but I hate him, for he does not prophesy good concerning me, but evil." Jehoshaphat said, "Don't let the king say so." 
+The king of Israel said to Jehoshaphat, "There is yet one man by whom we may inquire of God, Micaiah the son of Imlah; but I hate him, for he does not prophesy good concerning me, but bad." Jehoshaphat said, "Don't let the king say so." 
 Then the king of Israel called an officer, and said, "Quickly get Micaiah the son of Imlah." 
 Now the king of Israel and Jehoshaphat the king of Judah were sitting each on his throne, arrayed in their robes, in an open place at the entrance of the gate of Samaria; and all the spokesmen were prophesying before them. 
 Zedekiah the son of Chenaanah made himself horns of iron, and said, "God says, 'With these you will push the Syrians, until they are consumed.'" 
@@ -15,12 +15,12 @@ Micaiah said, "As God lives, what God says to me, that I will speak."
 When he had come to the king, the king said to him, "Micaiah, shall we go to Ramoth Gilead to battle, or shall we forbear?" He answered him, "Go up and prosper; and God will deliver it into the hand of the king." 
 The king said to him, "How many times do I have to adjure you that you speak to me nothing but the truth in God's name?" 
 He said, "I saw all Israel scattered on the mountains, as sheep that have no shepherd. God said, 'These have no master. Let them each return to his house in peace.'" 
-The king of Israel said to Jehoshaphat, "Didn't I tell you that he would not prophesy good concerning me, but evil?" 
+The king of Israel said to Jehoshaphat, "Didn't I tell you that he would not prophesy good concerning me, but bad?" 
 Micaiah said, "Therefore hear God's word. I saw God sitting on his throne, and all the army of heaven standing by him on his right hand and on his left. 
 God said, 'Who will entice Ahab, that he may go up and fall at Ramoth Gilead?' One said one thing, and another said another. 
 A spirit came out and stood before God, and said, 'I will entice him.' 
 God said to him, 'How?' He said, 'I will go out and will be a lying spirit in the mouth of all his spokesmen.' He said, 'You will entice him, and will also prevail. Go out and do so.' 
-Now therefore, behold, God has put a lying spirit in the mouth of all these your spokesmen; and God has spoken evil concerning you." 
+Now therefore, behold, God has put a lying spirit in the mouth of all these your spokesmen; and God has spoken bad concerning you." 
 Then Zedekiah the son of Chenaanah came near and struck Micaiah on the cheek, and said, "Which way did God's Spirit go from me to speak to you?" 
 Micaiah said, "Behold, you will see on that day when you go into an inner room to hide yourself." 
 The king of Israel said, "Take Micaiah, and carry him back to Amon the governor of the city and to Joash the king's son. 
@@ -49,5 +49,5 @@ Jehoshaphat made ships of Tarshish to go to Ophir for gold, but they didn't go, 
 Then Ahaziah the son of Ahab said to Jehoshaphat, "Let my servants go with your servants in the ships." But Jehoshaphat would not. 
 Jehoshaphat slept with his fathers, and was buried with his fathers in his father David's city. Jehoram his son reigned in his place. 
 Ahaziah the son of Ahab began to reign over Israel in Samaria in the seventeenth year of Jehoshaphat king of Judah, and he reigned two years over Israel. 
-He did that which was evil in God's sight, and walked in the way of his father, and in the way of his mother, and in the way of Jeroboam the son of Nebat, in which he made Israel to sin. 
+He did that which was bad in God's sight, and walked in the way of his father, and in the way of his mother, and in the way of Jeroboam the son of Nebat, in which he made Israel to miss the mark. 
 He served Baal and worshiped him, and provoked the God of Israel, to anger in all the ways that his father had done so. 

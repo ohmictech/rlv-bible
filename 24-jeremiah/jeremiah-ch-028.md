@@ -5,7 +5,7 @@ I will bring again to this place Jeconiah the son of Jehoiakim, king of Judah, w
 Then the spokesman Jeremiah said to the spokesman Hananiah in the presence of the priests, and in the presence of everyone who stood in God's house, 
 even the spokesman Jeremiah said, "Amen! May God do so. May God perform your words which you have prophesied, to bring again the vessels of God's house, and everyone who is captives, from Babylon to this place. 
 Nevertheless listen now to this word that I speak in your ears, and in the ears of everyone: 
-The spokesmen who have been before me and before you of old prophesied against many countries, and against great kingdoms, of war, of evil, and of pestilence. 
+The spokesmen who have been before me and before you of old prophesied against many countries, and against great kingdoms, of war, of bad, and of pestilence. 
 As for the spokesman who prophesies of peace, when the word of the spokesman happens, then the spokesman will be known, that God has truly sent him." 
 Then Hananiah the spokesman took the bar from off the spokesman Jeremiah's neck, and broke it. 
 Hananiah spoke in the presence of everyone, saying, "God says: 'Even so I will break the yoke of Nebuchadnezzar king of Babylon from off the neck of all the nations within two full years.'" Then the spokesman Jeremiah went his way. 

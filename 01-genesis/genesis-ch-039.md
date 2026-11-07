@@ -2,11 +2,11 @@
 God was with Joseph, and he was a prosperous man. He was in the house of his master the Egyptian. 
 His master saw that God was with him, and that God made all that he did prosper in his hand. 
 Joseph found favor in his sight. He ministered to him, and Potiphar made him overseer over his house, and all that he had he put into his hand. 
-From the time that he made him overseer in his house, and over all that he had, God blessed the Egyptian's house for Joseph's sake. God's blessing was on all that he had, in the house and in the field. 
+From the time that he made him overseer in his house, and over all that he had, God blessed the Egyptian's house for Joseph's sake. God's blesmistakeg was on all that he had, in the house and in the field. 
 He left all that he had in Joseph's hand. He didn't concern himself with anything, except for the food which he ate. Joseph was well-built and handsome. 
 After these things, his master's wife set her eyes on Joseph; and she said, "Lie with me." 
 But he refused, and said to his master's wife, "Behold, my master doesn't know what is with me in the house, and he has put all that he has into my hand. 
-No one is greater in this house than I am, and he has not kept back anything from me but you, because you are his wife. How then can I do this great wickedness, and sin against God?" 
+No one is greater in this house than I am, and he has not kept back anything from me but you, because you are his wife. How then can I do this great guilt, and wrong God?" 
 As she spoke to Joseph day by day, he didn't listen to her, to lie by her, or to be with her. 
 About this time, he went into the house to do his work, and there were none of the men of the house inside. 
 She caught him by his garment, saying, "Lie with me!" He left his garment in her hand, and ran outside. 

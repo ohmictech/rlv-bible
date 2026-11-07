@@ -4,20 +4,20 @@ For a nation comes up out of the north against her, which will make her land des
 "In those days, and in that time," says God, "the children of Israel will come, they and the children of Judah together; they will go on their way weeping, and will seek their God. 
 They will inquire concerning Zion with their faces turned toward it, saying, 'Come, and join yourselves to God in an perpetual covenant that will not be forgotten.' 
 My people have been lost sheep. Their shepherds have caused them to go astray. They have turned them away on the mountains. They have gone from mountain to hill. They have forgotten their resting place. 
-Everyone who found them have devoured them. Their adversaries said, 'We are not guilty, because they have sinned against God, the habitation of righteousness, even God, the hope of their fathers.' 
+Everyone who found them have devoured them. Their adversaries said, 'We are not guilty, because they have wronged God, the habitation of righteousness, even God, the hope of their fathers.' 
 "Flee out of the middle of Babylon! Go out of the land of the Chaldeans, and be as the male goats before the flocks. 
 For, behold, I will stir up and cause to come up against Babylon a company of great nations from the north country; and they will set themselves in array against her. She will be taken from there. Their arrows will be as of an expert mighty man. None of them will return in vain. 
 Chaldea will be a prey. Everyone who preys on her will be satisfied," says God. 
 "Because you are glad, because you rejoice, O you who plunder my heritage, because you are wanton as a heifer that treads out the grain, and neigh as strong horses, 
 your mother will be utterly disappointed. She who bore you will be confounded. Behold, she will be the least of the nations, a wilderness, a dry land, and a desert. 
 Because of God's wrath she won't be inhabited, but she will be wholly desolate. Everyone who goes by Babylon will be astonished, and hiss at all her plagues. 
-Set yourselves in array against Babylon all around, all you who bend the bow; shoot at her. Spare no arrows, for she has sinned against God. 
+Set yourselves in array against Babylon all around, all you who bend the bow; shoot at her. Spare no arrows, for she has wronged God. 
 Shout against her all around. She has submitted herself. Her bulwarks have fallen. Her walls have been thrown down, for it is the vengeance of God. Take vengeance on her. As she has done, do to her. 
-Cut off the sower from Babylon, and him who handles the sickle in the time of harvest. For fear of the oppressing sword, they will each return to their own people, and they will each flee to their own land. 
+Cut off the sower from Babylon, and him who handles the sickle in the time of harvest. For fear of the oppresmistakeg sword, they will each return to their own people, and they will each flee to their own land. 
 "Israel is a hunted sheep. The lions have driven him away. First, the king of Assyria devoured him, and now at last Nebuchadnezzar king of Babylon has broken his bones." 
 Therefore the God of Armies, the God of Israel, says: "Behold, I will punish the king of Babylon and his land, as I have punished the king of Assyria. 
 I will bring Israel again to his pasture, and he will feed on Carmel and Bashan. His soul will be satisfied on the hills of Ephraim and in Gilead. 
-In those days, and in that time," says God, "the iniquity of Israel will be sought for, and there will be none, also the sins of Judah, and they won't be found; for I will pardon them whom I leave as a remnant. 
+In those days, and in that time," says God, "the guilt of Israel will be sought for, and there will be none, also the misses the mark of Judah, and they won't be found; for I will pardon them whom I leave as a remnant. 
 "Go up against the land of Merathaim, even against it, and against the inhabitants of Pekod. Kill and utterly destroy after them," says God, "and do according to all that I have commanded you. 
 A sound of battle is in the land, and of great destruction. 
 How the hammer of the whole earth is cut apart and broken! How Babylon has become a desolation among the nations! 

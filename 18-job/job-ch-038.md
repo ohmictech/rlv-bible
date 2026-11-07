@@ -10,9 +10,9 @@ when I made clouds its garment, and wrapped it in thick darkness,
 marked out for it my bound, set bars and doors, 
 and said, 'You may come here, but no further. Your proud waves shall be stopped here'? 
 "Have you commanded the morning in your days, and caused the dawn to know its place, 
-that it might take hold of the ends of the earth, and shake the wicked out of it? 
+that it might take hold of the ends of the earth, and shake the guilty out of it? 
 It is changed as clay under the seal, and presented as a garment. 
-From the wicked, their light is withheld. The high arm is broken. 
+From the guilty, their light is withheld. The high arm is broken. 
 "Have you entered into the springs of the sea? Or have you walked in the recesses of the deep? 
 Have the gates of death been revealed to you? Or have you seen the gates of the shadow of death? 
 Have you comprehended the earth in its width? Declare, if you know it all. 

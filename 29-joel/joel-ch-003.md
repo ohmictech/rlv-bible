@@ -10,7 +10,7 @@ Proclaim this among the nations: "Prepare for war! Stir up the mighty men. Let a
 Beat your plowshares into swords, and your pruning hooks into spears. Let the weak say, 'I am strong.' 
 Hurry and come, all you surrounding nations, and gather yourselves together." Cause your mighty ones to come down there, God. 
 "Let the nations arouse themselves, and come up to the valley of Jehoshaphat; for there I will sit to judge all the surrounding nations. 
-Put in the sickle; for the harvest is ripe. Come, tread, for the wine press is full, the vats overflow, for their wickedness is great." 
+Put in the sickle; for the harvest is ripe. Come, tread, for the wine press is full, the vats overflow, for their guilt is great." 
 Multitudes, multitudes in the valley of decision! For the day of God is near in the valley of decision. 
 The sun and the moon are darkened, and the stars withdraw their shining. 
 God will roar from Zion, and thunder from Jerusalem; and the heavens and the earth will shake; but God will be a refuge to his people, and a stronghold to the children of Israel. 

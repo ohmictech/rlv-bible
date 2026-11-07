@@ -16,7 +16,7 @@ You must not eat bread, or roasted grain, or fresh grain, until this same day, u
 The next day after the seventh Sabbath you shall count fifty days; and you shall offer a new meal offering to God. 
 You shall bring out of your habitations two loaves of bread for a wave offering made of two tenths of an ephah of fine flour. They shall be baked with yeast, for first fruits to God. 
 You shall present with the bread seven lambs without defect a year old, one young bull, and two rams. They shall be a burnt offering to God, with their meal offering and their drink offerings, even an offering made by fire, of a sweet aroma to God. 
-You shall offer one male goat for a sin offering, and two male lambs a year old for a sacrifice of peace offerings. 
+You shall offer one male goat for an offering for mistakes, and two male lambs a year old for a sacrifice of offerings for wholeness. 
 The priest shall wave them with the bread of the first fruits for a wave offering before God, with the two lambs. They shall be holy to God for the priest. 
 You shall make proclamation on the same day that there shall be a holy convocation to you. You shall do no regular work. This is a statute for the eras in all your dwellings throughout your generations. 
 "'When you reap the harvest of your land, you must not wholly reap into the corners of your field. You must not gather the gleanings of your harvest. You must leave them for the poor and for the foreigner. I am your God.'" 

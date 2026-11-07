@@ -6,10 +6,10 @@ Yes, moreover, wine is treacherous: an arrogant man who doesn't stay at home, wh
 Won't all these take up a parable against him, and a taunting proverb against him, and say, 'Woe to him who increases that which is not his, and who enriches himself by extortion! How long?' 
 Won't your debtors rise up suddenly, and wake up those who make you tremble, and you will be their victim? 
 Because you have plundered many nations, all the remnant of the peoples will plunder you because of men's blood, and for the violence done to the land, to the city and to everyone who dwells in it. 
-Woe to him who gets an evil gain for his house, that he may set his nest on high, that he may be delivered from the hand of evil! 
-You have devised shame to your house by cutting off many peoples, and have sinned against your soul. 
+Woe to him who gets an bad gain for his house, that he may set his nest on high, that he may be delivered from the hand of bad! 
+You have devised shame to your house by cutting off many peoples, and have wronged your soul. 
 For the stone will cry out of the wall, and the beam out of the woodwork will answer it. 
-Woe to him who builds a town with blood, and establishes a city by iniquity! 
+Woe to him who builds a town with blood, and establishes a city by guilt! 
 Behold, isn't it from the God of Armies that the peoples labor for the fire, and the nations weary themselves for vanity? 
 For the earth will be filled with the knowledge of God's glory, as the waters cover the sea. 
 "Woe to him who gives his neighbor drink, pouring your inflaming wine until they are drunk, so that you may gaze at their naked bodies! 

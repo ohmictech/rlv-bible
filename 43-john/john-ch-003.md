@@ -1,4 +1,4 @@
-﻿Now there was a man of the Pharisees named Nicodemus, a leader of the Jewish people. 
+﻿Now there was a man of the strict religious ones named Nicodemus, a leader of the Jewish people. 
 He came to Jesus by night and said to him, "Rabbi, we know that you are a teacher who has come from God, for no one can do these signs that you do, unless God is with him." 
 Jesus answered him, "Truly I tell you, unless someone is born from above, they can't see God's reign. 
 Nicodemus said to him, "How can anyone be born when they are old? They can't enter their mother's womb a second time and be born, can they?" 

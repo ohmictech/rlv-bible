@@ -6,7 +6,7 @@ The king said to her, "What ails you?" She answered, "Truly I am a widow, and my
 Your servant had two sons; and they both fought together in the field, and there was no one to part them, but the one struck the other and killed him. 
 Behold, the whole family has risen against your servant, and they say, 'Deliver him who struck his brother, that we may kill him for the life of his brother whom he killed, and so destroy the heir also.' Thus they would quench my coal which is left, and would leave to my husband neither name nor remainder on the surface of the earth." 
 The king said to the woman, "Go to your house, and I will give a command concerning you." 
-The woman of Tekoa said to the king, "My lord, O king, may the iniquity be on me, and on my father's house; and may the king and his throne be guiltless." 
+The woman of Tekoa said to the king, "My lord, O king, may the guilt be on me, and on my father's house; and may the king and his throne be guiltless." 
 The king said, "Whoever says anything to you, bring him to me, and he will not bother you any more." 
 Then she said, "Please let the king remember your God, that the avenger of blood destroy not any more, lest they destroy my son." He said, "As God lives, not one hair of your son shall fall to the earth." 
 Then the woman said, "Please let your servant speak a word to my lord the king." He said, "Say on." 
@@ -29,5 +29,5 @@ Absalom lived two full years in Jerusalem, and he didn't see the king's face.
 Then Absalom sent for Joab, to send him to the king, but he would not come to him. Then he sent again a second time, but he would not come. 
 Therefore he said to his servants, "Behold, Joab's field is near mine, and he has barley there. Go and set it on fire." So Absalom's servants set the field on fire. 
 Then Joab arose and came to Absalom to his house, and said to him, "Why have your servants set my field on fire?" 
-Absalom answered Joab, "Behold, I sent to you, saying, 'Come here, that I may send you to the king, to say, "Why have I come from Geshur? It would be better for me to be there still. Now therefore, let me see the king's face; and if there is iniquity in me, let him kill me."'" 
+Absalom answered Joab, "Behold, I sent to you, saying, 'Come here, that I may send you to the king, to say, "Why have I come from Geshur? It would be better for me to be there still. Now therefore, let me see the king's face; and if there is guilt in me, let him kill me."'" 
 So Joab came to the king and told him; and when he had called for Absalom, he came to the king and bowed himself on his face to the ground before the king; and the king kissed Absalom. 

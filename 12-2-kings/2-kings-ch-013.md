@@ -1,14 +1,14 @@
 ﻿In the twenty-third year of Joash the son of Ahaziah, king of Judah, Jehoahaz the son of Jehu began to reign over Israel in Samaria for seventeen years. 
-He did that which was evil in God's sight, and followed the sins of Jeroboam the son of Nebat, with which he made Israel to sin. He didn't depart from it. 
+He did that which was bad in God's sight, and followed the misses the mark of Jeroboam the son of Nebat, with which he made Israel to miss the mark. He didn't depart from it. 
 God's anger burned against Israel, and he delivered them into the hand of Hazael king of Syria, and into the hand of Benhadad the son of Hazael, continually. 
 Jehoahaz begged God, and God listened to him; for he saw the oppression of Israel, how the king of Syria oppressed them. 
 (God gave Israel a savior, so that they went out from under the hand of the Syrians; and the children of Israel lived in their tents as before. 
-Nevertheless they didn't depart from the sins of the house of Jeroboam, with which he made Israel to sin, but walked in them; and the Asherah also remained in Samaria.) 
+Nevertheless they didn't depart from the misses the mark of the house of Jeroboam, with which he made Israel to miss the mark, but walked in them; and the Asherah also remained in Samaria.) 
 For he didn't leave to Jehoahaz of the people any more than fifty horsemen, and ten chariots, and ten thousand footmen; for the king of Syria destroyed them and made them like the dust in threshing. 
 Now the rest of the acts of Jehoahaz, and all that he did, and his might, aren't they written in the book of the chronicles of the kings of Israel? 
 Jehoahaz slept with his fathers; and they buried him in Samaria; and Joash his son reigned in his place. 
 In the thirty-seventh year of Joash king of Judah, Jehoash the son of Jehoahaz began to reign over Israel in Samaria for sixteen years. 
-He did that which was evil in God's sight. He didn't depart from all the sins of Jeroboam the son of Nebat, with which he made Israel to sin; but he walked in them. 
+He did that which was bad in God's sight. He didn't depart from all the misses the mark of Jeroboam the son of Nebat, with which he made Israel to miss the mark; but he walked in them. 
 Now the rest of the acts of Joash, and all that he did, and his might with which he fought against Amaziah king of Judah, aren't they written in the book of the chronicles of the kings of Israel? 
 Joash slept with his fathers; and Jeroboam sat on his throne. Joash was buried in Samaria with the kings of Israel. 
 Now Elisha became sick with the illness of which he died; and Joash the king of Israel came down to him, and wept over him, and said, "My father, my father, the chariots of Israel and its horsemen!" 

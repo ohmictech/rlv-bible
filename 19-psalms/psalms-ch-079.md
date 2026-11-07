@@ -5,8 +5,8 @@ We have become a reproach to our neighbors, a scoffing and derision to those who
 How long, God? Will you be angry for the eras? Will your jealousy burn like fire? 
 Pour out your wrath on the nations that don't know you, on the kingdoms that don't call on your name, 
 for they have devoured Jacob, and destroyed his homeland. 
-Don't hold the iniquities of our forefathers against us. Let your tender mercies speedily meet us, for we are in desperate need. 
-Help us, God of our salvation, for the glory of your name. Deliver us, and forgive our sins, for your name's sake. 
+Don't hold the guilt of our forefathers against us. Let your tender mercies speedily meet us, for we are in desperate need. 
+Help us, God of our salvation, for the glory of your name. Deliver us, and forgive our mistakes, for your name's sake. 
 Why should the nations say, "Where is their God?" Let it be known among the nations, before our eyes, that vengeance for your servants' blood is being poured out. 
 Let the sighing of the prisoner come before you. According to the greatness of your power, preserve those who are sentenced to death. 
 Pay back to our neighbors seven times into their bosom their reproach with which they have reproached you, Lord. 

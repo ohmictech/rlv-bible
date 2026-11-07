@@ -1,6 +1,6 @@
 ﻿but Jesus went to the Mount of Olives. 
 Now very early in the morning, he came again into the temple courts, and everyone came to him. He sat down and taught them. 
-The Bible teachers and the Pharisees brought a woman caught sleeping around. Having set her in the middle, 
+The Bible teachers and the strict religious ones brought a woman caught sleeping around. Having set her in the middle, 
 they told him, "Teacher, this woman was caught in the very act of sleeping around. 
 Now in our law, Moses commanded us to stone such women. What then do you say about her?" 
 They said this testing him, that they might have something to accuse him of. But Jesus stooped down and wrote on the ground with his finger. 
@@ -10,7 +10,7 @@ When they heard it, they were convicted by their conscience and went out one by 
 Jesus stood up and saw her, and said, "Woman, where are your accusers? Did no one judge you?" 
 She said, "No one, Lord." Jesus said, "Neither do I judge you. Go your way. From now on, stop missing the mark." 
 Again, therefore, Jesus spoke to them, saying, "I am the light of the world. Whoever follows me will not walk in the darkness, but will have the light of real life." 
-The Pharisees therefore said to him, "You testify about yourself. Your witness is not valid." 
+The strict religious ones therefore said to him, "You testify about yourself. Your witness is not valid." 
 Jesus answered them, "Even if I testify about myself, my witness is true, for I know where I came from, and where I am going; but you don't know where I came from, or where I am going. 
 You judge according to the flesh. I judge no one. 
 Even if I do judge, my verdict is right, for I am not alone, but I am with the Father who sent me. 

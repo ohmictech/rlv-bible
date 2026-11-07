@@ -1,6 +1,6 @@
 ﻿Then the daughters of Zelophehad, the son of Hepher, the son of Gilead, the son of Machir, the son of Manasseh, of the families of Manasseh the son of Joseph came near. These are the names of his daughters: Mahlah, Noah, Hoglah, Milcah, and Tirzah. 
 They stood before Moses, before Eleazar the priest, and before the princes and all the congregation, at the door of the Tent of Meeting, saying, 
-"Our father died in the wilderness. He was not among the company of those who gathered themselves together against God in the company of Korah, but he died in his own sin. He had no sons. 
+"Our father died in the wilderness. He was not among the company of those who gathered themselves together against God in the company of Korah, but he died in his own mistake. He had no sons. 
 Why should the name of our father be taken away from among his family, because he had no son? Give to us a possession among the brothers of our father." 
 Moses brought their cause before God. 
 God spoke to Moses, saying, 

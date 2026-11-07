@@ -11,7 +11,7 @@ He who is faithful in a very little is faithful also in much. He who is dishones
 If therefore you have not been faithful in the dishonest wealth, who will commit to your trust the true riches? 
 If you have not been faithful in that which is another's, who will give you that which is your own? 
 No slave can serve two masters, for either he will hate the one and love the other; or else he will hold to one and despise the other. You aren't able to serve God and Mammon." 
-The Pharisees, who were lovers of money, also heard all these things, and they scoffed at him. 
+The strict religious ones, who were lovers of money, also heard all these things, and they scoffed at him. 
 He said to them, "You are the ones who make yourselves look right in people's sight, but God knows your hearts. For that which is exalted among men is detestable in the sight of God. 
 "The law and the prophets were until John. From that time the Good News of God's reign is preached, and everyone is forcing his way into it. 
 But it is easier for the sky and the land to pass away than for one tiny stroke of a pen in the law to fall. 

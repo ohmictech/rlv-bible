@@ -13,7 +13,7 @@ When the woman saw Samuel, she cried with a loud voice; and the woman spoke to S
 The king said to her, "Don't be afraid! What do you see?" The woman said to Saul, "I see a god coming up out of the earth." 
 He said to her, "What does he look like?" She said, "An old man comes up. He is covered with a robe." Saul perceived that it was Samuel, and he bowed with his face to the ground, and showed respect. 
 Samuel said to Saul, "Why have you disturbed me, to bring me up?" Saul answered, "I am very distressed; for the Philistines make war against me, and God has departed from me, and answers me no more, by spokesmen, or by dreams. Therefore I have called you, that you may make known to me what I shall do." 
-Samuel said, "Why then do you ask me, since God has departed from you and has become your adversary? 
+Samuel said, "Why then do you ask me, mistakece God has departed from you and has become your adversary? 
 God has done to you as he spoke by me. God has torn the kingdom out of your hand and given it to your neighbor, even to David. 
 Because you didn't obey God's voice, and didn't execute his fierce wrath on Amalek, therefore God has done this thing to you today. 
 Moreover God will deliver Israel also with you into the hand of the Philistines; and tomorrow you and your sons will be with me. God will deliver the army of Israel also into the hand of the Philistines." 

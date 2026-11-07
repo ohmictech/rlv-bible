@@ -19,9 +19,9 @@ He will not allow me to catch my breath, but fills me with bitterness.
 If it is a matter of strength, behold, he is mighty! If of justice, 'Who,' says he, 'will summon me?' 
 Though I am righteous, my own mouth will condemn me. Though I am blameless, it will prove me perverse. 
 I am blameless. I don't respect myself. I despise my life. 
-"It is all the same. Therefore I say he destroys the blameless and the wicked. 
+"It is all the same. Therefore I say he destroys the blameless and the guilty. 
 If the scourge kills suddenly, he will mock at the trial of the innocent. 
-The earth is given into the hand of the wicked. He covers the faces of its judges. If not he, then who is it? 
+The earth is given into the hand of the guilty. He covers the faces of its judges. If not he, then who is it? 
 "Now my days are swifter than a runner. They flee away. They see no good. 
 They have passed away as the swift ships, as the eagle that swoops on the prey. 
 If I say, 'I will forget my complaint, I will put off my sad face, and cheer up,' 

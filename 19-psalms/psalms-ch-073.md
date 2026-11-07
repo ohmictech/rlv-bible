@@ -1,6 +1,6 @@
 ﻿A Psalm by Asaph. Surely God is good to Israel, to those who are pure in heart. 
 But as for me, my feet were almost gone. My steps had nearly slipped. 
-For I was envious of the arrogant, when I saw the prosperity of the wicked. 
+For I was envious of the arrogant, when I saw the prosperity of the guilty. 
 For there are no struggles in their death, but their strength is firm. 
 They are free from burdens of men, neither are they plagued like other men. 
 Therefore pride is like a chain around their neck. Violence covers them like a garment. 
@@ -9,7 +9,7 @@ They scoff and speak with malice. In arrogance, they threaten oppression.
 They have set their mouth in the heavens. Their tongue walks through the earth. 
 Therefore their people return to them, and they drink up waters of abundance. 
 They say, "How does God know? Is there knowledge in the Most High?" 
-Behold, these are the wicked. Being always at ease, they increase in riches. 
+Behold, these are the guilty. Being always at ease, they increase in riches. 
 Surely I have cleansed my heart in vain, and washed my hands in innocence, 
 For all day long I have been plagued, and punished every morning. 
 If I had said, "I will speak thus", behold, I would have betrayed the generation of your children. 

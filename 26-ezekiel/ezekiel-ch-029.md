@@ -13,7 +13,7 @@ I will make the land of Egypt a desolation in the middle of the countries that a
 "'For God says: "At the end of forty years I will gather the Egyptians from the peoples where they were scattered. 
 I will reverse the captivity of Egypt, and will cause them to return into the land of Pathros, into the land of their birth. There they will be a lowly kingdom. 
 It will be the lowest of the kingdoms. It won't lift itself up above the nations any more. I will diminish them so that they will no longer rule over the nations. 
-It will no longer be the confidence of the house of Israel, bringing iniquity to memory, when they turn to look after them. Then they will know that I am God."'" 
+It will no longer be the confidence of the house of Israel, bringing guilt to memory, when they turn to look after them. Then they will know that I am God."'" 
 It came to pass in the twenty-seventh year, in the first month, in the first day of the month, God's word came to me, saying, 
 "Son of man, Nebuchadnezzar king of Babylon caused his army to serve a great service against Tyre. Every head was made bald, and every shoulder was worn; yet he had no wages, nor did his army, from Tyre, for the service that he had served against it. 
 Therefore God says: 'Behold, I will give the land of Egypt to Nebuchadnezzar king of Babylon. He will carry off her multitude, take her plunder, and take her prey. That will be the wages for his army. 

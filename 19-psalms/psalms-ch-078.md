@@ -14,7 +14,7 @@ He split the sea, and caused them to pass through. He made the waters stand as a
 In the daytime he also led them with a cloud, and all night with a light of fire. 
 He split rocks in the wilderness, and gave them drink abundantly as out of the depths. 
 He brought streams also out of the rock, and caused waters to run down like rivers. 
-Yet they still went on to sin against him, to rebel against the Most High in the desert. 
+Yet they still went on to wrong him, to rebel against the Most High in the desert. 
 They tempted God in their heart by asking food according to their desire. 
 Yes, they spoke against God. They said, "Can God prepare a table in the wilderness? 
 Behold, he struck the rock, so that waters gushed out, and streams overflowed. Can he give bread also? Will he provide meat for his people?" 
@@ -29,13 +29,13 @@ He let them fall in the middle of their camp, around their habitations.
 So they ate, and were well filled. He gave them their own desire. 
 They didn't turn from their cravings. Their food was yet in their mouths, 
 when the anger of God went up against them, killed some of their strongest, and struck down the young men of Israel. 
-For all this they still sinned, and didn't believe in his wondrous works. 
+For all this they still missed the mark, and didn't believe in his wondrous works. 
 Therefore he consumed their days in vanity, and their years in terror. 
 When he killed them, then they inquired after him. They returned and sought God earnestly. 
 They remembered that God was their rock, the Most High God, the one who buys them back. 
 But they flattered him with their mouth, and lied to him with their tongue. 
 For their heart was not right with him, neither were they faithful in his covenant. 
-But he, being merciful, forgave iniquity, and didn't destroy them. Yes, many times he turned his anger away, and didn't stir up all his wrath. 
+But he, being merciful, forgave guilt, and didn't destroy them. Yes, many times he turned his anger away, and didn't stir up all his wrath. 
 He remembered that they were but flesh, a wind that passes away, and doesn't come again. 
 How often they rebelled against him in the wilderness, and grieved him in the desert! 
 They turned again and tempted God, and provoked the Holy One of Israel. 
@@ -46,7 +46,7 @@ He sent among them swarms of flies, which devoured them; and frogs, which destro
 He also gave their increase to the caterpillar, and their labor to the locust. 
 He destroyed their vines with hail, their sycamore fig trees with frost. 
 He also gave over their livestock to the hail, and their flocks to hot thunderbolts. 
-He threw on them the fierceness of his anger, wrath, indignation, and trouble, and a band of messengers of evil. 
+He threw on them the fierceness of his anger, wrath, indignation, and trouble, and a band of messengers of bad. 
 He made a path for his anger. He didn't spare their soul from death, but gave their life over to the pestilence, 
 and struck all the firstborn in Egypt, the chief of their strength in the tents of Ham. 
 But he led out his own people like sheep, and guided them in the wilderness like a flock. 

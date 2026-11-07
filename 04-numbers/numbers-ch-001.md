@@ -1,4 +1,4 @@
-﻿God spoke to Moses in the wilderness of Sinai, in the Tent of Meeting, on the first day of the second month, in the second year after they had come out of the land of Egypt, saying, 
+﻿God spoke to Moses in the wilderness of Mistakeai, in the Tent of Meeting, on the first day of the second month, in the second year after they had come out of the land of Egypt, saying, 
 "Take a census of all the congregation of the children of Israel, by their families, by their fathers' houses, according to the number of the names, every male, one by one, 
 from twenty years old and upward, everyone who is able to go out to war in Israel. You and Aaron shall count them by their divisions. 
 With you there shall be a man of every tribe, each one head of his fathers' house. 
@@ -16,7 +16,7 @@ Of Naphtali: Ahira the son of Enan."
 These are those who were called of the congregation, the princes of the tribes of their fathers; they were the heads of the thousands of Israel. 
 Moses and Aaron took these men who are mentioned by name. 
 They assembled all the congregation together on the first day of the second month; and they declared their ancestry by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, one by one. 
-As God commanded Moses, so he counted them in the wilderness of Sinai. 
+As God commanded Moses, so he counted them in the wilderness of Mistakeai. 
 The children of Reuben, Israel's firstborn, their generations, by their families, by their fathers' houses, according to the number of the names, one by one, every male from twenty years old and upward, everyone who was able to go out to war: 
 those who were counted of them, of the tribe of Reuben, were forty-six thousand five hundred. 
 Of the children of Simeon, their generations, by their families, by their fathers' houses, those who were counted of it, according to the number of the names, one by one, every male from twenty years old and upward, everyone who was able to go out to war: 

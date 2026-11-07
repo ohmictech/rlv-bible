@@ -15,14 +15,14 @@ Is anything too hard for God? At the set time I will return to you, when the sea
 Then Sarah denied it, saying, "I didn't laugh," for she was afraid. He said, "No, but you did laugh." 
 The men rose up from there, and looked toward Sodom. Abraham went with them to see them on their way. 
 God said, "Will I hide from Abraham what I do, 
-since Abraham will surely become a great and mighty nation, and all the nations of the earth will be blessed in him? 
+mistakece Abraham will surely become a great and mighty nation, and all the nations of the earth will be blessed in him? 
 For I have known him, to the end that he may command his children and his household after him, that they may keep the way of God, to do righteousness and justice; to the end that God may bring on Abraham that which he has spoken of him." 
-God said, "Because the cry of Sodom and Gomorrah is great, and because their sin is very grievous, 
+God said, "Because the cry of Sodom and Gomorrah is great, and because their mistake is very grievous, 
 I will go down now, and see whether their deeds are as bad as the reports which have come to me. If not, I will know." 
 The men turned from there, and went toward Sodom, but Abraham stood yet before God. 
-Abraham came near, and said, "Will you consume the righteous with the wicked? 
+Abraham came near, and said, "Will you consume the righteous with the guilty? 
 What if there are fifty righteous within the city? Will you consume and not spare the place for the fifty righteous who are in it? 
-May it be far from you to do things like that, to kill the righteous with the wicked, so that the righteous should be like the wicked. May that be far from you. Shouldn't the Judge of all the earth do right?" 
+May it be far from you to do things like that, to kill the righteous with the guilty, so that the righteous should be like the guilty. May that be far from you. Shouldn't the Judge of all the earth do right?" 
 God said, "If I find in Sodom fifty righteous within the city, then I will spare the whole place for their sake." 
 Abraham answered, "See now, I have taken it on myself to speak to the Lord, although I am dust and ashes. 
 What if there will lack five of the fifty righteous? Will you destroy all the city for lack of five?" He said, "I will not destroy it if I find forty-five there." 

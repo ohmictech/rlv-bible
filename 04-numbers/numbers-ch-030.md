@@ -12,5 +12,5 @@ and her husband heard it, and held his peace at her and didn't disallow her, the
 But if her husband made them null and void in the day that he heard them, then whatever proceeded out of her lips concerning her vows, or concerning the bond of her soul, shall not stand. Her husband has made them void. God will forgive her. 
 Every vow, and every binding oath to afflict the soul, her husband may establish it, or her husband may make it void. 
 But if her husband says nothing to her from day to day, then he establishes all her vows or all her pledges which are on her. He has established them, because he said nothing to her in the day that he heard them. 
-But if he makes them null and void after he has heard them, then he shall bear her iniquity." 
+But if he makes them null and void after he has heard them, then he shall bear her guilt." 
 These are the statutes which God commanded Moses, between a man and his wife, between a father and his daughter, being in her youth, in her father's house. 

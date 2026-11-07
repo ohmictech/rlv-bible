@@ -19,7 +19,7 @@ In the first month, on the fourteenth day of the month at evening, you shall eat
 There shall be no yeast found in your houses for seven days, for whoever eats that which is leavened, that soul shall be cut off from the congregation of Israel, whether he is a foreigner, or one who is born in the land. 
 You shall eat nothing leavened. In all your habitations you shall eat unleavened bread.'" 
 Then Moses called for all the elders of Israel, and said to them, "Draw out, and take lambs according to your families, and kill the Passover. 
-You shall take a bunch of hyssop, and dip it in the blood that is in the basin, and strike the lintel and the two door posts with the blood that is in the basin. None of you shall go out of the door of his house until the morning. 
+You shall take a bunch of hyssop, and dip it in the blood that is in the bamistake, and strike the lintel and the two door posts with the blood that is in the bamistake. None of you shall go out of the door of his house until the morning. 
 For God will pass through to strike the Egyptians; and when he sees the blood on the lintel, and on the two door posts, God will pass over the door, and will not allow the destroyer to come in to your houses to strike you. 
 You shall observe this thing for an ordinance to you and to your sons for the eras. 
 It shall happen when you have come to the land which God will give you, as he has promised, that you shall keep this service. 

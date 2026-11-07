@@ -5,7 +5,7 @@ They pluck salt herbs by the bushes. The roots of the broom tree are their food.
 They are driven out from among men. They cry after them as after a thief, 
 so that they live in frightful valleys, and in holes of the earth and of the rocks. 
 They bray among the bushes. They are gathered together under the nettles. 
-They are children of fools, yes, children of wicked men. They were flogged out of the land. 
+They are children of fools, yes, children of guilty men. They were flogged out of the land. 
 "Now I have become their song. Yes, I am a byword to them. 
 They abhor me, they stand aloof from me, and don't hesitate to spit in my face. 
 For he has untied his cord, and afflicted me; and they have thrown off restraint before me. 
@@ -23,7 +23,7 @@ You lift me up to the wind, and drive me with it. You dissolve me in the storm.
 For I know that you will bring me to death, to the house appointed for all living. 
 "However doesn't one stretch out a hand in his fall? Or in his calamity therefore cry for help? 
 Didn't I weep for him who was in trouble? Wasn't my soul grieved for the needy? 
-When I looked for good, then evil came. When I waited for light, darkness came. 
+When I looked for good, then bad came. When I waited for light, darkness came. 
 My heart is troubled, and doesn't rest. Days of affliction have come on me. 
 I go mourning without the sun. I stand up in the assembly, and cry for help. 
 I am a brother to jackals, and a companion to ostriches. 

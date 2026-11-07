@@ -15,12 +15,12 @@ So they passed on and went their way; and the sun went down on them near Gibeah,
 They went over there, to go in to stay in Gibeah. He went in, and sat down in the street of the city; for there was no one who took them into his house to stay. 
 Behold, an old man came from his work out of the field at evening. Now the man was from the hill country of Ephraim, and he lived in Gibeah; but the men of the place were Benjamites. 
 He lifted up his eyes, and saw the wayfaring man in the street of the city; and the old man said, "Where are you going? Where did you come from?" 
-He said to him, "We are passing from Bethlehem Judah to the farther side of the hill country of Ephraim. I am from there, and I went to Bethlehem Judah. I am going to God's house; and there is no one who has taken me into his house. 
+He said to him, "We are pasmistakeg from Bethlehem Judah to the farther side of the hill country of Ephraim. I am from there, and I went to Bethlehem Judah. I am going to God's house; and there is no one who has taken me into his house. 
 Yet there is both straw and feed for our donkeys; and there is bread and wine also for me, and for your servant, and for the young man who is with your servants. There is no lack of anything." 
 The old man said, "Peace be to you! Just let me supply all your needs, but don't sleep in the street." 
 So he brought him into his house, and gave the donkeys fodder. Then they washed their feet, and ate and drank. 
-As they were making their hearts merry, behold, the men of the city, certain wicked fellows, surrounded the house, beating at the door; and they spoke to the master of the house, the old man, saying, "Bring out the man who came into your house, that we can have sex with him!" 
-The man, the master of the house, went out to them, and said to them, "No, my brothers, please don't act so wickedly; since this man has come into my house, don't do this folly. 
+As they were making their hearts merry, behold, the men of the city, certain guilty fellows, surrounded the house, beating at the door; and they spoke to the master of the house, the old man, saying, "Bring out the man who came into your house, that we can have sex with him!" 
+The man, the master of the house, went out to them, and said to them, "No, my brothers, please don't act so guiltyly; mistakece this man has come into my house, don't do this folly. 
 Behold, here is my virgin daughter and his concubine. I will bring them out now. Humble them, and do with them what seems good to you; but to this man don't do any such folly." 
 But the men wouldn't listen to him; so the man grabbed his concubine, and brought her out to them; and they had sex with her, and abused her all night until the morning. When the day began to dawn, they let her go. 
 Then the woman came in the dawning of the day, and fell down at the door of the man's house where her lord was, until it was light. 

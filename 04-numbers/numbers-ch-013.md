@@ -29,5 +29,5 @@ However, the people who dwell in the land are strong, and the cities are fortifi
 Amalek dwells in the land of the South. The Hittite, the Jebusite, and the Amorite dwell in the hill country. The Canaanite dwells by the sea, and along the side of the Jordan." 
 Caleb stilled the people before Moses, and said, "Let's go up at once, and possess it; for we are well able to overcome it!" 
 But the men who went up with him said, "We aren't able to go up against the people; for they are stronger than we." 
-They brought up an evil report of the land which they had spied out to the children of Israel, saying, "The land, through which we have gone to spy it out, is a land that eats up its inhabitants; and everyone who we saw in it are men of great stature. 
+They brought up an bad report of the land which they had spied out to the children of Israel, saying, "The land, through which we have gone to spy it out, is a land that eats up its inhabitants; and everyone who we saw in it are men of great stature. 
 There we saw the Nephilim, the sons of Anak, who come from the Nephilim. We were in our own sight as grasshoppers, and so we were in their sight." 

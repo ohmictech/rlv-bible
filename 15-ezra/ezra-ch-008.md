@@ -32,5 +32,5 @@ Then we departed from the river Ahava on the twelfth day of the first month, to 
 We came to Jerusalem, and stayed there three days. 
 On the fourth day the silver and the gold and the vessels were weighed in the house of our God into the hand of Meremoth the son of Uriah the priest; and with him was Eleazar the son of Phinehas; and with them were Jozabad the son of Jeshua, and Noadiah the son of Binnui, the Levites. 
 Everything was counted and weighed; and all the weight was written at that time. 
-The children of the captivity, who had come out of exile, offered burnt offerings to the God of Israel: twelve bulls for all Israel, ninety-six rams, seventy-seven lambs, and twelve male goats for a sin offering. All this was a burnt offering to God. 
+The children of the captivity, who had come out of exile, offered burnt offerings to the God of Israel: twelve bulls for all Israel, ninety-six rams, seventy-seven lambs, and twelve male goats for an offering for mistakes. All this was a burnt offering to God. 
 They delivered the king's commissions to the king's local governors and to the governors beyond the River. So they supported the people and God's house. 

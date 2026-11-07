@@ -28,7 +28,7 @@ He will say, 'I tell you, I don't know where you come from. Get away from me, al
 There will be crying and grinding of teeth when you see Abraham, Isaac, Jacob, and all the spokesmen in God's reign, and yourselves being thrown outside. 
 They will come from the east, west, north, and south, and will sit down at the table in God's reign. 
 Look, there are some who are last who will be first, and there are some who are first who will be last." 
-On that same day, some Pharisees came, saying to him, "Get out of here and go away, for Herod wants to kill you." 
+On that same day, some strict religious ones came, saying to him, "Get out of here and go away, for Herod wants to kill you." 
 He said to them, "Go and tell that fox, 'Look, I drive out unclean spirits and heal people today and tomorrow, and the third day I complete my work. 
 Nevertheless I must go on my way today and tomorrow and the next day, for it can't be that a spokesman would die outside of Jerusalem.' 
 "Jerusalem, Jerusalem, you who kills the spokesmen and stones those who are sent to her! How often I wanted to gather your children together, like a hen gathers her own brood under her wings, and you refused! 

@@ -1,5 +1,5 @@
 ﻿When King Hezekiah heard it, he tore his clothes, covered himself with sackcloth, and went into God's house. 
-He sent Eliakim, who was over the household, Shebna the scribe, and the elders of the priests, covered with sackcloth, to Isaiah the spokesman the son of Amoz. 
+He sent Eliakim, who was over the household, Shebna the Bible teacher, and the elders of the priests, covered with sackcloth, to Isaiah the spokesman the son of Amoz. 
 They said to him, "Hezekiah says, 'Today is a day of trouble, of rebuke, and of rejection; for the children have come to the point of birth, and there is no strength to deliver them. 
 It may be your God will hear all the words of Rabshakeh, whom the king of Assyria his master has sent to defy the living God, and will rebuke the words which your God has heard. Therefore lift up your prayer for the remnant that is left.'" 
 So the servants of King Hezekiah came to Isaiah. 

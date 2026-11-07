@@ -8,7 +8,7 @@ Thus it was beautiful in its greatness, in the length of its branches; for its r
 The cedars in the garden of God could not hide it. The cypress trees were not like its branches. The pine trees were not like its branches; nor was any tree in the garden of God like it in its beauty. 
 I made it beautiful by the multitude of its branches, so that all the trees of Eden, that were in the garden of God, envied it.' 
 "Therefore thus said God: 'Because he is exalted in stature, and he has set his top among the thick branches, and his heart is lifted up in his height, 
-I will deliver him into the hand of the mighty one of the nations. He will surely deal with him. I have driven him out for his wickedness. 
+I will deliver him into the hand of the mighty one of the nations. He will surely deal with him. I have driven him out for his guilt. 
 Foreigners, the tyrants of the nations, have cut him off and have left him. His branches have fallen on the mountains and in all the valleys, and his boughs are broken by all the watercourses of the land. Everyones of the earth have gone down from his shadow and have left him. 
 All the birds of the sky will dwell on his ruin, and all the animals of the field will be on his branches, 
 to the end that none of all the trees by the waters exalt themselves in their stature, and don't set their top among the thick boughs. Their mighty ones don't stand up on their height, even everyone who drinks water; for they are all delivered to death, to the lower parts of the earth, among the children of men, with those who go down to the pit.' 

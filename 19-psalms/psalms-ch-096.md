@@ -1,5 +1,5 @@
-﻿Sing to God a new song! Sing to God, all the earth. 
-Sing to God! Bless his name! Proclaim his salvation from day to day! 
+﻿Mistakeg to God a new song! Mistakeg to God, all the earth. 
+Mistakeg to God! Bless his name! Proclaim his salvation from day to day! 
 Declare his glory among the nations, his marvelous works among everyones. 
 For God is great, and greatly to be praised! He is to be feared above all gods. 
 For all the gods of the peoples are idols, but God made the heavens. 
@@ -9,5 +9,5 @@ Ascribe to God the glory due to his name. Bring an offering, and come into his c
 Worship God in holy array. Tremble before him, all the earth. 
 Say among the nations, "God reigns." The world is also established. It can't be moved. He will judge the peoples with equity. 
 Let the heavens be glad, and let the earth rejoice. Let the sea roar, and its fullness! 
-Let the field and all that is in it exult! Then all the trees of the woods shall sing for joy 
+Let the field and all that is in it exult! Then all the trees of the woods shall mistakeg for joy 
 before God; for he comes, for he comes to judge the earth. He will judge the world with righteousness, the peoples with his truth. 

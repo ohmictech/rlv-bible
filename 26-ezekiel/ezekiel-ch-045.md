@@ -6,20 +6,20 @@ Twenty-five thousand cubits in length and ten thousand in width shall be for the
 "'"You shall appoint the possession of the city five thousand cubits wide and twenty-five thousand long, side by side with the offering of the holy portion. It shall be for the whole house of Israel. 
 "'"What is for the prince shall be on the one side and on the other side of the holy allotment and of the possession of the city, in front of the holy allotment and in front of the possession of the city, on the west side westward, and on the east side eastward, and in length corresponding to one of the portions, from the west border to the east border. 
 In the land it shall be to him for a possession in Israel. My princes shall no more oppress my people, but they shall give the land to the house of Israel according to their tribes." 
-"'The God says: "Enough, you princes of Israel! Remove violence and plunder, and execute justice and righteousness! Stop dispossessing my people!" says God. 
+"'The God says: "Enough, you princes of Israel! Remove violence and plunder, and execute justice and righteousness! Stop dispossesmistakeg my people!" says God. 
 "You shall have just balances, a just ephah, and a just bath. 
 The ephah and the bath shall be of one measure, that the bath may contain one tenth of a homer, and the ephah one tenth of a homer. Its measure shall be the same as the homer. 
 The shekel shall be twenty gerahs. Twenty shekels plus twenty-five shekels plus fifteen shekels shall be your mina. 
 "'"This is the offering that you shall offer: the sixth part of an ephah from a homer of wheat, and you shall give the sixth part of an ephah from a homer of barley, 
 and the set portion of oil, of the bath of oil, one tenth of a bath out of the cor, which is ten baths, even a homer (for ten baths are a homer), 
-and one lamb of the flock out of two hundred, from the well-watered pastures of Israel, for a meal offering, for a burnt offering, and for peace offerings, to make things right for them," says God. 
+and one lamb of the flock out of two hundred, from the well-watered pastures of Israel, for a meal offering, for a burnt offering, and for offerings for wholeness, to make things right for them," says God. 
 "Everyone in the land shall give to this offering for the prince in Israel. 
-It shall be the prince's part to give the burnt offerings, the meal offerings, and the drink offerings, in the feasts, and on the new moons, and on the Sabbaths, in all the appointed feasts of the house of Israel. He shall prepare the sin offering, the meal offering, the burnt offering, and the peace offerings, to make things right for the house of Israel." 
+It shall be the prince's part to give the burnt offerings, the meal offerings, and the drink offerings, in the feasts, and on the new moons, and on the Sabbaths, in all the appointed feasts of the house of Israel. He shall prepare the offering for mistakes, the meal offering, the burnt offering, and the offerings for wholeness, to make things right for the house of Israel." 
 "'The God says: "In the first month, on the first day of the month, you shall take a young bull without defect, and you shall cleanse the sanctuary. 
-The priest shall take of the blood of the sin offering and put it on the door posts of the house, and on the four corners of the ledge of the altar, and on the posts of the gate of the inner court. 
+The priest shall take of the blood of the offering for mistakes and put it on the door posts of the house, and on the four corners of the ledge of the altar, and on the posts of the gate of the inner court. 
 So you shall do on the seventh day of the month for everyone who errs, and for him who is simple. So you shall make things right for the house. 
 "'"In the first month, on the fourteenth day of the month, you shall have the Passover, a feast of seven days; unleavened bread shall be eaten. 
-On that day the prince shall prepare for himself and for everyone in the land a bull for a sin offering. 
-The seven days of the feast he shall prepare a burnt offering to God, seven bulls and seven rams without defect daily the seven days; and a male goat daily for a sin offering. 
+On that day the prince shall prepare for himself and for everyone in the land a bull for an offering for mistakes. 
+The seven days of the feast he shall prepare a burnt offering to God, seven bulls and seven rams without defect daily the seven days; and a male goat daily for an offering for mistakes. 
 He shall prepare a meal offering, an ephah for a bull, an ephah for a ram, and a hin of oil to an ephah. 
-"'"In the seventh month, on the fifteenth day of the month, during the feast, he shall do like that for seven days. He shall make the same provision for sin offering, the burnt offering, the meal offering, and the oil." 
+"'"In the seventh month, on the fifteenth day of the month, during the feast, he shall do like that for seven days. He shall make the same provision for offering for mistakes, the burnt offering, the meal offering, and the oil." 

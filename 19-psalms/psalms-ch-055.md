@@ -1,6 +1,6 @@
 ﻿For the Chief Musician. On stringed instruments. A contemplation by David. Listen to my prayer, God. Don't hide yourself from my supplication. 
 Attend to me, and answer me. I am restless in my complaint, and moan 
-because of the voice of the enemy, because of the oppression of the wicked. For they bring suffering on me. In anger they hold a grudge against me. 
+because of the voice of the enemy, because of the oppression of the guilty. For they bring suffering on me. In anger they hold a grudge against me. 
 My heart is severely pained within me. The terrors of death have fallen on me. 
 Fearfulness and trembling have come on me. Horror has overwhelmed me. 
 I said, "Oh that I had wings like a dove! Then I would fly away, and be at rest. 
@@ -12,7 +12,7 @@ Destructive forces are within her. Threats and lies don't depart from her street
 For it was not an enemy who insulted me, then I could have endured it. Neither was it he who hated me who raised himself up against me, then I would have hidden myself from him. 
 But it was you, a man like me, my companion, and my familiar friend. 
 We took sweet fellowship together. We walked in God's house with company. 
-Let death come suddenly on them. Let them go down alive into Hades. For wickedness is among them, in their dwelling. 
+Let death come suddenly on them. Let them go down alive into Hades. For guilt is among them, in their dwelling. 
 As for me, I will call on God. God will save me. 
 Evening, morning, and at noon, I will cry out in distress. He will hear my voice. 
 He has bought back my soul in peace from the battle that was against me, although there are many who oppose me. 

@@ -2,9 +2,9 @@
 My enemies want to swallow me up all day long, for they are many who fight proudly against me. 
 When I am afraid, I will put my trust in you. 
 In God, I praise his word. In God, I put my trust. I will not be afraid. What can flesh do to me? 
-All day long they twist my words. All their thoughts are against me for evil. 
+All day long they twist my words. All their thoughts are against me for bad. 
 They conspire and lurk, watching my steps. They are eager to take my life. 
-Shall they escape by iniquity? In anger cast down the peoples, God. 
+Shall they escape by guilt? In anger cast down the peoples, God. 
 You count my wanderings. You put my tears into your container. Aren't they in your book? 
 Then my enemies shall turn back in the day that I call. I know this: that God is for me. 
 In God, I will praise his word. In God, I will praise his word. 

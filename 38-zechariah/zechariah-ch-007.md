@@ -7,7 +7,7 @@ When you eat and when you drink, don't you eat for yourselves and drink for your
 Aren't these the words which God proclaimed by the former spokesmen when Jerusalem was inhabited and in prosperity, and its cities around her, and the South and the lowland were inhabited?'" 
 God's word came to Zechariah, saying, 
 "Thus has the God of Armies spoken, saying, 'Execute true judgment, and show kindness and compassion every man to his brother. 
-Don't oppress the widow, the fatherless, the foreigner, nor the poor; and let none of you devise evil against his brother in your heart.' 
+Don't oppress the widow, the fatherless, the foreigner, nor the poor; and let none of you devise bad against his brother in your heart.' 
 But they refused to listen, and turned their backs, and stopped their ears, that they might not hear. 
 Yes, they made their hearts as hard as flint, lest they might hear the law and the words which the God of Armies had sent by his Spirit by the former spokesmen. Therefore great wrath came from the God of Armies. 
 It has come to pass that, as he called and they refused to listen, so they will call and I will not listen," said the God of Armies; 

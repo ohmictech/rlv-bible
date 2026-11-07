@@ -1,4 +1,4 @@
-﻿"Woe to the rebellious children", says God, "who take counsel, but not from me; and who make an alliance, but not with my Spirit, that they may add sin to sin; 
+﻿"Woe to the rebellious children", says God, "who take counsel, but not from me; and who make an alliance, but not with my Spirit, that they may add mistake to miss the mark; 
 who set out to go down into Egypt without asking for my advice, to strengthen themselves in the strength of Pharaoh, and to take refuge in the shadow of Egypt! 
 Therefore the strength of Pharaoh will be your shame, and the refuge in the shadow of Egypt your confusion. 
 For their princes are at Zoan, and their ambassadors have come to Hanes. 
@@ -10,7 +10,7 @@ For it is a rebellious people, lying children, children who will not hear God's 
 who tell the seers, "Don't see!" and the spokesmen, "Don't prophesy to us right things. Tell us pleasant things. Prophesy deceits. 
 Get out of the way. Turn away from the path. Cause the Holy One of Israel to cease from before us." 
 Therefore the Holy One of Israel says, "Because you despise this word, and trust in oppression and perverseness, and rely on it, 
-therefore this iniquity shall be to you like a breach ready to fall, swelling out in a high wall, whose breaking comes suddenly in an instant. 
+therefore this guilt shall be to you like a breach ready to fall, swelling out in a high wall, whose breaking comes suddenly in an instant. 
 He will break it as a potter's vessel is broken, breaking it in pieces without sparing, so that there won't be found among the broken pieces a piece good enough to take fire from the hearth, or to dip up water out of the cistern." 
 For thus said God, the Holy One of Israel, "You will be saved in returning and rest. Your strength will be in quietness and in confidence." You refused, 
 but you said, "No, for we will flee on horses;" therefore you will flee; and, "We will ride on the swift;" therefore those who pursue you will be swift. 
@@ -24,7 +24,7 @@ He will give the rain for your seed, with which you will sow the ground; and bre
 The oxen likewise and the young donkeys that till the ground will eat savory feed, which has been winnowed with the shovel and with the fork. 
 There will be brooks and streams of water on every lofty mountain and on every high hill in the day of the great slaughter, when the towers fall. 
 Moreover the light of the moon will be like the light of the sun, and the light of the sun will be seven times brighter, like the light of seven days, in the day that God binds up the fracture of his people, and heals the wound they were struck with. 
-Behold, God's name comes from far away, burning with his anger, and in thick rising smoke. His lips are full of indignation. His tongue is as a devouring fire. 
+Behold, God's name comes from far away, burning with his anger, and in thick rimistakeg smoke. His lips are full of indignation. His tongue is as a devouring fire. 
 His breath is as an overflowing stream that reaches even to the neck, to sift the nations with the sieve of destruction. A bridle that leads to ruin will be in the jaws of the peoples. 
 You will have a song, as in the night when a holy feast is kept, and gladness of heart, as when one goes with a flute to come to God's mountain, to Israel's Rock. 
 God will cause his glorious voice to be heard, and will show the descent of his arm, with the indignation of his anger and the flame of a devouring fire, with a blast, storm, and hailstones. 

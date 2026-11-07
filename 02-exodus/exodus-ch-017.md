@@ -1,4 +1,4 @@
-﻿All the congregation of the children of Israel traveled from the wilderness of Sin, starting according to God's commandment, and encamped in Rephidim; but there was no water for the people to drink. 
+﻿All the congregation of the children of Israel traveled from the wilderness of Mistake, starting according to God's commandment, and encamped in Rephidim; but there was no water for the people to drink. 
 Therefore the people quarreled with Moses, and said, "Give us water to drink." Moses said to them, "Why do you quarrel with me? Why do you test God?" 
 The people were thirsty for water there; so the people murmured against Moses, and said, "Why have you brought us up out of Egypt, to kill us, our children, and our livestock with thirst?" 
 Moses cried to God, saying, "What shall I do with these people? They are almost ready to stone me." 

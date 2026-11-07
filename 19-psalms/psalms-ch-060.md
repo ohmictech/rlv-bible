@@ -5,7 +5,7 @@ You have given a banner to those who fear you, that it may be displayed because 
 So that your beloved may be delivered, save with your right hand, and answer us. 
 God has spoken from his sanctuary: "I will triumph. I will divide Shechem, and measure out the valley of Succoth. 
 Gilead is mine, and Manasseh is mine. Ephraim also is the defense of my head. Judah is my scepter. 
-Moab is my wash basin. I will throw my sandal on Edom. I shout in triumph over Philistia." 
+Moab is my wash bamistake. I will throw my sandal on Edom. I shout in triumph over Philistia." 
 Who will bring me into the strong city? Who has led me to Edom? 
 Haven't you, God, rejected us? You don't go out with our armies, God. 
 Give us help against the adversary, for the help of man is vain. 

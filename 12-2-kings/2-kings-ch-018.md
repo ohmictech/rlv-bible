@@ -15,7 +15,7 @@ Hezekiah king of Judah sent to the king of Assyria at Lachish, saying, "I have o
 Hezekiah gave him all the silver that was found in God's house and in the treasures of the king's house. 
 At that time, Hezekiah cut off the gold from the doors of God's temple, and from the pillars which Hezekiah king of Judah had overlaid, and gave it to the king of Assyria. 
 The king of Assyria sent Tartan, Rabsaris, and Rabshakeh from Lachish to King Hezekiah with a great army to Jerusalem. They went up and came to Jerusalem. When they had come up, they came and stood by the conduit of the upper pool, which is in the highway of the fuller's field. 
-When they had called to the king, Eliakim the son of Hilkiah, who was over the household, and Shebnah the scribe, and Joah the son of Asaph the recorder came out to them. 
+When they had called to the king, Eliakim the son of Hilkiah, who was over the household, and Shebnah the Bible teacher, and Joah the son of Asaph the recorder came out to them. 
 Rabshakeh said to them, "Say now to Hezekiah, 'The great king, the king of Assyria, says, "What confidence is this in which you trust? 
 You say (but they are but vain words), 'There is counsel and strength for war.' Now on whom do you trust, that you have rebelled against me? 
 Now, behold, you trust in the staff of this bruised reed, even in Egypt. If a man leans on it, it will go into his hand and pierce it. So is Pharaoh king of Egypt to everyone who trusts on him. 
@@ -34,4 +34,4 @@ Has any of the gods of the nations ever delivered his land out of the hand of th
 Where are the gods of Hamath and of Arpad? Where are the gods of Sepharvaim, of Hena, and Ivvah? Have they delivered Samaria out of my hand? 
 Who are they among all the gods of the countries, that have delivered their country out of my hand, that God should deliver Jerusalem out of my hand?'" 
 But the people stayed quiet, and answered him not a word; for the king's commandment was, "Don't answer him." 
-Then Eliakim the son of Hilkiah, who was over the household, came with Shebna the scribe and Joah the son of Asaph the recorder to Hezekiah with their clothes torn, and told him Rabshakeh's words. 
+Then Eliakim the son of Hilkiah, who was over the household, came with Shebna the Bible teacher and Joah the son of Asaph the recorder to Hezekiah with their clothes torn, and told him Rabshakeh's words. 

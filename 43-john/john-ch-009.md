@@ -10,10 +10,10 @@ Others were saying, "It is he." Still others were saying, "He looks like him." H
 They therefore were asking him, "How were your eyes opened?" 
 He answered, "A man called Jesus made mud, put it on my eyes, and said to me, 'Go to the pool of Siloam and wash.' So I went away and washed, and I received sight." 
 Then they asked him, "Where is he?" He said, "I don't know." 
-They brought him who had been blind to the Pharisees. 
+They brought him who had been blind to the strict religious ones. 
 It was a Sabbath when Jesus made the mud and opened his eyes. 
-Again therefore the Pharisees also asked him how he received his sight. He said to them, "He put mud on my eyes, I washed, and I see." 
-Some therefore of the Pharisees said, "This man is not from God, because he doesn't keep the Sabbath." Others said, "How can a man who has missed the mark do such signs?" So they were divided. 
+Again therefore the strict religious ones also asked him how he received his sight. He said to them, "He put mud on my eyes, I washed, and I see." 
+Some therefore of the strict religious ones said, "This man is not from God, because he doesn't keep the Sabbath." Others said, "How can a man who has missed the mark do such signs?" So they were divided. 
 Therefore they asked the blind man again, "What do you say about him, because he opened your eyes?" He said, "He is a spokesman." 
 The Jewish leaders therefore didn't trust concerning him, that he had been blind and had received his sight, until they called the parents of him who had received his sight, 
 and asked them, "Is this your son, whom you say was born blind? How then does he now see?" 
@@ -37,5 +37,5 @@ He answered, "Who is he, Lord, that I may trust in him?"
 Jesus said to him, "You have both seen him, and it is he who speaks with you." 
 He said, "Lord, I trust!" and he worshiped him. 
 Jesus said, "I came into this world for a verdict, that those who don't see may see; and that those who see may become blind." 
-Those of the Pharisees who were with him heard these things, and said to him, "Are we also blind?" 
+Those of the strict religious ones who were with him heard these things, and said to him, "Are we also blind?" 
 Jesus said to them, "If you were blind, you would have no mistakes; but now you say, 'We see.' Therefore your mistakes remain. 

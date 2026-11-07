@@ -16,7 +16,7 @@ Jesus, having found a young donkey, sat on it. As it is written,
 His students didn't understand these things at first, but when Jesus was given weight, then they remembered that these things were written about him, and that they had done these things to him. 
 The crowd therefore that was with him when he called Lazarus out of the tomb and raised him from the dead was testifying about it. 
 For this cause also the crowd went and met him, because they heard that he had done this sign. 
-The Pharisees therefore said among themselves, "You can see you are getting nowhere. Look, the world has gone after him." 
+The strict religious ones therefore said among themselves, "You can see you are getting nowhere. Look, the world has gone after him." 
 Now there were certain Greeks among those who went up to worship at the feast. 
 Therefore, these came to Philip, who was from Bethsaida of Galilee, and asked him, saying, "Sir, we want to see Jesus." 
 Philip came and told Andrew, and in turn, Andrew came with Philip, and they told Jesus. 
@@ -39,7 +39,7 @@ that the word of Isaiah the spokesman might be fulfilled, which he spoke: "Lord,
 For this cause they couldn't trust, for Isaiah said again: 
 "He has blinded their eyes and he hardened their heart, so that they can't see with their eyes, or perceive with their heart, and turn, and I would heal them." 
 Isaiah said these things when he saw his weight, and spoke of him. 
-Nevertheless, even many of the leaders trusted in him, but because of the Pharisees they didn't confess it, so that they wouldn't be put out of the gathering place, 
+Nevertheless, even many of the leaders trusted in him, but because of the strict religious ones they didn't confess it, so that they wouldn't be put out of the gathering place, 
 for they loved men's praise more than God's praise. 
 Jesus cried out and said, "Whoever trusts in me, trusts not in me, but in him who sent me. 
 He who sees me sees him who sent me. 

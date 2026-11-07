@@ -2,7 +2,7 @@
 The rebels are deep in slaughter, but I discipline everyone. 
 I know Ephraim, and Israel is not hidden from me; for now, Ephraim, you have played the prostitute. Israel is defiled. 
 Their deeds won't allow them to turn to their God, for the spirit of prostitution is within them, and they don't know God. 
-The pride of Israel testifies to his face. Therefore Israel and Ephraim will stumble in their iniquity. Judah also will stumble with them. 
+The pride of Israel testifies to his face. Therefore Israel and Ephraim will stumble in their guilt. Judah also will stumble with them. 
 They will go with their flocks and with their herds to seek God, but they won't find him. He has withdrawn himself from them. 
 They are unfaithful to God; for they have borne illegitimate children. Now the new moon will devour them with their fields. 
 "Blow the cornet in Gibeah, and the trumpet in Ramah! Sound a battle cry at Beth Aven, behind you, Benjamin! 

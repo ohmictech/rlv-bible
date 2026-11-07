@@ -20,7 +20,7 @@ if you then have dealt truly and righteously with Jerubbaal and with his house t
 but if not, let fire come out from Abimelech and devour the men of Shechem and the house of Millo; and let fire come out from the men of Shechem and from the house of Millo and devour Abimelech." 
 Jotham ran away and fled, and went to Beer and lived there, for fear of Abimelech his brother. 
 Abimelech was prince over Israel three years. 
-Then God sent an evil spirit between Abimelech and the men of Shechem; and the men of Shechem dealt treacherously with Abimelech, 
+Then God sent an harmful spirit between Abimelech and the men of Shechem; and the men of Shechem dealt treacherously with Abimelech, 
 that the violence done to the seventy sons of Jerubbaal might come, and that their blood might be laid on Abimelech their brother who killed them, and on the men of Shechem who strengthened his hands to kill his brothers. 
 The men of Shechem set an ambush for him on the tops of the mountains, and they robbed everyone who came along that way by them; and Abimelech was told about it. 
 Gaal the son of Ebed came with his brothers and went over to Shechem; and the men of Shechem put their trust in him. 
@@ -53,5 +53,5 @@ Abimelech came to the tower and fought against it, and came near to the door of 
 A certain woman cast an upper millstone on Abimelech's head, and broke his skull. 
 Then he called hastily to the young man, his armor bearer, and said to him, "Draw your sword and kill me, that men not say of me, 'A woman killed him.' His young man thrust him through, and he died." 
 When the men of Israel saw that Abimelech was dead, they each departed to his place. 
-Thus God repaid the wickedness of Abimelech, which he did to his father in killing his seventy brothers; 
-and God repaid all the wickedness of the men of Shechem on their heads; and the curse of Jotham the son of Jerubbaal came on them. 
+Thus God repaid the guilt of Abimelech, which he did to his father in killing his seventy brothers; 
+and God repaid all the guilt of the men of Shechem on their heads; and the curse of Jotham the son of Jerubbaal came on them. 

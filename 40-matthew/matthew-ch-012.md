@@ -1,5 +1,5 @@
 ﻿At that time, Jesus went on the Sabbath day through the grain fields. His students were hungry and began to pick heads of grain and to eat. 
-But the Pharisees, when they saw it, said to him, "Look, your students are doing what is not allowed on the Sabbath." 
+But the strict religious ones, when they saw it, said to him, "Look, your students are doing what is not allowed on the Sabbath." 
 But he said to them, "Haven't you read what David did when he was hungry, and those who were with him: 
 how he entered into God's house and ate the bread of the Presence, which was not allowed for him to eat, nor for those who were with him, but only for the priests? 
 Or have you not read in the law that on the Sabbath day the priests in the temple profane the Sabbath and are guiltless? 
@@ -11,7 +11,7 @@ And there was a man with a withered hand. They asked him, "Is it allowed to heal
 He said to them, "Who among you, if he has one sheep and it falls into a pit on the Sabbath day, won't grab hold of it and lift it out? 
 How much more valuable then is a person than a sheep! So it is allowed to do good on the Sabbath day." 
 Then he told the man, "Stretch out your hand." He stretched it out, and it was restored whole, just like the other. 
-But the Pharisees went out and conspired against him, how they might kill him. 
+But the strict religious ones went out and conspired against him, how they might kill him. 
 Jesus, perceiving that, withdrew from there. Great crowds followed him, and he healed them all, 
 and commanded them that they should not make him known, 
 so that what was spoken through the spokesman Isaiah would come true: 
@@ -21,7 +21,7 @@ He won't break a bruised reed. He won't put out a smoldering wick, until he lead
 In his name, the nations will set their expectation." 
 Then a man possessed by an unclean spirit, blind and unable to speak, was brought to him, and he healed him, so that the man both spoke and saw. 
 All the crowds were amazed, and said, "Can this be the Son of David?" 
-But when the Pharisees heard it, they said, "This man does not drive out unclean spirits except by Beelzebul, the ruler of the unclean spirits." 
+But when the strict religious ones heard it, they said, "This man does not drive out unclean spirits except by Beelzebul, the ruler of the unclean spirits." 
 Knowing their thoughts, Jesus said to them, "Every reign divided against itself is laid waste, and every city or house divided against itself will not stand. 
 If the Adversary drives out the Adversary, he is divided against himself. How then will his reign stand? 
 If I drive out unclean spirits by Beelzebul, by whom do your children drive them out? So they will be your judges. 
@@ -35,7 +35,7 @@ You offspring of vipers, how can you, being malicious, speak good things? For ou
 The good person out of his good treasure brings out good things, and the malicious person out of his bad treasure brings out bad things. 
 I tell you that for every careless word that people speak, they will give an account of it on the day of verdict. 
 For by your words you will be made right, and by your words you will be sentenced." 
-Then some of the Bible teachers and Pharisees answered, "Teacher, we want to see a sign from you." 
+Then some of the Bible teachers and strict religious ones answered, "Teacher, we want to see a sign from you." 
 But he answered them, "A malicious and cheating generation seeks after a sign, but no sign will be given to it but the sign of the spokesman Jonah. 
 For as Jonah was three days and three nights in the belly of the huge fish, so will the Human One be three days and three nights in the heart of the earth. 
 The people of Nineveh will stand up at the verdict with this generation and will sentence it, for they had a change of heart at the preaching of Jonah, and look, someone greater than Jonah is here. 

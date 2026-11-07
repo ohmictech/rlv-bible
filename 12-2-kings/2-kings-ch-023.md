@@ -12,7 +12,7 @@ He took away the horses that the kings of Judah had dedicated to the sun, at the
 The king broke down the altars that were on the roof of the upper room of Ahaz, which the kings of Judah had made, and the altars which Manasseh had made in the two courts of God's house, and beat them down from there, and cast their dust into the brook Kidron. 
 The king defiled the high places that were before Jerusalem, which were on the right hand of the mountain of corruption, which Solomon the king of Israel had built for Ashtoreth the abomination of the Sidonians, and for Chemosh the abomination of Moab, and for Milcom the abomination of the children of Ammon. 
 He broke in pieces the pillars, cut down the Asherah poles, and filled their places with men's bones. 
-Moreover the altar that was at Bethel and the high place which Jeroboam the son of Nebat, who made Israel to sin, had made, even that altar and the high place he broke down; and he burned the high place and beat it to dust, and burned the Asherah. 
+Moreover the altar that was at Bethel and the high place which Jeroboam the son of Nebat, who made Israel to miss the mark, had made, even that altar and the high place he broke down; and he burned the high place and beat it to dust, and burned the Asherah. 
 As Josiah turned himself, he spied the tombs that were there in the mountain; and he sent, and took the bones out of the tombs, and burned them on the altar, and defiled it, according to God's word which the man of God proclaimed, who proclaimed these things. 
 Then he said, "What monument is that which I see?" The men of the city told him, "It is the tomb of the man of God who came from Judah and proclaimed these things that you have done against the altar of Bethel." 
 He said, "Let him be! Let no one move his bones." So they let his bones alone, with the bones of the spokesman who came out of Samaria. 
@@ -29,9 +29,9 @@ Now the rest of the acts of Josiah, and all that he did, aren't they written in 
 In his days Pharaoh Necoh king of Egypt went up against the king of Assyria to the river Euphrates; and King Josiah went against him, but Pharaoh Necoh killed him at Megiddo when he saw him. 
 His servants carried him dead in a chariot from Megiddo, brought him to Jerusalem, and buried him in his own tomb. The people of the land took Jehoahaz the son of Josiah, and anointed him, and made him king in his father's place. 
 Jehoahaz was twenty-three years old when he began to reign; and he reigned three months in Jerusalem. His mother's name was Hamutal the daughter of Jeremiah of Libnah. 
-He did that which was evil in God's sight, according to all that his fathers had done. 
+He did that which was bad in God's sight, according to all that his fathers had done. 
 Pharaoh Necoh put him in bonds at Riblah in the land of Hamath, that he might not reign in Jerusalem; and put the land to a tribute of one hundred talents of silver and a talent of gold. 
 Pharaoh Necoh made Eliakim the son of Josiah king in the place of Josiah his father, and changed his name to Jehoiakim; but he took Jehoahaz away, and he came to Egypt and died there. 
 Jehoiakim gave the silver and the gold to Pharaoh; but he taxed the land to give the money according to the commandment of Pharaoh. He exacted the silver and the gold of the people of the land, from everyone according to his assessment, to give it to Pharaoh Necoh. 
 Jehoiakim was twenty-five years old when he began to reign, and he reigned eleven years in Jerusalem. His mother's name was Zebidah the daughter of Pedaiah of Rumah. 
-He did that which was evil in God's sight, according to all that his fathers had done. 
+He did that which was bad in God's sight, according to all that his fathers had done. 

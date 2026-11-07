@@ -3,7 +3,7 @@ From the day that the ark stayed in Kiriath Jearim, the time was long, for it wa
 Samuel spoke to all the house of Israel, saying, "If you are returning to God with all your heart, then put away the foreign gods and the Ashtaroth from among you, and direct your hearts to God, and serve him only; and he will deliver you out of the hand of the Philistines." 
 Then the children of Israel removed the Baals and the Ashtaroth, and served God only. 
 Samuel said, "Gather all Israel to Mizpah, and I will pray to God for you." 
-They gathered together to Mizpah, and drew water, and poured it out before God, and fasted on that day, and said there, "We have sinned against God." Samuel judged the children of Israel in Mizpah. 
+They gathered together to Mizpah, and drew water, and poured it out before God, and fasted on that day, and said there, "We have wronged God." Samuel judged the children of Israel in Mizpah. 
 When the Philistines heard that the children of Israel were gathered together at Mizpah, the lords of the Philistines went up against Israel. When the children of Israel heard it, they were afraid of the Philistines. 
 The children of Israel said to Samuel, "Don't stop crying to our God for us, that he will save us out of the hand of the Philistines." 
 Samuel took a suckling lamb, and offered it for a whole burnt offering to God. Samuel cried to God for Israel, and God answered him. 

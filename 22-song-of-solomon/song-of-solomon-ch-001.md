@@ -1,6 +1,6 @@
 ﻿The Song of songs, which is Solomon's. 
 Let him kiss me with the kisses of his mouth; for your love is better than wine. 
-Your oils have a pleasing fragrance. Your name is oil poured out, therefore the virgins love you. 
+Your oils have a pleamistakeg fragrance. Your name is oil poured out, therefore the virgins love you. 
 Take me away with you. Let's hurry. The king has brought me into his rooms. Friends We will be glad and rejoice in you. We will praise your love more than wine! Beloved They are right to love you. 
 I am dark, but lovely, you daughters of Jerusalem, like Kedar's tents, like Solomon's curtains. 
 Don't stare at me because I am dark, because the sun has scorched me. My mother's sons were angry with me. They made me keeper of the vineyards. I haven't kept my own vineyard. 

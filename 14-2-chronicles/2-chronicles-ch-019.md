@@ -1,10 +1,10 @@
 ﻿Jehoshaphat the king of Judah returned to his house in peace to Jerusalem. 
-Jehu the son of Hanani the seer went out to meet him, and said to King Jehoshaphat, "Should you help the wicked, and love those who hate God? Because of this, wrath is on you from before God. 
+Jehu the son of Hanani the seer went out to meet him, and said to King Jehoshaphat, "Should you help the guilty, and love those who hate God? Because of this, wrath is on you from before God. 
 Nevertheless there are good things found in you, in that you have put away the Asheroth out of the land, and have set your heart to seek God." 
 Jehoshaphat lived at Jerusalem; and he went out again among the people from Beersheba to the hill country of Ephraim, and brought them back to the God of their fathers. 
 He set judges in the land throughout all the fortified cities of Judah, city by city, 
 and said to the judges, "Consider what you do, for you don't judge for man, but for God; and he is with you in the judgment. 
-Now therefore let the fear of God be on you. Take heed and do it; for there is no iniquity with our God, nor respect of persons, nor taking of bribes." 
+Now therefore let the fear of God be on you. Take heed and do it; for there is no guilt with our God, nor respect of persons, nor taking of bribes." 
 Moreover in Jerusalem Jehoshaphat appointed certain Levites, priests, and heads of the fathers' households of Israel to give judgment for God and for controversies. They returned to Jerusalem. 
 He commanded them, saying, "You shall do this in the fear of God, faithfully, and with a perfect heart. 
 Whenever any controversy comes to you from your brothers who dwell in their cities, between blood and blood, between law and commandment, statutes and ordinances, you must warn them, that they not be guilty toward God, and so wrath come on you and on your brothers. Do this, and you will not be guilty. 

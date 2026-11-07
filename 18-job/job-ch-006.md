@@ -23,7 +23,7 @@ Did I ever say, 'Give to me'? or, 'Offer a present for me from your substance'?
 or, 'Deliver me from the adversary's hand'? or, 'Buy me back from the hand of the oppressors'? 
 "Teach me, and I will hold my peace. Cause me to understand my error. 
 How forcible are words of uprightness! But your reproof, what does it reprove? 
-Do you intend to reprove words, since the speeches of one who is desperate are as wind? 
+Do you intend to reprove words, mistakece the speeches of one who is desperate are as wind? 
 Yes, you would even cast lots for the fatherless, and make merchandise of your friend. 
 Now therefore be pleased to look at me, for surely I will not lie to your face. 
 Please return. Let there be no injustice. Yes, return again. My cause is righteous. 

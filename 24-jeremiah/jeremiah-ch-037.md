@@ -12,10 +12,10 @@ When the army of the Chaldeans had withdrawn from Jerusalem for fear of Pharaoh'
 then Jeremiah went out of Jerusalem to go into the land of Benjamin, to receive his portion there, in the middle of the people. 
 When he was in Benjamin's gate, a captain of the guard was there, whose name was Irijah, the son of Shelemiah, the son of Hananiah; and he seized Jeremiah the spokesman, saying, "You are defecting to the Chaldeans!" 
 Then Jeremiah said, "That is false! I am not defecting to the Chaldeans." But he didn't listen to him; so Irijah seized Jeremiah, and brought him to the princes. 
-The princes were angry with Jeremiah, and struck him, and put him in prison in the house of Jonathan the scribe; for they had made that the prison. 
+The princes were angry with Jeremiah, and struck him, and put him in prison in the house of Jonathan the Bible teacher; for they had made that the prison. 
 When Jeremiah had come into the dungeon house and into the cells, and Jeremiah had remained there many days, 
 then Zedekiah the king sent and had him brought out. The king asked him secretly in his house, "Is there any word from God?" Jeremiah said, "There is." He also said, "You will be delivered into the hand of the king of Babylon." 
-Moreover Jeremiah said to King Zedekiah, "How have I sinned against you, against your servants, or against this people, that you have put me in prison? 
+Moreover Jeremiah said to King Zedekiah, "How have I wronged you, against your servants, or against this people, that you have put me in prison? 
 Now where are your spokesmen who prophesied to you, saying, 'The king of Babylon will not come against you, nor against this land'? 
-Now please hear, my lord the king: please let my supplication be presented before you, that you not cause me to return to the house of Jonathan the scribe, lest I die there." 
+Now please hear, my lord the king: please let my supplication be presented before you, that you not cause me to return to the house of Jonathan the Bible teacher, lest I die there." 
 Then Zedekiah the king commanded, and they committed Jeremiah into the court of the guard. They gave him daily a loaf of bread out of the bakers' street, until all the bread in the city was gone. Thus Jeremiah remained in the court of the guard. 

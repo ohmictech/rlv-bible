@@ -1,4 +1,4 @@
-﻿The children of Israel again did that which was evil in God's sight; and God delivered them into the hand of the Philistines forty years. 
+﻿The children of Israel again did that which was bad in God's sight; and God delivered them into the hand of the Philistines forty years. 
 There was a certain man of Zorah, of the family of the Danites, whose name was Manoah; and his wife was barren, and childless. 
 God's messenger appeared to the woman, and said to her, "See now, you are barren and childless; but you shall conceive and bear a son. 
 Now therefore please beware and drink no wine nor strong drink, and don't eat any unclean thing; 
@@ -15,7 +15,7 @@ She may not eat of anything that comes of the vine, neither let her drink wine o
 Manoah said to God's messenger, "Please stay with us, that we may make a young goat ready for you." 
 God's messenger said to Manoah, "Though you detain me, I won't eat your bread. If you will prepare a burnt offering, you must offer it to God." For Manoah didn't know that he was God's messenger. 
 Manoah said to God's messenger, "What is your name, that when your words happen, we may honor you?" 
-God's messenger said to him, "Why do you ask about my name, since it is incomprehensible?" 
+God's messenger said to him, "Why do you ask about my name, mistakece it is incomprehensible?" 
 So Manoah took the young goat with the meal offering, and offered it on the rock to God. Then the messenger did an amazing thing as Manoah and his wife watched. 
 For when the flame went up toward the sky from off the altar, God's messenger ascended in the flame of the altar. Manoah and his wife watched; and they fell on their faces to the ground. 
 But God's messenger didn't appear to Manoah or to his wife any more. Then Manoah knew that he was God's messenger. 

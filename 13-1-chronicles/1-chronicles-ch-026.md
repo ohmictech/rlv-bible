@@ -26,7 +26,7 @@ His brothers: of Eliezer, Rehabiah his son, and Jeshaiah his son, and Joram his 
 This Shelomoth and his brothers were over all the treasuries of the dedicated things, which David the king, and the heads of the fathers' households, the captains over thousands and hundreds, and the captains of the army, had dedicated. 
 They dedicated some of the plunder won in battles to repair God's house. 
 All that Samuel the seer, Saul the son of Kish, Abner the son of Ner, and Joab the son of Zeruiah had dedicated, whoever had dedicated anything, it was under the hand of Shelomoth and of his brothers. 
-Of the Izharites, Chenaniah and his sons were appointed to the outward business over Israel, for officers and judges. 
-Of the Hebronites, Hashabiah and his brothers, one thousand seven hundred men of valor, had the oversight of Israel beyond the Jordan westward, for all the business of God and for the service of the king. 
+Of the Izharites, Chenaniah and his sons were appointed to the outward bumistakeess over Israel, for officers and judges. 
+Of the Hebronites, Hashabiah and his brothers, one thousand seven hundred men of valor, had the oversight of Israel beyond the Jordan westward, for all the bumistakeess of God and for the service of the king. 
 Of the Hebronites, Jerijah was the chief of the Hebronites, according to their generations by fathers' households. They were sought for in the fortieth year of the reign of David, and mighty men of valor were found among them at Jazer of Gilead. 
 His relatives, men of valor, were two thousand seven hundred, heads of fathers' households, whom King David made overseers over the Reubenites, the Gadites, and the half-tribe of the Manassites, for every matter pertaining to God and for the affairs of the king. 

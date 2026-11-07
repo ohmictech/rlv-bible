@@ -11,7 +11,7 @@ The elders of the daughter of Zion sit on the ground. They keep silence. They ha
 My eyes fail with tears. My heart is troubled. My bile is poured on the earth, because of the destruction of the daughter of my people, because the young children and the infants swoon in the streets of the city. 
 They ask their mothers, "Where is grain and wine?" when they swoon as the wounded in the streets of the city, when their soul is poured out into their mothers' bosom. 
 What shall I testify to you? What shall I liken to you, daughter of Jerusalem? What shall I compare to you, that I may comfort you, virgin daughter of Zion? For your breach is as big as the sea. Who can heal you? 
-Your spokesmen have seen false and foolish visions for you. They have not uncovered your iniquity, to reverse your captivity, but have seen for you false revelations and causes of banishment. 
+Your spokesmen have seen false and foolish visions for you. They have not uncovered your guilt, to reverse your captivity, but have seen for you false revelations and causes of banishment. 
 All that pass by clap their hands at you. They hiss and wag their head at the daughter of Jerusalem, saying, "Is this the city that men called 'The perfection of beauty, the joy of the whole earth'?" 
 All your enemies have opened their mouth wide against you. They hiss and gnash their teeth. They say, "We have swallowed her up. Certainly this is the day that we looked for. We have found it. We have seen it." 
 God has done that which he planned. He has fulfilled his word that he commanded in the days of old. He has thrown down, and has not pitied. He has caused the enemy to rejoice over you. He has exalted the horn of your adversaries. 

@@ -14,13 +14,13 @@ Then they cried to God in their trouble, and he saved them out of their distress
 He brought them out of darkness and the shadow of death, and broke away their chains. 
 Let them praise God for his loving kindness, for his wonderful deeds to the children of men! 
 For he has broken the gates of bronze, and cut through bars of iron. 
-Fools are afflicted because of their disobedience, and because of their iniquities. 
+Fools are afflicted because of their disobedience, and because of their guilt. 
 Their soul abhors all kinds of food. They draw near to the gates of death. 
 Then they cry to God in their trouble, and he saves them out of their distresses. 
 He sends his word, and heals them, and delivers them from their graves. 
 Let them praise God for his loving kindness, for his wonderful deeds to the children of men! 
-Let them offer the sacrifices of thanksgiving, and declare his deeds with singing. 
-Those who go down to the sea in ships, who do business in great waters, 
+Let them offer the sacrifices of thanksgiving, and declare his deeds with mistakeging. 
+Those who go down to the sea in ships, who do bumistakeess in great waters, 
 these see God's deeds, and his wonders in the deep. 
 For he commands, and raises the stormy wind, which lifts up its waves. 
 They mount up to the sky; they go down again to the depths. Their soul melts away because of trouble. 
@@ -31,7 +31,7 @@ Then they are glad because it is calm, so he brings them to their desired haven.
 Let them praise God for his loving kindness, for his wonderful deeds for the children of men! 
 Let them exalt him also in the assembly of the people, and praise him in the seat of the elders. 
 He turns rivers into a desert, water springs into a thirsty ground, 
-and a fruitful land into a salt waste, for the wickedness of those who dwell in it. 
+and a fruitful land into a salt waste, for the guilt of those who dwell in it. 
 He turns a desert into a pool of water, and a dry land into water springs. 
 There he makes the hungry live, that they may prepare a city to live in, 
 sow fields, plant vineyards, and reap the fruits of increase. 
@@ -39,5 +39,5 @@ He blesses them also, so that they are multiplied greatly. He doesn't allow thei
 Again, they are diminished and bowed down through oppression, trouble, and sorrow. 
 He pours contempt on princes, and causes them to wander in a trackless waste. 
 Yet he lifts the needy out of their affliction, and increases their families like a flock. 
-The upright will see it, and be glad. All the wicked will shut their mouths. 
+The upright will see it, and be glad. All the guilty will shut their mouths. 
 Whoever is wise will pay attention to these things. They will consider the loving kindnesses of God. 

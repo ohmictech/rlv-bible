@@ -1,4 +1,4 @@
-﻿The children of Israel again did that which was evil in God's sight, when Ehud was dead. 
+﻿The children of Israel again did that which was bad in God's sight, when Ehud was dead. 
 God sold them into the hand of Jabin king of Canaan, who reigned in Hazor; the captain of whose army was Sisera, who lived in Harosheth of the Gentiles. 
 The children of Israel cried to God, for he had nine hundred chariots of iron; and he mightily oppressed the children of Israel for twenty years. 
 Now Deborah, a prophetess, the wife of Lappidoth, judged Israel at that time. 

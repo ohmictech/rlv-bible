@@ -13,15 +13,15 @@ He got up, and immediately took the mat and went out in front of them all, so th
 He went out again by the seashore. All the crowd came to him, and he taught them. 
 As he passed by, he saw Levi the son of Alphaeus sitting at the tax collection office. He said to him, "Follow me." And he got up and followed him. 
 He was at the table in his house, and many tax collectors and those who miss the mark sat down with Jesus and his students, for there were many, and they followed him. 
-The Bible teachers and the Pharisees, when they saw that he was eating with those who miss the mark and tax collectors, said to his students, "Why does he eat and drink with tax collectors and those who miss the mark?" 
+The Bible teachers and the strict religious ones, when they saw that he was eating with those who miss the mark and tax collectors, said to his students, "Why does he eat and drink with tax collectors and those who miss the mark?" 
 When Jesus heard it, he said to them, "Those who are healthy have no need for a doctor, but those who are sick do. I came not to call the ones in the right, but to call those who miss the mark to a change of heart." 
-John's students and the Pharisees were going without food, and they came and asked him, "Why do John's students and the students of the Pharisees go without food, but your students don't?" 
+John's students and the strict religious ones were going without food, and they came and asked him, "Why do John's students and the students of the strict religious ones go without food, but your students don't?" 
 Jesus said to them, "Can the groomsmen go without food while the bridegroom is with them? As long as they have the bridegroom with them, they can't go without food. 
 But the days will come when the bridegroom will be taken away from them, and then, on that day, they will go without food. 
 No one sews a piece of unshrunk cloth onto an old garment, or the patch shrinks and the new tears away from the old, and a worse hole is made. 
 No one puts new wine into old wineskins, or the new wine will burst the skins, and the wine pours out and the skins are ruined. New wine goes into fresh wineskins." 
 He was going through the grain fields on the Sabbath, and as they went his students began to pluck heads of grain. 
-The Pharisees said to him, "Look, why are they doing what isn't allowed on the Sabbath?" 
+The strict religious ones said to him, "Look, why are they doing what isn't allowed on the Sabbath?" 
 He said to them, "Have you never read what David did when he was in need and hungry (he and those who were with him)? 
 How he went into the house of God when Abiathar was high priest, and ate the bread set out before God, which isn't allowed for anyone to eat except the priests, and he gave some to those who were with him?" 
 He said to them, "The Sabbath was made for people, not people for the Sabbath. 

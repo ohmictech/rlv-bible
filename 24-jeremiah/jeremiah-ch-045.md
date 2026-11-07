@@ -2,4 +2,4 @@
 "The God of Israel, says to you, Baruch: 
 'You said, "Woe is me now! For God has added sorrow to my pain! I am weary with my groaning, and I find no rest."' 
 "You shall tell him, God says: 'Behold, that which I have built, I will break down, and that which I have planted I will pluck up; and this in the whole land. 
-Do you seek great things for yourself? Don't seek them; for, behold, I will bring evil on all flesh,' says God, 'but I will let you escape with your life wherever you go.'" 
+Do you seek great things for yourself? Don't seek them; for, behold, I will bring bad on all flesh,' says God, 'but I will let you escape with your life wherever you go.'" 

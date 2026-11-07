@@ -1,5 +1,5 @@
 ﻿Jacob lived in the land of his father's travels, in the land of Canaan. 
-This is the history of the generations of Jacob. Joseph, being seventeen years old, was feeding the flock with his brothers. He was a boy with the sons of Bilhah and Zilpah, his father's wives. Joseph brought an evil report of them to their father. 
+This is the history of the generations of Jacob. Joseph, being seventeen years old, was feeding the flock with his brothers. He was a boy with the sons of Bilhah and Zilpah, his father's wives. Joseph brought an bad report of them to their father. 
 Now Israel loved Joseph more than all his children, because he was the son of his old age, and he made him a tunic of many colors. 
 His brothers saw that their father loved him more than all his brothers, and they hated him, and couldn't speak peaceably to him. 
 Joseph dreamed a dream, and he told it to his brothers, and they hated him all the more. 
@@ -17,7 +17,7 @@ He said, "I am looking for my brothers. Tell me, please, where they are feeding 
 The man said, "They have left here, for I heard them say, 'Let's go to Dothan.'" Joseph went after his brothers, and found them in Dothan. 
 They saw him afar off, and before he came near to them, they conspired against him to kill him. 
 They said to one another, "Behold, this dreamer comes. 
-Come now therefore, and let's kill him, and cast him into one of the pits, and we will say, 'An evil animal has devoured him.' We will see what will become of his dreams." 
+Come now therefore, and let's kill him, and cast him into one of the pits, and we will say, 'An bad animal has devoured him.' We will see what will become of his dreams." 
 Reuben heard it, and delivered him out of their hand, and said, "Let's not take his life." 
 Reuben said to them, "Shed no blood. Throw him into this pit that is in the wilderness, but lay no hand on him", that he might deliver him out of their hand, to restore him to his father. 
 When Joseph came to his brothers, they stripped Joseph of his tunic, the tunic of many colors that was on him; 
@@ -30,7 +30,7 @@ Reuben returned to the pit, and saw that Joseph wasn't in the pit; and he tore h
 He returned to his brothers, and said, "The child is no more; and I, where will I go?" 
 They took Joseph's tunic, and killed a male goat, and dipped the tunic in the blood. 
 They took the tunic of many colors, and they brought it to their father, and said, "We have found this. Examine it, now, and see if it is your son's tunic or not." 
-He recognized it, and said, "It is my son's tunic. An evil animal has devoured him. Joseph is without doubt torn in pieces." 
+He recognized it, and said, "It is my son's tunic. An bad animal has devoured him. Joseph is without doubt torn in pieces." 
 Jacob tore his clothes, and put sackcloth on his waist, and mourned for his son many days. 
 All his sons and all his daughters rose up to comfort him, but he refused to be comforted. He said, "For I will go down to Hades to my son, mourning." His father wept for him. 
 The Midianites sold him into Egypt to Potiphar, an officer of Pharaoh's, the captain of the guard. 

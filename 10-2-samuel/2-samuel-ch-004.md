@@ -8,5 +8,5 @@ Now when they came into the house as he lay on his bed in his bedroom, they stru
 They brought the head of Ishbosheth to David to Hebron, and said to the king, "Behold, the head of Ishbosheth, the son of Saul, your enemy, who sought your life! God has avenged my lord the king today of Saul and of his offspring." 
 David answered Rechab and Baanah his brother, the sons of Rimmon the Beerothite, and said to them, "As God lives, who has bought back my soul out of all adversity, 
 when someone told me, 'Behold, Saul is dead,' thinking that he brought good news, I seized him and killed him in Ziklag, which was the reward I gave him for his news. 
-How much more, when wicked men have slain a righteous person in his own house on his bed, should I not now require his blood from your hand, and rid the earth of you?" 
+How much more, when guilty men have slain a righteous person in his own house on his bed, should I not now require his blood from your hand, and rid the earth of you?" 
 David commanded his young men, and they killed them, cut off their hands and their feet, and hanged them up beside the pool in Hebron. But they took the head of Ishbosheth and buried it in Abner's grave in Hebron. 

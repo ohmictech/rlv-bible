@@ -7,9 +7,9 @@ When you blow an alarm the second time, the camps that lie on the south side sha
 But when the assembly is to be gathered together, you shall blow, but you shall not sound an alarm. 
 "The sons of Aaron, the priests, shall blow the trumpets. This shall be to you for a statute for the eras throughout your generations. 
 When you go to war in your land against the adversary who oppresses you, then you shall sound an alarm with the trumpets. Then you will be remembered before your God, and you will be saved from your enemies. 
-"Also in the day of your gladness, and in your set feasts, and in the beginnings of your months, you shall blow the trumpets over your burnt offerings, and over the sacrifices of your peace offerings; and they shall be to you for a memorial before your God. I am your God." 
+"Also in the day of your gladness, and in your set feasts, and in the beginnings of your months, you shall blow the trumpets over your burnt offerings, and over the sacrifices of your offerings for wholeness; and they shall be to you for a memorial before your God. I am your God." 
 In the second year, in the second month, on the twentieth day of the month, the cloud was taken up from over the tabernacle of the covenant. 
-The children of Israel went forward on their journeys out of the wilderness of Sinai; and the cloud stayed in the wilderness of Paran. 
+The children of Israel went forward on their journeys out of the wilderness of Mistakeai; and the cloud stayed in the wilderness of Paran. 
 They first went forward according to the commandment of God by Moses. 
 First, the standard of the camp of the children of Judah went forward according to their armies. Nahshon the son of Amminadab was over his army. 
 Nethanel the son of Zuar was over the army of the tribe of the children of Issachar. 

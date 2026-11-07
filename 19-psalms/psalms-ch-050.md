@@ -13,10 +13,10 @@ If I were hungry, I would not tell you, for the world is mine, and all that is i
 Will I eat the meat of bulls, or drink the blood of goats? 
 Offer to God the sacrifice of thanksgiving. Pay your vows to the Most High. 
 Call on me in the day of trouble. I will deliver you, and you will honor me." 
-But to the wicked God says, "What right do you have to declare my statutes, that you have taken my covenant on your lips, 
-since you hate instruction, and throw my words behind you? 
+But to the guilty God says, "What right do you have to declare my statutes, that you have taken my covenant on your lips, 
+mistakece you hate instruction, and throw my words behind you? 
 When you saw a thief, you consented with him, and have participated with adulterers. 
-"You give your mouth to evil. Your tongue frames deceit. 
+"You give your mouth to bad. Your tongue frames deceit. 
 You sit and speak against your brother. You slander your own mother's son. 
 You have done these things, and I kept silent. You thought that I was just like you. I will rebuke you, and accuse you in front of your eyes. 
 "Now consider this, you who forget God, lest I tear you into pieces, and there be no one to deliver. 

@@ -1,6 +1,6 @@
 ﻿You, son of man, prophesy to the mountains of Israel, and say, "You mountains of Israel, hear God's word. 
 The God says: 'Because the enemy has said against you, "Aha!" and, "The ancient high places are ours in possession!"' 
-therefore prophesy, and say, 'The God says: "Because, even because they have made you desolate, and swallowed you up on every side, that you might be a possession to the residue of the nations, and you are taken up in the lips of talkers, and the evil report of the people;" 
+therefore prophesy, and say, 'The God says: "Because, even because they have made you desolate, and swallowed you up on every side, that you might be a possession to the residue of the nations, and you are taken up in the lips of talkers, and the bad report of the people;" 
 therefore, you mountains of Israel, hear the word of God: The God says to the mountains and to the hills, to the watercourses and to the valleys, to the desolate wastes and to the cities that are forsaken, which have become a prey and derision to the residue of the nations that are all around; 
 therefore God says: "Surely in the fire of my jealousy I have spoken against the residue of the nations, and against all Edom, that have appointed my land to themselves for a possession with the joy of all their heart, with despite of soul, to cast it out for a prey."' 
 Therefore prophesy concerning the land of Israel, and tell the mountains, the hills, the watercourses and the valleys, 'The God says: "Behold, I have spoken in my jealousy and in my wrath, because you have borne the shame of the nations." 
@@ -28,9 +28,9 @@ I will put my Spirit within you, and cause you to walk in my statutes. You will 
 You will dwell in the land that I gave to your fathers. You will be my people, and I will be your God. 
 I will save you from all your uncleanness. I will call for the grain and will multiply it, and lay no famine on you. 
 I will multiply the fruit of the tree and the increase of the field, that you may receive no more the reproach of famine among the nations. 
-"'"Then you will remember your evil ways, and your deeds that were not good; and you will loathe yourselves in your own sight for your iniquities and for your abominations. 
+"'"Then you will remember your bad ways, and your deeds that were not good; and you will loathe yourselves in your own sight for your guilt and for your abominations. 
 I don't do this for your sake," says God. "Let it be known to you. Be ashamed and confounded for your ways, house of Israel." 
-"'The God says: "In the day that I cleanse you from all your iniquities, I will cause the cities to be inhabited and the waste places will be built. 
+"'The God says: "In the day that I cleanse you from all your guilt, I will cause the cities to be inhabited and the waste places will be built. 
 The land that was desolate will be tilled instead of being a desolation in the sight of everyone who passed by. 
 They will say, 'This land that was desolate has become like the garden of Eden. The waste, desolate, and ruined cities are fortified and inhabited.' 
 Then the nations that are left around you will know that I, God, have built the ruined places and planted that which was desolate. I, God, have spoken it, and I will do it." 

@@ -10,7 +10,7 @@ But a spokesman of God was there, whose name was Oded; and he went out to meet t
 Now you intend to degrade the children of Judah and Jerusalem as male and female slaves for yourselves. Aren't there even with you trespasses of your own against your God? 
 Now hear me therefore, and send back the captives that you have taken captive from your brothers, for the fierce wrath of God is on you." 
 Then some of the heads of the children of Ephraim, Azariah the son of Johanan, Berechiah the son of Meshillemoth, Jehizkiah the son of Shallum, and Amasa the son of Hadlai, stood up against those who came from the war, 
-and said to them, "You must not bring in the captives here, for you intend that which will bring on us a trespass against God, to add to our sins and to our guilt; for our guilt is great, and there is fierce wrath against Israel." 
+and said to them, "You must not bring in the captives here, for you intend that which will bring on us a trespass against God, to add to our mistakes and to our guilt; for our guilt is great, and there is fierce wrath against Israel." 
 So the armed men left the captives and the plunder before the princes and all the assembly. 
 The men who have been mentioned by name rose up and took the captives, and with the plunder clothed everyone who was naked among them, dressed them, gave them sandals, gave them something to eat and to drink, anointed them, carried all the feeble of them on donkeys, and brought them to Jericho, the city of palm trees, to their brothers. Then they returned to Samaria. 
 At that time King Ahaz sent to the kings of Assyria to help him. 

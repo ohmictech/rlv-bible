@@ -1,9 +1,9 @@
 ﻿"If you will return, Israel," says God, "if you will return to me, and if you will put away your abominations out of my sight; then you will not be removed; 
 and you will swear, 'As God lives,' in truth, in justice, and in righteousness. The nations will bless themselves in him, and they will glory in him." 
 For God says to the men of Judah and to Jerusalem, "Break up your fallow ground, and don't sow among thorns. 
-Circumcise yourselves to God, and take away the foreskins of your heart, you men of Judah and inhabitants of Jerusalem; lest my wrath go out like fire, and burn so that no one can quench it, because of the evil of your doings. 
+Circumcise yourselves to God, and take away the foreskins of your heart, you men of Judah and inhabitants of Jerusalem; lest my wrath go out like fire, and burn so that no one can quench it, because of the bad of your doings. 
 Declare in Judah, and publish in Jerusalem; and say, 'Blow the trumpet in the land!' Cry aloud and say, 'Assemble yourselves! Let's go into the fortified cities!' 
-Set up a standard toward Zion. Flee for safety! Don't wait; for I will bring evil from the north, and a great destruction." 
+Set up a standard toward Zion. Flee for safety! Don't wait; for I will bring bad from the north, and a great destruction." 
 A lion has gone up from his thicket, and a destroyer of nations. He is on his way. He has gone out from his place, to make your land desolate, that your cities be laid waste, without inhabitant. 
 For this, clothe yourself with sackcloth, lament and wail; for the fierce anger of God hasn't turned back from us. 
 "It will happen at that day," says God, "that the heart of the king will perish, along with the heart of the princes. The priests will be astonished, and the spokesmen will wonder." 
@@ -11,15 +11,15 @@ Then I said, "Ah, God! Surely you have greatly deceived this people and Jerusale
 At that time it will be said to this people and to Jerusalem, "A hot wind blows from the bare heights in the wilderness toward the daughter of my people, not to winnow, nor to cleanse. 
 A full wind from these will come for me. Now I will also utter judgments against them." 
 Behold, he will come up as clouds, and his chariots will be as the whirlwind. His horses are swifter than eagles. Woe to us! For we are ruined. 
-Jerusalem, wash your heart from wickedness, that you may be saved. How long will your evil thoughts lodge within you? 
-For a voice declares from Dan, and publishes evil from the hills of Ephraim: 
+Jerusalem, wash your heart from guilt, that you may be saved. How long will your bad thoughts lodge within you? 
+For a voice declares from Dan, and publishes bad from the hills of Ephraim: 
 "Tell the nations, behold, publish against Jerusalem, 'Watchers come from a far country, and raise their voice against the cities of Judah. 
 As keepers of a field, they are against her all around, because she has been rebellious against me,'" says God. 
-"Your way and your doings have brought these things to you. This is your wickedness, for it is bitter, for it reaches to your heart." 
+"Your way and your doings have brought these things to you. This is your guilt, for it is bitter, for it reaches to your heart." 
 My anguish, my anguish! I am pained at my very heart! My heart trembles within me. I can't hold my peace, because you have heard, O my soul, the sound of the trumpet, the alarm of war. 
 Destruction on destruction is decreed, for the whole land is laid waste. Suddenly my tents are destroyed, and my curtains gone in a moment. 
 How long will I see the standard and hear the sound of the trumpet? 
-"For my people are foolish. They don't know me. They are foolish children, and they have no understanding. They are skillful in doing evil, but they don't know how to do good." 
+"For my people are foolish. They don't know me. They are foolish children, and they have no understanding. They are skillful in doing bad, but they don't know how to do good." 
 I saw the earth and, behold, it was waste and void, and the heavens, and they had no light. 
 I saw the mountains, and behold, they trembled, and all the hills moved back and forth. 
 I saw, and behold, there was no man, and all the birds of the sky had fled. 

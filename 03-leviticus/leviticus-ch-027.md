@@ -31,4 +31,4 @@ If it is an unclean animal, then he shall buy it back according to your valuatio
 If a man buys back anything of his tithe, he shall add a fifth part to it. 
 All the tithe of the herds or the flocks, whatever passes under the rod, the tenth shall be holy to God. 
 He shall not examine whether it is good or bad, neither shall he exchange it. If he exchanges it at all, then both it and that for which it is exchanged shall be holy. It shall not be bought back.'" 
-These are the commandments which God commanded Moses for the children of Israel on Mount Sinai. 
+These are the commandments which God commanded Moses for the children of Israel on Mount Mistakeai. 

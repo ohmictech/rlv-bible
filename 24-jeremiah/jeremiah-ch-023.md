@@ -1,5 +1,5 @@
 ﻿"Woe to the shepherds who destroy and scatter the sheep of my pasture!" says God. 
-Therefore the God of Israel, says against the shepherds who feed my people: "You have scattered my flock, driven them away, and have not visited them. Behold, I will visit on you the evil of your doings," says God. 
+Therefore the God of Israel, says against the shepherds who feed my people: "You have scattered my flock, driven them away, and have not visited them. Behold, I will visit on you the bad of your doings," says God. 
 "I will gather the remnant of my flock out of all the countries where I have driven them, and will bring them again to their folds; and they will be fruitful and multiply. 
 I will set up shepherds over them who will feed them. They will no longer be afraid or dismayed, neither will any be lacking," says God. 
 "Behold, the days come," says God, "that I will raise to David a righteous Branch; and he will reign as king and deal wisely, and will execute justice and righteousness in the land. 
@@ -7,19 +7,19 @@ In his days Judah will be saved, and Israel will dwell safely. This is his name 
 "Therefore, behold, the days come," says God, "that they will no more say, 'As God lives, who brought up the children of Israel out of the land of Egypt;' 
 but, 'As God lives, who brought up and who led the offspring of the house of Israel out of the north country, and from all the countries where I had driven them.' Then they will dwell in their own land." 
 Concerning the spokesmen: My heart within me is broken. All my bones shake. I am like a drunken man, and like a man whom wine has overcome, because of God, and because of his holy words. 
-"For the land is full of adulterers; for because of the curse the land mourns. The pastures of the wilderness have dried up. Their course is evil, and their might is not right; 
-for both spokesman and priest are profane. Yes, in my house I have found their wickedness," says God. 
-Therefore their way will be to them as slippery places in the darkness. They will be driven on, and fall therein; for I will bring evil on them, even the year of their visitation," says God. 
+"For the land is full of adulterers; for because of the curse the land mourns. The pastures of the wilderness have dried up. Their course is bad, and their might is not right; 
+for both spokesman and priest are profane. Yes, in my house I have found their guilt," says God. 
+Therefore their way will be to them as slippery places in the darkness. They will be driven on, and fall therein; for I will bring bad on them, even the year of their visitation," says God. 
 "I have seen folly in the spokesmen of Samaria. They prophesied by Baal, and caused my people Israel to err. 
-In the spokesmen of Jerusalem I have also seen a horrible thing: they commit adultery and walk in lies. They strengthen the hands of evildoers, so that no one returns from his wickedness. They have all become to me as Sodom, and its inhabitants as Gomorrah." 
+In the spokesmen of Jerusalem I have also seen a horrible thing: they commit adultery and walk in lies. They strengthen the hands of those who do bad, so that no one returns from his guilt. They have all become to me as Sodom, and its inhabitants as Gomorrah." 
 Therefore the God of Armies says concerning the spokesmen: "Behold, I will feed them with wormwood, and make them drink poisoned water; for from the spokesmen of Jerusalem ungodliness has gone out into all the land." 
 The God of Armies says, "Don't listen to the words of the spokesmen who prophesy to you. They teach you vanity. They speak a vision of their own heart, and not out of the mouth of God. 
-They say continually to those who despise me, 'God has said, "You will have peace;"' and to everyone who walks in the stubbornness of his own heart they say, 'No evil will come on you.' 
+They say continually to those who despise me, 'God has said, "You will have peace;"' and to everyone who walks in the stubbornness of his own heart they say, 'No bad will come on you.' 
 For who has stood in the council of God, that he should perceive and hear his word? Who has listened to my word, and heard it? 
-Behold, God's storm, his wrath, has gone out. Yes, a whirling storm! It will burst on the head of the wicked. 
+Behold, God's storm, his wrath, has gone out. Yes, a whirling storm! It will burst on the head of the guilty. 
 God's anger will not return until he has executed and performed the intents of his heart. In the latter days, you will understand it perfectly. 
 I didn't send these spokesmen, yet they ran. I didn't speak to them, yet they prophesied. 
-But if they had stood in my council, then they would have caused my people to hear my words, and would have turned them from their evil way, and from the evil of their doings. 
+But if they had stood in my council, then they would have caused my people to hear my words, and would have turned them from their bad way, and from the bad of their doings. 
 "Am I a God at hand," says God, "and not a God afar off? 
 Can anyone hide himself in secret places so that I can't see him?" says God. "Don't I fill heaven and earth?" says God. 
 "I have heard what the spokesmen have said, who prophesy lies in my name, saying, 'I had a dream! I had a dream!' 

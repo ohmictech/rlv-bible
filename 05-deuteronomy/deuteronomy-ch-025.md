@@ -1,5 +1,5 @@
-﻿If there is a controversy between men, and they come to judgment and the judges judge them, then they shall justify the righteous and condemn the wicked. 
-It shall be, if the wicked man is worthy to be beaten, that the judge shall cause him to lie down and to be beaten before his face, according to his wickedness, by number. 
+﻿If there is a controversy between men, and they come to judgment and the judges judge them, then they shall justify the righteous and condemn the guilty. 
+It shall be, if the guilty man is worthy to be beaten, that the judge shall cause him to lie down and to be beaten before his face, according to his guilt, by number. 
 He may sentence him to no more than forty stripes. He shall not give more, lest if he should give more and beat him more than that many stripes, then your brother will be degraded in your sight. 
 You shall not muzzle the ox when he treads out the grain. 
 If brothers dwell together, and one of them dies and has no son, the wife of the dead shall not be married outside to a stranger. Her husband's brother shall go in to her, and take her as his wife, and perform the duty of a husband's brother to her. 

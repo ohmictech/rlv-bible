@@ -7,6 +7,6 @@ He buried him in the valley in the land of Moab opposite Beth Peor, but no man k
 Moses was one hundred twenty years old when he died. His eye was not dim, nor his strength gone. 
 The children of Israel wept for Moses in the plains of Moab thirty days, until the days of weeping in the mourning for Moses were ended. 
 Joshua the son of Nun was full of the spirit of wisdom, for Moses had laid his hands on him. The children of Israel listened to him, and did as God commanded Moses. 
-Since then, there has not arisen a spokesman in Israel like Moses, whom God knew face to face, 
+Mistakece then, there has not arisen a spokesman in Israel like Moses, whom God knew face to face, 
 in all the signs and the wonders which God sent him to do in the land of Egypt, to Pharaoh, and to all his servants, and to all his land, 
 and in all the mighty hand, and in all the awesome deeds, which Moses did in the sight of all Israel. 

@@ -1,25 +1,25 @@
 ﻿In the twelfth year of Ahaz king of Judah, Hoshea the son of Elah began to reign in Samaria over Israel for nine years. 
-He did that which was evil in God's sight, yet not as the kings of Israel who were before him. 
+He did that which was bad in God's sight, yet not as the kings of Israel who were before him. 
 Shalmaneser king of Assyria came up against him; and Hoshea became his servant, and brought him tribute. 
 The king of Assyria discovered a conspiracy in Hoshea; for he had sent messengers to So king of Egypt, and offered no tribute to the king of Assyria, as he had done year by year. Therefore the king of Assyria seized him, and bound him in prison. 
 Then the king of Assyria came up throughout all the land, went up to Samaria, and besieged it three years. 
 In the ninth year of Hoshea the king of Assyria took Samaria and carried Israel away to Assyria, and placed them in Halah, and on the Habor, the river of Gozan, and in the cities of the Medes. 
-It was so because the children of Israel had sinned against their God, who brought them up out of the land of Egypt from under the hand of Pharaoh king of Egypt, and had feared other gods, 
+It was so because the children of Israel had wronged their God, who brought them up out of the land of Egypt from under the hand of Pharaoh king of Egypt, and had feared other gods, 
 and walked in the statutes of the nations whom God cast out from before the children of Israel, and of the kings of Israel, which they made. 
 The children of Israel secretly did things that were not right against their God; and they built high places for themselves in all their cities, from the tower of the watchmen to the fortified city; 
 and they set up for themselves pillars and Asherah poles on every high hill and under every green tree; 
-and there they burned incense in all the high places, as the nations whom God carried away before them did; and they did wicked things to provoke God to anger; 
+and there they burned incense in all the high places, as the nations whom God carried away before them did; and they did guilty things to provoke God to anger; 
 and they served idols, of which God had said to them, "You shall not do this thing." 
-Yet God testified to Israel and to Judah, by every spokesman and every seer, saying, "Turn from your evil ways, and keep my commandments and my statutes, according to all the law which I commanded your fathers, and which I sent to you by my servants the spokesmen." 
+Yet God testified to Israel and to Judah, by every spokesman and every seer, saying, "Turn from your bad ways, and keep my commandments and my statutes, according to all the law which I commanded your fathers, and which I sent to you by my servants the spokesmen." 
 Notwithstanding, they would not listen, but hardened their neck like the neck of their fathers who didn't believe in their God. 
 They rejected his statutes and his covenant that he made with their fathers, and his testimonies which he testified to them; and they followed vanity, and became vain, and followed the nations that were around them, concerning whom God had commanded them that they should not do like them. 
 They abandoned all the commandments of their God, and made molten images for themselves, even two calves, and made an Asherah, and worshiped all the army of the sky, and served Baal. 
-They caused their sons and their daughters to pass through the fire, used divination and enchantments, and sold themselves to do that which was evil in God's sight, to provoke him to anger. 
+They caused their sons and their daughters to pass through the fire, used divination and enchantments, and sold themselves to do that which was bad in God's sight, to provoke him to anger. 
 Therefore God was very angry with Israel, and removed them out of his sight. There was none left but the tribe of Judah only. 
 Also Judah didn't keep the commandments of their God, but walked in the statutes of Israel which they made. 
 God rejected all the offspring of Israel, afflicted them, and delivered them into the hands of raiders, until he had cast them out of his sight. 
-For he tore Israel from David's house; and they made Jeroboam the son of Nebat king; and Jeroboam drove Israel from following God, and made them sin a great sin. 
-The children of Israel walked in all the sins of Jeroboam which he did; they didn't depart from them 
+For he tore Israel from David's house; and they made Jeroboam the son of Nebat king; and Jeroboam drove Israel from following God, and made them miss the mark a great mistake. 
+The children of Israel walked in all the misses the mark of Jeroboam which he did; they didn't depart from them 
 until God removed Israel out of his sight, as he said by all his servants the spokesmen. So Israel was carried away out of their own land to Assyria to this day. 
 The king of Assyria brought people from Babylon, from Cuthah, from Avva, and from Hamath and Sepharvaim, and placed them in the cities of Samaria instead of the children of Israel; and they possessed Samaria and lived in its cities. 
 So it was, at the beginning of their dwelling there, that they didn't fear God. Therefore God sent lions among them, which killed some of them. 

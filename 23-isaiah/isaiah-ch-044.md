@@ -1,10 +1,10 @@
 ﻿Yet listen now, Jacob my servant, and Israel, whom I have chosen. 
 This is what God who made you, and formed you from the womb, who will help you says: "Don't be afraid, Jacob my servant; and you, Jeshurun, whom I have chosen. 
-For I will pour water on him who is thirsty, and streams on the dry ground. I will pour my Spirit on your descendants, and my blessing on your offspring; 
+For I will pour water on him who is thirsty, and streams on the dry ground. I will pour my Spirit on your descendants, and my blesmistakeg on your offspring; 
 and they will spring up among the grass, as willows by the watercourses. 
 One will say, 'I am God's.' Another will be called by the name of Jacob; and another will write with his hand 'to God,' and honor the name of Israel." 
 This is what God, the King of Israel, and the one who buys him back, the God of Armies, says: "I am the first, and I am the last; and besides me there is no God. 
-Who is like me? Who will call, and will declare it, and set it in order for me, since I established the ancient people? Let them declare the things that are coming, and that will happen. 
+Who is like me? Who will call, and will declare it, and set it in order for me, mistakece I established the ancient people? Let them declare the things that are coming, and that will happen. 
 Don't fear, neither be afraid. Haven't I declared it to you long ago, and shown it? You are my witnesses. Is there a God besides me? Indeed, there is not. I don't know any other Rock." 
 Everyone who makes a carved image is vain. The things that they delight in will not profit. Their own witnesses don't see, nor know, that they may be disappointed. 
 Who has fashioned a god, or molds an image that is profitable for nothing? 
@@ -19,8 +19,8 @@ They don't know, neither do they consider, for he has shut their eyes, that they
 No one thinks, neither is there knowledge nor understanding to say, "I have burned part of it in the fire. Yes, I have also baked bread on its coals. I have roasted meat and eaten it. Shall I make the rest of it into an abomination? Shall I bow down to a tree trunk?" 
 He feeds on ashes. A deceived heart has turned him aside; and he can't deliver his soul, nor say, "Isn't there a lie in my right hand?" 
 Remember these things, Jacob and Israel, for you are my servant. I have formed you. You are my servant. Israel, you will not be forgotten by me. 
-I have blotted out, as a thick cloud, your transgressions, and, as a cloud, your sins. Return to me, for I have bought back you. 
-Sing, you heavens, for God has done it! Shout, you lower parts of the earth! Break out into singing, you mountains, O forest, all of your trees, for God has bought back Jacob, and will glorify himself in Israel. 
+I have blotted out, as a thick cloud, your rebellion, and, as a cloud, your mistakes. Return to me, for I have bought back you. 
+Mistakeg, you heavens, for God has done it! Shout, you lower parts of the earth! Break out into miss the markging, you mountains, O forest, all of your trees, for God has bought back Jacob, and will glorify himself in Israel. 
 God, the one who buys you back, and he who formed you from the womb says: "I am God, who makes all things; who alone stretches out the heavens; who spreads out the earth by myself; 
 who frustrates the signs of the liars, and makes diviners mad; who turns wise men backward, and makes their knowledge foolish; 
 who confirms the word of his servant, and performs the counsel of his messengers; who says of Jerusalem, 'She will be inhabited;' and of the cities of Judah, 'They will be built,' and 'I will raise up its waste places;' 

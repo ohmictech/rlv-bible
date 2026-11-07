@@ -9,7 +9,7 @@ Let destruction come on him unawares. Let his net that he has hidden catch himse
 My soul shall be joyful in God. It shall rejoice in his salvation. 
 All my bones shall say, "God, who is like you, who delivers the poor from him who is too strong for him; yes, the poor and the needy from him who robs him?" 
 Unrighteous witnesses rise up. They ask me about things that I don't know about. 
-They reward me evil for good, to the bereaving of my soul. 
+They reward me bad for good, to the bereaving of my soul. 
 But as for me, when they were sick, my clothing was sackcloth. I afflicted my soul with fasting. My prayer returned into my own bosom. 
 I behaved myself as though it had been my friend or my brother. I bowed down mourning, as one who mourns his mother. 
 But in my adversity, they rejoiced, and gathered themselves together. The attackers gathered themselves together against me, and I didn't know it. They tore at me, and didn't cease. 

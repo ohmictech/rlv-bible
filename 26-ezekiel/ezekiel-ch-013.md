@@ -19,5 +19,5 @@ and say, "The God says: 'Woe to the women who sew magic bands on all elbows and 
 You have profaned me among my people for handfuls of barley and for pieces of bread, to kill the souls who should not die and to save the souls alive who should not live, by your lying to my people who listen to lies.' 
 "Therefore God says: 'Behold, I am against your magic bands, with which you hunt the souls to make them fly, and I will tear them from your arms. I will let the souls fly free, even the souls whom you ensnare like birds. 
 I will also tear your veils and deliver my people out of your hand; and they will no longer be in your hand to be ensnared. Then you will know that I am God. 
-Because with lies you have grieved the heart of the righteous, whom I have not made sad; and strengthened the hands of the wicked, that he should not return from his wicked way, and be saved alive. 
+Because with lies you have grieved the heart of the righteous, whom I have not made sad; and strengthened the hands of the guilty, that he should not return from his guilty way, and be saved alive. 
 Therefore you shall no more see false visions nor practice divination. I will deliver my people out of your hand. Then you will know that I am God.'" 

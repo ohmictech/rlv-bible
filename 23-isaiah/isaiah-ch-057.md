@@ -1,4 +1,4 @@
-﻿The righteous perish, and no one lays it to heart. Merciful men are taken away, and no one considers that the righteous is taken away from the evil. 
+﻿The righteous perish, and no one lays it to heart. Merciful men are taken away, and no one considers that the righteous is taken away from the bad. 
 He enters into peace. They rest in their beds, each one who walks in his uprightness. 
 "But draw near here, you sons of a sorceress, you offspring of adulterers and prostitutes. 
 Whom do you mock? Against whom do you make a wide mouth and stick out your tongue? Aren't you children of disobedience and offspring of falsehood, 
@@ -14,8 +14,8 @@ When you cry, let those whom you have gathered deliver you, but the wind will ta
 He will say, "Build up, build up, prepare the way! Remove the stumbling-block out of the way of my people." 
 For the high and lofty One who inhabits eternity, whose name is Holy, says: "I dwell in the high and holy place, with him also who is of a contrite and humble spirit, to revive the spirit of the humble, and to revive the heart of the contrite. 
 For I will not contend for the eras, neither will I always be angry; for the spirit would faint before me, and the souls whom I have made. 
-I was angry because of the iniquity of his covetousness and struck him. I hid myself and was angry; and he went on backsliding in the way of his heart. 
+I was angry because of the guilt of his covetousness and struck him. I hid myself and was angry; and he went on backsliding in the way of his heart. 
 I have seen his ways, and will heal him. I will lead him also, and restore comforts to him and to his mourners. 
 I create the fruit of the lips: Peace, peace, to him who is far off and to him who is near," says God; "and I will heal them." 
-But the wicked are like the troubled sea; for it can't rest and its waters cast up mire and mud. 
-"There is no peace", says my God, "for the wicked." 
+But the guilty are like the troubled sea; for it can't rest and its waters cast up mire and mud. 
+"There is no peace", says my God, "for the guilty." 

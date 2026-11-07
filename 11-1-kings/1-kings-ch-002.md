@@ -41,6 +41,6 @@ Shimei arose, saddled his donkey, and went to Gath to Achish to seek his slaves;
 Solomon was told that Shimei had gone from Jerusalem to Gath, and had come again. 
 The king sent and called for Shimei, and said to him, "Didn't I adjure you by God and warn you, saying, 'Know for certain that on the day you go out and walk anywhere else, you shall surely die'? You said to me, 'The saying that I have heard is good.' 
 Why then have you not kept the oath of God and the commandment that I have instructed you with?" 
-The king said moreover to Shimei, "You know in your heart all the wickedness that you did to David my father. Therefore God will return your wickedness on your own head. 
+The king said moreover to Shimei, "You know in your heart all the guilt that you did to David my father. Therefore God will return your guilt on your own head. 
 But King Solomon will be blessed, and David's throne will be established before God for the eras." 
 So the king commanded Benaiah the son of Jehoiada; and he went out, and fell on him, so that he died. The kingdom was established in the hand of Solomon. 

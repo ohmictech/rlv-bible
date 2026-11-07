@@ -14,7 +14,7 @@ For now I should have lain down and been quiet. I should have slept, then I woul
 with kings and counselors of the earth, who built up waste places for themselves; 
 or with princes who had gold, who filled their houses with silver; 
 or as a hidden untimely birth I had not been, as infants who never saw light. 
-There the wicked cease from troubling. There the weary are at rest. 
+There the guilty cease from troubling. There the weary are at rest. 
 There the prisoners are at ease together. They don't hear the voice of the taskmaster. 
 The small and the great are there. The servant is free from his master. 
 "Why is light given to him who is in misery, life to the bitter in soul, 

@@ -1,7 +1,7 @@
 ﻿In the eighth month, in the second year of Darius, God's word came to the spokesman Zechariah the son of Berechiah, the son of Iddo, saying, 
 "God was very displeased with your fathers. 
 Therefore tell them, the God of Armies says: 'Return to me,' says the God of Armies, 'and I will return to you,' says the God of Armies. 
-Don't you be like your fathers, to whom the former spokesmen proclaimed, saying: The God of Armies says, 'Return now from your evil ways and from your evil doings;' but they didn't hear nor listen to me, says God. 
+Don't you be like your fathers, to whom the former spokesmen proclaimed, saying: The God of Armies says, 'Return now from your bad ways and from your bad doings;' but they didn't hear nor listen to me, says God. 
 Your fathers, where are they? And the spokesmen, do they live for the eras? 
 But my words and my decrees, which I commanded my servants the spokesmen, didn't they overtake your fathers? "Then they repented and said, 'Just as the God of Armies determined to do to us, according to our ways and according to our practices, so he has dealt with us.'" 
 On the twenty-fourth day of the eleventh month, which is the month Shebat, in the second year of Darius, God's word came to the spokesman Zechariah the son of Berechiah, the son of Iddo, saying, 

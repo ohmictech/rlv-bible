@@ -1,23 +1,23 @@
 ﻿For the Chief Musician. A Psalm by David. God of my praise, don't remain silent, 
-for they have opened the mouth of the wicked and the mouth of deceit against me. They have spoken to me with a lying tongue. 
+for they have opened the mouth of the guilty and the mouth of deceit against me. They have spoken to me with a lying tongue. 
 They have also surrounded me with words of hatred, and fought against me without a cause. 
 In return for my love, they are my adversaries; but I am in prayer. 
-They have rewarded me evil for good, and hatred for my love. 
-Set a wicked man over him. Let an adversary stand at his right hand. 
-When he is judged, let him come out guilty. Let his prayer be turned into sin. 
+They have rewarded me bad for good, and hatred for my love. 
+Set a guilty man over him. Let an adversary stand at his right hand. 
+When he is judged, let him come out guilty. Let his prayer be turned into miss the mark. 
 Let his days be few. Let another take his office. 
 Let his children be fatherless, and his wife a widow. 
 Let his children be wandering beggars. Let them be sought from their ruins. 
 Let the creditor seize all that he has. Let strangers plunder the fruit of his labor. 
 Let there be no one to extend kindness to him, neither let there be anyone to have pity on his fatherless children. 
 Let his posterity be cut off. In the generation following let their name be blotted out. 
-Let the iniquity of his fathers be remembered by God. Don't let the sin of his mother be blotted out. 
+Let the guilt of his fathers be remembered by God. Don't let the mistake of his mother be blotted out. 
 Let them be before God continually, that he may cut off their memory from the earth; 
 because he didn't remember to show kindness, but persecuted the poor and needy man, the broken in heart, to kill them. 
-Yes, he loved cursing, and it came to him. He didn't delight in blessing, and it was far from him. 
-He clothed himself also with cursing as with his garment. It came into his inward parts like water, like oil into his bones. 
+Yes, he loved curmistakeg, and it came to him. He didn't delight in blesmistakeg, and it was far from him. 
+He clothed himself also with curmistakeg as with his garment. It came into his inward parts like water, like oil into his bones. 
 Let it be to him as the clothing with which he covers himself, for the belt that is always around him. 
-This is the reward of my adversaries from God, of those who speak evil against my soul. 
+This is the reward of my adversaries from God, of those who speak bad against my soul. 
 But deal with me, GOD the Lord, for your name's sake, because your loving kindness is good, deliver me; 
 for I am poor and needy. My heart is wounded within me. 
 I fade away like an evening shadow. I am shaken off like a locust. 

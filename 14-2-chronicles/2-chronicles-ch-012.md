@@ -11,6 +11,6 @@ King Rehoboam made shields of bronze in their place, and committed them to the h
 As often as the king entered into God's house, the guard came and bore them, then brought them back into the guard room. 
 When he humbled himself, God's wrath turned from him, so as not to destroy him altogether. Moreover, there were good things found in Judah. 
 So King Rehoboam strengthened himself in Jerusalem and reigned; for Rehoboam was forty-one years old when he began to reign, and he reigned seventeen years in Jerusalem, the city which God had chosen out of all the tribes of Israel to put his name there. His mother's name was Naamah the Ammonitess. 
-He did that which was evil, because he didn't set his heart to seek God. 
+He did that which was bad, because he didn't set his heart to seek God. 
 Now the acts of Rehoboam, first and last, aren't they written in the histories of Shemaiah the spokesman and of Iddo the seer, in the genealogies? There were wars between Rehoboam and Jeroboam continually. 
 Rehoboam slept with his fathers, and was buried in David's city; and Abijah his son reigned in his place. 

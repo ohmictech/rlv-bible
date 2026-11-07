@@ -1,6 +1,6 @@
-﻿When he went into the house of one of the rulers of the Pharisees on a Sabbath to eat bread, they were watching him. 
+﻿When he went into the house of one of the rulers of the strict religious ones on a Sabbath to eat bread, they were watching him. 
 Look, a certain man whose body was swollen with fluid was there in front of him. 
-Jesus spoke to the experts in the law and the Pharisees, saying, "Is it allowed to heal on the Sabbath?" 
+Jesus spoke to the experts in the law and the strict religious ones, saying, "Is it allowed to heal on the Sabbath?" 
 But they were silent. He took him, and healed him, and let him go. 
 He answered them, "Which of you, if your son or an ox fell into a well, wouldn't immediately pull him out on a Sabbath day?" 
 They couldn't answer him regarding these things. 

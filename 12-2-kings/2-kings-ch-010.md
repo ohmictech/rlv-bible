@@ -1,5 +1,5 @@
 ﻿Now Ahab had seventy sons in Samaria. Jehu wrote letters and sent them to Samaria, to the rulers of Jezreel, even the elders, and to those who brought up Ahab's sons, saying, 
-"Now as soon as this letter comes to you, since your master's sons are with you, and you have chariots and horses, a fortified city also, and armor, 
+"Now as soon as this letter comes to you, mistakece your master's sons are with you, and you have chariots and horses, a fortified city also, and armor, 
 select the best and fittest of your master's sons, set him on his father's throne, and fight for your master's house." 
 But they were exceedingly afraid, and said, "Behold, the two kings didn't stand before him! How then shall we stand?" 
 He who was over the household, and he who was over the city, the elders also, and those who raised the children, sent to Jehu, saying, "We are your servants, and will do all that you ask us. We will not make any man king. You do that which is good in your eyes." 
@@ -26,9 +26,9 @@ As soon as he had finished offering the burnt offering, Jehu said to the guard a
 They brought out the pillars that were in the house of Baal and burned them. 
 They broke down the pillar of Baal, and broke down the house of Baal, and made it a latrine, to this day. 
 Thus Jehu destroyed Baal out of Israel. 
-However, Jehu didn't depart from the sins of Jeroboam the son of Nebat, with which he made Israel to sin, the golden calves that were in Bethel and that were in Dan. 
+However, Jehu didn't depart from the misses the mark of Jeroboam the son of Nebat, with which he made Israel to miss the mark, the golden calves that were in Bethel and that were in Dan. 
 God said to Jehu, "Because you have done well in executing that which is right in my eyes, and have done to Ahab's house according to all that was in my heart, your descendants shall sit on the throne of Israel to the fourth generation." 
-But Jehu took no heed to walk in the law of the God of Israel, with all his heart. He didn't depart from the sins of Jeroboam, with which he made Israel to sin. 
+But Jehu took no heed to walk in the law of the God of Israel, with all his heart. He didn't depart from the misses the mark of Jeroboam, with which he made Israel to miss the mark. 
 In those days God began to cut away parts of Israel; and Hazael struck them in all the borders of Israel 
 from the Jordan eastward, all the land of Gilead, the Gadites, and the Reubenites, and the Manassites, from Aroer, which is by the valley of the Arnon, even Gilead and Bashan. 
 Now the rest of the acts of Jehu, and all that he did, and all his might, aren't they written in the book of the chronicles of the kings of Israel? 

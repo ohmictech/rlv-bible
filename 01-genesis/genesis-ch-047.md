@@ -6,7 +6,7 @@ Pharaoh spoke to Joseph, saying, "Your father and your brothers have come to you
 The land of Egypt is before you. Make your father and your brothers dwell in the best of the land. Let them dwell in the land of Goshen. If you know any able men among them, then put them in charge of my livestock." 
 Joseph brought in Jacob, his father, and set him before Pharaoh; and Jacob blessed Pharaoh. 
 Pharaoh said to Jacob, "How old are you?" 
-Jacob said to Pharaoh, "The years of my pilgrimage are one hundred thirty years. The days of the years of my life have been few and evil. They have not attained to the days of the years of the life of my fathers in the days of their pilgrimage." 
+Jacob said to Pharaoh, "The years of my pilgrimage are one hundred thirty years. The days of the years of my life have been few and bad. They have not attained to the days of the years of the life of my fathers in the days of their pilgrimage." 
 Jacob blessed Pharaoh, and went out from the presence of Pharaoh. 
 Joseph placed his father and his brothers, and gave them a possession in the land of Egypt, in the best of the land, in the land of Rameses, as Pharaoh had commanded. 
 Joseph provided his father, his brothers, and all of his father's household with bread, according to the sizes of their families. 

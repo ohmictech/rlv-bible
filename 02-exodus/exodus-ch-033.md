@@ -1,7 +1,7 @@
 ﻿God spoke to Moses, "Depart, go up from here, you and the people that you have brought up out of the land of Egypt, to the land of which I swore to Abraham, to Isaac, and to Jacob, saying, 'I will give it to your offspring.' 
 I will send an messenger before you; and I will drive out the Canaanite, the Amorite, and the Hittite, and the Perizzite, the Hivite, and the Jebusite. 
 Go to a land flowing with milk and honey; but I will not go up among you, for you are a stiff-necked people, lest I consume you on the way." 
-When the people heard this evil news, they mourned; and no one put on his jewelry. 
+When the people heard this bad news, they mourned; and no one put on his jewelry. 
 God had said to Moses, "Tell the children of Israel, 'You are a stiff-necked people. If I were to go up among you for one moment, I would consume you. Therefore now take off your jewelry from you, that I may know what to do to you.'" 
 The children of Israel stripped themselves of their jewelry from Mount Horeb onward. 
 Now Moses used to take the tent and pitch it outside the camp, far away from the camp, and he called it "The Tent of Meeting." Everyone who sought God went out to the Tent of Meeting, which was outside the camp. 

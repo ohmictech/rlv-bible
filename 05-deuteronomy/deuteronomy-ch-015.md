@@ -6,7 +6,7 @@ if only you diligently listen to your God's voice, to observe to do all this com
 For your God will bless you, as he promised you. You will lend to many nations, but you will not borrow. You will rule over many nations, but they will not rule over you. 
 If a poor man, one of your brothers, is with you within any of your gates in your land which your God gives you, you shall not harden your heart, nor shut your hand from your poor brother; 
 but you shall surely open your hand to him, and shall surely lend him sufficient for his need, which he lacks. 
-Beware that there not be a wicked thought in your heart, saying, "The seventh year, the year of release, is at hand," and your eye be evil against your poor brother and you give him nothing; and he cry to God against you, and it be sin to you. 
+Beware that there not be a guilty thought in your heart, saying, "The seventh year, the year of release, is at hand," and your eye be bad against your poor brother and you give him nothing; and he cry to God against you, and it be guilt on you. 
 You shall surely give, and your heart shall not be grieved when you give to him, because it is for this thing your God will bless you in all your work and in all that you put your hand to. 
 For the poor will never cease out of the land. Therefore I command you to surely open your hand to your brother, to your needy, and to your poor, in your land. 
 If your brother, a Hebrew man, or a Hebrew woman, is sold to you and serves you six years, then in the seventh year you shall let him go free from you. 

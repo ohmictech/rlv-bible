@@ -1,10 +1,10 @@
 ﻿Now on a Sabbath, he was going through the grain fields, and his students plucked heads of grain and ate them, rubbing them in their hands. 
-But some of the Pharisees said to them, "Why are you doing what isn't allowed on the Sabbath?" 
+But some of the strict religious ones said to them, "Why are you doing what isn't allowed on the Sabbath?" 
 Jesus answered them, "Haven't you read what David did when he was hungry, he and those who were with him, 
 how he went into the house of God, and ate the bread set out before God, and gave also to those who were with him, which isn't allowed to eat except for the priests alone?" 
 He said to them, "The Human One is lord of the Sabbath." 
 It also happened on another Sabbath that he entered into the gathering place and taught. There was a man there, and his right hand was withered. 
-The Bible teachers and the Pharisees watched him, to see whether he would heal on the Sabbath, that they might find an accusation against him. 
+The Bible teachers and the strict religious ones watched him, to see whether he would heal on the Sabbath, that they might find an accusation against him. 
 But he knew their thoughts, and he said to the man with the withered hand, "Get up and stand here in the middle." He got up and stood there. 
 Then Jesus said to them, "I will ask you something: Is it allowed on the Sabbath to do good, or to do harm? To rescue a life, or to kill?" 
 He looked around at them all, and said to the man, "Stretch out your hand." He did, and his hand was restored as sound as the other. 

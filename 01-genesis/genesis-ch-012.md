@@ -1,5 +1,5 @@
 ﻿Now God said to Abram, "Leave your country, and your relatives, and your father's house, and go to the land that I will show you. 
-I will make of you a great nation. I will bless you and make your name great. You will be a blessing. 
+I will make of you a great nation. I will bless you and make your name great. You will be a blesmistakeg. 
 I will bless those who bless you, and I will curse him who treats you with contempt. All the families of the earth will be blessed through you." 
 So Abram went, as God had told him. Lot went with him. Abram was seventy-five years old when he departed from Haran. 
 Abram took Sarai his wife, Lot his brother's son, all their possessions that they had gathered, and the people whom they had acquired in Haran, and they went to go into the land of Canaan. They entered into the land of Canaan. 

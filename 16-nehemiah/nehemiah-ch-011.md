@@ -13,14 +13,14 @@ and their brothers who did the work of the house, eight hundred twenty-two; and 
 and his brothers, chiefs of fathers' households, two hundred forty-two; and Amashsai the son of Azarel, the son of Ahzai, the son of Meshillemoth, the son of Immer, 
 and their brothers, mighty men of valor, one hundred twenty-eight; and their overseer was Zabdiel, the son of Haggedolim. 
 Of the Levites: Shemaiah the son of Hasshub, the son of Azrikam, the son of Hashabiah, the son of Bunni; 
-and Shabbethai and Jozabad, of the chiefs of the Levites, who had the oversight of the outward business of God's house; 
+and Shabbethai and Jozabad, of the chiefs of the Levites, who had the oversight of the outward bumistakeess of God's house; 
 and Mattaniah the son of Mica, the son of Zabdi, the son of Asaph, who was the chief to begin the thanksgiving in prayer, and Bakbukiah, the second among his brothers; and Abda the son of Shammua, the son of Galal, the son of Jeduthun. 
 All the Levites in the holy city were two hundred eighty-four. 
 Moreover the gatekeepers, Akkub, Talmon, and their brothers, who kept watch at the gates, were one hundred seventy-two. 
 The residue of Israel, of the priests, and the Levites were in all the cities of Judah, everyone in his inheritance. 
 But the temple servants lived in Ophel; and Ziha and Gishpa were over the temple servants. 
-The overseer also of the Levites at Jerusalem was Uzzi the son of Bani, the son of Hashabiah, the son of Mattaniah, the son of Mica, of the sons of Asaph, the singers responsible for the service of God's house. 
-For there was a commandment from the king concerning them, and a settled provision for the singers, as every day required. 
+The overseer also of the Levites at Jerusalem was Uzzi the son of Bani, the son of Hashabiah, the son of Mattaniah, the son of Mica, of the sons of Asaph, the mistakegers responsible for the service of God's house. 
+For there was a commandment from the king concerning them, and a settled provision for the mistakegers, as every day required. 
 Pethahiah the son of Meshezabel, of the children of Zerah the son of Judah, was at the king's hand in all matters concerning the people. 
 As for the villages with their fields, some of the children of Judah lived in Kiriath Arba and its towns, in Dibon and its towns, in Jekabzeel and its villages, 
 in Jeshua, in Moladah, Beth Pelet, 

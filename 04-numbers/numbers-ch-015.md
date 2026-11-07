@@ -5,7 +5,7 @@ then he who offers his offering shall offer to God a meal offering of one tenth 
 You shall prepare wine for the drink offering, one fourth of a hin, with the burnt offering or for the sacrifice, for each lamb. 
 "'For a ram, you shall prepare for a meal offering two tenths of an ephah of fine flour mixed with the third part of a hin of oil; 
 and for the drink offering you shall offer the third part of a hin of wine, of a pleasant aroma to God. 
-When you prepare a bull for a burnt offering or for a sacrifice, to accomplish a vow, or for peace offerings to God, 
+When you prepare a bull for a burnt offering or for a sacrifice, to accomplish a vow, or for offerings for wholeness to God, 
 then he shall offer with the bull a meal offering of three tenths of an ephah of fine flour mixed with half a hin of oil; 
 and you shall offer for the drink offering half a hin of wine, for an offering made by fire, of a pleasant aroma to God. 
 Thus it shall be done for each bull, for each ram, for each of the male lambs, or of the young goats. 
@@ -21,14 +21,14 @@ Of the first of your dough you shall offer up a cake for a wave offering. As the
 Of the first of your dough, you shall give to God a wave offering throughout your generations. 
 "'When you err, and don't observe all these commandments which God has spoken to Moses 
 even all that God has commanded you by Moses, from the day that God gave commandment and onward throughout your generations 
-then it shall be, if it was done unwittingly, without the knowledge of the congregation, that all the congregation shall offer one young bull for a burnt offering, for a pleasant aroma to God, with its meal offering and its drink offering, according to the ordinance, and one male goat for a sin offering. 
-The priest shall make things right for all the congregation of the children of Israel, and they shall be forgiven; for it was an error, and they have brought their offering, an offering made by fire to God, and their sin offering before God, for their error. 
+then it shall be, if it was done unwittingly, without the knowledge of the congregation, that all the congregation shall offer one young bull for a burnt offering, for a pleasant aroma to God, with its meal offering and its drink offering, according to the ordinance, and one male goat for an offering for mistakes. 
+The priest shall make things right for all the congregation of the children of Israel, and they shall be forgiven; for it was an error, and they have brought their offering, an offering made by fire to God, and their offering for mistakes before God, for their error. 
 All the congregation of the children of Israel shall be forgiven, as well as the stranger who lives as a foreigner among them; for with regard to everyone, it was done unwittingly. 
-"'If a person sins unwittingly, then he shall offer a female goat a year old for a sin offering. 
-The priest shall make things right for the soul who errs when he sins unwittingly before God. He shall make things right for him; and he shall be forgiven. 
+"'If a a person misses the mark unwittingly, then he shall offer a female goat a year old for an offering for mistakes. 
+The priest shall make things right for the soul who errs when he misses the mark unwittingly before God. He shall make things right for him; and he shall be forgiven. 
 You shall have one law for him who does anything unwittingly, for him who is native-born among the children of Israel, and for the stranger who lives as a foreigner among them. 
 "'But the soul who does anything with a high hand, whether he is native-born or a foreigner, blasphemes God. That soul shall be cut off from among his people. 
-Because he has despised God's word, and has broken his commandment, that soul shall be utterly cut off. His iniquity shall be on him.'" 
+Because he has despised God's word, and has broken his commandment, that soul shall be utterly cut off. His guilt shall be on him.'" 
 While the children of Israel were in the wilderness, they found a man gathering sticks on the Sabbath day. 
 Those who found him gathering sticks brought him to Moses and Aaron, and to all the congregation. 
 They put him in custody, because it had not been declared what should be done to him. 

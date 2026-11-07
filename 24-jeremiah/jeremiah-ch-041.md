@@ -8,7 +8,7 @@ It was so, when they came into the middle of the city, that Ishmael the son of N
 But ten men were found among those who said to Ishmael, "Don't kill us; for we have stores hidden in the field, of wheat, and of barley, and of oil, and of honey." So he stopped, and didn't kill them among their brothers. 
 Now the pit in which Ishmael cast all the dead bodies of the men whom he had killed, by the side of Gedaliah (this was that which Asa the king had made for fear of Baasha king of Israel), Ishmael the son of Nethaniah filled it with those who were killed. 
 Then Ishmael carried away captive all of the people who were left in Mizpah, even the king's daughters, and everyone who remained in Mizpah, whom Nebuzaradan the captain of the guard had committed to Gedaliah the son of Ahikam. Ishmael the son of Nethaniah carried them away captive, and departed to go over to the children of Ammon. 
-But when Johanan the son of Kareah, and all the captains of the forces who were with him, heard of all the evil that Ishmael the son of Nethaniah had done, 
+But when Johanan the son of Kareah, and all the captains of the forces who were with him, heard of all the bad that Ishmael the son of Nethaniah had done, 
 then they took all the men, and went to fight with Ishmael the son of Nethaniah, and found him by the great waters that are in Gibeon. 
 Now when everyone who was with Ishmael saw Johanan the son of Kareah, and all the captains of the forces who were with him, then they were glad. 
 So everyone who Ishmael had carried away captive from Mizpah turned about and came back, and went to Johanan the son of Kareah. 

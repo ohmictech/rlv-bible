@@ -43,8 +43,8 @@ I know that you always listen to me, but because of the crowd standing around I 
 When he had said this, he cried with a loud voice, "Lazarus, come out!" 
 He who was dead came out, bound hand and foot with wrappings, and his face was wrapped around with a cloth. Jesus said to them, "Untie him, and let him go." 
 Therefore many of the Jewish people who came to Mary and saw what Jesus did trusted in him. 
-But some of them went away to the Pharisees and told them the things which Jesus had done. 
-The chief priests therefore and the Pharisees gathered a council, and said, "What are we doing? For this man does many signs. 
+But some of them went away to the strict religious ones and told them the things which Jesus had done. 
+The chief priests therefore and the strict religious ones gathered a council, and said, "What are we doing? For this man does many signs. 
 If we leave him alone like this, everyone will trust in him, and the Romans will come and take away both our place and our nation." 
 But a certain one of them, Caiaphas, being high priest that year, said to them, "You know nothing at all, 
 You don't realize that it is better for us that one man die for the people than that the whole nation be ruined." 
@@ -54,4 +54,4 @@ So from that day forward they took counsel that they might put him to death.
 Jesus therefore walked no more openly among the Jewish people, but departed from there into the country near the wilderness, to a city called Ephraim. He stayed there with his students. 
 Now the Jewish Passover was near. Many went up from the country to Jerusalem before the Passover, to wash themselves. 
 Then they sought for Jesus and spoke with one another as they stood in the temple courts, "What do you think? That he isn't coming to the feast at all?" 
-Now the chief priests and the Pharisees had commanded that if anyone knew where he was, he should report it, that they might seize him. 
+Now the chief priests and the strict religious ones had commanded that if anyone knew where he was, he should report it, that they might seize him. 

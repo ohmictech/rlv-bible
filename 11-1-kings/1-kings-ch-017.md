@@ -15,9 +15,9 @@ For the God of Israel, says, 'The jar of meal will not run out, and the jar of o
 She went and did according to the saying of Elijah; and she, he, and her household ate many days. 
 The jar of meal didn't run out and the jar of oil didn't fail, according to God's word, which he spoke by Elijah. 
 After these things, the son of the woman, the mistress of the house, became sick; and his sickness was so severe that there was no breath left in him. 
-She said to Elijah, "What have I to do with you, you man of God? You have come to me to bring my sin to memory, and to kill my son!" 
+She said to Elijah, "What have I to do with you, you man of God? You have come to me to bring my mistake to memory, and to kill my son!" 
 He said to her, "Give me your son." He took him out of her bosom, and carried him up into the room where he stayed, and laid him on his own bed. 
-He cried to God and said, "God my God, have you also brought evil on the widow with whom I am staying, by killing her son?" 
+He cried to God and said, "God my God, have you also brought bad on the widow with whom I am staying, by killing her son?" 
 He stretched himself on the child three times, and cried to God and said, "God my God, please let this child's soul come into him again." 
 God listened to the voice of Elijah; and the soul of the child came into him again, and he revived. 
 Elijah took the child and brought him down out of the room into the house, and delivered him to his mother; and Elijah said, "Behold, your son lives." 

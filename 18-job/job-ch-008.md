@@ -1,7 +1,7 @@
 ﻿Then Bildad the Shuhite answered, 
 "How long will you speak these things? Shall the words of your mouth be a mighty wind? 
 Does God pervert justice? Or does the Almighty pervert righteousness? 
-If your children have sinned against him, he has delivered them into the hand of their disobedience. 
+If your children have wronged him, he has delivered them into the hand of their disobedience. 
 If you want to seek God diligently, make your supplication to the Almighty. 
 If you were pure and upright, surely now he would awaken for you, and make the habitation of your righteousness prosperous. 
 Though your beginning was small, yet your latter end would greatly increase. 
@@ -17,6 +17,6 @@ He is green before the sun. His shoots go out along his garden.
 His roots are wrapped around the rock pile. He sees the place of stones. 
 If he is destroyed from his place, then it will deny him, saying, 'I have not seen you.' 
 Behold, this is the joy of his way. Out of the earth, others will spring. 
-"Behold, God will not cast away a blameless man, neither will he uphold the evildoers. 
+"Behold, God will not cast away a blameless man, neither will he uphold the those who do bad. 
 He will still fill your mouth with laughter, your lips with shouting. 
-Those who hate you will be clothed with shame. The tent of the wicked will be no more." 
+Those who hate you will be clothed with shame. The tent of the guilty will be no more." 

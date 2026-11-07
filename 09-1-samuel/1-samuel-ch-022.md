@@ -16,7 +16,7 @@ Have I today begun to inquire of God for him? Be it far from me! Don't let the k
 The king said, "You shall surely die, Ahimelech, you and all your father's house." 
 The king said to the guard who stood about him, "Turn and kill the priests of God, because their hand also is with David, and because they knew that he fled and didn't disclose it to me." But the servants of the king wouldn't put out their hand to fall on the priests of God. 
 The king said to Doeg, "Turn and attack the priests!" Doeg the Edomite turned, and he attacked the priests, and he killed on that day eighty-five people who wore a linen ephod. 
-He struck Nob, the city of the priests, with the edge of the sword, both men and women, children and nursing babies, and cattle, donkeys, and sheep, with the edge of the sword. 
+He struck Nob, the city of the priests, with the edge of the sword, both men and women, children and nurmistakeg babies, and cattle, donkeys, and sheep, with the edge of the sword. 
 One of the sons of Ahimelech the son of Ahitub, named Abiathar, escaped and fled after David. 
 Abiathar told David that Saul had slain God's priests. 
 David said to Abiathar, "I knew on that day, when Doeg the Edomite was there, that he would surely tell Saul. I am responsible for the death of all the persons of your father's house. 

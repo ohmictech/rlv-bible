@@ -14,17 +14,17 @@ The children of Israel sent to the children of Reuben, and to the children of Ga
 With him were ten princes, one prince of a fathers' house for each of the tribes of Israel; and they were each head of their fathers' houses among the thousands of Israel. 
 They came to the children of Reuben, and to the children of Gad, and to the half-tribe of Manasseh, to the land of Gilead, and they spoke with them, saying, 
 "The whole congregation of God says, 'What trespass is this that you have committed against the God of Israel, to turn away today from following God, in that you have built yourselves an altar, to rebel today against God? 
-Is the iniquity of Peor too little for us, from which we have not cleansed ourselves to this day, although there came a plague on the congregation of God, 
-that you must turn away today from following God? It will be, since you rebel today against God, that tomorrow he will be angry with the whole congregation of Israel. 
+Is the guilt of Peor too little for us, from which we have not cleansed ourselves to this day, although there came a plague on the congregation of God, 
+that you must turn away today from following God? It will be, mistakece you rebel today against God, that tomorrow he will be angry with the whole congregation of Israel. 
 However, if the land of your possession is unclean, then pass over to the land of the possession of God, in which God's tabernacle dwells, and take possession among us; but don't rebel against God, nor rebel against us, in building an altar other than our God's altar. 
-Didn't Achan the son of Zerah commit a trespass in the devoted thing, and wrath fell on all the congregation of Israel? That man didn't perish alone in his iniquity.'" 
+Didn't Achan the son of Zerah commit a trespass in the devoted thing, and wrath fell on all the congregation of Israel? That man didn't perish alone in his guilt.'" 
 Then the children of Reuben and the children of Gad and the half-tribe of Manasseh answered, and spoke to the heads of the thousands of Israel, 
 "The Mighty One, God, the Mighty One, God, God, he knows; and Israel shall know: if it was in rebellion, or if in trespass against God (don't save us today), 
-that we have built us an altar to turn away from following God; or if to offer burnt offering or meal offering, or if to offer sacrifices of peace offerings, let God himself require it. 
+that we have built us an altar to turn away from following God; or if to offer burnt offering or meal offering, or if to offer sacrifices of offerings for wholeness, let God himself require it. 
 "If we have not out of concern done this, and for a reason, saying, 'In time to come your children might speak to our children, saying, "What have you to do with the God of Israel? 
 For God has made the Jordan a border between us and you, you children of Reuben and children of Gad. You have no portion in God."' So your children might make our children cease from fearing God. 
 "Therefore we said, 'Let's now prepare to build ourselves an altar, not for burnt offering, nor for sacrifice; 
-but it will be a witness between us and you, and between our generations after us, that we may perform the service of God before him with our burnt offerings, with our sacrifices, and with our peace offerings;' that your children may not tell our children in time to come, 'You have no portion in God.' 
+but it will be a witness between us and you, and between our generations after us, that we may perform the service of God before him with our burnt offerings, with our sacrifices, and with our offerings for wholeness;' that your children may not tell our children in time to come, 'You have no portion in God.' 
 "Therefore we said, 'It shall be, when they tell us or our generations this in time to come, that we shall say, "Behold the pattern of God's altar, which our fathers made, not for burnt offering, nor for sacrifice; but it is a witness between us and you."' 
 "Far be it from us that we should rebel against God, and turn away today from following God, to build an altar for burnt offering, for meal offering, or for sacrifice, besides our God's altar that is before his tabernacle!" 
 When Phinehas the priest, and the princes of the congregation, even the heads of the thousands of Israel that were with him, heard the words that the children of Reuben and the children of Gad and the children of Manasseh spoke, it pleased them well. 

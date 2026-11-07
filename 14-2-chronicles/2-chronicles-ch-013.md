@@ -4,7 +4,7 @@ Abijah joined battle with an army of valiant men of war, even four hundred thous
 Abijah stood up on Mount Zemaraim, which is in the hill country of Ephraim, and said, "Hear me, Jeroboam and all Israel: 
 Ought you not to know that the God of Israel, gave the kingdom over Israel to David for the eras, even to him and to his sons by a covenant of salt? 
 Yet Jeroboam the son of Nebat, the servant of Solomon the son of David, rose up, and rebelled against his lord. 
-Worthless men were gathered to him, wicked fellows who strengthened themselves against Rehoboam the son of Solomon, when Rehoboam was young and tender hearted, and could not withstand them. 
+Worthless men were gathered to him, guilty fellows who strengthened themselves against Rehoboam the son of Solomon, when Rehoboam was young and tender hearted, and could not withstand them. 
 "Now you intend to withstand the kingdom of God in the hand of the sons of David. You are a great multitude, and the golden calves which Jeroboam made you for gods are with you. 
 Haven't you driven out the priests of God, the sons of Aaron, and the Levites, and made priests for yourselves according to the ways of the peoples of other lands? Whoever comes to consecrate himself with a young bull and seven rams may be a priest of those who are no gods. 
 "But as for us, God is our God, and we have not forsaken him. We have priests serving God, the sons of Aaron, and the Levites in their work. 

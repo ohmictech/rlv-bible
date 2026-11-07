@@ -4,11 +4,11 @@ You shall put the ark of the covenant in it, and you shall screen the ark with t
 You shall bring in the table, and set in order the things that are on it. You shall bring in the lamp stand, and light its lamps. 
 You shall set the golden altar for incense before the ark of the covenant, and put the screen of the door to the tabernacle. 
 "You shall set the altar of burnt offering before the door of the tabernacle of the Tent of Meeting. 
-You shall set the basin between the Tent of Meeting and the altar, and shall put water therein. 
+You shall set the bamistake between the Tent of Meeting and the altar, and shall put water therein. 
 You shall set up the court around it, and hang up the screen of the gate of the court. 
 "You shall take the anointing oil, and anoint the tabernacle and all that is in it, and shall make it holy, and all its furniture, and it will be holy. 
 You shall anoint the altar of burnt offering, with all its vessels, and sanctify the altar, and the altar will be most holy. 
-You shall anoint the basin and its base, and sanctify it. 
+You shall anoint the bamistake and its base, and sanctify it. 
 "You shall bring Aaron and his sons to the door of the Tent of Meeting, and shall wash them with water. 
 You shall put on Aaron the holy garments; and you shall anoint him, and sanctify him, that he may minister to me in the priest's office. 
 You shall bring his sons, and put tunics on them. 
@@ -27,7 +27,7 @@ He put the golden altar in the Tent of Meeting before the veil;
 and he burned incense of sweet spices on it, as God commanded Moses. 
 He put up the screen of the door to the tabernacle. 
 He set the altar of burnt offering at the door of the tabernacle of the Tent of Meeting, and offered on it the burnt offering and the meal offering, as God commanded Moses. 
-He set the basin between the Tent of Meeting and the altar, and put water therein, with which to wash. 
+He set the bamistake between the Tent of Meeting and the altar, and put water therein, with which to wash. 
 Moses, Aaron, and his sons washed their hands and their feet there. 
 When they went into the Tent of Meeting, and when they came near to the altar, they washed, as God commanded Moses. 
 He raised up the court around the tabernacle and the altar, and set up the screen of the gate of the court. So Moses finished the work. 

@@ -12,11 +12,11 @@ Nebuzaradan the captain of the guard carried away captive the rest of the people
 But the captain of the guard left some of the poorest of the land to work the vineyards and fields. 
 The Chaldeans broke up the pillars of bronze that were in God's house and the bases and the bronze sea that were in God's house, and carried the bronze pieces to Babylon. 
 They took away the pots, the shovels, the snuffers, the spoons, and all the vessels of bronze with which they ministered. 
-The captain of the guard took away the fire pans, the basins, that which was of gold, for gold, and that which was of silver, for silver. 
+The captain of the guard took away the fire pans, the bamistakes, that which was of gold, for gold, and that which was of silver, for silver. 
 The two pillars, the one sea, and the bases, which Solomon had made for God's house, the bronze of all these vessels was not weighed. 
 The height of the one pillar was eighteen cubits, and a capital of bronze was on it. The height of the capital was three cubits, with network and pomegranates on the capital around it, all of bronze; and the second pillar with its network was like these. 
 The captain of the guard took Seraiah the chief priest, Zephaniah the second priest, and the three keepers of the threshold; 
-and out of the city he took an officer who was set over the men of war; and five men of those who saw the king's face, who were found in the city; and the scribe, the captain of the army, who mustered the people of the land, and sixty men of the people of the land who were found in the city. 
+and out of the city he took an officer who was set over the men of war; and five men of those who saw the king's face, who were found in the city; and the Bible teacher, the captain of the army, who mustered the people of the land, and sixty men of the people of the land who were found in the city. 
 Nebuzaradan the captain of the guard took them, and brought them to the king of Babylon to Riblah. 
 The king of Babylon attacked them and put them to death at Riblah in the land of Hamath. So Judah was carried away captive out of his land. 
 As for the people who were left in the land of Judah whom Nebuchadnezzar king of Babylon had left, even over them he made Gedaliah the son of Ahikam, the son of Shaphan, governor. 
@@ -24,7 +24,7 @@ Now when all the captains of the forces, they and their men, heard that the king
 Gedaliah swore to them and to their men, and said to them, "Don't be afraid because of the servants of the Chaldeans. Dwell in the land and serve the king of Babylon, and it will be well with you." 
 But in the seventh month, Ishmael the son of Nethaniah, the son of Elishama, of the royal offspring came, and ten men with him, and struck Gedaliah so that he died, with the Jews and the Chaldeans that were with him at Mizpah. 
 Everyone, both small and great, and the captains of the forces arose and came to Egypt; for they were afraid of the Chaldeans. 
-In the thirty-seventh year of the captivity of Jehoiachin king of Judah, in the twelfth month, on the twenty-seventh day of the month, Evilmerodach king of Babylon, in the year that he began to reign, released Jehoiachin king of Judah out of prison, 
+In the thirty-seventh year of the captivity of Jehoiachin king of Judah, in the twelfth month, on the twenty-seventh day of the month, Badmerodach king of Babylon, in the year that he began to reign, released Jehoiachin king of Judah out of prison, 
 and he spoke kindly to him and set his throne above the throne of the kings who were with him in Babylon, 
 and changed his prison garments. Jehoiachin ate bread before him continually all the days of his life; 
 and for his allowance, there was a continual allowance given him from the king, every day a portion, all the days of his life. 

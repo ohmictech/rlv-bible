@@ -8,7 +8,7 @@ Joshua said, "Alas, God, why have you brought this people over the Jordan at all
 Oh, Lord, what shall I say, after Israel has turned their backs before their enemies? 
 For the Canaanites and all the inhabitants of the land will hear of it, and will surround us, and cut off our name from the earth. What will you do for your great name?" 
 God said to Joshua, "Get up! Why have you fallen on your face like that? 
-Israel has sinned. Yes, they have even transgressed my covenant which I commanded them. Yes, they have even taken some of the devoted things, and have also stolen, and also deceived. They have even put it among their own stuff. 
+Israel has missed the mark. Yes, they have even transgressed my covenant which I commanded them. Yes, they have even taken some of the devoted things, and have also stolen, and also deceived. They have even put it among their own stuff. 
 Therefore the children of Israel can't stand before their enemies. They turn their backs before their enemies, because they have become devoted for destruction. I will not be with you any more, unless you destroy the devoted things from among you. 
 Get up! Sanctify the people, and say, 'Sanctify yourselves for tomorrow, for the God of Israel, says, "There is a devoted thing among you, Israel. You cannot stand before your enemies until you take away the devoted thing from among you." 
 In the morning therefore you shall be brought near by your tribes. It shall be that the tribe which God selects shall come near by families. The family which God selects shall come near by households. The household which God selects shall come near man by man. 
@@ -17,7 +17,7 @@ So Joshua rose up early in the morning and brought Israel near by their tribes. 
 He brought near the family of Judah, and he selected the family of the Zerahites. He brought near the family of the Zerahites man by man, and Zabdi was selected. 
 He brought near his household man by man, and Achan, the son of Carmi, the son of Zabdi, the son of Zerah, of the tribe of Judah, was selected. 
 Joshua said to Achan, "My son, please give glory to the God of Israel, and make confession to him. Tell me now what you have done! Don't hide it from me!" 
-Achan answered Joshua, and said, "I have truly sinned against the God of Israel, and this is what I have done. 
+Achan answered Joshua, and said, "I have truly wronged the God of Israel, and this is what I have done. 
 When I saw among the plunder a beautiful Babylonian robe, two hundred shekels of silver, and a wedge of gold weighing fifty shekels, then I coveted them and took them. Behold, they are hidden in the ground in the middle of my tent, with the silver under it." 
 So Joshua sent messengers, and they ran to the tent. Behold, it was hidden in his tent, with the silver under it. 
 They took them from the middle of the tent, and brought them to Joshua and to all the children of Israel. They laid them down before God. 

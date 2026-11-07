@@ -13,9 +13,9 @@ Moreover God's word came to me, saying,
 You were in Eden, the garden of God. Every precious stone adorned you: ruby, topaz, emerald, chrysolite, onyx, jasper, sapphire, turquoise, and beryl. Gold work of tambourines and of pipes was in you. They were prepared in the day that you were created. 
 You were the anointed cherub who covers. Then I set you up on the holy mountain of God. You have walked up and down in the middle of the stones of fire. 
 You were perfect in your ways from the day that you were created, until unrighteousness was found in you. 
-By the abundance of your commerce, your insides were filled with violence, and you have sinned. Therefore I have cast you as profane out of God's mountain. I have destroyed you, covering cherub, from the middle of the stones of fire. 
+By the abundance of your commerce, your insides were filled with violence, and you have missed the mark. Therefore I have cast you as profane out of God's mountain. I have destroyed you, covering cherub, from the middle of the stones of fire. 
 Your heart was lifted up because of your beauty. You have corrupted your wisdom by reason of your splendor. I have cast you to the ground. I have laid you before kings, that they may see you. 
-By the multitude of your iniquities, in the unrighteousness of your commerce, you have profaned your sanctuaries. Therefore I have brought out a fire from the middle of you. It has devoured you. I have turned you to ashes on the earth in the sight of everyone who sees you. 
+By the multitude of your guilt, in the unrighteousness of your commerce, you have profaned your sanctuaries. Therefore I have brought out a fire from the middle of you. It has devoured you. I have turned you to ashes on the earth in the sight of everyone who sees you. 
 Everyone who know you among the peoples will be astonished at you. You have become a terror, and you will exist no more."'" 
 God's word came to me, saying, 
 "Son of man, set your face toward Sidon, and prophesy against it, 

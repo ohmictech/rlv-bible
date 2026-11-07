@@ -8,8 +8,8 @@ God is good, a stronghold in the day of trouble; and he knows those who take ref
 But with an overflowing flood, he will make a full end of her place, and will pursue his enemies into darkness. 
 What do you plot against God? He will make a full end. Affliction won't rise up the second time. 
 For entangled like thorns, and drunken as with their drink, they are consumed utterly like dry stubble. 
-One has gone out of you who devises evil against God, who counsels wickedness. 
+One has gone out of you who devises bad against God, who counsels guilt. 
 God says: "Though they are in full strength and likewise many, even so they will be cut down and pass away. Though I have afflicted you, I will afflict you no more. 
 Now I will break his yoke from off you, and will burst your bonds apart." 
 God has commanded concerning you: "No more descendants will bear your name. Out of the house of your gods, I will cut off the engraved image and the molten image. I will make your grave, for you are vile." 
-Behold, on the mountains the feet of him who brings good news, who publishes peace! Keep your feasts, Judah! Perform your vows, for the wicked one will no more pass through you. He is utterly cut off. 
+Behold, on the mountains the feet of him who brings good news, who publishes peace! Keep your feasts, Judah! Perform your vows, for the guilty one will no more pass through you. He is utterly cut off. 

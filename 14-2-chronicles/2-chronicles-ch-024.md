@@ -4,11 +4,11 @@ Jehoiada took for him two wives, and he became the father of sons and daughters.
 After this, Joash intended to restore God's house. 
 He gathered together the priests and the Levites, and said to them, "Go out to the cities of Judah, and gather money to repair the house of your God from all Israel from year to year. See that you expedite this matter." However the Levites didn't do it right away. 
 The king called for Jehoiada the chief, and said to him, "Why haven't you required of the Levites to bring in the tax of Moses the servant of God, and of the assembly of Israel, out of Judah and out of Jerusalem, for the Tent of the Testimony?" 
-For the sons of Athaliah, that wicked woman, had broken up God's house; and they also gave all the dedicated things of God's house to the Baals. 
+For the sons of Athaliah, that guilty woman, had broken up God's house; and they also gave all the dedicated things of God's house to the Baals. 
 So the king commanded, and they made a chest, and set it outside at the gate of God's house. 
 They made a proclamation through Judah and Jerusalem, to bring in for God the tax that Moses the servant of God laid on Israel in the wilderness. 
 All the princes and everyone rejoiced, and brought in, and cast into the chest, until they had filled it. 
-Whenever the chest was brought to the king's officers by the hand of the Levites, and when they saw that there was much money, the king's scribe and the chief priest's officer came and emptied the chest, and took it, and carried it to its place again. Thus they did day by day, and gathered money in abundance. 
+Whenever the chest was brought to the king's officers by the hand of the Levites, and when they saw that there was much money, the king's Bible teacher and the chief priest's officer came and emptied the chest, and took it, and carried it to its place again. Thus they did day by day, and gathered money in abundance. 
 The king and Jehoiada gave it to those who did the work of the service of God's house. They hired masons and carpenters to restore God's house, and also those who worked iron and bronze to repair God's house. 
 So the workmen worked, and the work of repairing went forward in their hands. They set up God's house as it was designed, and strengthened it. 
 When they had finished, they brought the rest of the money before the king and Jehoiada, from which were made vessels for God's house, even vessels with which to minister and to offer, including spoons and vessels of gold and silver. They offered burnt offerings in God's house continually all the days of Jehoiada. 

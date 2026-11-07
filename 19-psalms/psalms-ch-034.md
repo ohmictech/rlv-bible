@@ -10,13 +10,13 @@ Oh fear God, you his saints, for there is no lack with those who fear him.
 The young lions do lack, and suffer hunger, but those who seek God shall not lack any good thing. 
 Come, you children, listen to me. I will teach you the fear of God. 
 Who is someone who desires life, and loves many days, that he may see good? 
-Keep your tongue from evil, and your lips from speaking lies. 
-Depart from evil, and do good. Seek peace, and pursue it. 
+Keep your tongue from what is bad, and your lips from speaking lies. 
+Depart from what is bad, and do good. Seek peace, and pursue it. 
 God's eyes are toward the righteous. His ears listen to their cry. 
-God's face is against those who do evil, to cut off their memory from the earth. 
+God's face is against those who do bad things, to cut off their memory from the earth. 
 The righteous cry, and God hears, and delivers them out of all their troubles. 
 God is near to those who have a broken heart, and saves those who have a crushed spirit. 
 Many are the afflictions of the righteous, but God delivers him out of them all. 
 He protects all of his bones. Not one of them is broken. 
-Evil shall kill the wicked. Those who hate the righteous shall be condemned. 
+Bad shall kill the guilty. Those who hate the righteous shall be condemned. 
 God buys back the soul of his servants. None of those who take refuge in him shall be condemned. 

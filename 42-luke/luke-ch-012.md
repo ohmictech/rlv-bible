@@ -1,4 +1,4 @@
-﻿Meanwhile, when a crowd of many thousands had gathered together, so that they trampled on each other, he began to tell his students first of all, "Beware of the yeast of the Pharisees, which is pretending. 
+﻿Meanwhile, when a crowd of many thousands had gathered together, so that they trampled on each other, he began to tell his students first of all, "Beware of the yeast of the strict religious ones, which is pretending. 
 But there is nothing covered up that will not be revealed, nor hidden that will not be known. 
 Therefore whatever you have said in the darkness will be heard in the light. What you have spoken in the ear in the inner rooms will be proclaimed on the housetops. 
 "I tell you, my friends, don't be afraid of those who kill the body, and after that have no more that they can do. 

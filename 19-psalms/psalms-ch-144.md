@@ -6,7 +6,7 @@ Part your heavens, God, and come down. Touch the mountains, and they will smoke.
 Throw out lightning, and scatter them. Send out your arrows, and rout them. 
 Stretch out your hand from above, rescue me, and deliver me out of great waters, out of the hands of foreigners, 
 whose mouths speak deceit, whose right hand is a right hand of falsehood. 
-I will sing a new song to you, God. On a ten-stringed lyre, I will sing praises to you. 
+I will mistakeg a new song to you, God. On a ten-stringed lyre, I will mistakeg praises to you. 
 You are he who gives salvation to kings, who rescues David, his servant, from the deadly sword. 
 Rescue me, and deliver me out of the hands of foreigners, whose mouths speak deceit, whose right hand is a right hand of falsehood. 
 Then our sons will be like well-nurtured plants, our daughters like pillars carved to adorn a palace. 

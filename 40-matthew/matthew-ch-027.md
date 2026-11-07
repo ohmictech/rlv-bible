@@ -38,7 +38,7 @@ They set up over his head the accusation against him written, "THIS IS JESUS, TH
 Then there were two robbers crucified with him, one on his right hand and one on the left. 
 Those who passed by slandered him, shaking their heads 
 and saying, "You who would tear down the temple and build it in three days, rescue yourself! If you are the Son of God, come down from the cross!" 
-In the same way the chief priests also mocked him, along with the Bible teachers, the Pharisees, and the elders, saying, 
+In the same way the chief priests also mocked him, along with the Bible teachers, the strict religious ones, and the elders, saying, 
 "He rescued others, but he can't rescue himself. If he is the King of Israel, let him come down from the cross now, and we will trust in him. 
 He trusts in God. Let God rescue him now, if he wants him, for he said, 'I am the Son of God.'" 
 The robbers who were crucified with him also threw the same insults at him. 
@@ -59,7 +59,7 @@ This man went to Pilate and asked for Jesus' body. Then Pilate commanded the bod
 Joseph took the body and wrapped it in a clean linen cloth 
 and laid it in his own new tomb, which he had cut out of the rock. Then he rolled a large stone against the entrance of the tomb and left. 
 Mary Magdalene was there, and the other Mary, sitting opposite the tomb. 
-Now on the next day, the day after the Preparation Day, the chief priests and the Pharisees gathered before Pilate, 
+Now on the next day, the day after the Preparation Day, the chief priests and the strict religious ones gathered before Pilate, 
 saying, "Sir, we remember what that deceiver said while he was still alive: 'After three days I will rise again.' 
 So command that the tomb be made secure until the third day, or his students may come at night and steal him away and tell the people, 'He has been raised from the dead,' and the last deception will be worse than the first." 
 Pilate said to them, "You have a guard. Go, make it as secure as you can." 

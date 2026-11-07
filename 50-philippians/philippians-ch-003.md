@@ -2,7 +2,7 @@
 Watch out for the dogs. Watch out for the bad workers. Watch out for those who mutilate the flesh. 
 For it is we who are the circumcision, we who serve God by his Spirit, who celebrate in Christ Jesus, and who put no confidence in the flesh, 
 though I myself could have confidence in the flesh too. If anyone else thinks they have reason to trust in the flesh, I have more: 
-circumcised on the eighth day, from the people of Israel, from the tribe of Benjamin, a Hebrew born of Hebrews; as to the law, a Pharisee; 
+circumcised on the eighth day, from the people of Israel, from the tribe of Benjamin, a Hebrew born of Hebrews; as to the law, a strict religious man; 
 as to passion, hunting down the gathering; as to the rightness that the law demands, blameless. 
 But whatever used to be my gain, I have counted as loss for the sake of Christ. 
 Yes, and more than that: I count everything as loss because of the greater worth of knowing Christ Jesus my Lord. For his sake I have thrown everything away, and I count it all as garbage, so that I may gain Christ 

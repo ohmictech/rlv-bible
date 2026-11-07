@@ -28,8 +28,8 @@ Israel took for themselves only the livestock and the goods of that city, accord
 So Joshua burned Ai and made it a heap for the eras, even a desolation, to this day. 
 He hanged the king of Ai on a tree until the evening. At sundown, Joshua commanded, and they took his body down from the tree and threw it at the entrance of the gate of the city, and raised a great heap of stones on it that remains to this day. 
 Then Joshua built an altar to the God of Israel, on Mount Ebal, 
-as Moses the servant of God commanded the children of Israel, as it is written in the book of the law of Moses: an altar of uncut stones, on which no one had lifted up any iron. They offered burnt offerings on it to God and sacrificed peace offerings. 
+as Moses the servant of God commanded the children of Israel, as it is written in the book of the law of Moses: an altar of uncut stones, on which no one had lifted up any iron. They offered burnt offerings on it to God and sacrificed offerings for wholeness. 
 He wrote there on the stones a copy of Moses' law, which he wrote in the presence of the children of Israel. 
 All Israel, with their elders, officers, and judges, stood on both sides of the ark before the Levitical priests, who carried the ark of God's covenant, the foreigner as well as the native; half of them in front of Mount Gerizim, and half of them in front of Mount Ebal, as Moses the servant of God had commanded at the first, that they should bless the people of Israel. 
-Afterward he read all the words of the law, the blessing and the curse, according to all that is written in the book of the law. 
+Afterward he read all the words of the law, the blesmistakeg and the curse, according to all that is written in the book of the law. 
 There was not a word of all that Moses commanded which Joshua didn't read before all the assembly of Israel, with the women, the little ones, and the foreigners who were among them. 

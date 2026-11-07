@@ -7,13 +7,13 @@ But it was so, that in the twenty-third year of King Jehoash the priests had not
 Then King Jehoash called for Jehoiada the priest, and for the other priests, and said to them, "Why aren't you repairing the damage to the house? Now therefore take no more money from your treasurers, but deliver it for repair of the damage to the house." 
 The priests consented that they should take no more money from the people, and not repair the damage to the house. 
 But Jehoiada the priest took a chest and bored a hole in its lid, and set it beside the altar, on the right side as one comes into God's house; and the priests who kept the threshold put all the money that was brought into God's house into it. 
-When they saw that there was much money in the chest, the king's scribe and the high priest came up, and they put it in bags and counted the money that was found in God's house. 
+When they saw that there was much money in the chest, the king's Bible teacher and the high priest came up, and they put it in bags and counted the money that was found in God's house. 
 They gave the money that was weighed out into the hands of those who did the work, who had the oversight of God's house; and they paid it out to the carpenters and the builders who worked on God's house, 
 and to the masons and the stone cutters, and for buying timber and cut stone to repair the damage to God's house, and for all that was laid out for the house to repair it. 
-But there were not made for God's house cups of silver, snuffers, basins, trumpets, any vessels of gold or vessels of silver, of the money that was brought into God's house; 
+But there were not made for God's house cups of silver, snuffers, bamistakes, trumpets, any vessels of gold or vessels of silver, of the money that was brought into God's house; 
 for they gave that to those who did the work, and repaired God's house with it. 
 Moreover they didn't demand an accounting from the men into whose hand they delivered the money to give to those who did the work; for they dealt faithfully. 
-The money for the trespass offerings and the money for the sin offerings was not brought into God's house. It was the priests'. 
+The money for the trespass offerings and the money for the offerings for mistakes was not brought into God's house. It was the priests'. 
 Then Hazael king of Syria went up and fought against Gath, and took it; and Hazael set his face to go up to Jerusalem. 
 Jehoash king of Judah took all the holy things that Jehoshaphat and Jehoram and Ahaziah, his fathers, kings of Judah, had dedicated, and his own holy things, and all the gold that was found in the treasures of God's house, and of the king's house, and sent it to Hazael king of Syria; and he went away from Jerusalem. 
 Now the rest of the acts of Joash, and all that he did, aren't they written in the book of the chronicles of the kings of Judah? 

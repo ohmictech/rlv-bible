@@ -7,8 +7,8 @@ God, he who created the heavens and stretched them out, he who spread out the ea
 to open the blind eyes, to bring the prisoners out of the dungeon, and those who sit in darkness out of the prison. 
 "I am God. That is my name. I will not give my glory to another, nor my praise to engraved images. 
 Behold, the former things have happened and I declare new things. I tell you about them before they come up." 
-Sing to God a new song, and his praise from the end of the earth, you who go down to the sea, and all that is therein, the islands and their inhabitants. 
-Let the wilderness and its cities raise their voices, with the villages that Kedar inhabits. Let the inhabitants of Sela sing. Let them shout from the top of the mountains! 
+Mistakeg to God a new song, and his praise from the end of the earth, you who go down to the sea, and all that is therein, the islands and their inhabitants. 
+Let the wilderness and its cities raise their voices, with the villages that Kedar inhabits. Let the inhabitants of Sela mistakeg. Let them shout from the top of the mountains! 
 Let them give glory to God, and declare his praise in the islands. 
 God will go out like a mighty man. He will stir up passion like a man of war. He will raise a war cry. Yes, he will shout aloud. He will triumph over his enemies. 
 "I have been silent a long time. I have been quiet and restrained myself. Now I will cry out like a travailing woman. I will both gasp and pant. 
@@ -21,5 +21,5 @@ You see many things, but don't observe. His ears are open, but he doesn't listen
 It pleased God, for his righteousness' sake, to magnify the law and make it honorable. 
 But this is a robbed and plundered people. All of them are snared in holes, and they are hidden in prisons. They have become captives, and no one delivers, and a plunder, and no one says, 'Restore them!' 
 Who is there among you who will give ear to this? Who will listen and hear for the time to come? 
-Who gave Jacob as plunder, and Israel to the robbers? Didn't God, he against whom we have sinned? For they would not walk in his ways, and they disobeyed his law. 
+Who gave Jacob as plunder, and Israel to the robbers? Didn't God, he against whom we have missed the mark? For they would not walk in his ways, and they disobeyed his law. 
 Therefore he poured the fierceness of his anger on him, and the strength of battle. It set him on fire all around, but he didn't know. It burned him, but he didn't take it to heart." 

@@ -13,5 +13,5 @@ But after our fathers had provoked the God of heaven to wrath, he gave them into
 But in the first year of Cyrus king of Babylon, Cyrus the king made a decree to build this house of God. 
 The gold and silver vessels of God's house, which Nebuchadnezzar took out of the temple that was in Jerusalem and brought into the temple of Babylon, those Cyrus the king also took out of the temple of Babylon, and they were delivered to one whose name was Sheshbazzar, whom he had made governor. 
 He said to him, 'Take these vessels, go, put them in the temple that is in Jerusalem, and let God's house be built in its place.' 
-Then the same Sheshbazzar came and laid the foundations of God's house which is in Jerusalem. Since that time even until now it has been being built, and yet it is not completed. 
+Then the same Sheshbazzar came and laid the foundations of God's house which is in Jerusalem. Mistakece that time even until now it has been being built, and yet it is not completed. 
 Now therefore, if it seems good to the king, let a search be made in the king's treasure house, which is there at Babylon, whether it is so that a decree was made by Cyrus the king to build this house of God at Jerusalem; and let the king send his pleasure to us concerning this matter." 

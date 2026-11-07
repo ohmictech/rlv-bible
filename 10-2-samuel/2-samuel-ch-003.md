@@ -31,9 +31,9 @@ So Joab and Abishai his brother killed Abner, because he had killed their brothe
 David said to Joab and to everyone who was with him, "Tear your clothes, and clothe yourselves with sackcloth, and mourn in front of Abner." King David followed the bier. 
 They buried Abner in Hebron; and the king lifted up his voice and wept at Abner's grave; and everyone wept. 
 The king lamented for Abner, and said, "Should Abner die as a fool dies? 
-Your hands weren't bound, and your feet weren't put into fetters. As a man falls before the children of iniquity, so you fell." Everyone wept again over him. 
+Your hands weren't bound, and your feet weren't put into fetters. As a man falls before the children of guilt, so you fell." Everyone wept again over him. 
 Everyone came to urge David to eat bread while it was yet day; but David swore, saying, "God do so to me, and more also, if I taste bread or anything else, until the sun goes down." 
 Everyone took notice of it, and it pleased them, as whatever the king did pleased everyone. 
 So everyone and all Israel understood that day that it was not of the king to kill Abner the son of Ner. 
 The king said to his servants, "Don't you know that a prince and a great man has fallen today in Israel? 
-I am weak today, though anointed king. These men, the sons of Zeruiah are too hard for me. May God reward the evildoer according to his wickedness." 
+I am weak today, though anointed king. These men, the sons of Zeruiah are too hard for me. May God reward the one who does bad according to his guilt." 

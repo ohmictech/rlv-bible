@@ -1,6 +1,6 @@
 ﻿Now Korah, the son of Izhar, the son of Kohath, the son of Levi, with Dathan and Abiram, the sons of Eliab, and On, the son of Peleth, sons of Reuben, took some men. 
 They rose up before Moses, with some of the children of Israel, two hundred fifty princes of the congregation, called to the assembly, men of renown. 
-They assembled themselves together against Moses and against Aaron, and said to them, "You take too much on yourself, since all the congregation are holy, everyone of them, and God is among them! Why do you lift yourselves up above God's assembly?" 
+They assembled themselves together against Moses and against Aaron, and said to them, "You take too much on yourself, mistakece all the congregation are holy, everyone of them, and God is among them! Why do you lift yourselves up above God's assembly?" 
 When Moses heard it, he fell on his face. 
 He said to Korah and to all his company, "In the morning, God will show who are his, and who is holy, and will cause him to come near to him. Even him whom he shall choose, he will cause to come near to him. 
 Do this: have Korah and all his company take censers, 
@@ -19,11 +19,11 @@ They each took his censer, and put fire in it, and laid incense on it, and stood
 Korah assembled all the congregation opposite them to the door of the Tent of Meeting. God's glory appeared to all the congregation. 
 God spoke to Moses and to Aaron, saying, 
 "Separate yourselves from among this congregation, that I may consume them in a moment!" 
-They fell on their faces, and said, "the God of the spirits of all flesh, shall one man sin, and will you be angry with all the congregation?" 
+They fell on their faces, and said, "the God of the spirits of all flesh, shall one a man misses the mark, and will you be angry with all the congregation?" 
 God spoke to Moses, saying, 
 "Speak to the congregation, saying, 'Get away from around the tent of Korah, Dathan, and Abiram!'" 
 Moses rose up and went to Dathan and Abiram; and the elders of Israel followed him. 
-He spoke to the congregation, saying, "Depart, please, from the tents of these wicked men, and touch nothing of theirs, lest you be consumed in all their sins!" 
+He spoke to the congregation, saying, "Depart, please, from the tents of these guilty men, and touch nothing of theirs, lest you be consumed in all their mistakes!" 
 So they went away from the tent of Korah, Dathan, and Abiram, on every side. Dathan and Abiram came out, and stood at the door of their tents with their wives, their sons, and their little ones. 
 Moses said, "Hereby you shall know that God has sent me to do all these works; for they are not from my own mind. 
 If these men die the common death of everyone, or if they experience what everyone experience, then God hasn't sent me. 
@@ -35,7 +35,7 @@ All Israel that were around them fled at their cry; for they said, "Lest the ear
 Fire came out from God, and devoured the two hundred fifty men who offered the incense. 
 God spoke to Moses, saying, 
 "Speak to Eleazar the son of Aaron the priest, that he take up the censers out of the burning, and scatter the fire away from the camp; for they are holy, 
-even the censers of those who sinned against their own lives. Let them be beaten into plates for a covering of the altar, for they offered them before God. Therefore they are holy. They shall be a sign to the children of Israel." 
+even the censers of those who wronged their own lives. Let them be beaten into plates for a covering of the altar, for they offered them before God. Therefore they are holy. They shall be a sign to the children of Israel." 
 Eleazar the priest took the bronze censers which those who were burned had offered; and they beat them out for a covering of the altar, 
 to be a memorial to the children of Israel, to the end that no stranger who isn't of the offspring of Aaron, would come near to burn incense before God, that he not be as Korah and as his company; as God spoke to him by Moses. 
 But on the next day all the congregation of the children of Israel complained against Moses and against Aaron, saying, "You have killed God's people!" 

@@ -3,7 +3,7 @@ Hanani, one of my brothers, came, he and certain men out of Judah; and I asked t
 They said to me, "The remnant who are left of the captivity there in the province are in great affliction and reproach. The wall of Jerusalem is also broken down, and its gates are burned with fire." 
 When I heard these words, I sat down and wept, and mourned several days; and I fasted and prayed before the God of heaven, 
 and said, "I beg you, the God of heaven, the great and awesome God who keeps covenant and loving kindness with those who love him and keep his commandments, 
-let your ear now be attentive and your eyes open, that you may listen to the prayer of your servant which I pray before you at this time, day and night, for the children of Israel your servants, while I confess the sins of the children of Israel which we have sinned against you. Yes, I and my father's house have sinned. 
+let your ear now be attentive and your eyes open, that you may listen to the prayer of your servant which I pray before you at this time, day and night, for the children of Israel your servants, while I confess the misses the mark of the children of Israel which we have wronged you. Yes, I and my father's house have missed the mark. 
 We have dealt very corruptly against you, and have not kept the commandments, nor the statutes, nor the ordinances, which you commanded your servant Moses. 
 "Remember, I beg you, the word that you commanded your servant Moses, saying, 'If you trespass, I will scatter you among the peoples; 
 but if you return to me, and keep my commandments and do them, though your outcasts were in the uttermost part of the heavens, yet I will gather them from there, and will bring them to the place that I have chosen, to cause my name to dwell there.' 

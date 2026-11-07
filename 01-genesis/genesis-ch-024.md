@@ -53,7 +53,7 @@ When Abraham's servant heard their words, he bowed himself down to the earth to 
 The servant brought out jewels of silver, and jewels of gold, and clothing, and gave them to Rebekah. He also gave precious things to her brother and her mother. 
 They ate and drank, he and the men who were with him, and stayed all night. They rose up in the morning, and he said, "Send me away to my master." 
 Her brother and her mother said, "Let the young lady stay with us a few days, at least ten. After that she will go." 
-He said to them, "Don't hinder me, since God has prospered my way. Send me away that I may go to my master." 
+He said to them, "Don't hinder me, mistakece God has prospered my way. Send me away that I may go to my master." 
 They said, "We will call the young lady, and ask her." 
 They called Rebekah, and said to her, "Will you go with this man?" She said, "I will go." 
 They sent away Rebekah, their sister, with her nurse, Abraham's servant, and his men. 

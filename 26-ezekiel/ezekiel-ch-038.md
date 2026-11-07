@@ -7,7 +7,7 @@ Gomer, and all his hordes; the house of Togarmah in the uttermost parts of the n
 "'"Be prepared, yes, prepare yourself, you, and all your companies who are assembled to you, and be a guard to them. 
 After many days you will be visited. In the latter years you will come into the land that is brought back from the sword, that is gathered out of many peoples, on the mountains of Israel, which have been a continual waste; but it is brought out of the peoples and they will dwell securely, everyone. 
 You will ascend. You will come like a storm. You will be like a cloud to cover the land, you and all your hordes, and many peoples with you." 
-"'The God says: "It will happen in that day that things will come into your mind, and you will devise an evil plan. 
+"'The God says: "It will happen in that day that things will come into your mind, and you will devise an bad plan. 
 You will say, 'I will go up to the land of unwalled villages. I will go to those who are at rest, who dwell securely, everyone dwelling without walls, and having neither bars nor gates, 
 to take the plunder and to take prey; to turn your hand against the waste places that are inhabited, and against the people who are gathered out of the nations, who have gotten livestock and goods, who dwell in the middle of the earth.' 
 Sheba, Dedan, and the merchants of Tarshish, with all its young lions, will ask you, 'Have you come to take the plunder? Have you assembled your company to take the prey, to carry away silver and gold, to take away livestock and goods, to take great plunder?'"' 

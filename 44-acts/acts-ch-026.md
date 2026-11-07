@@ -2,7 +2,7 @@
 "I think myself happy, King Agrippa, that I am to make my defense before you today concerning all the things the Jewish people accuse me of, 
 especially because you are expert in all customs and questions which are among the Jewish people. Therefore I beg you to hear me patiently. 
 "Indeed, all the Jewish people know my way of life from my youth up, which was from the beginning among my own nation and at Jerusalem; 
-having known me from the first, if they are willing to testify, that after the strictest faction of our way of worship I lived a Pharisee. 
+having known me from the first, if they are willing to testify, that after the strictest faction of our way of worship I lived a strict religious man. 
 Now I stand here to be judged for the hope of the promise made by God to our fathers, 
 which our twelve tribes, earnestly serving night and day, hope to attain. Concerning this hope I am accused by the Jewish people, King Agrippa! 
 Why is it judged incredible with you if God does raise the dead? 

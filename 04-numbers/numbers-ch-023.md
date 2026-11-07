@@ -18,7 +18,7 @@ He came to him, and behold, he was standing by his burnt offering, and the princ
 He took up his parable, and said, "Rise up, Balak, and hear! Listen to me, you son of Zippor. 
 God is not a man, that he should lie, nor a son of man, that he should repent. Has he said, and he won't do it? Or has he spoken, and he won't make it good? 
 Behold, I have received a command to bless. He has blessed, and I can't reverse it. 
-He has not seen iniquity in Jacob. Neither has he seen perverseness in Israel. His God is with him. The shout of a king is among them. 
+He has not seen guilt in Jacob. Neither has he seen perverseness in Israel. His God is with him. The shout of a king is among them. 
 God brings them out of Egypt. He has as it were the strength of the wild ox. 
 Surely there is no enchantment with Jacob; neither is there any divination with Israel. Now it shall be said of Jacob and of Israel, 'What has God done!' 
 Behold, a people rises up as a lioness. As a lion he lifts himself up. He shall not lie down until he eats of the prey, and drinks the blood of the slain." 

@@ -29,7 +29,7 @@ Jesus therefore cried out in the temple courts, teaching and saying, "You both k
 I know him, because I am from him, and he sent me." 
 They sought therefore to take him; but no one laid a hand on him, because his time had not yet come. 
 But of the crowd, many trusted in him. They said, "When the Christ comes, he won't do more signs than those which this man has done, will he?" 
-The Pharisees heard the crowd muttering these things concerning him, and the chief priests and the Pharisees sent temple guards to arrest him. 
+The strict religious ones heard the crowd muttering these things concerning him, and the chief priests and the strict religious ones sent temple guards to arrest him. 
 Then Jesus said, "I will be with you a little while longer, then I go to him who sent me. 
 You will seek me and won't find me. You can't come where I am." 
 The Jewish leaders therefore said among themselves, "Where will this man go that we won't find him? Will he go to the scattered Jews among the Greeks and teach the Greeks? 
@@ -42,10 +42,10 @@ Others said, "This is the Christ." But some said, "What, does the Christ come ou
 Hasn't the Scripture said that the Christ comes of the offspring of David, and from Bethlehem, the village where David was?" 
 So a division arose in the crowd because of him. 
 Some of them would have arrested him, but no one laid hands on him. 
-The temple guards therefore came to the chief priests and Pharisees; and they said to them, "Why didn't you bring him?" 
+The temple guards therefore came to the chief priests and strict religious ones; and they said to them, "Why didn't you bring him?" 
 The temple guards answered, "No one ever spoke like this man!" 
-The Pharisees therefore answered them, "You aren't also led astray, are you? 
-Have any of the rulers or any of the Pharisees trusted in him? 
+The strict religious ones therefore answered them, "You aren't also led astray, are you? 
+Have any of the rulers or any of the strict religious ones trusted in him? 
 But this crowd that doesn't know the law is cursed." 
 Nicodemus (he who came to him by night, being one of them) said to them, 
 "Does our law judge a man unless it first hears from him personally and knows what he does?" 

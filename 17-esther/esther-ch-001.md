@@ -14,7 +14,7 @@ Then the king said to the wise men, who knew the times (for it was the king's cu
 and next to him were Carshena, Shethar, Admatha, Tarshish, Meres, Marsena, and Memucan, the seven princes of Persia and Media, who saw the king's face, and sat first in the kingdom), 
 "What shall we do to Queen Vashti according to law, because she has not done the bidding of the King Ahasuerus by the eunuchs?" 
 Memucan answered before the king and the princes, "Vashti the queen has not done wrong to just the king, but also to all the princes, and to everyone who is in all the provinces of the King Ahasuerus. 
-For this deed of the queen will become known to all women, causing them to show contempt for their husbands when it is reported, 'King Ahasuerus commanded Vashti the queen to be brought in before him, but she didn't come.' 
+For this deed of the queen will become known to all women, caumistakeg them to show contempt for their husbands when it is reported, 'King Ahasuerus commanded Vashti the queen to be brought in before him, but she didn't come.' 
 Today, the princesses of Persia and Media who have heard of the queen's deed will tell all the king's princes. This will cause much contempt and wrath. 
 "If it pleases the king, let a royal commandment go from him, and let it be written among the laws of the Persians and the Medes, so that it cannot be altered, that Vashti may never again come before King Ahasuerus; and let the king give her royal estate to another who is better than she. 
 When the king's decree which he shall make is published throughout all his kingdom (for it is great), all the wives will give their husbands honor, both great and small." 

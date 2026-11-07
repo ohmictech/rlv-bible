@@ -28,6 +28,6 @@ The locusts have no king, yet they advance in ranks.
 You can catch a lizard with your hands, yet it is in kings' palaces. 
 "There are three things which are stately in their march, four which are stately in going: 
 The lion, which is mightiest among animals, and doesn't turn away for any; 
-the greyhound; the male goat; and the king against whom there is no rising up. 
-"If you have done foolishly in lifting up yourself, or if you have thought evil, put your hand over your mouth. 
+the greyhound; the male goat; and the king against whom there is no rimistakeg up. 
+"If you have done foolishly in lifting up yourself, or if you have thought bad, put your hand over your mouth. 
 For as the churning of milk produces butter, and the wringing of the nose produces blood, so the forcing of wrath produces strife." 

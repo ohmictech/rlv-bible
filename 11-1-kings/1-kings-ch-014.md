@@ -6,20 +6,20 @@ God said to Ahijah, "Behold, Jeroboam's wife is coming to inquire of you concern
 So when Ahijah heard the sound of her feet as she came in at the door, he said, "Come in, Jeroboam's wife! Why do you pretend to be another? For I am sent to you with heavy news. 
 Go, tell Jeroboam, 'The God of Israel, says: "Because I exalted you from among the people, and made you prince over my people Israel, 
 and tore the kingdom away from David's house, and gave it to you; and yet you have not been as my servant David, who kept my commandments, and who followed me with all his heart, to do that only which was right in my eyes, 
-but have done evil above everyone who was before you, and have gone and made for yourself other gods, molten images, to provoke me to anger, and have cast me behind your back, 
-therefore, behold, I will bring evil on the house of Jeroboam, and will cut off from Jeroboam everyone who urinates on a wall, he who is shut up and he who is left at large in Israel, and will utterly sweep away the house of Jeroboam, as a man sweeps away dung until it is all gone. 
+but have done bad above everyone who was before you, and have gone and made for yourself other gods, molten images, to provoke me to anger, and have cast me behind your back, 
+therefore, behold, I will bring bad on the house of Jeroboam, and will cut off from Jeroboam everyone who urinates on a wall, he who is shut up and he who is left at large in Israel, and will utterly sweep away the house of Jeroboam, as a man sweeps away dung until it is all gone. 
 The dogs will eat whoever belongs to Jeroboam who dies in the city; and the birds of the sky will eat whoever dies in the field, for God has spoken it."' 
 Arise therefore, and go to your house. When your feet enter into the city, the child will die. 
 All Israel will mourn for him and bury him; for he only of Jeroboam will come to the grave, because in him there is found some good thing toward the God of Israel, in the house of Jeroboam. 
 Moreover God will raise up a king for himself over Israel who will cut off the house of Jeroboam. This is the day! What? Even now. 
 For God will strike Israel, as a reed is shaken in the water; and he will root up Israel out of this good land which he gave to their fathers, and will scatter them beyond the River, because they have made their Asherah poles, provoking God to anger. 
-He will give Israel up because of the sins of Jeroboam, which he has sinned, and with which he has made Israel to sin." 
+He will give Israel up because of the misses the mark of Jeroboam, which he has missed the mark, and with which he has made Israel to miss the mark." 
 Jeroboam's wife arose and departed, and came to Tirzah. As she came to the threshold of the house, the child died. 
 All Israel buried him and mourned for him, according to God's word, which he spoke by his servant Ahijah the spokesman. 
 The rest of the acts of Jeroboam, how he fought and how he reigned, behold, they are written in the book of the chronicles of the kings of Israel. 
 The days which Jeroboam reigned were twenty two years; then he slept with his fathers, and Nadab his son reigned in his place. 
 Rehoboam the son of Solomon reigned in Judah. Rehoboam was forty-one years old when he began to reign, and he reigned seventeen years in Jerusalem, the city which God had chosen out of all the tribes of Israel, to put his name there. His mother's name was Naamah the Ammonitess. 
-Judah did that which was evil in God's sight, and they provoked him to jealousy with their sins which they committed, above all that their fathers had done. 
+Judah did that which was bad in God's sight, and they provoked him to jealousy with their mistakes which they committed, above all that their fathers had done. 
 For they also built for themselves high places, sacred pillars, and Asherah poles on every high hill and under every green tree. 
 There were also sodomites in the land. They did according to all the abominations of the nations which God drove out before the children of Israel. 
 In the fifth year of King Rehoboam, Shishak king of Egypt came up against Jerusalem; 

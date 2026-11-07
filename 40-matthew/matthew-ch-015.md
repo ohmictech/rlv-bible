@@ -1,4 +1,4 @@
-﻿Then Pharisees and Bible teachers came to Jesus from Jerusalem, saying, 
+﻿Then some strict religious ones and Bible teachers came to Jesus from Jerusalem, saying, 
 "Why do your students disobey the tradition of the elders? For they don't wash their hands when they eat bread." 
 He answered them, "Why do you also disobey the command of God because of your tradition? 
 For God commanded, 'Honor your father and your mother,' and, 'He who speaks maliciously of father or mother, let him be put to death.' 
@@ -9,7 +9,7 @@ You pretenders! Isaiah spoke well for God about you, saying,
 And they worship me for nothing, teaching as their teaching the rules made by people.'" 
 He summoned the crowd, and said to them, "Hear, and understand. 
 That which enters into the mouth doesn't make a person unclean, but that which comes out of the mouth, this makes a person unclean." 
-Then the students came and said to him, "Do you know that the Pharisees were trapped when they heard this saying?" 
+Then the students came and said to him, "Do you know that the strict religious ones were trapped when they heard this saying?" 
 But he answered, "Every plant which my Father in the sky didn't plant will be pulled up by the roots. 
 Leave them alone. They are blind guides of the blind. If the blind guide the blind, both will fall into a pit." 
 Peter answered him, "Explain the story to us." 

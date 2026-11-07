@@ -20,9 +20,9 @@ is the man who deceives his neighbor and says, "Am I not joking?"
 For lack of wood a fire goes out. Without gossip, a quarrel dies down. 
 As coals are to hot embers, and wood to fire, so is a contentious man to kindling strife. 
 The words of a whisperer are as dainty morsels, they go down into the innermost parts. 
-Like silver dross on an earthen vessel are the lips of a fervent one with an evil heart. 
-A malicious man disguises himself with his lips, but he harbors evil in his heart. 
+Like silver dross on an earthen vessel are the lips of a fervent one with an bad heart. 
+A malicious man disguises himself with his lips, but he harbors bad in his heart. 
 When his speech is charming, don't believe him, for there are seven abominations in his heart. 
-His malice may be concealed by deception, but his wickedness will be exposed in the assembly. 
+His malice may be concealed by deception, but his guilt will be exposed in the assembly. 
 Whoever digs a pit shall fall into it. Whoever rolls a stone, it will come back on him. 
 A lying tongue hates those it hurts; and a flattering mouth works ruin. 

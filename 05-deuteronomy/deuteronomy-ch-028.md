@@ -1,11 +1,11 @@
 ﻿It shall happen, if you shall listen diligently to your God's voice, to observe to do all his commandments which I command you today, that your God will set you high above all the nations of the earth. 
-All these blessings will come upon you, and overtake you, if you listen to your God's voice. 
+All these blesmistakegs will come upon you, and overtake you, if you listen to your God's voice. 
 You shall be blessed in the city, and you shall be blessed in the field. 
 You shall be blessed in the fruit of your body, the fruit of your ground, the fruit of your animals, the increase of your livestock, and the young of your flock. 
 Your basket and your kneading trough shall be blessed. 
 You shall be blessed when you come in, and you shall be blessed when you go out. 
 God will cause your enemies who rise up against you to be struck before you. They will come out against you one way, and will flee before you seven ways. 
-God will command the blessing on you in your barns, and in all that you put your hand to. He will bless you in the land which your God gives you. 
+God will command the blesmistakeg on you in your barns, and in all that you put your hand to. He will bless you in the land which your God gives you. 
 God will establish you for a holy people to himself, as he has sworn to you, if you shall keep the commandments of your God, and walk in his ways. 
 Everyones of the earth shall see that you are called by God's name, and they will be afraid of you. 
 God will grant you abundant prosperity in the fruit of your body, in the fruit of your livestock, and in the fruit of your ground, in the land which God swore to your fathers to give you. 
@@ -17,7 +17,7 @@ You will be cursed in the city, and you will be cursed in the field.
 Your basket and your kneading trough will be cursed. 
 The fruit of your body, the fruit of your ground, the increase of your livestock, and the young of your flock will be cursed. 
 You will be cursed when you come in, and you will be cursed when you go out. 
-God will send on you cursing, confusion, and rebuke in all that you put your hand to do, until you are destroyed and until you perish quickly, because of the evil of your doings, by which you have forsaken me. 
+God will send on you curmistakeg, confusion, and rebuke in all that you put your hand to do, until you are destroyed and until you perish quickly, because of the bad of your doings, by which you have forsaken me. 
 God will make the pestilence cling to you, until he has consumed you from off the land where you go in to possess it. 
 God will strike you with consumption, with fever, with inflammation, with fiery heat, with the sword, with blight, and with mildew. They will pursue you until you perish. 
 Your sky that is over your head will be bronze, and the earth that is under you will be iron. 
@@ -51,9 +51,9 @@ a nation of fierce facial expressions, that doesn't respect the elderly, nor sho
 They will eat the fruit of your livestock and the fruit of your ground, until you are destroyed. They also won't leave you grain, new wine, oil, the increase of your livestock, or the young of your flock, until they have caused you to perish. 
 They will besiege you in all your gates until your high and fortified walls in which you trusted come down throughout all your land. They will besiege you in all your gates throughout all your land which your God has given you. 
 You will eat the fruit of your own body, the flesh of your sons and of your daughters, whom your God has given you, in the siege and in the distress with which your enemies will distress you. 
-The man who is tender among you, and very delicate, his eye will be evil toward his brother, toward the wife whom he loves, and toward the remnant of his children whom he has remaining, 
+The man who is tender among you, and very delicate, his eye will be bad toward his brother, toward the wife whom he loves, and toward the remnant of his children whom he has remaining, 
 so that he will not give to any of them of the flesh of his children whom he will eat, because he has nothing left to him, in the siege and in the distress with which your enemy will distress you in all your gates. 
-The tender and delicate woman among you, who would not venture to set the sole of her foot on the ground for delicateness and tenderness, her eye will be evil toward the husband that she loves, toward her son, toward her daughter, 
+The tender and delicate woman among you, who would not venture to set the sole of her foot on the ground for delicateness and tenderness, her eye will be bad toward the husband that she loves, toward her son, toward her daughter, 
 toward her young one who comes out from between her feet, and toward her children whom she bears; for she will eat them secretly for lack of all things in the siege and in the distress with which your enemy will distress you in your gates. 
 If you will not observe to do all the words of this law that are written in this book, that you may fear this glorious and fearful name, THE God your God, 
 then God will make your plagues and the plagues of your offspring fearful, even great plagues, and of long duration, and severe sicknesses, and of long duration. 

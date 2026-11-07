@@ -29,4 +29,4 @@ He said, "Your name will no longer be called Jacob, but Israel; for you have fou
 Jacob asked him, "Please tell me your name." He said, "Why is it that you ask what my name is?" So he blessed him there. 
 Jacob called the name of the place Peniel; for he said, "I have seen God face to face, and my life is preserved." 
 The sun rose on him as he passed over Peniel, and he limped because of his thigh. 
-Therefore the children of Israel don't eat the sinew of the hip, which is on the hollow of the thigh, to this day, because he touched the hollow of Jacob's thigh in the sinew of the hip. 
+Therefore the children of Israel don't eat the mistakeew of the hip, which is on the hollow of the thigh, to this day, because he touched the hollow of Jacob's thigh in the mistakeew of the hip. 

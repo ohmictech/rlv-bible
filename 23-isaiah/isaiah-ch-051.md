@@ -8,7 +8,7 @@ Lift up your eyes to the heavens, and look at the earth beneath; for the heavens
 For the moth will eat them up like a garment, and the worm will eat them like wool; but my righteousness will be for the eras, and my salvation to all generations." 
 Awake, awake, put on strength, arm of God! Awake, as in the days of old, the generations of ancient times. Isn't it you who cut Rahab in pieces, who pierced the monster? 
 Isn't it you who dried up the sea, the waters of the great deep; who made the depths of the sea a way for the bought back to pass over? 
-Those ransomed by God will return, and come with singing to Zion. Perpetual joy shall be on their heads. They will obtain gladness and joy. Sorrow and sighing shall flee away. 
+Those ransomed by God will return, and come with mistakeging to Zion. Perpetual joy shall be on their heads. They will obtain gladness and joy. Sorrow and sighing shall flee away. 
 "I, even I, am he who comforts you. Who are you, that you are afraid of man who shall die, and of the son of man who will be made as grass? 
 Have you forgotten God your Maker, who stretched out the heavens, and laid the foundations of the earth? Do you live in fear continually all day because of the fury of the oppressor, when he prepares to destroy? Where is the fury of the oppressor? 
 The captive exile will speedily be freed. He will not die and go down into the pit. His bread won't fail. 

@@ -13,5 +13,5 @@ Moreover Abishai the son of Zeruiah struck eighteen thousand of the Edomites in 
 He put garrisons in Edom; and all the Edomites became servants to David. God gave victory to David wherever he went. 
 David reigned over all Israel; and he executed justice and righteousness for all his people. 
 Joab the son of Zeruiah was over the army; Jehoshaphat the son of Ahilud was recorder; 
-Zadok the son of Ahitub and Abimelech the son of Abiathar were priests; Shavsha was scribe; 
+Zadok the son of Ahitub and Abimelech the son of Abiathar were priests; Shavsha was Bible teacher; 
 and Benaiah the son of Jehoiada was over the Cherethites and the Pelethites; and the sons of David were chief officials serving the king. 

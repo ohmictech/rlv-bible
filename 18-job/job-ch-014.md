@@ -13,8 +13,8 @@ so man lies down and doesn't rise. Until the heavens are no more, they will not 
 "Oh that you would hide me in Hades, that you would keep me secret until your wrath is past, that you would appoint me a set time and remember me! 
 If a man dies, will he live again? I would wait all the days of my warfare, until my release should come. 
 You would call, and I would answer you. You would have a desire for the work of your hands. 
-But now you count my steps. Don't you watch over my sin? 
-My disobedience is sealed up in a bag. You fasten up my iniquity. 
+But now you count my steps. Don't you watch over my mistake? 
+My disobedience is sealed up in a bag. You fasten up my guilt. 
 "But the mountain falling comes to nothing. The rock is removed out of its place. 
 The waters wear the stones. The torrents of it wash away the dust of the earth. So you destroy the hope of man. 
 You for the eras prevail against him, and he departs. You change his face, and send him away. 

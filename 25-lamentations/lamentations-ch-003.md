@@ -35,8 +35,8 @@ To crush under foot all the prisoners of the earth,
 to turn away the right of a man before the face of the Most High, 
 to subvert a man in his cause, the Lord doesn't approve. 
 Who is he who says, and it comes to pass, when the Lord doesn't command it? 
-Doesn't evil and good come out of the mouth of the Most High? 
-Why should a living man complain, a man for the punishment of his sins? 
+Doesn't bad and good come out of the mouth of the Most High? 
+Why should a living man complain, a man for the punishment of his mistakes? 
 Let us search and try our ways, and turn again to God. 
 Let's lift up our heart with our hands to God in the heavens. 
 "We have transgressed and have rebelled. You have not pardoned. 
@@ -60,7 +60,7 @@ God, you have seen my wrong. Judge my cause.
 You have seen all their vengeance and all their plans against me. 
 You have heard their reproach, God, and all their plans against me, 
 the lips of those that rose up against me, and their plots against me all day long. 
-You see their sitting down and their rising up. I am their song. 
+You see their sitting down and their rimistakeg up. I am their song. 
 You will pay them back, God, according to the work of their hands. 
 You will give them hardness of heart, your curse to them. 
 You will pursue them in anger, and destroy them from under the heavens of God. 

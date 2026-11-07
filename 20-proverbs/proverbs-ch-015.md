@@ -1,12 +1,12 @@
 ﻿A gentle answer turns away wrath, but a harsh word stirs up anger. 
 The tongue of the wise commends knowledge, but the mouths of fools gush out folly. 
-God's eyes are everywhere, keeping watch on the evil and the good. 
+God's eyes are everywhere, keeping watch on the bad and the good. 
 A gentle tongue is a tree of life, but deceit in it crushes the spirit. 
 A fool despises his father's correction, but he who heeds reproof shows prudence. 
-In the house of the righteous is much treasure, but the income of the wicked brings trouble. 
+In the house of the righteous is much treasure, but the income of the guilty brings trouble. 
 The lips of the wise spread knowledge; not so with the heart of fools. 
-The sacrifice made by the wicked is an abomination to God, but the prayer of the upright is his delight. 
-The way of the wicked is an abomination to God, but he loves him who follows after righteousness. 
+The sacrifice made by the guilty is an abomination to God, but the prayer of the upright is his delight. 
+The way of the guilty is an abomination to God, but he loves him who follows after righteousness. 
 There is stern discipline for one who forsakes the way. Whoever hates reproof shall die. 
 Hades and Abaddon are before God, how much more then the hearts of the children of men! 
 A scoffer doesn't love to be reproved; he will not go to the wise. 
@@ -23,10 +23,10 @@ Where there is no counsel, plans fail; but in a multitude of counselors they are
 Joy comes to a man with the reply of his mouth. How good is a word at the right time! 
 The path of life leads upward for the wise, to keep him from going downward to Hades. 
 God will uproot the house of the proud, but he will keep the widow's borders intact. 
-God detests the thoughts of the wicked, but the thoughts of the pure are pleasing. 
+God detests the thoughts of the guilty, but the thoughts of the pure are pleamistakeg. 
 He who is greedy for gain troubles his own house, but he who hates bribes will live. 
-The heart of the righteous weighs answers, but the mouth of the wicked gushes out evil. 
-God is far from the wicked, but he hears the prayer of the righteous. 
+The heart of the righteous weighs answers, but the mouth of the guilty gushes out bad. 
+God is far from the guilty, but he hears the prayer of the righteous. 
 The light of the eyes rejoices the heart. Good news gives health to the bones. 
 The ear that listens to reproof lives, and will be at home among the wise. 
 He who refuses correction despises his own soul, but he who listens to reproof gets understanding. 

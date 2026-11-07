@@ -4,12 +4,12 @@ the five lords of the Philistines, all the Canaanites, the Sidonians, and the Hi
 They were left to test Israel by them, to know whether they would listen to God's commandments, which he commanded their fathers by Moses. 
 The children of Israel lived among the Canaanites, the Hittites, the Amorites, the Perizzites, the Hivites, and the Jebusites. 
 They took their daughters to be their wives, and gave their own daughters to their sons and served their gods. 
-The children of Israel did that which was evil in God's sight, and forgot their God, and served the Baals and the Asheroth. 
+The children of Israel did that which was bad in God's sight, and forgot their God, and served the Baals and the Asheroth. 
 Therefore God's anger burned against Israel, and he sold them into the hand of Cushan Rishathaim king of Mesopotamia; and the children of Israel served Cushan Rishathaim eight years. 
 When the children of Israel cried to God, God raised up a savior to the children of Israel, who saved them, even Othniel the son of Kenaz, Caleb's younger brother. 
 God's Spirit came on him, and he judged Israel; and he went out to war, and God delivered Cushan Rishathaim king of Mesopotamia into his hand. His hand prevailed against Cushan Rishathaim. 
 The land had rest forty years, then Othniel the son of Kenaz died. 
-The children of Israel again did that which was evil in God's sight, and God strengthened Eglon the king of Moab against Israel, because they had done that which was evil in God's sight. 
+The children of Israel again did that which was bad in God's sight, and God strengthened Eglon the king of Moab against Israel, because they had done that which was bad in God's sight. 
 He gathered the children of Ammon and Amalek to himself; and he went and struck Israel, and they possessed the city of palm trees. 
 The children of Israel served Eglon the king of Moab eighteen years. 
 But when the children of Israel cried to God, God raised up a savior for them: Ehud the son of Gera, the Benjamite, a left-handed man. The children of Israel sent tribute by him to Eglon the king of Moab. 

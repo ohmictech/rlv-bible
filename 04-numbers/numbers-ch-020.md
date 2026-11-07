@@ -2,7 +2,7 @@
 There was no water for the congregation; and they assembled themselves together against Moses and against Aaron. 
 The people quarreled with Moses, and spoke, saying, "We wish that we had died when our brothers died before God! 
 Why have you brought God's assembly into this wilderness, that we should die there, we and our animals? 
-Why have you made us to come up out of Egypt, to bring us in to this evil place? It is no place of seed, or of figs, or of vines, or of pomegranates; neither is there any water to drink." 
+Why have you made us to come up out of Egypt, to bring us in to this bad place? It is no place of seed, or of figs, or of vines, or of pomegranates; neither is there any water to drink." 
 Moses and Aaron went from the presence of the assembly to the door of the Tent of Meeting, and fell on their faces. God's glory appeared to them. 
 God spoke to Moses, saying, 
 "Take the rod, and assemble the congregation, you, and Aaron your brother, and speak to the rock before their eyes, that it pour out its water. You shall bring water to them out of the rock; so you shall give the congregation and their livestock drink." 

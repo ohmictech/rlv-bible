@@ -27,7 +27,7 @@ It was a hand width thick. Its brim was worked like the brim of a cup, like the 
 He made the ten bases of bronze. The length of one base was four cubits, four cubits its width, and three cubits its height. 
 The work of the bases was like this: they had panels; and there were panels between the ledges; 
 and on the panels that were between the ledges were lions, oxen, and cherubim; and on the ledges there was a pedestal above; and beneath the lions and oxen were wreaths of hanging work. 
-Every base had four bronze wheels and axles of bronze; and its four feet had supports. The supports were cast beneath the basin, with wreaths at the side of each. 
+Every base had four bronze wheels and axles of bronze; and its four feet had supports. The supports were cast beneath the bamistake, with wreaths at the side of each. 
 Its opening within the capital and above was a cubit. Its opening was round like the work of a pedestal, a cubit and a half; and also on its opening were engravings, and their panels were square, not round. 
 The four wheels were underneath the panels; and the axles of the wheels were in the base. The height of a wheel was a cubit and half a cubit. 
 The work of the wheels was like the work of a chariot wheel. Their axles, their rims, their spokes, and their hubs were all of cast metal. 
@@ -35,17 +35,17 @@ There were four supports at the four corners of each base. Its supports were of 
 In the top of the base there was a round band half a cubit high; and on the top of the base its supports and its panels were the same. 
 On the plates of its supports and on its panels, he engraved cherubim, lions, and palm trees, each in its space, with wreaths all around. 
 He made the ten bases in this way: everyone had one casting, one measure, and one form. 
-He made ten basins of bronze. One basin contained forty baths. Every basin measured four cubits. One basin was on every one of the ten bases. 
+He made ten bamistakes of bronze. One bamistake contained forty baths. Every bamistake measured four cubits. One bamistake was on every one of the ten bases. 
 He set the bases, five on the right side of the house and five on the left side of the house. He set the sea on the right side of the house eastward and toward the south. 
-Hiram made the pots, the shovels, and the basins. So Hiram finished doing all the work that he worked for King Solomon in God's house: 
+Hiram made the pots, the shovels, and the bamistakes. So Hiram finished doing all the work that he worked for King Solomon in God's house: 
 the two pillars; the two bowls of the capitals that were on the top of the pillars; the two networks to cover the two bowls of the capitals that were on the top of the pillars; 
 the four hundred pomegranates for the two networks; two rows of pomegranates for each network, to cover the two bowls of the capitals that were on the pillars; 
-the ten bases; the ten basins on the bases; 
+the ten bases; the ten bamistakes on the bases; 
 the one sea; the twelve oxen under the sea; 
-the pots; the shovels; and the basins. All of these vessels, which Hiram made for King Solomon for God's house, were of burnished bronze. 
+the pots; the shovels; and the bamistakes. All of these vessels, which Hiram made for King Solomon for God's house, were of burnished bronze. 
 The king cast them in the plain of the Jordan, in the clay ground between Succoth and Zarethan. 
 Solomon left all the vessels unweighed, because there were so many of them. The weight of the bronze could not be determined. 
 Solomon made all the vessels that were in God's house: the golden altar and the table that the show bread was on, of gold; 
 and the lamp stands, five on the right side and five on the left, in front of the inner sanctuary, of pure gold; and the flowers, the lamps, and the tongs, of gold; 
-the cups, the snuffers, the basins, the spoons, and the fire pans, of pure gold; and the hinges, both for the doors of the inner house, the most holy place, and for the doors of the house, of the temple, of gold. 
+the cups, the snuffers, the bamistakes, the spoons, and the fire pans, of pure gold; and the hinges, both for the doors of the inner house, the most holy place, and for the doors of the house, of the temple, of gold. 
 Thus all the work that King Solomon did in God's house was finished. Solomon brought in the things which David his father had dedicated, the silver, the gold, and the vessels, and put them in the treasuries of God's house. 

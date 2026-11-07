@@ -36,7 +36,7 @@ the ark of the covenant with its poles, the mercy seat,
 the table, all its vessels, the show bread, 
 the pure lamp stand, its lamps, even the lamps to be set in order, all its vessels, the oil for the light, 
 the golden altar, the anointing oil, the sweet incense, the screen for the door of the Tent, 
-the bronze altar, its grating of bronze, its poles, all of its vessels, the basin and its base, 
+the bronze altar, its grating of bronze, its poles, all of its vessels, the bamistake and its base, 
 the hangings of the court, its pillars, its sockets, the screen for the gate of the court, its cords, its pins, and all the instruments of the service of the tabernacle, for the Tent of Meeting, 
 the finely worked garments for ministering in the holy place, the holy garments for Aaron the priest, and the garments of his sons, to minister in the priest's office. 
 According to all that God commanded Moses, so the children of Israel did all the work. 

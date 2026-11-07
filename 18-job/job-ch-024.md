@@ -3,7 +3,7 @@ There are people who remove the landmarks. They violently take away flocks, and 
 They drive away the donkey of the fatherless, and they take the widow's ox for a pledge. 
 They turn the needy out of the way. The poor of the earth all hide themselves. 
 Behold, as wild donkeys in the desert, they go out to their work, seeking diligently for food. The wilderness yields them bread for their children. 
-They cut their food in the field. They glean the vineyard of the wicked. 
+They cut their food in the field. They glean the vineyard of the guilty. 
 They lie all night naked without clothing, and have no covering in the cold. 
 They are wet with the showers of the mountains, and embrace the rock for lack of a shelter. 
 There are those who pluck the fatherless from the breast, and take a pledge of the poor, 
@@ -16,7 +16,7 @@ The eye also of the adulterer waits for the twilight, saying, 'No eye will see m
 In the dark they dig through houses. They shut themselves up in the daytime. They don't know the light. 
 For the morning is to everyone like thick darkness, for they know the terrors of the thick darkness. 
 "They are foam on the surface of the waters. Their portion is cursed on the earth. They don't turn into the way of the vineyards. 
-Drought and heat consume the snow waters, so does Hades those who have sinned. 
+Drought and heat consume the snow waters, so does Hades those who have missed the mark. 
 The womb will forget him. The worm will feed sweetly on him. He will be no more remembered. Unrighteousness will be broken as a tree. 
 He devours the barren who don't bear. He shows no kindness to the widow. 
 Yet God preserves the mighty by his power. He rises up who has no assurance of life. 

@@ -11,8 +11,8 @@ Therefore don't be afraid, O Jacob my servant, says God. Don't be dismayed, Isra
 For I am with you, says God, to save you; for I will make a full end of all the nations where I have scattered you, but I will not make a full end of you; but I will correct you in measure, and will in no way leave you unpunished." 
 For God says, "Your hurt is incurable. Your wound is grievous. 
 There is no one to plead your cause, that you may be bound up. You have no healing medicines. 
-All your lovers have forgotten you. They don't seek you. For I have wounded you with the wound of an enemy, with the chastisement of a cruel one, for the greatness of your iniquity, because your sins were increased. 
-Why do you cry over your injury? Your pain is incurable. For the greatness of your iniquity, because your sins have increased, I have done these things to you. 
+All your lovers have forgotten you. They don't seek you. For I have wounded you with the wound of an enemy, with the chastisement of a cruel one, for the greatness of your guilt, because your mistakes were increased. 
+Why do you cry over your injury? Your pain is incurable. For the greatness of your guilt, because your mistakes have increased, I have done these things to you. 
 Therefore everyone who devours you will be devoured. All your adversaries, everyone of them, will go into captivity. Those who plunder you will be plunder. I will make everyone who preys on you become prey. 
 For I will restore health to you, and I will heal you of your wounds," says God, "because they have called you an outcast, saying, 'It is Zion, whom no man seeks after.'" 
 God says: "Behold, I will reverse the captivity of Jacob's tents, and have compassion on his dwelling places. The city will be built on its own hill, and the palace will be inhabited in its own place. 
@@ -20,5 +20,5 @@ Thanksgiving will proceed out of them with the voice of those who make merry. I 
 Their children also will be as before, and their congregation will be established before me. I will punish everyone who oppresses them. 
 Their prince will be one of them, and their ruler will proceed from among them. I will cause him to draw near, and he will approach me; for who is he who has had boldness to approach me?" says God. 
 "You shall be my people, and I will be your God. 
-Behold, God's storm, his wrath, has gone out, a sweeping storm; it will burst on the head of the wicked. 
+Behold, God's storm, his wrath, has gone out, a sweeping storm; it will burst on the head of the guilty. 
 The fierce anger of God will not return until he has accomplished, and until he has performed the intentions of his heart. In the latter days you will understand it." 

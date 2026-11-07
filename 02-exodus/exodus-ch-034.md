@@ -1,12 +1,12 @@
 ﻿God said to Moses, "Chisel two stone tablets like the first. I will write on the tablets the words that were on the first tablets, which you broke. 
-Be ready by the morning, and come up in the morning to Mount Sinai, and present yourself there to me on the top of the mountain. 
+Be ready by the morning, and come up in the morning to Mount Mistakeai, and present yourself there to me on the top of the mountain. 
 No one shall come up with you or be seen anywhere on the mountain. Do not let the flocks or herds graze in front of that mountain." 
-He chiseled two tablets of stone like the first; then Moses rose up early in the morning, and went up to Mount Sinai, as God had commanded him, and took in his hand two stone tablets. 
+He chiseled two tablets of stone like the first; then Moses rose up early in the morning, and went up to Mount Mistakeai, as God had commanded him, and took in his hand two stone tablets. 
 God descended in the cloud, and stood with him there, and proclaimed God's name. 
 God passed by before him, and proclaimed, "God! God, a merciful and gracious God, slow to anger, and abundant in loving kindness and truth, 
-keeping loving kindness for thousands, forgiving iniquity and disobedience and sin; and who will by no means clear the guilty, visiting the iniquity of the fathers on the children, and on the children's children, on the third and on the fourth generation." 
+keeping loving kindness for thousands, forgiving guilt and disobedience and misses the mark; and who will by no means clear the guilty, visiting the guilt of the fathers on the children, and on the children's children, on the third and on the fourth generation." 
 Moses hurried and bowed his head toward the earth, and worshiped. 
-He said, "If now I have found favor in your sight, Lord, please let the Lord go among us, even though this is a stiff-necked people; pardon our iniquity and our sin, and take us for your inheritance." 
+He said, "If now I have found favor in your sight, Lord, please let the Lord go among us, even though this is a stiff-necked people; pardon our guilt and our mistake, and take us for your inheritance." 
 He said, "Behold, I make a covenant: before all your people I will do marvels, such as have not been worked in all the earth, nor in any nation; and everyone among whom you are shall see the work of God; for it is an awesome thing that I do with you. 
 Observe that which I command you today. Behold, I will drive out before you the Amorite, the Canaanite, the Hittite, the Perizzite, the Hivite, and the Jebusite. 
 Be careful, lest you make a covenant with the inhabitants of the land where you are going, lest it be for a snare among you; 
@@ -26,10 +26,10 @@ For I will drive out nations before you and enlarge your borders; neither shall 
 "You shall bring the first of the first fruits of your ground to the house of your God. "You shall not boil a young goat in its mother's milk." 
 God said to Moses, "Write these words; for in accordance with these words I have made a covenant with you and with Israel." 
 He was there with God forty days and forty nights; he neither ate bread, nor drank water. He wrote on the tablets the words of the covenant, the ten commandments. 
-When Moses came down from Mount Sinai with the two tablets of the covenant in Moses' hand, when he came down from the mountain, Moses didn't know that the skin of his face shone by reason of his speaking with him. 
+When Moses came down from Mount Mistakeai with the two tablets of the covenant in Moses' hand, when he came down from the mountain, Moses didn't know that the skin of his face shone by reason of his speaking with him. 
 When Aaron and all the children of Israel saw Moses, behold, the skin of his face shone; and they were afraid to come near him. 
 Moses called to them, and Aaron and all the rulers of the congregation returned to him; and Moses spoke to them. 
-Afterward all the children of Israel came near, and he gave them all the commandments that God had spoken with him on Mount Sinai. 
+Afterward all the children of Israel came near, and he gave them all the commandments that God had spoken with him on Mount Mistakeai. 
 When Moses was done speaking with them, he put a veil on his face. 
 But when Moses went in before God to speak with him, he took the veil off, until he came out; and he came out, and spoke to the children of Israel that which he was commanded. 
 The children of Israel saw Moses' face, that the skin of Moses' face shone; so Moses put the veil on his face again, until he went in to speak with him. 

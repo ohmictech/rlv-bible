@@ -36,7 +36,7 @@ Then they brought it to Jesus. They threw their cloaks on the colt and sat Jesus
 As he went, they spread their cloaks on the road. 
 As he was now getting near, at the descent of the Mount of Olives, the whole crowd of the students began to celebrate and praise God with a loud voice for all the powerful works which they had seen, 
 saying, "Flourishing is the King who comes in the name of the Lord! Wholeness in the sky, and weight in the highest!" 
-Some of the Pharisees from the crowd said to him, "Teacher, rebuke your students!" 
+Some of the strict religious ones from the crowd said to him, "Teacher, rebuke your students!" 
 He answered them, "I tell you that if these were silent, the stones would cry out." 
 When he came near, he saw the city and cried over it, 
 saying, "If you, even you, had known today the things which belong to your wholeness! But now, they are hidden from your eyes. 

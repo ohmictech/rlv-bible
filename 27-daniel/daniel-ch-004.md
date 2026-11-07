@@ -24,7 +24,7 @@ it is you, O king, that have grown and become strong; for your greatness has gro
 "This is the interpretation, O king, and it is the decree of the Most High, which has come on my lord the king: 
 You will be driven from men and your dwelling shall be with the animals of the field. You will be made to eat grass as oxen, and will be wet with the dew of the sky, and seven times shall pass over you, until you know that the Most High rules in the kingdom of men, and gives it to whomever he will. 
 Whereas it was commanded to leave the stump of the roots of the tree, your kingdom will be restored to you after you learn that Heaven rules. 
-Therefore, O king, let my counsel be acceptable to you, and break off your sins by righteousness, and your iniquities by showing mercy to the poor. Perhaps there may be a lengthening of your tranquility." 
+Therefore, O king, let my counsel be acceptable to you, and break off your mistakes by righteousness, and your guilt by showing mercy to the poor. Perhaps there may be a lengthening of your tranquility." 
 All this came on the King Nebuchadnezzar. 
 At the end of twelve months he was walking in the royal palace of Babylon. 
 The king spoke and said, "Is not this great Babylon, which I have built for the royal dwelling place by the might of my power and for the glory of my majesty?" 

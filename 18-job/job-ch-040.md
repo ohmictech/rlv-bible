@@ -9,12 +9,12 @@ Will you even annul my judgment? Will you condemn me, that you may be justified?
 Or do you have an arm like God? Can you thunder with a voice like him? 
 "Now deck yourself with excellency and dignity. Array yourself with honor and majesty. 
 Pour out the fury of your anger. Look at everyone who is proud, and bring him low. 
-Look at everyone who is proud, and humble him. Crush the wicked in their place. 
+Look at everyone who is proud, and humble him. Crush the guilty in their place. 
 Hide them in the dust together. Bind their faces in the hidden place. 
 Then I will also admit to you that your own right hand can save you. 
 "See now behemoth, which I made as well as you. He eats grass as an ox. 
 Look now, his strength is in his thighs. His force is in the muscles of his belly. 
-He moves his tail like a cedar. The sinews of his thighs are knit together. 
+He moves his tail like a cedar. The mistakeews of his thighs are knit together. 
 His bones are like tubes of bronze. His limbs are like bars of iron. 
 He is the chief of the ways of God. He who made him gives him his sword. 
 Surely the mountains produce food for him, where all the animals of the field play. 

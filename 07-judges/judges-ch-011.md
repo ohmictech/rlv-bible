@@ -24,7 +24,7 @@ So now the God of Israel, has dispossessed the Amorites from before his people I
 Won't you possess that which Chemosh your god gives you to possess? So whoever our God has dispossessed from before us, them will we possess. 
 Now are you anything better than Balak the son of Zippor, king of Moab? Did he ever strive against Israel, or did he ever fight against them? 
 Israel lived in Heshbon and its towns, and in Aroer and its towns, and in all the cities that are along the side of the Arnon for three hundred years! Why didn't you recover them within that time? 
-Therefore I have not sinned against you, but you do me wrong to war against me. May God the Judge be judge today between the children of Israel and the children of Ammon." 
+Therefore I have not wronged you, but you do me wrong to war against me. May God the Judge be judge today between the children of Israel and the children of Ammon." 
 However, the king of the children of Ammon didn't listen to the words of Jephthah which he sent him. 
 Then God's Spirit came on Jephthah, and he passed over Gilead and Manasseh, and passed over Mizpah of Gilead, and from Mizpah of Gilead he passed over to the children of Ammon. 
 Jephthah vowed a vow to God, and said, "If you will indeed deliver the children of Ammon into my hand, 

@@ -6,5 +6,5 @@ God's word came to me, saying,
 For I will set my eyes on them for good, and I will bring them again to this land. I will build them, and not pull them down. I will plant them, and not pluck them up. 
 I will give them a heart to know me, that I am God. They will be my people, and I will be their God; for they will return to me with their whole heart. 
 "'As the bad figs, which can't be eaten, they are so bad,' surely God says, 'So I will give up Zedekiah the king of Judah, and his princes, and the remnant of Jerusalem who remain in this land, and those who dwell in the land of Egypt. 
-I will even give them up to be tossed back and forth among all the kingdoms of the earth for evil, to be a reproach and a proverb, a taunt and a curse, in all places where I will drive them. 
+I will even give them up to be tossed back and forth among all the kingdoms of the earth for bad, to be a reproach and a proverb, a taunt and a curse, in all places where I will drive them. 
 I will send the sword, the famine, and the pestilence among them, until they are consumed from off the land that I gave to them and to their fathers.'" 

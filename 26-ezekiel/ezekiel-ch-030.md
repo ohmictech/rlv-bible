@@ -9,11 +9,11 @@ They will know that I am God when I have set a fire in Egypt, and all her helper
 "'"In that day messengers will go out from before me in ships to make the careless Ethiopians afraid. There will be anguish on them, as in the day of Egypt; for, behold, it comes." 
 "'The God says: "I will also make the multitude of Egypt to cease, by the hand of Nebuchadnezzar king of Babylon. 
 He and his people with him, the terrible of the nations, will be brought in to destroy the land. They will draw their swords against Egypt, and fill the land with the slain. 
-I will make the rivers dry, and will sell the land into the hand of evil men. I will make the land desolate, and all that is therein, by the hand of foreigners. I, God, have spoken it." 
+I will make the rivers dry, and will sell the land into the hand of bad men. I will make the land desolate, and all that is therein, by the hand of foreigners. I, God, have spoken it." 
 "'The God says: "I will also destroy the idols, and I will cause the images to cease from Memphis. There will be no more a prince from the land of Egypt. I will put a fear in the land of Egypt. 
 I will make Pathros desolate, and will set a fire in Zoan, and will execute judgments on No. 
-I will pour my wrath on Sin, the stronghold of Egypt. I will cut off the multitude of No. 
-I will set a fire in Egypt Sin will be in great anguish. No will be broken up. Memphis will have adversaries in the daytime. 
+I will pour my wrath on Mistake, the stronghold of Egypt. I will cut off the multitude of No. 
+I will set a fire in Egypt Mistake will be in great anguish. No will be broken up. Memphis will have adversaries in the daytime. 
 The young men of Aven and of Pibeseth will fall by the sword. They will go into captivity. 
 At Tehaphnehes also the day will withdraw itself, when I break the yokes of Egypt there. The pride of her power will cease in her. As for her, a cloud will cover her, and her daughters will go into captivity. 
 Thus I will execute judgments on Egypt. Then they will know that I am God."'" 

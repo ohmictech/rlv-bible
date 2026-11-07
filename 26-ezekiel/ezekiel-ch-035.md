@@ -2,8 +2,8 @@
 "Son of man, set your face against Mount Seir, and prophesy against it, 
 and tell it, 'The God says: "Behold, I am against you, Mount Seir, and I will stretch out my hand against you. I will make you a desolation and an astonishment. 
 I will lay your cities waste, and you will be desolate. Then you will know that I am God. 
-"'"Because you have had a perpetual hostility, and have given over the children of Israel to the power of the sword in the time of their calamity, in the time of the iniquity of the end, 
-therefore, as I live," says God, "I will prepare you for blood, and blood will pursue you. Since you have not hated blood, therefore blood will pursue you. 
+"'"Because you have had a perpetual hostility, and have given over the children of Israel to the power of the sword in the time of their calamity, in the time of the guilt of the end, 
+therefore, as I live," says God, "I will prepare you for blood, and blood will pursue you. Mistakece you have not hated blood, therefore blood will pursue you. 
 Thus I will make Mount Seir an astonishment and a desolation. I will cut off from it him who passes through and him who returns. 
 I will fill its mountains with its slain. The slain with the sword will fall in your hills and in your valleys and in all your watercourses. 
 I will make you a perpetual desolation, and your cities will not be inhabited. Then you will know that I am God. 

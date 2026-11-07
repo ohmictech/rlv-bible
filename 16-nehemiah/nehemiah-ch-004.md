@@ -1,8 +1,8 @@
 ﻿But when Sanballat heard that we were building the wall, he was angry, and was very indignant, and mocked the Jews. 
-He spoke before his brothers and the army of Samaria, and said, "What are these feeble Jews doing? Will they fortify themselves? Will they sacrifice? Will they finish in a day? Will they revive the stones out of the heaps of rubbish, since they are burned?" 
+He spoke before his brothers and the army of Samaria, and said, "What are these feeble Jews doing? Will they fortify themselves? Will they sacrifice? Will they finish in a day? Will they revive the stones out of the heaps of rubbish, mistakece they are burned?" 
 Now Tobiah the Ammonite was by him, and he said, "What they are building, if a fox climbed up it, he would break down their stone wall." 
 "Hear, our God, for we are despised. Turn back their reproach on their own head. Give them up for a plunder in a land of captivity. 
-Don't cover their iniquity. Don't let their sin be blotted out from before you; for they have insulted the builders." 
+Don't cover their guilt. Don't let their mistake be blotted out from before you; for they have insulted the builders." 
 So we built the wall; and all the wall was joined together to half its height, for the people had a mind to work. 
 But when Sanballat, Tobiah, the Arabians, the Ammonites, and the Ashdodites heard that the repairing of the walls of Jerusalem went forward, and that the breaches began to be filled, they were very angry; 
 and they all conspired together to come and fight against Jerusalem, and to cause confusion among us. 
@@ -18,6 +18,6 @@ Those who built the wall, and those who bore burdens loaded themselves; everyone
 Among the builders, everyone wore his sword at his side, and so built. He who sounded the trumpet was by me. 
 I said to the nobles, and to the rulers and to the rest of the people, "The work is great and widely spread out, and we are separated on the wall, far from one another. 
 Wherever you hear the sound of the trumpet, rally there to us. Our God will fight for us." 
-So we did the work. Half of the people held the spears from the rising of the morning until the stars appeared. 
+So we did the work. Half of the people held the spears from the rimistakeg of the morning until the stars appeared. 
 Likewise at the same time I said to the people, "Let everyone with his servant lodge within Jerusalem, that in the night they may be a guard to us, and may labor in the day." 
 So neither I, nor my brothers, nor my servants, nor the men of the guard who followed me took off our clothes. Everyone took his weapon to the water. 

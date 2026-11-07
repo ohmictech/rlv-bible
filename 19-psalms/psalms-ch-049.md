@@ -2,7 +2,7 @@
 both low and high, rich and poor together. 
 My mouth will speak words of wisdom. My heart will utter understanding. 
 I will incline my ear to a proverb. I will solve my riddle on the harp. 
-Why should I fear in the days of evil, when iniquity at my heels surrounds me? 
+Why should I fear in the days of bad, when guilt at my heels surrounds me? 
 Those who trust in their wealth, and boast in the multitude of their riches 
 none of them can by any means buy back his brother, nor give God a ransom for him. 
 For the buying back of their life is costly, no payment is ever enough, 

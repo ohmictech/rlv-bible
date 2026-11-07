@@ -4,7 +4,7 @@ You shall write on them all the words of this law, when you have passed over, th
 It shall be, when you have crossed over the Jordan, that you shall set up these stones, which I command you today, on Mount Ebal, and you shall coat them with plaster. 
 There you shall build an altar to your God, an altar of stones. You shall not use any iron tool on them. 
 You shall build your God's altar of uncut stones. You shall offer burnt offerings on it to your God. 
-You shall sacrifice peace offerings, and shall eat there. You shall rejoice before your God. 
+You shall sacrifice offerings for wholeness, and shall eat there. You shall rejoice before your God. 
 You shall write on the stones all the words of this law very plainly." 
 Moses and the Levitical priests spoke to all Israel, saying, "Be silent and listen, Israel! Today you have become the people of your God. 
 You shall therefore obey your God's voice, and do his commandments and his statutes, which I command you today." 

@@ -2,13 +2,13 @@
 the mighty man, the man of war, the judge, the spokesman, the diviner, the elder, 
 the captain of fifty, the honorable man, the counselor, the skilled craftsman, and the clever enchanter. 
 I will give boys to be their princes, and children shall rule over them. 
-The people will be oppressed, everyone by another, and everyone by his neighbor. The child will behave himself proudly against the old man, and the wicked against the honorable. 
+The people will be oppressed, everyone by another, and everyone by his neighbor. The child will behave himself proudly against the old man, and the guilty against the honorable. 
 Indeed a man shall take hold of his brother in the house of his father, saying, "You have clothing, you be our ruler, and let this ruin be under your hand." 
 In that day he will cry out, saying, "I will not be a healer; for in my house is neither bread nor clothing. You shall not make me ruler of the people." 
 For Jerusalem is ruined, and Judah is fallen; because their tongue and their doings are against God, to provoke the eyes of his glory. 
-The look of their faces testify against them. They parade their sin like Sodom. They don't hide it. Woe to their soul! For they have brought disaster upon themselves. 
+The look of their faces testify against them. They parade their mistake like Sodom. They don't hide it. Woe to their soul! For they have brought disaster upon themselves. 
 Tell the righteous that it will be well with them, for they will eat the fruit of their deeds. 
-Woe to the wicked! Disaster is upon them, for the deeds of their hands will be paid back to them. 
+Woe to the guilty! Disaster is upon them, for the deeds of their hands will be paid back to them. 
 As for my people, children are their oppressors, and women rule over them. My people, those who lead you cause you to err, and destroy the way of your paths. 
 God stands up to contend, and stands to judge the peoples. 
 God will enter into judgment with the elders of his people and their leaders: "It is you who have eaten up the vineyard. The plunder of the poor is in your houses. 

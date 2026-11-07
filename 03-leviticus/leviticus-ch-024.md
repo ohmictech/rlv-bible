@@ -12,7 +12,7 @@ The son of the Israelite woman blasphemed the Name, and cursed; and they brought
 They put him in custody until God's will should be declared to them. 
 God spoke to Moses, saying, 
 "Bring him who cursed out of the camp; and let everyone who heard him lay their hands on his head, and let all the congregation stone him. 
-You shall speak to the children of Israel, saying, 'Whoever curses his God shall bear his sin. 
+You shall speak to the children of Israel, saying, 'Whoever curses his God shall bear his mistake. 
 He who blasphemes God's name, he shall surely be put to death. All the congregation shall certainly stone him. The foreigner as well as the native-born shall be put to death when he blasphemes the Name. 
 "'He who strikes any man mortally shall surely be put to death. 
 He who strikes an animal mortally shall make it good, life for life. 

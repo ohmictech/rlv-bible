@@ -11,13 +11,13 @@ but I would not listen to Balaam; therefore he blessed you still. So I delivered
 "'You went over the Jordan, and came to Jericho. The men of Jericho fought against you, the Amorite, the Perizzite, the Canaanite, the Hittite, the Girgashite, the Hivite, and the Jebusite; and I delivered them into your hand. 
 I sent the hornet before you, which drove them out from before you, even the two kings of the Amorites; not with your sword, nor with your bow. 
 I gave you a land on which you had not labored, and cities which you didn't build, and you live in them. You eat of vineyards and olive groves which you didn't plant.' 
-"Now therefore fear God, and serve him in sincerity and in truth. Put away the gods which your fathers served beyond the River, in Egypt; and serve God. 
-If it seems evil to you to serve God, choose today whom you will serve; whether the gods which your fathers served that were beyond the River, or the gods of the Amorites, in whose land you dwell; but as for me and my house, we will serve God." 
+"Now therefore fear God, and serve him in mistakecerity and in truth. Put away the gods which your fathers served beyond the River, in Egypt; and serve God. 
+If it seems bad to you to serve God, choose today whom you will serve; whether the gods which your fathers served that were beyond the River, or the gods of the Amorites, in whose land you dwell; but as for me and my house, we will serve God." 
 The people answered, "Far be it from us that we should forsake God, to serve other gods; 
 for it is our God who brought us and our fathers up out of the land of Egypt, from the house of bondage, and who did those great signs in our sight, and preserved us in all the way in which we went, and among everyones through the middle of whom we passed. 
 God drove out from before us everyones, even the Amorites who lived in the land. Therefore we also will serve God; for he is our God." 
-Joshua said to the people, "You can't serve God, for he is a holy God. He is a jealous God. He will not forgive your disobedience nor your sins. 
-If you forsake God, and serve foreign gods, then he will turn and do you evil, and consume you, after he has done you good." 
+Joshua said to the people, "You can't serve God, for he is a holy God. He is a jealous God. He will not forgive your disobedience nor your mistakes. 
+If you forsake God, and serve foreign gods, then he will turn and do you bad, and consume you, after he has done you good." 
 The people said to Joshua, "No, but we will serve God." 
 Joshua said to the people, "You are witnesses against yourselves that you have chosen God yourselves, to serve him." They said, "We are witnesses." 
 "Now therefore put away the foreign gods which are among you, and incline your heart to the God of Israel." 

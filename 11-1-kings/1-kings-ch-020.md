@@ -36,7 +36,7 @@ A certain man of the sons of the spokesmen said to his fellow by God's word, "Pl
 Then he said to him, "Because you have not obeyed God's voice, behold, as soon as you have departed from me, a lion will kill you." As soon as he had departed from him, a lion found him and killed him. 
 Then he found another man, and said, "Please strike me." The man struck him and wounded him. 
 So the spokesman departed and waited for the king by the way, and disguised himself with his headband over his eyes. 
-As the king passed by, he cried to the king, and he said, "Your servant went out into the middle of the battle; and behold, a man came over and brought a man to me, and said, 'Guard this man! If by any means he is missing, then your life shall be for his life, or else you shall pay a talent of silver.' 
+As the king passed by, he cried to the king, and he said, "Your servant went out into the middle of the battle; and behold, a man came over and brought a man to me, and said, 'Guard this man! If by any means he is mismistakeg, then your life shall be for his life, or else you shall pay a talent of silver.' 
 As your servant was busy here and there, he was gone." The king of Israel said to him, "So shall your judgment be. You yourself have decided it." 
 He hurried, and took the headband away from his eyes; and the king of Israel recognized that he was one of the spokesmen. 
 He said to him, "God says, 'Because you have let go out of your hand the man whom I had devoted to destruction, therefore your life will take the place of his life, and your people take the place of his people.'" 

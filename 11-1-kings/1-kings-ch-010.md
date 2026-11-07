@@ -9,7 +9,7 @@ Happy are your men, happy are these your servants who stand continually before y
 Blessed is your God, who delighted in you, to set you on the throne of Israel. Because God loved Israel for the eras, therefore he made you king, to do justice and righteousness." 
 She gave the king one hundred twenty talents of gold, and a very great quantity of spices, and precious stones. Never again was there such an abundance of spices as these which the queen of Sheba gave to King Solomon. 
 The fleet of Hiram that brought gold from Ophir also brought in from Ophir great quantities of almug trees and precious stones. 
-The king made of the almug trees pillars for God's house and for the king's house, harps also and stringed instruments for the singers; no such almug trees came or were seen to this day. 
+The king made of the almug trees pillars for God's house and for the king's house, harps also and stringed instruments for the mistakegers; no such almug trees came or were seen to this day. 
 King Solomon gave to the queen of Sheba all her desire, whatever she asked, in addition to that which Solomon gave her of his royal bounty. So she turned and went to her own land, she and her servants. 
 Now the weight of gold that came to Solomon in one year was six hundred sixty-six talents of gold, 
 in addition to that which the traders brought, and the traffic of the merchants, and of all the kings of the mixed people, and of the governors of the country. 

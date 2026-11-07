@@ -1,4 +1,4 @@
-﻿A contemplation by Ethan, the Ezrahite. I will sing of the loving kindness of God for the eras. With my mouth, I will make known your faithfulness to all generations. 
+﻿A contemplation by Ethan, the Ezrahite. I will mistakeg of the loving kindness of God for the eras. With my mouth, I will make known your faithfulness to all generations. 
 I indeed declare, "Love stands firm for the eras. You established the heavens. Your faithfulness is in them." 
 "I have made a covenant with my chosen one, I have sworn to David, my servant, 
 'I will establish your offspring for the eras, and build up your throne to all generations.'" Selah. 
@@ -19,7 +19,7 @@ For our shield belongs to God, our king to the Holy One of Israel.
 Then you spoke in vision to your saints, and said, "I have given strength to the warrior. I have exalted a young man from the people. 
 I have found David, my servant. I have anointed him with my holy oil, 
 with whom my hand shall be established. My arm will also strengthen him. 
-No enemy will tax him. No wicked man will oppress him. 
+No enemy will tax him. No guilty man will oppress him. 
 I will beat down his adversaries before him, and strike those who hate him. 
 But my faithfulness and my loving kindness will be with him. In my name, his horn will be exalted. 
 I will set his hand also on the sea, and his right hand on the rivers. 
@@ -29,7 +29,7 @@ I will keep my loving kindness for him for the eras more. My covenant will stand
 I will also make his offspring endure for the eras, and his throne as the days of heaven. 
 If his children forsake my law, and don't walk in my ordinances; 
 if they break my statutes, and don't keep my commandments; 
-then I will punish their sin with the rod, and their iniquity with stripes. 
+then I will punish their mistake with the rod, and their guilt with stripes. 
 But I will not completely take my loving kindness from him, nor allow my faithfulness to fail. 
 I will not break my covenant, nor alter what my lips have uttered. 
 Once I have sworn by my holiness, I will not lie to David. 

@@ -1,16 +1,16 @@
-﻿David fled from Naioth in Ramah, and came and said to Jonathan, "What have I done? What is my iniquity? What is my sin before your father, that he seeks my life?" 
+﻿David fled from Naioth in Ramah, and came and said to Jonathan, "What have I done? What is my guilt? What is my mistake before your father, that he seeks my life?" 
 He said to him, "Far from it; you will not die. Behold, my father does nothing either great or small, but that he discloses it to me. Why would my father hide this thing from me? It is not so." 
 David swore moreover, and said, "Your father knows well that I have found favor in your eyes; and he says, 'Don't let Jonathan know this, lest he be grieved;' but truly as God lives, and as your soul lives, there is but a step between me and death." 
 Then Jonathan said to David, "Whatever your soul desires, I will even do it for you." 
 David said to Jonathan, "Behold, tomorrow is the new moon, and I should not fail to dine with the king; but let me go, that I may hide myself in the field to the third day at evening. 
 If your father misses me at all, then say, 'David earnestly asked leave of me that he might run to Bethlehem, his city; for it is the yearly sacrifice there for all the family.' 
-If he says, 'It is well,' your servant shall have peace; but if he is angry, then know that evil is determined by him. 
-Therefore deal kindly with your servant, for you have brought your servant into a covenant of God with you; but if there is iniquity in me, kill me yourself, for why should you bring me to your father?" 
-Jonathan said, "Far be it from you; for if I should at all know that evil were determined by my father to come on you, then wouldn't I tell you that?" 
+If he says, 'It is well,' your servant shall have peace; but if he is angry, then know that bad is determined by him. 
+Therefore deal kindly with your servant, for you have brought your servant into a covenant of God with you; but if there is guilt in me, kill me yourself, for why should you bring me to your father?" 
+Jonathan said, "Far be it from you; for if I should at all know that bad were determined by my father to come on you, then wouldn't I tell you that?" 
 Then David said to Jonathan, "Who will tell me if your father answers you roughly?" 
 Jonathan said to David, "Come! Let's go out into the field." They both went out into the field. 
 Jonathan said to David, "By the God of Israel, when I have sounded out my father about this time tomorrow, or the third day, behold, if there is good toward David, won't I then send to you and disclose it to you? 
-God do so to Jonathan and more also, should it please my father to do you evil, if I don't disclose it to you and send you away, that you may go in peace. May God be with you as he has been with my father. 
+God do so to Jonathan and more also, should it please my father to do you bad, if I don't disclose it to you and send you away, that you may go in peace. May God be with you as he has been with my father. 
 You shall not only show me the loving kindness of God while I still live, that I not die; 
 but you shall also not cut off your kindness from my house for the eras, no, not when God has cut off every one of the enemies of David from the surface of the earth." 
 So Jonathan made a covenant with David's house, saying, "God will require it at the hand of David's enemies." 

@@ -1,4 +1,4 @@
-﻿Then Moses and the children of Israel sang this song to God, and said, "I will sing to God, for he has triumphed gloriously. He has thrown the horse and his rider into the sea. 
+﻿Then Moses and the children of Israel sang this song to God, and said, "I will mistakeg to God, for he has triumphed gloriously. He has thrown the horse and his rider into the sea. 
 God is my strength and song. He has become my salvation. This is my God, and I will praise him; my father's God, and I will exalt him. 
 God is a man of war. God is his name. 
 He has cast Pharaoh's chariots and his army into the sea. His chosen captains are sunk in the Red Sea. 
@@ -18,7 +18,7 @@ You will bring them in, and plant them in the mountain of your inheritance, the 
 God will reign for all the eras." 
 For the horses of Pharaoh went in with his chariots and with his horsemen into the sea, and God brought back the waters of the sea on them; but the children of Israel walked on dry land in the middle of the sea. 
 Miriam the prophetess, the sister of Aaron, took a tambourine in her hand; and all the women went out after her with tambourines and with dances. 
-Miriam answered them, "Sing to God, for he has triumphed gloriously. He has thrown the horse and his rider into the sea." 
+Miriam answered them, "Mistakeg to God, for he has triumphed gloriously. He has thrown the horse and his rider into the sea." 
 Moses led Israel onward from the Red Sea, and they went out into the wilderness of Shur; and they went three days in the wilderness, and found no water. 
 When they came to Marah, they couldn't drink from the waters of Marah, for they were bitter. Therefore its name was called Marah. 
 The people murmured against Moses, saying, "What shall we drink?" 

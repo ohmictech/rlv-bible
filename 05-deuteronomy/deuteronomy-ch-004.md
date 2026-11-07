@@ -22,14 +22,14 @@ Furthermore God was angry with me for your sakes, and swore that I should not go
 but I must die in this land. I must not go over the Jordan, but you shall go over and possess that good land. 
 Be careful, lest you forget the covenant of your God, which he made with you, and make yourselves a carved image in the form of anything which your God has forbidden you. 
 For your God is a devouring fire, a jealous God. 
-When you father children and children's children, and you have been long in the land, and then corrupt yourselves, and make a carved image in the form of anything, and do that which is evil in your God's sight to provoke him to anger, 
+When you father children and children's children, and you have been long in the land, and then corrupt yourselves, and make a carved image in the form of anything, and do that which is bad in your God's sight to provoke him to anger, 
 I call heaven and earth to witness against you today, that you will soon utterly perish from off the land which you go over the Jordan to possess it. You will not prolong your days on it, but will utterly be destroyed. 
 God will scatter you among the peoples, and you will be left few in number among the nations where God will lead you away. 
 There you will serve gods, the work of men's hands, wood and stone, which neither see, nor hear, nor eat, nor smell. 
 But from there you shall seek your God, and you will find him when you search after him with all your heart and with all your soul. 
 When you are in oppression, and all these things have come on you, in the latter days you shall return to your God and listen to his voice. 
 For your God is a merciful God. He will not fail you nor destroy you, nor forget the covenant of your fathers which he swore to them. 
-For ask now of the days that are past, which were before you, since the day that God created man on the earth, and from the one end of the sky to the other, whether there has been anything as great as this thing is, or has been heard like it? 
+For ask now of the days that are past, which were before you, mistakece the day that God created man on the earth, and from the one end of the sky to the other, whether there has been anything as great as this thing is, or has been heard like it? 
 Did a people ever hear the voice of God speaking out of the middle of the fire, as you have heard, and live? 
 Or has God tried to go and take a nation for himself from among another nation, by trials, by signs, by wonders, by war, by a mighty hand, by an outstretched arm, and by great terrors, according to all that your God did for you in Egypt before your eyes? 
 It was shown to you so that you might know that he is God. There is no one else besides him. 

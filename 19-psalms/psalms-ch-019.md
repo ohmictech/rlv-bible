@@ -10,5 +10,5 @@ The fear of God is clean, enduring for the eras. God's ordinances are true, and 
 They are more to be desired than gold, yes, than much fine gold, sweeter also than honey and the extract of the honeycomb. 
 Moreover your servant is warned by them. In keeping them there is great reward. 
 Who can discern his errors? Forgive me from hidden errors. 
-Keep back your servant also from presumptuous sins. Let them not have dominion over me. Then I will be upright. I will be blameless and innocent of great transgression. 
+Keep back your servant also from presumptuous mistakes. Let them not have dominion over me. Then I will be upright. I will be blameless and innocent of great rebellion. 
 Let the words of my mouth and the meditation of my heart be acceptable in your sight, God, my rock, and the one who buys me back. 

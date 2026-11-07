@@ -1,22 +1,22 @@
-﻿After these things, someone said to Joseph, "Look, your father is sick." He took with him his two sons, Manasseh and Ephraim. 
-Someone told Jacob, and said, "Look, your son Joseph comes to you," and Israel strengthened himself, and sat on the bed. 
-Jacob said to Joseph, "God Almighty appeared to me at Luz in the land of Canaan, and blessed me, 
-and said to me, 'Look, I'll make you fruitful, and multiply you, and I'll make of you a company of peoples, and will give this land to your offspring after you for an perpetual possession.' 
-Now your two sons, who were born to you in the land of Egypt before I came to you into Egypt, are mine; Ephraim and Manasseh, even as Reuben and Simeon, will be mine. 
-Your offspring, whom you become the father of after them, will be yours. They'll be called after the name of their brothers in their inheritance. 
-As for me, when I came from Paddan, Rachel died beside me in the land of Canaan on the way, when there was still some distance to come to Ephrath, and I buried her there on the way to Ephrath (also called Bethlehem)." 
-Israel saw Joseph's sons, and said, "Who are these?" 
-Joseph said to his father, "They're my sons, whom God has given me here." He said, "Please bring them to me, and I'll bless them." 
-Now the eyes of Israel were dim for age, so that he couldn't see well. Joseph brought them near to him; and he kissed them, and embraced them. 
-Israel said to Joseph, "I didn't think I'd see your face, and look, God has let me see your offspring also." 
-Joseph brought them out from between his knees, and he bowed himself with his face to the earth. 
-Joseph took them both, Ephraim in his right hand toward Israel's left hand, and Manasseh in his left hand toward Israel's right hand, and brought them near to him. 
-Israel stretched out his right hand, and laid it on Ephraim's head, who was the younger, and his left hand on Manasseh's head, guiding his hands knowingly, for Manasseh was the firstborn. 
-He blessed Joseph, and said, "The God before whom my fathers Abraham and Isaac walked, the God who has fed me all my life long to this day, 
-the messenger who has bought back me from all bad, bless the lads, and let my name be named on them, and the name of my fathers Abraham and Isaac. Let them grow into a multitude upon the earth." 
-When Joseph saw that his father laid his right hand on the head of Ephraim, it displeased him. He held up his father's hand, to remove it from Ephraim's head to Manasseh's head. 
-Joseph said to his father, "Not so, my father, for this is the firstborn. Put your right hand on his head." 
-His father refused, and said, "I know, my son, I know. He also will become a people, and he also will be great. However, his younger brother will be greater than he, and his offspring will become a multitude of nations." 
-He blessed them that day, saying, "Israel will bless in your name, saying, 'God make you as Ephraim and as Manasseh'" He set Ephraim before Manasseh. 
-Israel said to Joseph, "Look, I'm dying, but God will be with you, and bring you again to the land of your fathers. 
-Moreover I have given to you one portion above your brothers, which I took out of the hand of the Amorite with my sword and with my bow." 
+﻿Some time later Joseph was told, "Your father is sick." So he took his two sons, Manasseh and Ephraim, with him. 
+When Jacob was told, "Your son Joseph is here," Israel gathered his strength and sat up in bed. 
+Jacob said to Joseph, "God Almighty appeared to me at Luz in Canaan and blessed me. 
+He said to me, 'Look, I'm going to make you fruitful and increase you. I'll make you into a company of peoples, and I'll give this land to your descendants after you as a permanent possession.' 
+Now your two sons, born to you in Egypt before I came to you, are mine. Ephraim and Manasseh will be mine, just like Reuben and Simeon. 
+Any children you have after them will be yours. They'll be counted under their brothers' names when the land is divided. 
+When I came from Paddan, Rachel died on me in Canaan, on the road, before we reached Ephrath, and I buried her there beside the road to Ephrath." Ephrath is Bethlehem. 
+Israel saw Joseph's sons and said, "Who are these?" 
+Joseph said to his father, "They're my sons, the ones God has given me here." Israel said, "Bring them to me and I'll bless them." 
+Israel's eyes were dim with age and he could barely see, so Joseph brought them close, and he kissed them and held them. 
+Israel said to Joseph, "I never thought I'd see your face again, and now God has let me see your children too." 
+Joseph took them from his knees and bowed down with his face to the ground. 
+Then Joseph took them both, Ephraim by his right hand toward Israel's left, and Manasseh by his left hand toward Israel's right, and brought them close. 
+Israel reached out his right hand and laid it on Ephraim's head, the younger one, and his left hand on Manasseh's head, crossing his hands on purpose, because Manasseh was the firstborn. 
+He blessed Joseph and said, "The God before whom my fathers Abraham and Isaac walked, the God who has been my shepherd all my life to this day, 
+the messenger who has bought me back from every evil, bless the boys. Let my name be carried on in them, and the name of my fathers Abraham and Isaac, and let them grow into a multitude on the earth." 
+When Joseph saw his father lay his right hand on Ephraim's head it bothered him, so he took hold of his father's hand to move it from Ephraim's head to Manasseh's. 
+Joseph said to his father, "No, father, that's the wrong one. This one's the firstborn. Put your right hand on his head." 
+His father refused and said, "I know, my son, I know. He'll become a people too, and he'll be great. Still, his younger brother will be greater than he, and his descendants will become a multitude of nations." 
+So he blessed them that day and said, "By you Israel will bless people, saying, 'May God make you like Ephraim and Manasseh.'" And he put Ephraim ahead of Manasseh. 
+Israel said to Joseph, "I'm dying, but God will be with you and will bring you back to the land of your fathers. 
+And I'm giving you one ridge of land more than your brothers, the one I took from the Amorites with my sword and my bow." 

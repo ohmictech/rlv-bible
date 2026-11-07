@@ -20,4 +20,4 @@ I speak in human terms because of the weakness of your flesh; for just as you on
 For when you were slaves of the drift, you were free from rightness. 
 What fruit then did you have at that time in the things of which you are now ashamed? For the end of those things is death. 
 But now, being made free from the drift and having become slaves of God, you have your fruit of set-apartness and the result of the real life of the era. 
-For the owed result of the drift is death, but the free gift of God is the real life of the era in Christ Jesus our Lord. 
+For what the drift owes is death, but the free gift of God is the real life of the era in Christ Jesus our Lord. 

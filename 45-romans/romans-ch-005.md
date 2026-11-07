@@ -1,4 +1,4 @@
-﻿Being therefore made right by trust, we have wholeness with God through our Lord Jesus Christ; 
+﻿Being made right by trust, we have wholeness with God through our Lord Jesus Christ; 
 through whom we also have a way in by trust into this favor, in which we stand. And we take pride in the expectation of the weight of God. 
 Not only this, but we also take pride in our hard times, knowing that hard times produce endurance; 
 and endurance, proven character; and proven character, expectation; 

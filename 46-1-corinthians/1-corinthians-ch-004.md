@@ -13,7 +13,7 @@ We toil, working with our own hands. When people curse us, we bless. When we are
 When we are slandered, we speak kindly. We have become the scum of the world, the dirt wiped off by all, even until now. 
 I don't write these things to shame you, but to warn you as my truly loved children. 
 Though you have ten thousand guardians in Christ, you don't have many fathers. In Christ Jesus, I became your father through the Good News. 
-I beg you therefore, follow my example. 
+I beg you, follow my example. 
 Because of this I have sent Timothy to you, who is my truly loved and trustworthy child in the Lord, who will remind you of my ways in Christ, just as I teach everywhere in every gathering. 
 Now some are puffed up, as though I were not coming to you. 
 But I will come to you shortly, if the Lord is willing. And I will know, not the word of those who are puffed up, but the power. 

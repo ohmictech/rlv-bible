@@ -19,7 +19,7 @@ to open their eyes, that they may turn from darkness to light and from the power
 "Therefore, King Agrippa, I was not disobedient to the vision from the sky, 
 but declared first to them of Damascus, at Jerusalem, and throughout all the country of Judea, and also to the nations, that they should have a change of heart and turn to God, doing deeds that go with a change of heart. 
 That is why the Jewish people seized me in the temple courts and tried to kill me. 
-Having therefore obtained the help that is from God, I stand to this day testifying both to small and great, saying nothing but what the spokesmen and Moses said would happen, 
+Having obtained the help that is from God, I stand to this day testifying both to small and great, saying nothing but what the spokesmen and Moses said would happen, 
 how the Christ must suffer, and how, by the rising of the dead, he would be first to proclaim light both to these people and to the nations." 
 As he thus made his defense, Festus said with a loud voice, "Paul, you are out of your mind! Your great learning is driving you insane!" 
 But he said, "I am not out of my mind, most excellent Festus, but boldly declare words of truth and reasonableness. 

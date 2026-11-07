@@ -1,19 +1,19 @@
 ﻿After these things, Jesus was walking in Galilee, for he wouldn't walk in Judea, because the Jewish leaders sought to kill him. 
 Now the Jewish Feast of Booths was near. 
-His brothers therefore said to him, "Depart from here and go into Judea, that your students also may see your deeds which you do. 
+His brothers said to him, "Depart from here and go into Judea, that your students also may see your deeds which you do. 
 No one does anything in secret while he seeks to be known openly. If you do these things, reveal yourself to the world." 
 Even his brothers didn't trust in him. 
-Jesus therefore said to them, "My time has not yet come, but your time is always ready. 
+Jesus said to them, "My time has not yet come, but your time is always ready. 
 The world can't hate you, but it hates me, because I testify about it, that its deeds are bad. 
 You go up to the feast. I am not yet going up to this feast, because my time is not yet fulfilled." 
 Having said these things to them, he stayed in Galilee. 
 But when his brothers had gone up to the feast, then he also went up, not publicly, but as it were in secret. 
-The Jewish leaders therefore sought him at the feast, and said, "Where is he?" 
+The Jewish leaders sought him at the feast, and said, "Where is he?" 
 There was much muttering among the crowds concerning him. Some said, "He is a good man." Others said, "Not so, but he leads the crowd astray." 
 Yet no one spoke openly of him for fear of the Jewish leaders. 
 But when it was now the middle of the feast, Jesus went up into the temple courts and taught. 
-The Jewish leaders therefore were amazed, saying, "How does this man know so much, never having been educated?" 
-Jesus therefore answered them, "My teaching is not mine, but his who sent me. 
+The Jewish leaders were amazed, saying, "How does this man know so much, never having been educated?" 
+Jesus answered them, "My teaching is not mine, but his who sent me. 
 If anyone desires to do his will, they will know about the teaching, whether it is from God or if I am speaking from myself. 
 Whoever speaks from themselves seeks their own weight, but whoever seeks the weight of him who sent him is true, and no wrong is in them. 
 Didn't Moses give you the law, and yet none of you keeps the law? Why do you seek to kill me?" 
@@ -25,26 +25,26 @@ Don't pass a verdict by appearances, but pass a right verdict."
 So some of them of Jerusalem said, "Isn't this he whom they seek to kill? 
 Look, he speaks openly, and they say nothing to him. Can it be that the rulers indeed know that this is truly the Christ? 
 However, we know where this man comes from, but when the Christ comes, no one will know where he comes from." 
-Jesus therefore cried out in the temple courts, teaching and saying, "You both know me, and know where I am from. I have not come of myself, but he who sent me is true, whom you don't know. 
+Jesus cried out in the temple courts, teaching and saying, "You both know me, and know where I am from. I have not come of myself, but he who sent me is true, whom you don't know. 
 I know him, because I am from him, and he sent me." 
-They sought therefore to take him; but no one laid a hand on him, because his time had not yet come. 
+They sought to take him; but no one laid a hand on him, because his time had not yet come. 
 But of the crowd, many trusted in him. They said, "When the Christ comes, he won't do more signs than those which this man has done, will he?" 
 The strict religious ones heard the crowd muttering these things concerning him, and the chief priests and the strict religious ones sent temple guards to arrest him. 
 Then Jesus said, "I will be with you a little while longer, then I go to him who sent me. 
 You will seek me and won't find me. You can't come where I am." 
-The Jewish leaders therefore said among themselves, "Where will this man go that we won't find him? Will he go to the scattered Jews among the Greeks and teach the Greeks? 
+The Jewish leaders said among themselves, "Where will this man go that we won't find him? Will he go to the scattered Jews among the Greeks and teach the Greeks? 
 What is this word that he said, 'You will seek me and won't find me,' and 'Where I am, you can't come'?" 
 Now on the last and greatest day of the feast, Jesus stood and cried out, "If anyone is thirsty, let them come to me and drink! 
 Whoever trusts in me, as the Scripture has said, from within them will flow rivers of living water." 
 But he said this about the Spirit, which those trusting in him were to receive. The Holy Spirit was not yet given, because Jesus wasn't yet given honor. 
-Many of the crowd therefore, when they heard these words, said, "This is truly the spokesman." 
+Many of the crowd, when they heard these words, said, "This is truly the spokesman." 
 Others said, "This is the Christ." But some said, "What, does the Christ come out of Galilee? 
 Hasn't the Scripture said that the Christ comes of the offspring of David, and from Bethlehem, the village where David was?" 
 So a division arose in the crowd because of him. 
 Some of them would have arrested him, but no one laid hands on him. 
-The temple guards therefore came to the chief priests and strict religious ones; and they said to them, "Why didn't you bring him?" 
+The temple guards came to the chief priests and strict religious ones; and they said to them, "Why didn't you bring him?" 
 The temple guards answered, "No one ever spoke like this man!" 
-The strict religious ones therefore answered them, "You aren't also led astray, are you? 
+The strict religious ones answered them, "You aren't also led astray, are you? 
 Have any of the rulers or any of the strict religious ones trusted in him? 
 But this crowd that doesn't know the law is cursed." 
 Nicodemus (he who came to him by night, being one of them) said to them, 

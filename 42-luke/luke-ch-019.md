@@ -9,7 +9,7 @@ Zacchaeus stood and said to the Lord, "Look, Lord, half of my goods I give to th
 Jesus said to him, "Today, rescue has come to this house, because he also is a son of Abraham. 
 The Human One came to seek and to rescue that which was lost." 
 As they heard these things, he went on and told a story, because he was near Jerusalem, and they supposed that God's reign would be revealed immediately. 
-He said therefore, "A certain nobleman went into a far country to receive for himself a reign and to return. 
+So he said, "A certain nobleman went into a far country to receive for himself a reign and to return. 
 He called ten slaves of his and gave them ten large silver coins, and told them, 'Do business until I come.' 
 But his citizens hated him, and sent an envoy after him, saying, 'We don't want this man to reign over us.' 
 "When he had come back again, having received the reign, he commanded these slaves, to whom he had given the money, to be called to him, so that he could learn what they had gained by doing business. 

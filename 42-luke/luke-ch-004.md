@@ -4,7 +4,7 @@ The Slanderer said to him, "If you are the Son of God, command this stone to bec
 Jesus answered him, saying, "It is written, 'People do not live on bread alone, but on every word of God.'" 
 The Slanderer, leading him up on a high mountain, showed him all the realms of the world in a moment of time. 
 The Slanderer said to him, "I will give you all this authority and their weight, for it has been handed over to me, and I give it to whomever I want. 
-If you therefore will worship before me, it will all be yours." 
+If you will worship before me, it will all be yours." 
 Jesus answered him, "Get behind me, Adversary! It is written, 'You shall worship the Lord your God, and you shall serve him only.'" 
 He led him to Jerusalem and set him on the highest point of the temple, and said to him, "If you are the Son of God, throw yourself down from here, 
 for it is written, 'He will put his messengers in charge of you, to guard you;' 

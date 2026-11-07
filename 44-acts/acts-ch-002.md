@@ -30,10 +30,10 @@ You made known to me the ways of life. You will make me full of gladness with yo
 So, being a spokesman, and knowing that God had sworn with an oath to him that of the fruit of his body, according to the flesh, he would raise up the Christ to sit on his throne, 
 he foreseeing this, spoke about the rising of the Christ, that his life wasn't left in Hades, and his flesh didn't see decay. 
 This Jesus God raised up, to which we all are witnesses. 
-Being therefore exalted by the right hand of God, and having received from the Father the promise of the Holy Spirit, he has poured out this which you now see and hear. 
+Being exalted by the right hand of God, and having received from the Father the promise of the Holy Spirit, he has poured out this which you now see and hear. 
 David didn't ascend into the sky, but he says himself, 'The Lord said to my Lord, "Sit by my right hand 
 until I make your enemies a footstool for your feet."' 
-"Let all the house of Israel therefore know certainly that God has made him both Lord and Christ, this Jesus whom you crucified." 
+"Let all the house of Israel know certainly that God has made him both Lord and Christ, this Jesus whom you crucified." 
 Now when they heard this, they were cut to the heart, and said to Peter and the rest of the sent ones, "Brothers and sisters, what should we do?" 
 Peter said to them, "Have a change of heart and be immersed, every one of you, in the name of Jesus Christ, so that your mistakes are released, and you will receive the gift of the Holy Spirit. 
 The promise is to you and to your children, and to everyone who is far off, even as many as the Lord our God will call to himself." 

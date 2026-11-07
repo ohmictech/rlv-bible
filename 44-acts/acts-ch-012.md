@@ -2,7 +2,7 @@
 He killed James, the brother of John, with the sword. 
 When he saw that it pleased the Jewish people, he proceeded to seize Peter also. This was during the days of bread without yeast. 
 When he had arrested him, he put him in prison and delivered him to four squads of four soldiers each to guard him, intending to bring him out to the people after the Passover. 
-Peter therefore was kept in the prison, but constant prayer was made by the gathering to God for him. 
+Peter was kept in the prison, but constant prayer was made by the gathering to God for him. 
 The same night when Herod was about to bring him out, Peter was sleeping between two soldiers, bound with two chains. Guards in front of the door kept the prison. 
 And look, a messenger of the Lord stood by him, and a light shone in the cell. He struck Peter on the side and woke him up, saying, "Stand up quickly!" His chains fell off his hands. 
 The messenger said to him, "Get dressed and put on your sandals." He did so. He said to him, "Put on your cloak and follow me." 

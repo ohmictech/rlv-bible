@@ -23,5 +23,5 @@ To the weak I became as weak, that I might gain the weak. I have become all thin
 Now I do this for the sake of the Good News, that I may be a joint partaker of it. 
 Don't you know that those who run in a race all run, but one receives the prize? Run like that, so that you may win. 
 Every person who competes in the games practices self-control in all things. They do it to receive a decaying wreath, but we an undecaying one. 
-I therefore run like that, not aimlessly. I fight like that, not beating the air, 
+I run like that, not aimlessly. I fight like that, not beating the air, 
 but I beat my body and make it my slave, so that after I have announced to others, I myself should not fail the test. 

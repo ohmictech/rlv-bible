@@ -11,7 +11,7 @@ We must all appear before the platform of Christ, so that each one may receive w
 So, knowing the fear of the Lord, we persuade people, but we are plainly known to God, and I hope we are plainly known in your consciences too. 
 We are not commending ourselves to you again, but speak as giving you a reason to take pride on our behalf, so that you have something to answer those who boast in appearance and not in heart. 
 If we are out of our minds, it is for God. If we are of sound mind, it is for you. 
-The love of Christ drives us on, because we have concluded this: one died for all, therefore all died. 
+The love of Christ drives us on, because we have concluded this: one died for all, all died. 
 He died for all, that those who live should no longer live to themselves, but to him who for their sakes died and rose again. 
 So we know no one according to the flesh from now on. Even though we have known Christ according to the flesh, yet now we know him so no more. 
 So if anyone is in Christ, they are a new creation. The old things have passed away. Look, all things have become new. 

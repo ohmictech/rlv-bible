@@ -15,7 +15,7 @@ What fell among the thorns, these are those who have heard, and as they go on th
 Those in the good ground, these are those who with an honest and good heart, having heard the word, hold on to it, and produce fruit with patience. 
 "No one who lights a lamp covers it with a container or puts it under a bed. He puts it on a stand, so that those who come in can see the light. 
 Nothing is hidden that will not be revealed, nor anything secret that will not be known and come to light. 
-Be careful therefore how you hear. Whoever has, more will be given to him; and whoever doesn't have, even that which he thinks he has will be taken away from him." 
+So be careful how you hear. Whoever has, more will be given to him; and whoever doesn't have, even that which he thinks he has will be taken away from him." 
 His mother and brothers came to him, and they could not come near him because of the crowd. 
 Someone told him, "Your mother and your brothers stand outside, wanting to see you." 
 But he answered them, "My mother and my brothers are those who hear the word of God and do it." 

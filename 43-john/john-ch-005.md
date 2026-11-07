@@ -16,7 +16,7 @@ The man went away, and told the Jewish leaders that it was Jesus who had made hi
 That is why the Jewish leaders began to hunt Jesus down and tried to kill him, because he did these things on the Sabbath. 
 But Jesus answered them, "My Father is still working, so I am working, too." 
 That is why the Jewish leaders sought all the more to kill him, because he not only broke the Sabbath, but also called God his own Father, making himself equal with God. 
-Jesus therefore answered them, "Truly I tell you, the Son can do nothing on his own, only what he sees the Father doing. Whatever the Father does, the Son does the same way. 
+Jesus answered them, "Truly I tell you, the Son can do nothing on his own, only what he sees the Father doing. Whatever the Father does, the Son does the same way. 
 The Father loves the Son and shows him everything he does. He will show him greater deeds than these, so that you will be amazed. 
 As the Father raises the dead and gives them life, so the Son also gives life to whomever he chooses. 
 The Father passes a verdict on no one, but he has given every verdict to the Son, 

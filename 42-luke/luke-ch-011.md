@@ -33,7 +33,7 @@ The men of Nineveh will stand up at the verdict with this generation, and will s
 "No one who lights a lamp puts it in a cellar or under a basket, but on a stand, so that those who come in may see the light. 
 The lamp of the body is the eye. So when your eye is good, your whole body is also full of light; but when it is malicious, your body also is full of darkness. 
 So see to it that the light in you isn't darkness. 
-If therefore your whole body is full of light, having no part dark, it will be wholly full of light, as when the lamp with its bright shining gives you light." 
+If your whole body is full of light, having no part dark, it will be wholly full of light, as when the lamp with its bright shining gives you light." 
 Now as he spoke, a certain strict religious man asked him to dine with him. He went in and sat at the table. 
 When the strict religious man saw it, he was amazed that he had not first immersed himself before dinner. 
 The Lord said to him, "Now you strict religious ones make clean the outside of the cup and of the dish, but your inside is full of robbery and malice. 

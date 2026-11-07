@@ -38,5 +38,5 @@ After this man, Judas of Galilee rose up in the days of the enrollment, and drew
 Now I tell you, withdraw from these men and leave them alone. If this counsel or this work is of people, it will be overthrown. 
 But if it is of God, you will not be able to overthrow it, and you would be found even to be fighting against God!" 
 They agreed with him. Summoning the sent ones, they beat them and commanded them not to speak in the name of Jesus, and let them go. 
-They therefore departed from the presence of the council, celebrating that they were counted worthy to suffer dishonor for Jesus' name. 
+They departed from the presence of the council, celebrating that they were counted worthy to suffer dishonor for Jesus' name. 
 Every day, in the temple courts and at home, they never stopped teaching and announcing the good news that Jesus is the Christ. 

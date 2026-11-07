@@ -35,9 +35,9 @@ that God has fulfilled this to us, their children, in that he raised up Jesus. A
 So he says also in another psalm, 'You will not allow your set-apart One to see decay.' 
 David, after he had in his own generation served the counsel of God, fell asleep, was laid with his fathers, and saw decay. 
 But he whom God raised up saw no decay. 
-Be it known to you therefore, brothers, that through this man is proclaimed to you release of mistakes; 
+Be it known to you, brothers, that through this man is proclaimed to you release of mistakes; 
 and by him everyone who trusts is made right from all things, from which you could not be made right by the law of Moses. 
-Beware therefore, that what is spoken in the spokesmen doesn't come on you: 
+Beware, that what is spoken in the spokesmen doesn't come on you: 
 'Look, you scoffers! Wonder and be destroyed, for I work a work in your days, a work which you will in no way trust, even if one declares it to you.'" 
 So when the Jewish people went out of the gathering place, the nations begged that these words would be told to them the next Sabbath. 
 Now when the gathering place broke up, many of the Jewish people and of the devout converts followed Paul and Barnabas; who, speaking to them, urged them to continue in the favor of God. 

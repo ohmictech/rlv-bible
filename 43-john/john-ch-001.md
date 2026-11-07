@@ -19,7 +19,7 @@ No one has seen God at any time. The one and only Son, who is at the Father's si
 This is John's testimony, when the Jewish leaders sent priests and Levites from Jerusalem to ask him, "Who are you?" 
 He declared it openly and didn't deny it: "I am not the Christ." 
 They asked him, "What then? Are you Elijah?" He said, "I am not." "Are you the Spokesman?" He answered, "No." 
-They said therefore to him, "Who are you? Give us an answer to take back to those who sent us. What do you say about yourself?" 
+They said to him, "Who are you? Give us an answer to take back to those who sent us. What do you say about yourself?" 
 He said, "I am the voice of one crying in the wilderness, 'Make straight the way of the Lord,' as Isaiah the spokesman said." 
 The ones who had been sent were from the strict religious ones. 
 They asked him, "Why then do you immerse if you are not the Christ, nor Elijah, nor the Spokesman?" 

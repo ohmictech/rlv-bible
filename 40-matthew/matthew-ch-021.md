@@ -37,7 +37,7 @@ Again, he sent other slaves, more than the first, and they treated them the same
 But afterward he sent to them his son, saying, 'They will respect my son.' 
 But the farmers, when they saw the son, said among themselves, 'This is the heir. Come, let's kill him and seize his inheritance.' 
 So they took him and threw him out of the vineyard, then killed him. 
-When therefore the lord of the vineyard comes, what will he do to those farmers?" 
+When the lord of the vineyard comes, what will he do to those farmers?" 
 They told him, "He will badly ruin those bad men, and will lease out the vineyard to other farmers who will give him the fruit in its season." 
 Jesus said to them, "Did you never read in the Scriptures, 'The stone which the builders rejected was made the cornerstone. This was from the Lord. It is amazing in our eyes'? 
 "That is why I tell you, God's reign will be taken away from you and will be given to a nation producing its fruit. 

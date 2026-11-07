@@ -6,7 +6,7 @@ Then Judas Iscariot, Simon's son, one of his students, who would hand him over, 
 Now he said this, not because he cared for the poor, but because he was a thief, and he used to steal what was put into the money box. 
 But Jesus said, "Leave her alone. She has kept this for the day of my burial. 
 You always have the poor with you, but you don't always have me." 
-A large crowd therefore of Jewish people learned that he was there; and they came, not for Jesus' sake only, but also to see Lazarus, whom he had raised from the dead. 
+A large crowd of Jewish people learned that he was there; and they came, not for Jesus' sake only, but also to see Lazarus, whom he had raised from the dead. 
 But the chief priests conspired to put Lazarus to death also, 
 because on account of him many of the Jewish people went away and trusted in Jesus. 
 On the next day a great crowd had come to the feast. When they heard that Jesus was coming to Jerusalem, 
@@ -14,9 +14,9 @@ they took the branches of the palm trees and went out to meet him, and cried out
 Jesus, having found a young donkey, sat on it. As it is written, 
 "Don't be afraid, daughter of Zion. Look, your King comes, sitting on a donkey's colt." 
 His students didn't understand these things at first, but when Jesus was honored, then they remembered that these things were written about him, and that they had done these things to him. 
-The crowd therefore that was with him when he called Lazarus out of the tomb and raised him from the dead was testifying about it. 
+The crowd that was with him when he called Lazarus out of the tomb and raised him from the dead was testifying about it. 
 That is why also the crowd went and met him, because they heard that he had done this sign. 
-The strict religious ones therefore said among themselves, "You can see you are getting nowhere. Look, the world has gone after him." 
+The strict religious ones said among themselves, "You can see you are getting nowhere. Look, the world has gone after him." 
 Now there were certain Greeks among those who went up to worship at the feast. 
 So, these came to Philip, who was from Bethsaida of Galilee, and asked him, saying, "Sir, we want to see Jesus." 
 Philip came and told Andrew, and in turn, Andrew came with Philip, and they told Jesus. 
@@ -32,7 +32,7 @@ Now is the verdict on this world. Now the ruler of this world will be cast out.
 And I, if I am lifted up from the earth, will draw everyone to myself." 
 But he said this, signifying by what kind of death he should die. 
 The crowd answered him, "We have heard out of the law that the Christ remains forever. How do you say, 'The Human One must be lifted up'? Who is this Human One?" 
-Jesus therefore said to them, "Yet a little while the light is with you. Walk while you have the light, so that darkness doesn't overtake you. Whoever walks in the darkness doesn't know where they are going. 
+Jesus said to them, "Yet a little while the light is with you. Walk while you have the light, so that darkness doesn't overtake you. Whoever walks in the darkness doesn't know where they are going. 
 While you have the light, trust in the light, that you may become children of light." Jesus said these things, and he departed and hid himself from them. 
 But though he had done so many signs before them, yet they didn't trust in him, 
 so that the word of Isaiah the spokesman would be fulfilled, which he spoke: "Lord, who has trusted our report? To whom has the arm of the Lord been revealed?" 
@@ -47,4 +47,4 @@ I have come as a light into the world, that whoever trusts in me may not remain 
 If anyone listens to my sayings and doesn't trust, I don't judge him. I came not to judge the world, but to make the world whole. 
 Whoever rejects me, and doesn't receive my sayings, has one who judges them. The word that I spoke will judge them in the last day. 
 I spoke not from myself, but the Father who sent me gave me a commandment, what I should say and what I should speak. 
-I know that his commandment is the real life of the era. The things therefore which I speak, even as the Father has said to me, so I speak." 
+I know that his commandment is the real life of the era. The things which I speak, even as the Father has said to me, so I speak." 

@@ -18,7 +18,7 @@ He was counted with us, and received his portion in this ministry.
 Now this man obtained a field with the earned result of his wrong; and falling headlong, his body burst open and all his insides gushed out. 
 It became known to everyone who lived in Jerusalem that in their language that field was called 'Akeldama,' that is, 'The field of blood.' 
 It is written in the book of Psalms, 'Let his habitation be made desolate. Let no one dwell in it;' and, 'Let another take his office.' 
-"Of the men therefore who have accompanied us all the time that the Lord Jesus went in and out among us, 
+"Of the men who have accompanied us all the time that the Lord Jesus went in and out among us, 
 beginning from the immersion of John to the day that he was received up from us, of these one must become a witness with us of his rising from the dead." 
 They put forward two: Joseph called Barsabbas, who was also called Justus, and Matthias. 
 They prayed and said, "You, Lord, who know the hearts of everyone, show which one of these two you have chosen 

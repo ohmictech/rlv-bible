@@ -1,8 +1,8 @@
-﻿Festus therefore, having come into the province, after three days went up to Jerusalem from Caesarea. 
+﻿Festus, having come into the province, after three days went up to Jerusalem from Caesarea. 
 Then the high priest and the principal men of the Jewish people informed him against Paul, and they begged him, 
 asking a favor against him, that he would summon him to Jerusalem, plotting to kill him on the way. 
 However Festus answered that Paul should be kept in custody at Caesarea, and that he himself was about to depart shortly. 
-"Let them therefore", he said, "that are in power among you go down with me, and if there is anything wrong in the man, let them accuse him." 
+"So", he said, "let those who are in power among you go down with me, and if there is anything wrong in the man, let them accuse him." 
 When he had stayed among them more than ten days, he went down to Caesarea, and on the next day he sat on the judge's seat, and commanded Paul to be brought. 
 When he had come, the Jewish people who had come down from Jerusalem stood around him, bringing against him many and grievous charges which they could not prove, 
 while he said in his defense, "Neither against the law of the Jewish people, nor against the temple courts, nor against Caesar, have I drifted at all." 
@@ -14,7 +14,7 @@ Now when some days had passed, King Agrippa and Bernice arrived at Caesarea and 
 As he stayed there many days, Festus laid Paul's case before the king, saying, "There is a certain man left a prisoner by Felix; 
 about whom, when I was at Jerusalem, the chief priests and the elders of the Jewish people informed me, asking for a sentence against him. 
 I answered them that it is not the custom of the Romans to hand any man over to be broken up before the accused has met the accusers face to face and has had opportunity to make his defense concerning the matter laid against him. 
-When therefore they had come together here, I didn't delay, but on the next day sat on the judge's seat and commanded the man to be brought. 
+When they had come together here, I didn't delay, but on the next day sat on the judge's seat and commanded the man to be brought. 
 When the accusers stood up, they brought no charges against him of such things as I supposed; 
 but had certain questions against him about their own way of worship and about one Jesus, who was dead, whom Paul claimed to be alive. 
 Being perplexed how to inquire concerning these things, I asked whether he was willing to go to Jerusalem and there be judged concerning these matters. 

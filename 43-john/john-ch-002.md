@@ -19,7 +19,7 @@ The Jewish leaders then answered him, "What sign do you show us, seeing that you
 Jesus answered them, "Tear down this temple, and in three days I will raise it up." 
 The Jewish leaders then said, "It took forty-six years to build this temple! Will you raise it up in three days?" 
 But he spoke of the temple of his body. 
-When therefore he was raised from the dead, his students remembered that he had said this, and they trusted the Scripture and the word which Jesus had said. 
+When he was raised from the dead, his students remembered that he had said this, and they trusted the Scripture and the word which Jesus had said. 
 Now when he was in Jerusalem at the Passover, during the feast, many trusted in his name, watching the signs which he did. 
 But Jesus didn't entrust himself to them, because he knew everyone, 
 and because he didn't need anyone to testify about people, for he himself knew what was inside a person. 

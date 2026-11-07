@@ -12,7 +12,7 @@ The following night, the Lord stood by him and said, "Cheer up, Paul, for as you
 When it was day, some of the Jewish leaders banded together and bound themselves under a curse, saying that they would neither eat nor drink until they had killed Paul. 
 There were more than forty people who had made this conspiracy. 
 They came to the chief priests and the elders, and said, "We have bound ourselves under a great curse to taste nothing until we have killed Paul. 
-Now therefore, you with the council inform the commanding officer that he should bring him down to you tomorrow, as though you were going to judge his case more exactly. We are ready to kill him before he comes near." 
+Now, you with the council inform the commanding officer that he should bring him down to you tomorrow, as though you were going to judge his case more exactly. We are ready to kill him before he comes near." 
 But Paul's sister's son heard they were lying in wait, and he came and entered into the barracks and told Paul. 
 Paul summoned one of the centurions and said, "Bring this young man to the commanding officer, for he has something to tell him." 
 So he took him and brought him to the commanding officer and said, "Paul, the prisoner, summoned me and asked me to bring this young man to you. He has something to tell you." 

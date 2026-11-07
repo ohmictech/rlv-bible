@@ -18,12 +18,12 @@ Indeed you bear the name of a Jew, rest on the law, boast in God,
 know his will, and approve the things that are excellent, being instructed out of the law, 
 and are confident that you yourself are a guide of the blind, a light to those who are in darkness, 
 a corrector of the foolish, a teacher of babies, having in the law the form of knowledge and of the truth. 
-You therefore who teach another, don't you teach yourself? You who tell others not to steal, do you steal? 
+You who teach another, don't you teach yourself? You who tell others not to steal, do you steal? 
 You who say a man shouldn't sleep around, do you sleep around? You who abhor idols, do you rob temples? 
 You who boast in the law, do you dishonor God by disobeying the law? 
 "the name of God is slandered among the nations because of you," just as it is written. 
 Circumcision indeed profits, if you are a doer of the law, but if you break the law, you might as well not be circumcised. 
-If therefore those who are not circumcised keep what the law rightly requires, won't their not being circumcised be counted as circumcision? 
+If those who are not circumcised keep what the law rightly requires, won't their not being circumcised be counted as circumcision? 
 Won't those who are physically uncircumcised, but fulfill the law, judge you, who with the letter and circumcision break the law? 
 He is not a Jew who is one outwardly, neither is that circumcision which is outward in the flesh; 
 but he is a Jew who is one inwardly, and circumcision is that of the heart, in the spirit, not in the letter; whose praise is not from men, but from God. 

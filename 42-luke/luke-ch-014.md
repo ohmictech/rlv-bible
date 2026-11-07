@@ -17,7 +17,7 @@ But he said to him, "A certain man made a great supper, and he invited many peop
 He sent out his slave at supper time to tell those who were invited, 'Come, for everything is ready now.' 
 They all as one began to make excuses. The first said to him, 'I have bought a field, and I must go and see it. Please have me excused.' 
 "Another said, 'I have bought five yoke of oxen, and I must go try them out. Please have me excused.' 
-"Another said, 'I have married a wife, and therefore I can't come.' 
+"Another said, 'I have married a wife, and so I can't come.' 
 "That slave came, and told his lord these things. Then the master of the house, being angry, said to his slave, 'Go out quickly into the streets and lanes of the city, and bring in the poor, maimed, blind, and lame.' 
 "The slave said, 'Lord, it is done as you commanded, and there is still room.' 
 "The lord said to the slave, 'Go out into the highways and hedges, and compel them to come in, that my house may be filled. 
@@ -30,6 +30,6 @@ Or perhaps, when he has laid a foundation and isn't able to finish, everyone who
 saying, 'This man began to build and wasn't able to finish.' 
 Or what king, as he goes to encounter another king in war, will not sit down first and consider whether he is able with ten thousand to meet him who comes against him with twenty thousand? 
 Or else, while the other is yet a great way off, he sends an envoy and asks for terms of wholeness. 
-So therefore, whoever of you doesn't renounce all that he has can't be my student. 
+So whoever of you doesn't renounce all that he has can't be my student. 
 "Salt is good, but if the salt becomes flat and tasteless, with what do you season it? 
 It is fit neither for the soil nor for the manure pile. It is thrown out. Whoever has ears to hear, let him hear." 

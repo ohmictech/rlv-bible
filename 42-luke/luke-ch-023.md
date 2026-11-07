@@ -13,13 +13,13 @@ Herod and Pilate became friends with each other that very day, for before that t
 Pilate called together the chief priests, the rulers, and the people, 
 and said to them, "You brought this man to me as one that perverts the people, and look, having examined him before you, I found no basis for a charge against this man concerning those things of which you accuse him. 
 Neither has Herod, for I sent you to him, and see, nothing worthy of death has been done by him. 
-I will therefore have him whipped and release him." 
+I will have him whipped and release him." 
 Now he had to release one prisoner to them at the feast. 
 But they all cried out together, saying, "Away with this man! Release to us Barabbas!" 
 one who was thrown into prison for a certain revolt in the city, and for murder. 
 Then Pilate spoke to them again, wanting to release Jesus, 
 but they shouted, saying, "Crucify! Crucify him!" 
-He said to them the third time, "Why? What bad thing has this man done? I have found no capital crime in him. I will therefore have him whipped and release him." 
+He said to them the third time, "Why? What bad thing has this man done? I have found no capital crime in him. I will have him whipped and release him." 
 But they were urgent with loud voices, demanding that he be crucified. Their voices and the voices of the chief priests prevailed. 
 Pilate decreed that what they asked for should be done. 
 He released him who had been thrown into prison for uprising and murder, for whom they asked, but he delivered Jesus up to their will. 

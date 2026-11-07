@@ -7,7 +7,7 @@ The sent ones and the elders were gathered together to see about this matter.
 When there had been much discussion, Peter rose up and said to them, "Brothers, you know that a good while ago God made a choice among you that by my mouth the nations should hear the word of the Good News and trust. 
 God, who knows the heart, testified about them, giving them the Holy Spirit, just like he did to us. 
 He made no distinction between us and them, cleansing their hearts by trust. 
-Now therefore why do you tempt God, that you should put a yoke on the neck of the students which neither our fathers nor we were able to bear? 
+Now why do you tempt God, that you should put a yoke on the neck of the students which neither our fathers nor we were able to bear? 
 But we trust that we are made whole through the gift of the Lord Jesus, just as they are." 
 All the crowd kept silence, and they listened to Barnabas and Paul reporting what signs and wonders God had done among the nations through them. 
 After they were silent, James answered, "Brothers, listen to me. 
@@ -24,7 +24,7 @@ They wrote these things by their hand: "The sent ones, the elders, and the broth
 Because we have heard that some who went out from us have troubled you with words, unsettling your lives, saying, 'You must be circumcised and keep the law,' to whom we gave no commandment; 
 it seemed good to us, having come to one accord, to choose out men and send them to you with Barnabas and Paul, whom we truly love, 
 men who have risked their lives for the name of our Lord Jesus Christ. 
-We have sent therefore Judas and Silas, who themselves will also tell you the same things by word of mouth. 
+We have sent Judas and Silas, who themselves will also tell you the same things by word of mouth. 
 It seemed good to the Holy Spirit, and to us, to lay no greater burden on you than these necessary things: 
 that you abstain from food sacrificed to idols, from blood, from things strangled, and from sleeping around. If you keep yourselves from these, it will be well with you. Farewell." 
 So, when they were sent off, they came to Antioch. Having gathered the crowd together, they delivered the letter. 

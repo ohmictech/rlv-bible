@@ -8,7 +8,7 @@ When they had come opposite Mysia, they tried to go into Bithynia, but the Spiri
 Passing by Mysia, they came down to Troas. 
 A vision appeared to Paul in the night. There was a man of Macedonia standing, begging him and saying, "Come over into Macedonia and help us." 
 When he had seen the vision, immediately we sought to go out to Macedonia, concluding that the Lord had called us to announce the Good News to them. 
-Setting sail therefore from Troas, we made a straight course to Samothrace, and the day following to Neapolis; 
+Setting sail from Troas, we made a straight course to Samothrace, and the day following to Neapolis; 
 and from there to Philippi, which is a city of Macedonia, the foremost of the district, a Roman colony. We were staying some days in this city. 
 On the Sabbath day we went outside of the city by a riverside, where we supposed there was a place of prayer, and we sat down and spoke to the women who had come together. 
 A certain woman named Lydia, a seller of purple, of the city of Thyatira, one who worshiped God, heard us. The Lord opened her heart to listen to the things which were spoken by Paul. 
@@ -33,7 +33,7 @@ They spoke the word of the Lord to him, and to everyone who was in his house.
 He took them the same hour of the night and washed their stripes, and was immediately immersed, he and all his household. 
 He brought them up into his house and set food before them, and celebrated greatly with all his household, having trusted in God. 
 But when it was day, the magistrates sent the sergeants, saying, "Let those men go." 
-The jailer reported these words to Paul, saying, "The magistrates have sent to let you go; now therefore come out and go in wholeness." 
+The jailer reported these words to Paul, saying, "The magistrates have sent to let you go; now come out and go in wholeness." 
 But Paul said to them, "They have beaten us publicly without a trial, men who are Romans, and have cast us into prison! Do they now release us secretly? No, indeed not! Let them come themselves and bring us out!" 
 The sergeants reported these words to the magistrates, and they were afraid when they heard that they were Romans, 
 and they came and begged them. When they had brought them out, they asked them to depart from the city. 

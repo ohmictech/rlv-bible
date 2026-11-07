@@ -25,7 +25,7 @@ being made right freely by his favor through the setting free that is in Christ 
 whom God sent to be a mercy seat through trust in his blood, for a demonstration of his rightness through the overlooking of prior mistakes, in God's forbearance; 
 to demonstrate his rightness at this present time, so that he would himself be right and the one who makes right the person who has trust in Jesus. 
 Where then is the boasting? It is excluded. By what kind of law? Of deeds? No, but by a law of trust. 
-We maintain therefore that a man is made right by trust apart from the deeds of the law. 
+We maintain that a man is made right by trust apart from the deeds of the law. 
 Or is God the God of Jewish people only? Isn't he the God of the nations also? Yes, of the nations also, 
 since indeed there is one God who will make right the circumcised by trust and the uncircumcised through trust. 
 Do we then nullify the law through trust? May it never be! No, we establish the law. 

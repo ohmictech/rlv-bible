@@ -8,7 +8,7 @@ Jesus answered him, "You don't know what I am doing now, but you will understand
 Peter said to him, "You will never wash my feet!" Jesus answered him, "If I don't wash you, you have no part with me." 
 Simon Peter said to him, "Lord, not my feet only, but also my hands and my head!" 
 Jesus said to him, "Someone who has bathed only needs to have his feet washed, but is completely clean. You are clean, but not all of you." 
-He knew him who would hand him over; therefore he said, "You are not all clean." 
+He knew him who would hand him over; he said, "You are not all clean." 
 So when he had washed their feet, put his outer garment back on, and sat down again, he said to them, "Do you know what I have done to you? 
 You call me, 'Teacher' and 'Lord.' You say so correctly, for so I am. 
 If I then, the Lord and the Teacher, have washed your feet, you also ought to wash one another's feet. 
@@ -21,9 +21,9 @@ Truly I tell you, whoever receives whomever I send receives me; and whoever rece
 When Jesus had said this, he was troubled in spirit, and testified, "Truly I tell you that one of you will hand me over." 
 The students looked at one another, puzzled about whom he meant. 
 One of his students, whom Jesus loved, was at the table, leaning against Jesus' chest. 
-Simon Peter therefore beckoned to him, and said to him, "Tell us who it is of whom he speaks." 
+Simon Peter beckoned to him, and said to him, "Tell us who it is of whom he speaks." 
 He leaned back against Jesus' chest and asked him, "Lord, who is it?" 
-Jesus therefore answered, "It is he to whom I will give this piece of bread when I have dipped it." So when he had dipped the piece of bread, he gave it to Judas, the son of Simon Iscariot. 
+Jesus answered, "It is he to whom I will give this piece of bread when I have dipped it." So when he had dipped the piece of bread, he gave it to Judas, the son of Simon Iscariot. 
 After the piece of bread, then the Adversary entered into him. Then Jesus said to him, "What you do, do quickly." 
 Now nobody at the table knew why he said this to him. 
 Some thought, because Judas had the money box, that Jesus said to him, "Buy what things we need for the feast," or that he should give something to the poor. 

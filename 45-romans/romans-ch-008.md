@@ -1,4 +1,4 @@
-﻿There is therefore now no sentence for those who are in Christ Jesus, who don't walk according to the flesh, but according to the Spirit. 
+﻿There is now no sentence for those who are in Christ Jesus, who don't walk according to the flesh, but according to the Spirit. 
 The law of the Spirit of real life in Christ Jesus made me free from the law of the drift and of death. 
 What the law could not do, because it was weak through the flesh, God did: he sent his own Son in the likeness of our drift-prone flesh, and, to deal with the drift, he passed sentence on it in the flesh, 
 so that the ordinance of the law would be fulfilled in us who don't walk according to the flesh, but according to the Spirit. 

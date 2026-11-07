@@ -12,7 +12,7 @@ He sent yet another slave, and they also beat him and humiliated him, and sent h
 He sent yet a third, and they also wounded him and threw him out. 
 The lord of the vineyard said, 'What should I do? I will send my son, whom I truly love. It may be that seeing him, they will respect him.' 
 "But when the farmers saw him, they reasoned among themselves, saying, 'This is the heir. Come, let's kill him, that the inheritance may be ours.' 
-Then they threw him out of the vineyard and killed him. What therefore will the lord of the vineyard do to them? 
+Then they threw him out of the vineyard and killed him. What will the lord of the vineyard do to them? 
 He will come and ruin these farmers, and will give the vineyard to others." When they heard that, they said, "May that never be!" 
 But he looked at them and said, "Then what is this that is written, 'The stone which the builders rejected was made the chief cornerstone'? 
 Everyone who falls on that stone will be broken to pieces, but it will crush whomever it falls on to dust." 
@@ -26,7 +26,7 @@ He said to them, "Then give to Caesar the things that are Caesar's, and to God t
 They weren't able to trap him in his words before the people. They were amazed at his answer and were silent. 
 Some of the religious elite came to him, those who deny that there is a rising from the dead. 
 They asked him, "Teacher, Moses wrote to us that if a man's brother dies having a wife, and he is childless, his brother should take the wife and raise up children for his brother. 
-There were therefore seven brothers. The first took a wife, and died childless. 
+There were seven brothers. The first took a wife, and died childless. 
 The second took her as wife, and he died childless. 
 The third took her, and likewise the seven all left no children, and died. 
 Afterward the woman also died. 
@@ -41,7 +41,7 @@ They didn't dare to ask him any more questions.
 He said to them, "Why do they say that the Christ is David's son? 
 David himself says in the book of Psalms, 'The Lord said to my Lord, "Sit at my right hand, 
 until I make your enemies the footstool of your feet."' 
-"David therefore calls him Lord, so how is he his son?" 
+"David calls him Lord, so how is he his son?" 
 In the hearing of everyone, he said to his students, 
 "Watch out for those Bible teachers who like to walk in long robes, and love greetings in the marketplaces, the best seats in the gathering places, and the best places at dinners; 
 who eat up widows' houses, and for a pretense make long prayers. These will receive a heavier verdict." 

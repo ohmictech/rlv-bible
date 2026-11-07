@@ -20,7 +20,7 @@ However, in the gathering I would rather speak five words with my understanding,
 Brothers, don't be children in your thinking. Be babies when it comes to ill will, but be grown up in your thinking. 
 In the law it is written, "By men of strange languages and by the lips of strangers I will speak to this people. They won't even listen to me that way, says the Lord." 
 So other languages are a sign, not for those who trust but for those who don't; but speaking for God is a sign, not for those who don't trust but for those who do. 
-If therefore the whole gathering comes together and all speak with other languages, and outsiders or people who don't trust come in, won't they say you are crazy? 
+If the whole gathering comes together and all speak with other languages, and outsiders or people who don't trust come in, won't they say you are crazy? 
 But if all speak for God, and someone who doesn't trust or an outsider comes in, he is shown his fault by all, and he is judged by all. 
 And so the secrets of his heart are laid bare. Then he will fall on his face and bow down to God, declaring that God is really among you. 
 What is it then, brothers? When you come together, each one of you has a song, has a teaching, has an unveiling, has another language, or has an interpretation. Let everything be done to build each other up. 

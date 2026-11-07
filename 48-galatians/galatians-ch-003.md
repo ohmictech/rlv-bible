@@ -4,7 +4,7 @@ Are you so foolish? Having begun in the Spirit, are you now completed in the fle
 Did you suffer so many things for nothing, if it really was for nothing? 
 So does the one who supplies the Spirit to you and does powerful works among you do it by deeds of the law, or by hearing with trust? 
 Even so, Abraham "trusted God, and it was counted to him as rightness." 
-Know therefore that those who are of trust are children of Abraham. 
+Know that those who are of trust are children of Abraham. 
 The Scripture, foreseeing that God would make the nations right by trust, announced the Good News beforehand to Abraham, saying, "All the nations will be blessed in you." 
 So those who are of trust are blessed along with Abraham, who trusted. 
 As many as are of the deeds of the law are under a curse. It is written, "Everyone who doesn't keep to everything written in the book of the law, to do it, is cursed." 

@@ -3,10 +3,10 @@
 he left Judea and departed into Galilee. 
 He needed to pass through Samaria. 
 So he came to a city of Samaria called Sychar, near the parcel of ground that Jacob gave to his son Joseph. 
-Jacob's well was there. Jesus therefore, being tired from his journey, sat down by the well. It was about noon. 
+Jacob's well was there. Jesus, being tired from his journey, sat down by the well. It was about noon. 
 A woman of Samaria came to draw water. Jesus said to her, "Give me a drink." 
 His students had gone away into the city to buy food. 
-The Samaritan woman therefore said to him, "How is it that you, being a Jew, ask for a drink from me, a Samaritan woman?" (For Jews have no dealings with Samaritans.) 
+The Samaritan woman said to him, "How is it that you, being a Jew, ask for a drink from me, a Samaritan woman?" (For Jews have no dealings with Samaritans.) 
 Jesus answered her, "If you knew the gift of God, and who it is who says to you, 'Give me a drink,' you would have asked him, and he would have given you living water." 
 The woman said to him, "Sir, you have nothing to draw with, and the well is deep. So where do you get that living water? 
 Are you greater than our father Jacob, who gave us the well and drank from it himself, as did his children and his livestock?" 
@@ -30,7 +30,7 @@ So the woman left her water pot, went away into the city, and said to the people
 They went out of the city, and were coming to him. 
 In the meanwhile, his students urged him, saying, "Rabbi, eat." 
 But he said to them, "I have food to eat that you don't know about." 
-The students therefore said to one another, "Has anyone brought him something to eat?" 
+The students said to one another, "Has anyone brought him something to eat?" 
 Jesus said to them, "My food is to do the will of him who sent me and to finish his work. 
 Don't you say, 'There are yet four months until the harvest'? Look, I tell you, lift up your eyes and look at the fields: they are already ripe for harvest. 
 The one who reaps earns wages and gathers fruit for the real life of the era, so that the one who sows and the one who reaps may celebrate together. 
@@ -43,12 +43,12 @@ They said to the woman, "Now we trust, not because of your speaking; for we have
 After the two days he went out from there and went into Galilee. 
 Jesus himself testified that a spokesman has no honor in his own hometown. 
 So when he came into Galilee, the Galileans welcomed him, having seen all the things that he did in Jerusalem at the feast, for they also went to the feast. 
-Jesus came therefore again to Cana of Galilee, where he made the water into wine. There was a certain royal official whose son was sick at Capernaum. 
+Jesus came again to Cana of Galilee, where he made the water into wine. There was a certain royal official whose son was sick at Capernaum. 
 When he heard that Jesus had come out of Judea into Galilee, he went to him and begged him to come down and heal his son, for he was at the point of death. 
-Jesus therefore said to him, "Unless you people see signs and wonders, you will never trust." 
+Jesus said to him, "Unless you people see signs and wonders, you will never trust." 
 The royal official said to him, "Sir, come down before my child dies." 
 Jesus said to him, "Go your way. Your son lives." The man trusted the word that Jesus spoke to him, and he went his way. 
 As he was going down, his servants met him and reported, saying, "Your child lives!" 
-So he asked them what time it was when he began to get better. They said therefore to him, "Yesterday at one in the afternoon, the fever left him." 
+So he asked them what time it was when he began to get better. They said to him, "Yesterday at one in the afternoon, the fever left him." 
 So the father knew that it was at that time in which Jesus said to him, "Your son lives." He trusted, as did his whole house. 
 This is again the second sign that Jesus did, having come out of Judea into Galilee. 

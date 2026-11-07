@@ -12,10 +12,10 @@ about the verdict, because the ruler of this world has been judged.
 "I still have many things to tell you, but you can't bear them now. 
 However, when he, the Spirit of truth, has come, he will guide you into all truth, for he will not speak from himself; but whatever he hears, he will speak. He will tell you things that are coming. 
 He will give me weight, for he will take from what is mine and will tell it to you. 
-All things that the Father has are mine; therefore I said that he takes of mine and will tell it to you. 
+All things that the Father has are mine; I said that he takes of mine and will tell it to you. 
 "A little while, and you will not see me. Again a little while, and you will see me." 
-Some of his students therefore said to one another, "What is this that he says to us, 'A little while, and you won't see me, and again a little while, and you will see me,' and, 'Because I go to the Father'?" 
-They said therefore, "What is this that he says, 'A little while'? We don't know what he is saying." 
+Some of his students said to one another, "What is this that he says to us, 'A little while, and you won't see me, and again a little while, and you will see me,' and, 'Because I go to the Father'?" 
+They said, "What is this that he says, 'A little while'? We don't know what he is saying." 
 So Jesus perceived that they wanted to ask him, and he said to them, "Do you inquire among yourselves concerning this, that I said, 'A little while, and you won't see me, and again a little while, and you will see me'? 
 Truly I tell you that you will weep and lament, but the world will celebrate. You will be sorrowful, but your sorrow will be turned into joy. 
 A woman, when she gives birth, has sorrow because her time has come. But when she has delivered the child, she doesn't remember the anguish any more, for the joy that a human being is born into the world. 

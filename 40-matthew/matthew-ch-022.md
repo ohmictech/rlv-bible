@@ -14,11 +14,11 @@ Then the king said to his slaves, 'Tie him hand and foot, take him away, and thr
 Many are called, but few chosen." 
 Then the strict religious ones went and made plans how they could trap him in his words. 
 They sent their students to him, along with the Herodians, saying, "Teacher, we know that you are truthful, and teach the way of God in truth, no matter whom you teach, for you don't play favorites. 
-Tell us therefore, what do you think? Is it allowed to pay taxes to Caesar, or not?" 
+So tell us, what do you think? Is it allowed to pay taxes to Caesar, or not?" 
 But Jesus perceived their malice, and said, "Why do you test me, you pretenders? 
 Show me the tax money." They brought to him a silver coin. 
 He asked them, "Whose is this image and inscription?" 
-They said to him, "Caesar's." Then he said to them, "Give therefore to Caesar the things that are Caesar's, and to God the things that are God's." 
+They said to him, "Caesar's." Then he said to them, "So give to Caesar the things that are Caesar's, and to God the things that are God's." 
 When they heard it, they were amazed, and left him and went away. 
 On that day some of the religious elite (those who say that there is no rising again) came to him. They asked him, 
 saying, "Teacher, Moses said, 'If a man dies, having no children, his brother shall marry his wife and raise up offspring for his brother.' 

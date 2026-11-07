@@ -16,7 +16,7 @@ Greet Philologus and Julia, Nereus and his sister, and Olympas, and all the set-
 Greet one another with a set-apart kiss. The gatherings of Christ greet you. 
 Now I beg you, brothers, look out for those who are causing the divisions and the traps, contrary to the teaching which you learned, and turn away from them. 
 Those who are such don't serve our Lord Jesus Christ, but their own belly; and by their smooth and flattering speech they deceive the hearts of the innocent. 
-Your obedience has become known to all. I celebrate therefore over you. But I desire to have you wise in that which is good, but innocent in what is bad. 
+Your obedience has become known to all. I celebrate over you. But I desire to have you wise in that which is good, but innocent in what is bad. 
 And the God of wholeness will quickly crush the Adversary under your feet. The favor of our Lord Jesus Christ be with you. 
 Timothy, my fellow worker, greets you, as do Lucius, Jason, and Sosipater, my relatives. 
 I, Tertius, who write the letter, greet you in the Lord. 

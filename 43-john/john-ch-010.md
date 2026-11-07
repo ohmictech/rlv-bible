@@ -4,7 +4,7 @@ The gatekeeper opens the gate for him, and the sheep listen to his voice. He cal
 Whenever he brings out his own sheep, he goes before them; and the sheep follow him, for they know his voice. 
 They will by no means follow a stranger, but will flee from him; for they don't know the voice of strangers." 
 Jesus spoke this story to them, but they didn't understand what he was telling them. 
-Jesus therefore said to them again, "Truly I tell you, I am the sheep's door. 
+Jesus said to them again, "Truly I tell you, I am the sheep's door. 
 Everyone who came before me are thieves and robbers, but the sheep didn't listen to them. 
 I am the door. If anyone enters in by me, they will be made whole, and will go in and go out and will find pasture. 
 The thief only comes to steal, kill, and ruin. I came that they may have life, and may have it overflowing. 
@@ -21,7 +21,7 @@ Many of them said, "He has an unclean spirit and is out of his mind! Why do you 
 Others said, "These are not the sayings of one with an unclean spirit. It isn't possible for an unclean spirit to open the eyes of the blind, is it?" 
 It was the Feast of the Dedication at Jerusalem. 
 It was winter, and Jesus was walking in the temple courts, in Solomon's covered walkway. 
-The Jewish leaders therefore came around him and said to him, "How long will you hold us in suspense? If you are the Christ, tell us plainly." 
+The Jewish leaders came around him and said to him, "How long will you hold us in suspense? If you are the Christ, tell us plainly." 
 Jesus answered them, "I told you, and you don't trust. The deeds that I do in my Father's name, these testify about me. 
 But you don't trust, because you are not of my sheep, as I told you. 
 My sheep hear my voice, and I know them, and they follow me. 

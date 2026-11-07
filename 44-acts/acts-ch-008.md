@@ -19,10 +19,10 @@ Now when Simon saw that the Holy Spirit was given through the laying on of the s
 saying, "Give me also this power, that whomever I lay my hands on may receive the Holy Spirit." 
 But Peter said to him, "May your silver be destroyed with you, because you thought you could obtain the gift of God with money! 
 You have neither part nor lot in this matter, for your heart isn't right before God. 
-Have a change of heart therefore about this ill will of yours, and ask God if perhaps the thought of your heart may be released to you. 
+Have a change of heart about this ill will of yours, and ask God if perhaps the thought of your heart may be released to you. 
 I see that you are in the poison of bitterness and bound by wrong." 
 Simon answered, "Pray for me to the Lord, that none of the things which you have spoken happen to me." 
-They therefore, when they had testified and spoken the word of the Lord, returned to Jerusalem, and announced the Good News to many villages of the Samaritans. 
+They, when they had testified and spoken the word of the Lord, returned to Jerusalem, and announced the Good News to many villages of the Samaritans. 
 Then a messenger of the Lord spoke to Philip, saying, "Get up and go toward the south to the way that goes down from Jerusalem to Gaza. This is a desert." 
 He arose and went; and look, there was a man of Ethiopia, a eunuch of great authority under Candace, queen of the Ethiopians, who was over all her treasure, who had come to Jerusalem to worship. 
 He was returning and sitting in his chariot, and was reading the spokesman Isaiah. 

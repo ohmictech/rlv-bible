@@ -9,7 +9,7 @@ The crowd and the rulers of the city were troubled when they heard these things.
 When they had taken security from Jason and the rest, they let them go. 
 The brothers immediately sent Paul and Silas away by night to Beroea. When they arrived, they went into the Jewish gathering place. 
 Now these were more noble than those in Thessalonica, in that they received the word with all readiness of mind, examining the Scriptures daily to see whether these things were so. 
-Many of them therefore trusted; also of the prominent Greek women, and not a few men. 
+Many of them trusted; also of the prominent Greek women, and not a few men. 
 But when the Jewish people of Thessalonica had knowledge that the word of God was announced by Paul at Beroea also, they came there likewise, agitating the crowds. 
 Then the brothers immediately sent out Paul to go as far as to the sea, and Silas and Timothy still stayed there. 
 But those who escorted Paul brought him as far as Athens. Receiving a commandment to Silas and Timothy that they should come to him very quickly, they departed. 
@@ -17,17 +17,17 @@ Now while Paul waited for them at Athens, his spirit was provoked within him as 
 So he reasoned in the gathering place with the Jewish people and the devout persons, and in the marketplace every day with those who met him. 
 Some of the Epicurean and Stoic philosophers also were conversing with him. Some said, "What does this babbler want to say?" Others said, "He seems to be advocating foreign deities," because he announced Jesus and the rising from the dead. 
 They took hold of him and brought him to the Areopagus, saying, "May we know what this new teaching is, which you are speaking about? 
-You bring certain strange things to our ears. We want to know therefore what these things mean." 
+You bring certain strange things to our ears. We want to know what these things mean." 
 Now all the Athenians and the strangers living there spent their time in nothing else, but either to tell or to hear some new thing. 
 Paul stood in the middle of the Areopagus and said, "You men of Athens, I perceive that you are very religious in all things. 
-As I passed along and observed the objects of your worship, I also found an altar with this inscription: 'TO AN UNKNOWN GOD.' What therefore you worship in ignorance, I announce to you. 
+As I passed along and observed the objects of your worship, I also found an altar with this inscription: 'TO AN UNKNOWN GOD.' What you worship in ignorance, I announce to you. 
 The God who made the world and all things in it, he, being Lord of the sky and the land, doesn't dwell in temples made with hands. 
 He isn't served by men's hands, as though he needed anything, seeing he himself gives to all life and breath and all things. 
 He made from one blood every nation of people to dwell on all the surface of the land, having determined appointed seasons and the boundaries of their dwellings, 
 that they should seek the Lord, if perhaps they could reach out for him and find him, though he is not far from each one of us. 
 'For in him we live, move, and have our being.' As some of your own poets have said, 'For we are also his offspring.' 
 Being then the offspring of God, we ought not to think that the Divine Nature is like gold, or silver, or stone, engraved by art and design of man. 
-The times of ignorance therefore God overlooked. But now he commands that everyone everywhere should have a change of heart, 
+The times of ignorance God overlooked. But now he commands that everyone everywhere should have a change of heart, 
 because he has appointed a day in which he will judge the world in rightness by the man whom he has ordained; of which he has given assurance to everyone, in that he has raised him from the dead." 
 Now when they heard of the rising of the dead, some mocked; but others said, "We want to hear you again concerning this." 
 Thus Paul went out from among them. 

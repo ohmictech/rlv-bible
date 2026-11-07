@@ -39,7 +39,7 @@ Standing behind at his feet crying, she began to wet his feet with her tears, an
 Now when the strict religious man who had invited him saw it, he said to himself, "This man, if he were a spokesman, would have perceived who and what kind of woman this is who touches him, that she drifts." 
 Jesus answered him, "Simon, I have something to say to you." He said, "Teacher, say on." 
 "A certain lender had two debtors. The one owed five hundred silver coins, and the other fifty. 
-When they couldn't pay, he released them both. Which of them therefore will love him most?" 
+When they couldn't pay, he released them both. Which of them will love him most?" 
 Simon answered, "The one, I suppose, to whom he released the most." He said to him, "You have judged correctly." 
 Turning to the woman, he said to Simon, "Do you see this woman? I entered into your house, and you gave me no water for my feet, but she has wet my feet with her tears, and wiped them with the hair of her head. 
 You gave me no kiss, but she, since the time I came in, has not ceased to kiss my feet. 

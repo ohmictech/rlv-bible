@@ -35,4 +35,4 @@ But the strict religious ones said, "By the ruler of the unclean spirits, he dri
 Jesus went about all the cities and the villages, teaching in their gathering places and preaching the good news of the reign, and healing every disease and every sickness among the people. 
 But when he saw the crowds, he was moved with deep compassion for them, because they were harassed and scattered, like sheep without a shepherd. 
 Then he said to his students, "The harvest indeed is plentiful, but the workers are few. 
-Pray therefore that the Lord of the harvest will send out workers into his harvest." 
+So pray that the Lord of the harvest will send out workers into his harvest." 

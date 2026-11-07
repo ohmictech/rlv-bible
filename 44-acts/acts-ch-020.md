@@ -25,7 +25,7 @@ But these things don't count; nor do I hold my life dear to myself, so that I ma
 "Now, look, I know that you all, among whom I went about announcing God's reign, will see my face no more. 
 So I testify to you today that I am clean from the blood of everyone, 
 for I didn't shrink from declaring to you the whole counsel of God. 
-Take heed, therefore, to yourselves and to all the flock, in which the Holy Spirit has made you overseers, to shepherd the gathering of the Lord and God which he purchased with his own blood. 
+Take heed, to yourselves and to all the flock, in which the Holy Spirit has made you overseers, to shepherd the gathering of the Lord and God which he purchased with his own blood. 
 I know that after my departure, vicious wolves will enter in among you, not sparing the flock. 
 Men will arise from among your own selves, speaking perverse things, to draw away the students after them. 
 So watch, remembering that for a period of three years I didn't cease to admonish everyone night and day with tears. 

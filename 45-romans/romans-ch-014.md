@@ -5,7 +5,7 @@ Who are you who judge another's servant? To his own lord he stands or falls. Yes
 One person esteems one day as more important. Another esteems every day alike. Let each person be fully assured in their own mind. 
 He who observes the day, observes it to the Lord; and he who does not observe the day, to the Lord he does not observe it. He who eats, eats to the Lord, for he gives God thanks. He who doesn't eat, to the Lord he doesn't eat, and gives God thanks. 
 None of us lives to himself, and none dies to himself. 
-If we live, we live to the Lord. Or if we die, we die to the Lord. If therefore we live or die, we are the Lord's. 
+If we live, we live to the Lord. Or if we die, we die to the Lord. If we live or die, we are the Lord's. 
 To this end Christ died, rose, and lived again, so that he would be Lord of both the dead and the living. 
 But you, why do you judge your brother? Or you again, why do you despise your brother? We will all stand before the judge's seat of Christ. 
 It is written, "'As I live,' says the Lord, 'to me every knee will bow. Every tongue will confess to God.'" 

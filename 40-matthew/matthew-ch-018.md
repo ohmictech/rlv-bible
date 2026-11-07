@@ -1,7 +1,7 @@
 ﻿In that hour the students came to Jesus, saying, "Who then is greatest in the reign of the sky?" 
 Jesus called a little child to himself, and set him in the middle of them 
 and said, "Truly I tell you, unless you turn and become like little children, you will in no way enter into the reign of the sky. 
-Whoever therefore humbles himself like this little child is the greatest in the reign of the sky. 
+Whoever humbles himself like this little child is the greatest in the reign of the sky. 
 Whoever receives one such little child in my name receives me, 
 but whoever traps one of these little ones who trust in me would be better off to have a heavy millstone hung around his neck and be drowned in the depths of the sea. 
 "How terrible for the world because of traps! It must be that the traps come, but how terrible for the person through whom the trap comes! 
@@ -23,7 +23,7 @@ Jesus said to him, "I don't tell you up to seven times, but up to seventy times 
 So the reign of the sky is like a certain king who wanted to settle accounts with his slaves. 
 When he had begun to settle, one was brought to him who owed him ten thousand bags of silver. 
 But because he couldn't pay, his lord commanded him to be sold, with his wife, his children, and all that he had, and payment to be made. 
-The slave therefore fell down and knelt before him, saying, 'Lord, have patience with me, and I will pay you back all of it!' 
+The slave fell down and knelt before him, saying, 'Lord, have patience with me, and I will pay you back all of it!' 
 The lord of that slave, moved with deep compassion, released him and let the debt go. 
 "But that slave went out and found one of his fellow slaves who owed him a hundred silver coins, and he grabbed him and took him by the throat, saying, 'Pay me what you owe!' 
 "So his fellow slave fell down at his feet and begged him, saying, 'Have patience with me, and I will pay you back!' 

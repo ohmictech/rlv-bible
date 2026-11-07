@@ -17,7 +17,7 @@ How terrible for you, Bible teachers and strict religious ones, pretenders! You 
 You blind fools! Which is greater, the gold or the temple that makes the gold set apart? 
 And, 'Whoever swears by the altar, it means nothing, but whoever swears by the gift that is on it is bound by it.' 
 You blind fools! Which is greater, the gift, or the altar that makes the gift set apart? 
-He therefore who swears by the altar, swears by it and by everything on it. 
+He who swears by the altar, swears by it and by everything on it. 
 He who swears by the temple, swears by it and by the one who lives in it. 
 He who swears by the sky, swears by the throne of God and by the one who sits on it. 
 "How terrible for you, Bible teachers and strict religious ones, pretenders! You give a tenth of mint, dill, and cumin, have left the heavier matters of the law undone: right judgment, mercy, and trust. You should have done these without leaving the others undone. 

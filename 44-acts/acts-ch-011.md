@@ -16,7 +16,7 @@ As I began to speak, the Holy Spirit fell on them, even as on us at the beginnin
 I remembered the word of the Lord, how he said, 'John indeed immersed in water, but you will be immersed in the Holy Spirit.' 
 If then God gave to them the same gift as us when we trusted in the Lord Jesus Christ, who was I, that I could withstand God?" 
 When they heard these things, they quieted down and gave honor to God, saying, "Then God has also granted to the nations a change of heart that leads to life!" 
-They therefore who were scattered abroad by the oppression that arose about Stephen traveled as far as Phoenicia, Cyprus, and Antioch, speaking the word to no one except Jewish people. 
+They who were scattered abroad by the oppression that arose about Stephen traveled as far as Phoenicia, Cyprus, and Antioch, speaking the word to no one except Jewish people. 
 But there were some of them, men of Cyprus and Cyrene, who, when they had come to Antioch, spoke to the Greek-speaking Jews, announcing the Good News about the Lord Jesus. 
 The hand of the Lord was with them, and a great number trusted and turned to the Lord. 
 The report concerning them came to the ears of the gathering which was in Jerusalem. They sent out Barnabas to go as far as Antioch, 

@@ -16,13 +16,13 @@ Jesus said to her, "Woman, why are you weeping? Who are you looking for?" She, s
 Jesus said to her, "Mary." She turned and said to him, "Rabboni!" which is to say, "Teacher!" 
 Jesus said to her, "Don't hold on to me, for I haven't yet ascended to my Father; but go to my brothers and tell them, 'I am ascending to my Father and your Father, to my God and your God.'" 
 Mary Magdalene came and told the students that she had seen the Lord, and that he had said these things to her. 
-When therefore it was evening on that day, the first day of the week, and when the doors were locked where the students were assembled, for fear of the Jewish leaders, Jesus came and stood in the middle and said to them, "Wholeness be to you." 
-When he had said this, he showed them his hands and his side. The students therefore were glad when they saw the Lord. 
-Jesus therefore said to them again, "Wholeness be to you. As the Father has sent me, even so I send you." 
+When it was evening on that day, the first day of the week, and when the doors were locked where the students were assembled, for fear of the Jewish leaders, Jesus came and stood in the middle and said to them, "Wholeness be to you." 
+When he had said this, he showed them his hands and his side. The students were glad when they saw the Lord. 
+Jesus said to them again, "Wholeness be to you. As the Father has sent me, even so I send you." 
 When he had said this, he breathed on them, and said to them, "Receive the Holy Spirit! 
 If you release anyone's mistakes, they are released. If you hold on to anyone's mistakes, they are held." 
 But Thomas, one of the twelve, called Didymus, wasn't with them when Jesus came. 
-The other students therefore said to him, "We have seen the Lord!" But he said to them, "Unless I see in his hands the print of the nails, put my finger into the print of the nails, and put my hand into his side, I will not trust." 
+The other students said to him, "We have seen the Lord!" But he said to them, "Unless I see in his hands the print of the nails, put my finger into the print of the nails, and put my hand into his side, I will not trust." 
 After eight days, again his students were inside and Thomas was with them. Jesus came, the doors being locked, and stood in the middle, and said, "Wholeness be to you." 
 Then he said to Thomas, "Reach here your finger, and see my hands. Reach here your hand, and put it into my side. Stop doubting, and trust." 
 Thomas answered him, "My Lord and my God!" 

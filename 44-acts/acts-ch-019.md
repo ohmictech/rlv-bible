@@ -29,13 +29,13 @@ When they heard this they flared up and cried out, saying, "Great is Artemis of 
 The whole city was filled with confusion, and they rushed with one accord into the theater, having seized Gaius and Aristarchus, men of Macedonia, Paul's companions in travel. 
 When Paul wanted to enter in to the people, the students didn't allow him. 
 Certain also of the Asiarchs, being his friends, sent to him and begged him not to venture into the theater. 
-Some therefore cried one thing, and some another, for the gathering was in confusion. Most of them didn't know why they had come together. 
+Some cried one thing, and some another, for the gathering was in confusion. Most of them didn't know why they had come together. 
 They brought Alexander out of the crowd, the Jewish people putting him forward. Alexander beckoned with his hand, and would have made a defense to the people. 
 But when they perceived that he was a Jewish man, all with one voice for a time of about two hours cried out, "Great is Artemis of the Ephesians!" 
 When the town clerk had quieted the crowd, he said, "You men of Ephesus, what man is there who doesn't know that the city of the Ephesians is temple keeper of the great goddess Artemis, and of the image which fell down from Zeus? 
 Seeing then that these things can't be denied, you ought to be quiet and to do nothing rash. 
 You have brought these men here, who are neither robbers of temples nor blasphemers of your goddess. 
-If therefore Demetrius and the craftsmen who are with him have a matter against anyone, the courts are open and there are proconsuls. Let them press charges against one another. 
+If Demetrius and the craftsmen who are with him have a matter against anyone, the courts are open and there are proconsuls. Let them press charges against one another. 
 But if you seek anything about other matters, it will be settled in the regular gathering. 
 Indeed we are in danger of being accused concerning today's riot, there being no cause. Concerning it, we wouldn't be able to give an account of this commotion." 
 When he had thus spoken, he dismissed the gathering. 

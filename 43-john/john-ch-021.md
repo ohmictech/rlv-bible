@@ -2,9 +2,9 @@
 Simon Peter, Thomas called Didymus, Nathanael of Cana in Galilee, and the sons of Zebedee, and two others of his students were together. 
 Simon Peter said to them, "I'm going fishing." They told him, "We are also coming with you." They immediately went out and entered into the boat. That night, they caught nothing. 
 But when day had already come, Jesus stood on the beach; yet the students didn't know that it was Jesus. 
-Jesus therefore said to them, "Children, have you anything to eat?" They answered him, "No." 
-He said to them, "Cast the net on the right side of the boat, and you will find some." They cast it therefore, and now they weren't able to draw it in because there were so many fish. 
-That student therefore whom Jesus loved said to Peter, "It's the Lord!" So when Simon Peter heard that it was the Lord, he wrapped his coat around himself (for he was naked), and threw himself into the sea. 
+Jesus said to them, "Children, have you anything to eat?" They answered him, "No." 
+He said to them, "Cast the net on the right side of the boat, and you will find some." They cast it, and now they weren't able to draw it in because there were so many fish. 
+That student whom Jesus loved said to Peter, "It's the Lord!" So when Simon Peter heard that it was the Lord, he wrapped his coat around himself (for he was naked), and threw himself into the sea. 
 But the other students came in the little boat (for they were not far from the land, but about a hundred yards away), dragging the net full of fish. 
 So when they got out on the land, they saw a fire of coals there, with fish and bread laid on it. 
 Jesus said to them, "Bring some of the fish which you have just caught." 
@@ -20,6 +20,6 @@ Now he said this, signifying by what kind of death he would give God weight. Whe
 Then Peter, turning around, saw a student following. This was the student whom Jesus loved, the one who had also leaned on Jesus' chest at the supper and asked, "Lord, who is going to hand you over?" 
 Peter, seeing him, said to Jesus, "Lord, what about this man?" 
 Jesus said to him, "If I desire that he stay until I come, what is that to you? You follow me." 
-This saying therefore went out among the brothers that this student wouldn't die. Yet Jesus didn't say to him that he wouldn't die, but, "If I desire that he stay until I come, what is that to you?" 
+This saying went out among the brothers that this student wouldn't die. Yet Jesus didn't say to him that he wouldn't die, but, "If I desire that he stay until I come, what is that to you?" 
 This is the student who testifies about these things, and wrote these things. We know that his witness is true. 
 There are also many other things which Jesus did, which if they were all written down, I suppose that even the world itself wouldn't have room for the books that would be written. 

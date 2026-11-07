@@ -28,6 +28,6 @@ But if one of those who don't trust invites you to a meal, and you are inclined 
 But if anyone says to you, "This was offered to idols," don't eat it for the sake of the one who told you, and for the sake of conscience. "the earth is the Lord's, with all its fullness." 
 Conscience, I say, not your own, but the other's conscience. Why should my freedom be judged by someone else's conscience? 
 If I partake with thanks, why am I denounced for something I give thanks for? 
-Whether therefore you eat or drink, or whatever you do, do it all to the weight of God. 
+Whether you eat or drink, or whatever you do, do it all to the weight of God. 
 Give no cause for stumbling, whether to Jewish people, to Greeks, or to the gathering of God; 
 just as I also please everyone in all things, not seeking my own good, but the good of everyone, so that they may be made whole. 

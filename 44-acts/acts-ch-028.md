@@ -25,7 +25,7 @@ Some trusted the things which were spoken, and some did not trust.
 When they didn't agree among themselves, they departed after Paul had spoken one message: "The Holy Spirit spoke rightly through Isaiah the spokesman to our fathers, 
 saying, 'Go to this people and say, in hearing, you will hear, but will in no way understand. In seeing, you will see, but will in no way perceive. 
 This people's heart has grown callous. Their ears are dull of hearing. Their eyes they have closed. So that they can't see with their eyes, hear with their ears, understand with their heart, and turn again, and I would heal them.' 
-"Be it known therefore to you that the healing and wholeness of God is sent to the nations, and they will listen." 
+"Be it known to you that the healing and wholeness of God is sent to the nations, and they will listen." 
 When he had said these words, the Jewish people departed, having a great dispute among themselves. 
 Paul stayed two whole years in his own rented house and received everyone who was coming to him, 
 announcing God's reign and teaching the things concerning the Lord Jesus Christ with all boldness, without hindrance. 

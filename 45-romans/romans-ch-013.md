@@ -7,8 +7,8 @@ That is why you also pay taxes, for they are servants of God's service, continua
 So give everyone what you owe: if you owe taxes, pay taxes; if customs, then customs; if respect, then respect; if honor, then honor. 
 Owe no one anything, except to love one another; for he who loves his neighbor has fulfilled the law. 
 The commandments, "You shall not cheat," "You shall not murder," "You shall not steal," "You shall not covet," and whatever other commandments there are, are all summed up in this saying, namely, "You shall love your neighbor as yourself." 
-Love doesn't harm a neighbor. Love therefore is the fulfillment of the law. 
+Love doesn't harm a neighbor. Love is the fulfillment of the law. 
 Do this, knowing the time, that it is already time for you to awaken out of sleep, for rescue is now nearer to us than when we first trusted. 
-The night is far gone, and the day is near. Let's therefore throw off the deeds of darkness, and let's put on the armor of light. 
+The night is far gone, and the day is near. Let's throw off the deeds of darkness, and let's put on the armor of light. 
 Let's walk properly, as in the day; not in wild parties and drunkenness, not in sleeping around and shameless acts, and not in strife and jealousy. 
 But put on the Lord Jesus Christ, and make no provision for the flesh, for its desires. 

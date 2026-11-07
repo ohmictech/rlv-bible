@@ -25,7 +25,7 @@ whenever I travel to Spain, I will come to you. I hope to see you on my journey,
 But now, I say, I am going to Jerusalem, serving the set-apart ones. 
 It has been the good pleasure of Macedonia and Achaia to make a certain contribution for the poor among the set-apart ones who are at Jerusalem. 
 Yes, it has been their good pleasure, and they are their debtors. If the nations have been made partakers of their spiritual things, they owe it to them also to serve them in material things. 
-When therefore I have accomplished this, and have sealed to them this fruit, I will go on by way of you to Spain. 
+When I have accomplished this, and have sealed to them this fruit, I will go on by way of you to Spain. 
 I know that when I come to you, I will come in the fullness of the blessing of the Good News of Christ. 
 Now I beg you, brothers, by our Lord Jesus Christ and by the love of the Spirit, that you strive together with me in your prayers to God for me, 
 that I may be delivered from those who are disobedient in Judea, and that my service which I have for Jerusalem may be acceptable to the set-apart ones, 

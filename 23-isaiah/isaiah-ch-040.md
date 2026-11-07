@@ -19,7 +19,7 @@ To whom then will you liken God? Or what likeness will you compare to him?
 A workman has cast an image, and the goldsmith overlays it with gold, and casts silver chains for it. 
 He who is too impoverished for such an offering chooses a tree that will not rot. He seeks a skillful workman to set up a carved image for him that will not be moved. 
 Haven't you known? Haven't you heard? Haven't you been told from the beginning? Haven't you understood from the foundations of the earth? 
-It is he who sits above the circle of the earth, and its inhabitants are like grasshoppers; who stretches out the heavens like a curtain, and spreads them out like a tent to dwell in, 
+It is he who sits above the circle of the earth, and its inhabitants are like grasshoppers; who stretches out the sky like a curtain, and spreads them out like a tent to dwell in, 
 who brings princes to nothing, who makes the judges of the earth meaningless. 
 They are planted scarcely. They are sown scarcely. Their stock has scarcely taken root in the ground. He merely blows on them, and they wither, and the whirlwind takes them away as stubble. 
 "To whom then will you liken me? Who is my equal?" says the Holy One. 

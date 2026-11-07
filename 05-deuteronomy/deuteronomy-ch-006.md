@@ -1,6 +1,6 @@
 ﻿Now these are the commandments, the statutes, and the ordinances, which your God commanded to teach you, that you might do them in the land that you go over to possess; 
 that you might fear your God, to keep all his statutes and his commandments, which I command you, you, your son, and your son's son, all the days of your life; and that your days may be prolonged. 
-Hear therefore, Israel, and observe to do it, that it may be well with you, and that you may increase mightily, as the God of your fathers, has promised to you, in a land flowing with milk and honey. 
+Hear therefore, Israel, and observe to do it, that it may be well with you, and that you may increase mightily, as the God of your fathers has promised to you, in a land flowing with milk and honey. 
 Hear, Israel: God is our God. God is one. 
 You shall love your God with all your heart, with all your soul, and with all your might. 
 These words, which I command you today, shall be on your heart; 

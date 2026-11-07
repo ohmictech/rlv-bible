@@ -10,7 +10,7 @@ He said of his father, and of his mother, 'I have not seen him.' He didn't ackno
 They shall teach Jacob your ordinances, and Israel your law. They shall put incense before you, and whole burnt offering on your altar. 
 God, bless his skills. Accept the work of his hands. Strike through the hips of those who rise up against him, of those who hate him, that they not rise again." 
 About Benjamin he said, "The beloved of God will dwell in safety by him. He covers him all day long. He dwells between his shoulders." 
-About Joseph he said, "His land is blessed by God, for the precious things of the heavens, for the dew, for the deep that couches beneath, 
+About Joseph he said, "His land is blessed by God, for the precious things of the sky, for the dew, for the deep that couches beneath, 
 for the precious things of the fruits of the sun, for the precious things that the moon can yield, 
 for the best things of the ancient mountains, for the precious things of the perpetual hills, 
 for the precious things of the earth and its fullness, the good will of him who lived in the bush. Let this come on the head of Joseph, on the crown of the head of him who was separated from his brothers. 
@@ -23,7 +23,7 @@ About Dan he said, "Dan is a lion's cub that leaps out of Bashan."
 About Naphtali he said, "Naphtali, satisfied with favor, full of God's blesmistakeg, Possess the west and the south." 
 About Asher he said, "Asher is blessed with children. Let him be acceptable to his brothers. Let him dip his foot in oil. 
 Your bars will be iron and bronze. As your days, so your strength will be. 
-"There is no one like God, Jeshurun, who rides on the heavens for your help, in his excellency on the skies. 
+"There is no one like God, Jeshurun, who rides on the sky for your help, in his excellency on the skies. 
 The eternal God is your dwelling place. Underneath are the perpetual arms. He thrust out the enemy from before you, and said, 'Destroy!' 
-Israel dwells in safety, the fountain of Jacob alone, In a land of grain and new wine. Yes, his heavens drop down dew. 
+Israel dwells in safety, the fountain of Jacob alone, In a land of grain and new wine. Yes, his skies drop down dew. 
 You are happy, Israel! Who is like you, a people saved by God, the shield of your help, the sword of your excellency? Your enemies will submit themselves to you. You will tread on their high places." 

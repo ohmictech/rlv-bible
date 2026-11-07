@@ -14,7 +14,7 @@ So they lifted Jeremiah up with the cords, and took him up out of the dungeon; a
 Then Zedekiah the king sent and took Jeremiah the spokesman to himself into the third entry that is in God's house. Then the king said to Jeremiah, "I will ask you something. Hide nothing from me." 
 Then Jeremiah said to Zedekiah, "If I declare it to you, will you not surely put me to death? If I give you counsel, you will not listen to me." 
 So Zedekiah the king swore secretly to Jeremiah, saying, "As God lives, who made our souls, I will not put you to death, neither will I give you into the hand of these men who seek your life." 
-Then Jeremiah said to Zedekiah, "The God of Armies, the God of Israel, says: 'If you will go out to the king of Babylon's princes, then your soul will live, and this city will not be burned with fire. You will live, along with your house. 
+Then Jeremiah said to Zedekiah, "The God of Armies, the God of Israel says: 'If you will go out to the king of Babylon's princes, then your soul will live, and this city will not be burned with fire. You will live, along with your house. 
 But if you will not go out to the king of Babylon's princes, then this city will be given into the hand of the Chaldeans, and they will burn it with fire, and you won't escape out of their hand.'" 
 Zedekiah the king said to Jeremiah, "I am afraid of the Jews who have defected to the Chaldeans, lest they deliver me into their hand, and they mock me." 
 But Jeremiah said, "They won't deliver you. Obey, I beg you, God's voice, in that which I speak to you; so it will be well with you, and your soul will live. 

@@ -24,5 +24,5 @@ Then the king was exceedingly glad, and commanded that they should take Daniel u
 The king commanded, and they brought those men who had accused Daniel, and they cast them into the den of lions, them, their children, and their wives; and the lions mauled them, and broke all their bones in pieces before they came to the bottom of the den. 
 Then King Darius wrote to everyones, nations, and languages who dwell in all the earth: "Peace be multiplied to you. 
 "I make a decree that in all the dominion of my kingdom men tremble and fear before the God of Daniel. "For he is the living God, and steadfast for the eras. His kingdom is that which will not be destroyed. His dominion will be even to the end. 
-He delivers and rescues. He works signs and wonders in heaven and in earth, who has delivered Daniel from the power of the lions." 
+He delivers and rescues. He works signs and wonders in the sky and in earth, who has delivered Daniel from the power of the lions." 
 So this Daniel prospered in the reign of Darius and in the reign of Cyrus the Persian. 

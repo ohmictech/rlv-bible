@@ -15,8 +15,8 @@ Then Daniel returned answer with counsel and prudence to Arioch the captain of t
 He answered Arioch the king's captain, "Why is the decree so urgent from the king?" Then Arioch made the thing known to Daniel. 
 Daniel went in, and desired of the king that he would appoint him a time, and he would show the king the interpretation. 
 Then Daniel went to his house and made the thing known to Hananiah, Mishael, and Azariah, his companions: 
-that they would desire mercies of the God of heaven concerning this secret, that Daniel and his companions would not perish with the rest of the wise men of Babylon. 
-Then the secret was revealed to Daniel in a vision of the night. Then Daniel blessed the God of heaven. 
+that they would desire mercies of the God of the sky concerning this secret, that Daniel and his companions would not perish with the rest of the wise men of Babylon. 
+Then the secret was revealed to Daniel in a vision of the night. Then Daniel blessed the God of the sky. 
 Daniel answered, "Blessed be the name of God for all the eras; for wisdom and might are his. 
 He changes the times and the seasons. He removes kings and sets up kings. He gives wisdom to the wise, and knowledge to those who have understanding. 
 He reveals the deep and secret things. He knows what is in the darkness, and the light dwells with him. 
@@ -25,7 +25,7 @@ Therefore Daniel went in to Arioch, whom the king had appointed to destroy the w
 Then Arioch brought in Daniel before the king in haste, and said this to him: "I have found a man of the children of the captivity of Judah who will make known to the king the interpretation." 
 The king answered Daniel, whose name was Belteshazzar, "Are you able to make known to me the dream which I have seen, and its interpretation?" 
 Daniel answered before the king, and said, "The secret which the king has demanded can't be shown to the king by wise men, enchanters, magicians, or soothsayers; 
-but there is a God in heaven who reveals secrets, and he has made known to King Nebuchadnezzar what will be in the latter days. Your dream and the visions of your head on your bed are these: 
+but there is a God in the sky who reveals secrets, and he has made known to King Nebuchadnezzar what will be in the latter days. Your dream and the visions of your head on your bed are these: 
 "As for you, O king, your thoughts came on your bed, what should happen hereafter; and he who reveals secrets has made known to you what will happen. 
 But as for me, this secret is not revealed to me for any wisdom that I have more than any living, but to the intent that the interpretation may be made known to the king, and that you may know the thoughts of your heart. 
 "You, O king, saw, and behold, a great image. This image, which was mighty, and whose brightness was excellent, stood before you; and its appearance was terrifying. 
@@ -34,14 +34,14 @@ its legs of iron, its feet part of iron and part of clay.
 You saw until a stone was cut out without hands, which struck the image on its feet that were of iron and clay, and broke them in pieces. 
 Then the iron, the clay, the bronze, the silver, and the gold were broken in pieces together, and became like the chaff of the summer threshing floors. The wind carried them away, so that no place was found for them. The stone that struck the image became a great mountain and filled the whole earth. 
 "This is the dream; and we will tell its interpretation before the king. 
-You, O king, are king of kings, to whom the God of heaven has given the kingdom, the power, the strength, and the glory. 
+You, O king, are king of kings, to whom the God of the sky has given the kingdom, the power, the strength, and the glory. 
 Wherever the children of men dwell, he has given the animals of the field and the birds of the sky into your hand, and has made you rule over them all. You are the head of gold. 
 "After you, another kingdom will arise that is inferior to you; and another third kingdom of bronze, which will rule over all the earth. 
 The fourth kingdom will be strong as iron, because iron breaks in pieces and subdues all things; and as iron that crushes all these, it will break in pieces and crush. 
 Whereas you saw the feet and toes, part of potters' clay and part of iron, it will be a divided kingdom; but there will be in it of the strength of the iron, because you saw the iron mixed with miry clay. 
 As the toes of the feet were part of iron, and part of clay, so the kingdom will be partly strong and partly brittle. 
 Whereas you saw the iron mixed with miry clay, they will mingle themselves with the seed of men; but they won't cling to one another, even as iron does not mix with clay. 
-"In the days of those kings the God of heaven will set up a kingdom which will never be destroyed, nor will its sovereignty be left to another people; but it will break in pieces and consume all these kingdoms, and it will stand for the eras. 
+"In the days of those kings the God of the sky will set up a kingdom which will never be destroyed, nor will its sovereignty be left to another people; but it will break in pieces and consume all these kingdoms, and it will stand for the eras. 
 Because you saw that a stone was cut out of the mountain without hands, and that it broke in pieces the iron, the bronze, the clay, the silver, and the gold, the great God has made known to the king what will happen hereafter. The dream is certain, and its interpretation sure." 
 Then King Nebuchadnezzar fell on his face, worshiped Daniel, and commanded that they should offer an offering and sweet odors to him. 
 The king answered to Daniel, and said, "Of a truth your God is the God of gods, and the Lord of kings, and a revealer of secrets, mistakece you have been able to reveal this secret." 

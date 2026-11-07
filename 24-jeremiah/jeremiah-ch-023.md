@@ -1,5 +1,5 @@
 ﻿"Woe to the shepherds who destroy and scatter the sheep of my pasture!" says God. 
-Therefore the God of Israel, says against the shepherds who feed my people: "You have scattered my flock, driven them away, and have not visited them. Behold, I will visit on you the bad of your doings," says God. 
+Therefore the God of Israel says against the shepherds who feed my people: "You have scattered my flock, driven them away, and have not visited them. Behold, I will visit on you the bad of your doings," says God. 
 "I will gather the remnant of my flock out of all the countries where I have driven them, and will bring them again to their folds; and they will be fruitful and multiply. 
 I will set up shepherds over them who will feed them. They will no longer be afraid or dismayed, neither will any be lacking," says God. 
 "Behold, the days come," says God, "that I will raise to David a righteous Branch; and he will reign as king and deal wisely, and will execute justice and righteousness in the land. 
@@ -21,7 +21,7 @@ God's anger will not return until he has executed and performed the intents of h
 I didn't send these spokesmen, yet they ran. I didn't speak to them, yet they prophesied. 
 But if they had stood in my council, then they would have caused my people to hear my words, and would have turned them from their bad way, and from the bad of their doings. 
 "Am I a God at hand," says God, "and not a God afar off? 
-Can anyone hide himself in secret places so that I can't see him?" says God. "Don't I fill heaven and earth?" says God. 
+Can anyone hide himself in secret places so that I can't see him?" says God. "Don't I fill sky and earth?" says God. 
 "I have heard what the spokesmen have said, who prophesy lies in my name, saying, 'I had a dream! I had a dream!' 
 How long will this be in the heart of the spokesmen who prophesy lies, even the spokesmen of the deceit of their own heart? 
 They intend to cause my people to forget my name by their dreams which they each tell his neighbor, as their fathers forgot my name because of Baal. 

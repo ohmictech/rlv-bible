@@ -23,7 +23,7 @@ but I must die in this land. I must not go over the Jordan, but you shall go ove
 Be careful, lest you forget the covenant of your God, which he made with you, and make yourselves a carved image in the form of anything which your God has forbidden you. 
 For your God is a devouring fire, a jealous God. 
 When you father children and children's children, and you have been long in the land, and then corrupt yourselves, and make a carved image in the form of anything, and do that which is bad in your God's sight to provoke him to anger, 
-I call heaven and earth to witness against you today, that you will soon utterly perish from off the land which you go over the Jordan to possess it. You will not prolong your days on it, but will utterly be destroyed. 
+I call the sky and earth to witness against you today, that you will soon utterly perish from off the land which you go over the Jordan to possess it. You will not prolong your days on it, but will utterly be destroyed. 
 God will scatter you among the peoples, and you will be left few in number among the nations where God will lead you away. 
 There you will serve gods, the work of men's hands, wood and stone, which neither see, nor hear, nor eat, nor smell. 
 But from there you shall seek your God, and you will find him when you search after him with all your heart and with all your soul. 
@@ -33,10 +33,10 @@ For ask now of the days that are past, which were before you, mistakece the day 
 Did a people ever hear the voice of God speaking out of the middle of the fire, as you have heard, and live? 
 Or has God tried to go and take a nation for himself from among another nation, by trials, by signs, by wonders, by war, by a mighty hand, by an outstretched arm, and by great terrors, according to all that your God did for you in Egypt before your eyes? 
 It was shown to you so that you might know that he is God. There is no one else besides him. 
-Out of heaven he made you to hear his voice, that he might instruct you. On earth he made you to see his great fire; and you heard his words out of the middle of the fire. 
+Out of the sky he made you to hear his voice, that he might instruct you. On earth he made you to see his great fire; and you heard his words out of the middle of the fire. 
 Because he loved your fathers, therefore he chose their offspring after them, and brought you out with his presence, with his great power, out of Egypt; 
 to drive out nations from before you greater and mightier than you, to bring you in, to give you their land for an inheritance, as it is today. 
-Know therefore today, and take it to heart, that God is the true God in heaven above and on the earth beneath. There is no one else. 
+Know therefore today, and take it to heart, that God is the true God in the sky above and on the earth beneath. There is no one else. 
 You shall keep his statutes and his commandments which I command you today, that it may go well with you and with your children after you, and that you may prolong your days in the land which your God gives you for all time. 
 Then Moses set apart three cities beyond the Jordan toward the sunrise, 
 that the man slayer might flee there, who kills his neighbor unintentionally and didn't hate him in time past, and that fleeing to one of these cities he might live: 

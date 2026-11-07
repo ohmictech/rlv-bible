@@ -9,7 +9,7 @@ I will bring them, and they will dwell within Jerusalem. They will be my people,
 The God of Armies says: "Let your hands be strong, you who hear in these days these words from the mouth of the spokesmen who were in the day that the foundation of the house of the God of Armies was laid, even the temple, that it might be built. 
 For before those days there was no wages for man nor any wages for an animal, neither was there any peace to him who went out or came in, because of the adversary. For I set everyone everyone against his neighbor. 
 But now I will not be to the remnant of this people as in the former days," says the God of Armies. 
-"For the seed of peace and the vine will yield its fruit, and the ground will give its increase, and the heavens will give their dew. I will cause the remnant of this people to inherit all these things. 
+"For the seed of peace and the vine will yield its fruit, and the ground will give its increase, and the sky will give their dew. I will cause the remnant of this people to inherit all these things. 
 It shall come to pass that, as you were a curse among the nations, house of Judah and house of Israel, so I will save you, and you shall be a blesmistakeg. Don't be afraid. Let your hands be strong." 
 For the God of Armies says: "As I thought to do bad things to you when your fathers provoked me to wrath," says the God of Armies, "and I didn't repent, 
 so again I have thought in these days to do good to Jerusalem and to the house of Judah. Don't be afraid. 

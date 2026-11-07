@@ -1,10 +1,10 @@
 ﻿Abraham was old, and well advanced in age. God had blessed Abraham in all things. 
 Abraham said to his servant, the elder of his house, who ruled over all that he had, "Please put your hand under my thigh. 
-I will make you swear by the God of heaven and the God of the earth, that you shall not take a wife for my son of the daughters of the Canaanites, among whom I live. 
+I will make you swear by the God of the sky and the God of the earth, that you shall not take a wife for my son of the daughters of the Canaanites, among whom I live. 
 But you shall go to my country, and to my relatives, and take a wife for my son Isaac." 
 The servant said to him, "What if the woman isn't willing to follow me to this land? Must I bring your son again to the land you came from?" 
 Abraham said to him, "Beware that you don't bring my son there again. 
-The God of heaven, who took me from my father's house, and from the land of my birth, who spoke to me, and who swore to me, saying, 'I will give this land to your offspring, he will send his messenger before you, and you shall take a wife for my son from there. 
+The God of the sky, who took me from my father's house, and from the land of my birth, who spoke to me, and who swore to me, saying, 'I will give this land to your offspring, he will send his messenger before you, and you shall take a wife for my son from there. 
 If the woman isn't willing to follow you, then you shall be clear from this oath to me. Only you shall not bring my son there again." 
 The servant put his hand under the thigh of Abraham his master, and swore to him concerning this matter. 
 The servant took ten of his master's camels, and departed, having a variety of good things of his master's with him. He arose, and went to Mesopotamia, to the city of Nahor. 

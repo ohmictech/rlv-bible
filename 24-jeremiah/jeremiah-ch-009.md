@@ -12,7 +12,7 @@ I will weep and wail for the mountains, and lament for the pastures of the wilde
 Who is wise enough to understand this? Who is he to whom the mouth of God has spoken, that he may declare it? Why has the land perished and burned up like a wilderness, so that no one passes through? 
 God says, "Because they have forsaken my law which I set before them, and have not obeyed my voice or walked in my ways, 
 but have walked after the stubbornness of their own heart and after the Baals, which their fathers taught them." 
-Therefore the God of Armies, the God of Israel, says, "Behold, I will feed them, even this people, with wormwood and give them poisoned water to drink. 
+Therefore the God of Armies, the God of Israel says, "Behold, I will feed them, even this people, with wormwood and give them poisoned water to drink. 
 I will scatter them also among the nations, whom neither they nor their fathers have known. I will send the sword after them, until I have consumed them." 
 The God of Armies says, "Consider, and call for the mourning women, that they may come. Send for the skillful women, that they may come. 
 Let them make haste and take up a wailing for us, that our eyes may run down with tears and our eyelids gush out with waters. 

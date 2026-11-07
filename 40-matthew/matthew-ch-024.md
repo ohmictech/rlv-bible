@@ -48,4 +48,4 @@ Truly I tell you that he will set him over all that he has.
 But if that bad slave should say in his heart, 'My lord is delaying his arrival,' 
 and begins to beat his fellow slaves, and eats and drinks with the drunkards, 
 the lord of that slave will come on a day when he doesn't expect him and at an hour he doesn't know, 
-and will cut him in pieces and assign his portion with the pretenders. That is where the crying and grinding of teeth will be. 
+and will cut him in two and assign his portion with the pretenders. That is where the crying and grinding of teeth will be. 

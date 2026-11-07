@@ -1,5 +1,5 @@
 ﻿A Song of Ascents. I will lift up my eyes to the hills. Where does my help come from? 
-My help comes from God, who made heaven and earth. 
+My help comes from God, who made the sky and the earth. 
 He will not allow your foot to be moved. He who keeps you will not slumber. 
 Behold, he who keeps Israel will neither slumber nor sleep. 
 God is your keeper. God is your shade on your right hand. 

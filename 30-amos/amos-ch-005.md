@@ -11,8 +11,8 @@ They hate him who reproves in the gate, and they abhor him who speaks blamelessl
 Therefore, because you trample on the poor and take taxes from him of wheat, you have built houses of cut stone, but you will not dwell in them. You have planted pleasant vineyards, but you shall not drink their wine. 
 For I know how many are your offenses, and how great are your mistakes, you who afflict the just, who take a bribe, and who turn away the needy in the courts. 
 Therefore a prudent person keeps silent in such a time, for it is an bad time. 
-Seek good, and not bad, that you may live; and so the God of Armies, will be with you, as you say. 
-Hate bad, love good, and establish justice in the courts. It may be that the God of Armies, will be gracious to the remnant of Joseph." 
+Seek good, and not bad, that you may live; and so the God of Armies will be with you, as you say. 
+Hate bad, love good, and establish justice in the courts. It may be that the God of Armies will be gracious to the remnant of Joseph." 
 Therefore the God of Armies, the Lord, says: "Wailing will be in all the wide ways. They will say in all the streets, 'Alas! Alas!' They will call the farmer to mourning, and those who are skillful in lamentation to wailing. 
 In all vineyards there will be wailing, for I will pass through the middle of you," says God. 
 "Woe to you who desire the day of God! Why do you long for the day of God? It is darkness, and not light. 

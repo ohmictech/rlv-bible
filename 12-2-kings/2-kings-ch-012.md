@@ -7,7 +7,7 @@ But it was so, that in the twenty-third year of King Jehoash the priests had not
 Then King Jehoash called for Jehoiada the priest, and for the other priests, and said to them, "Why aren't you repairing the damage to the house? Now therefore take no more money from your treasurers, but deliver it for repair of the damage to the house." 
 The priests consented that they should take no more money from the people, and not repair the damage to the house. 
 But Jehoiada the priest took a chest and bored a hole in its lid, and set it beside the altar, on the right side as one comes into God's house; and the priests who kept the threshold put all the money that was brought into God's house into it. 
-When they saw that there was much money in the chest, the king's Bible teacher and the high priest came up, and they put it in bags and counted the money that was found in God's house. 
+When they saw that there was much money in the chest, the king's secretary and the high priest came up, and they put it in bags and counted the money that was found in God's house. 
 They gave the money that was weighed out into the hands of those who did the work, who had the oversight of God's house; and they paid it out to the carpenters and the builders who worked on God's house, 
 and to the masons and the stone cutters, and for buying timber and cut stone to repair the damage to God's house, and for all that was laid out for the house to repair it. 
 But there were not made for God's house cups of silver, snuffers, bamistakes, trumpets, any vessels of gold or vessels of silver, of the money that was brought into God's house; 

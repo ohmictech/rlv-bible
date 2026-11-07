@@ -6,7 +6,7 @@ The cords of Hades were around me. The snares of death came on me.
 In my distress I called on God, and cried to my God. He heard my voice out of his temple. My cry before him came into his ears. 
 Then the earth shook and trembled. The foundations also of the mountains quaked and were shaken, because he was angry. 
 Smoke went out of his nostrils. Consuming fire came out of his mouth. Coals were kindled by it. 
-He bowed the heavens also, and came down. Thick darkness was under his feet. 
+He bowed the sky also, and came down. Thick darkness was under his feet. 
 He rode on a cherub, and flew. Yes, he soared on the wings of the wind. 
 He made darkness his hiding place, his pavilion around him, darkness of waters, thick clouds of the skies. 
 At the brightness before him his thick clouds passed, hailstones and coals of fire. 

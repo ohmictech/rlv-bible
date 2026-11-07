@@ -9,4 +9,4 @@ They sent therefore and gathered together all the lords of the Philistines, and 
 It was so, that after they had carried it there, God's hand was against the city with a very great confusion; and he struck the men of the city, both small and great, so that tumors broke out on them. 
 So they sent God's ark to Ekron. As God's ark came to Ekron, the Ekronites cried out, saying, "They have brought the ark of the God of Israel here to us, to kill us and our people." 
 They sent therefore and gathered together all the lords of the Philistines, and they said, "Send the ark of the God of Israel away, and let it go again to its own place, that it not kill us and our people." For there was a deadly panic throughout all the city. The hand of God was very heavy there. 
-The men who didn't die were struck with the tumors; and the cry of the city went up to heaven. 
+The men who didn't die were struck with the tumors; and the cry of the city went up to the sky. 

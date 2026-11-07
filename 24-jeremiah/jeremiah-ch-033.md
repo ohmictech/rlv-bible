@@ -1,7 +1,7 @@
 ﻿Moreover God's word came to Jeremiah the second time, while he was still locked up in the court of the guard, saying, 
 "God who does it, God who forms it to establish it, God is his name, says: 
 'Call to me, and I will answer you, and will show you great and difficult things, which you don't know.' 
-For the God of Israel, says concerning the houses of this city and concerning the houses of the kings of Judah, which are broken down to make a defense against the mounds and against the sword: 
+For the God of Israel says concerning the houses of this city and concerning the houses of the kings of Judah, which are broken down to make a defense against the mounds and against the sword: 
 'While men come to fight with the Chaldeans, and to fill them with the dead bodies of men, whom I have killed in my anger and in my wrath, and for all whose guilt I have hidden my face from this city, 
 behold, I will bring it health and healing, and I will cure them; and I will reveal to them abundance of peace and truth. 
 I will restore the fortunes of Judah and Israel, and will build them as at the first. 
@@ -22,5 +22,5 @@ then my covenant could also be broken with David my servant, that he won't have 
 As the army of the sky can't be counted, and the sand of the sea can't be measured, so I will multiply the offspring of David my servant and the Levites who minister to me.'" 
 God's word came to Jeremiah, saying, 
 "Don't consider what this people has spoken, saying, 'Has God cast off the two families which he chose?' Thus they despise my people, that they should be no more a nation before them." 
-God says: "If my covenant of day and night fails, if I have not appointed the ordinances of heaven and earth, 
+God says: "If my covenant of day and night fails, if I have not appointed the ordinances of the sky and earth, 
 then I will also cast away the offspring of Jacob, and of David my servant, so that I will not take of his offspring to be rulers over the offspring of Abraham, Isaac, and Jacob; for I will cause their captivity to be reversed and will have mercy on them." 

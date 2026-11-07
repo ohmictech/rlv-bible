@@ -16,7 +16,7 @@ She is more precious than rubies. None of the things you can desire are to be co
 Length of days is in her right hand. In her left hand are riches and honor. 
 Her ways are ways of pleasantness. All her paths are peace. 
 She is a tree of life to those who lay hold of her. Happy is everyone who retains her. 
-By wisdom God founded the earth. By understanding, he established the heavens. 
+By wisdom God founded the earth. By understanding, he established the sky. 
 By his knowledge, the depths were broken up, and the skies drop down the dew. 
 My son, let them not depart from your eyes. Keep sound wisdom and discretion, 
 so they will be life to your soul, and grace for your neck. 

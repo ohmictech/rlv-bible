@@ -11,7 +11,7 @@ I stayed on the mountain, as at the first time, forty days and forty nights; and
 God said to me, "Arise, take your journey before the people; and they shall go in and possess the land which I swore to their fathers to give to them." 
 Now, Israel, what does your God require of you, but to fear your God, to walk in all his ways, to love him, and to serve your God with all your heart and with all your soul, 
 to keep God's commandments and statutes, which I command you today for your good? 
-Behold, to your God belongs heaven, the heaven of heavens, and the earth, with all that is therein. 
+Behold, to your God belongs sky, the sky above the skies, and the earth, with all that is therein. 
 Only God had a delight in your fathers to love them, and he chose their offspring after them, even you above all peoples, as it is today. 
 Circumcise therefore the foreskin of your heart, and be no more stiff-necked. 
 For your God is God of gods and Lord of lords, the great God, the mighty, and the awesome, who doesn't respect persons or take bribes. 

@@ -10,7 +10,7 @@ For the Canaanites and all the inhabitants of the land will hear of it, and will
 God said to Joshua, "Get up! Why have you fallen on your face like that? 
 Israel has missed the mark. Yes, they have even transgressed my covenant which I commanded them. Yes, they have even taken some of the devoted things, and have also stolen, and also deceived. They have even put it among their own stuff. 
 Therefore the children of Israel can't stand before their enemies. They turn their backs before their enemies, because they have become devoted for destruction. I will not be with you any more, unless you destroy the devoted things from among you. 
-Get up! Sanctify the people, and say, 'Sanctify yourselves for tomorrow, for the God of Israel, says, "There is a devoted thing among you, Israel. You cannot stand before your enemies until you take away the devoted thing from among you." 
+Get up! Sanctify the people, and say, 'Sanctify yourselves for tomorrow, for the God of Israel says, "There is a devoted thing among you, Israel. You cannot stand before your enemies until you take away the devoted thing from among you." 
 In the morning therefore you shall be brought near by your tribes. It shall be that the tribe which God selects shall come near by families. The family which God selects shall come near by households. The household which God selects shall come near man by man. 
 It shall be, that he who is taken with the devoted thing shall be burned with fire, he and all that he has, because he has transgressed God's covenant, and because he has done a disgraceful thing in Israel.'" 
 So Joshua rose up early in the morning and brought Israel near by their tribes. The tribe of Judah was selected. 

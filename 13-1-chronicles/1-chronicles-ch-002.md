@@ -52,4 +52,4 @@ Salma the father of Bethlehem, and Hareph the father of Beth Gader.
 Shobal the father of Kiriath Jearim had sons: Haroeh, half of the Menuhoth. 
 The families of Kiriath Jearim: the Ithrites, the Puthites, the Shumathites, and the Mishraites; from them came the Zorathites and the Eshtaolites. 
 The sons of Salma: Bethlehem, the Netophathites, Atroth Beth Joab, and half of the Manahathites, the Zorites. 
-The families of Bible teachers who lived at Jabez: the Tirathites, the Shimeathites, and the Sucathites. These are the Kenites who came from Hammath, the father of the house of Rechab. 
+The families of secretaries who lived at Jabez: the Tirathites, the Shimeathites, and the Sucathites. These are the Kenites who came from Hammath, the father of the house of Rechab. 

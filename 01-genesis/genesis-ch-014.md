@@ -16,9 +16,9 @@ He divided himself against them by night, he and his servants, and struck them, 
 He brought back all the goods, and also brought back his relative Lot and his goods, and the women also, and the other people. 
 The king of Sodom went out to meet him after his return from the slaughter of Chedorlaomer and the kings who were with him, at the valley of Shaveh (that is, the King's Valley). 
 Melchizedek king of Salem brought out bread and wine. He was priest of God Most High. 
-He blessed him, and said, "Blessed be Abram of God Most High, possessor of heaven and earth. 
+He blessed him, and said, "Blessed be Abram of God Most High, possessor of the sky and earth. 
 Blessed be God Most High, who has delivered your enemies into your hand." Abram gave him a tenth of all. 
 The king of Sodom said to Abram, "Give me the people, and take the goods for yourself." 
-Abram said to the king of Sodom, "I have lifted up my hand to God Most High, possessor of heaven and earth, 
+Abram said to the king of Sodom, "I have lifted up my hand to God Most High, possessor of the sky and earth, 
 that I will not take a thread nor a sandal strap nor anything that is yours, lest you should say, 'I have made Abram rich.' 
 I will accept nothing from you except that which the young men have eaten, and the portion of the men who went with me: Aner, Eshcol, and Mamre. Let them take their portion." 

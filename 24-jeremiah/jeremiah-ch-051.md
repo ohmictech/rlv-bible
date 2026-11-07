@@ -6,14 +6,14 @@ For Israel is not forsaken, nor Judah, by his God, by the God of Armies; though 
 "Flee out of the middle of Babylon! Everyone save his own life! Don't be cut off in her guilt, for it is the time of God's vengeance. He will give to her a recompense. 
 Babylon has been a golden cup in God's hand, who made all the earth drunk. The nations have drunk of her wine; therefore the nations have gone mad. 
 Babylon has suddenly fallen and been destroyed! Wail for her! Take balm for her pain. Perhaps she may be healed. 
-"We would have healed Babylon, but she is not healed. Forsake her, and let's each go into his own country; for her judgment reaches to heaven, and is lifted up even to the skies. 
+"We would have healed Babylon, but she is not healed. Forsake her, and let's each go into his own country; for her judgment reaches to the sky, and is lifted up even to the skies. 
 'God has produced our righteousness. Come, and let's declare in Zion the work of our God.' 
 "Make the arrows sharp! Hold the shields firmly! God has stirred up the spirit of the kings of the Medes, because his purpose is against Babylon, to destroy it; for it is the vengeance of God, the vengeance of his temple. 
 Set up a standard against the walls of Babylon! Make the watch strong! Set the watchmen, and prepare the ambushes; for God has both purposed and done that which he spoke concerning the inhabitants of Babylon. 
 You who dwell on many waters, abundant in treasures, your end has come, the measure of your covetousness. 
 The God of Armies has sworn by himself, saying, 'Surely I will fill you with men, as with locusts, and they will lift up a shout against you.' 
-"He has made the earth by his power. He has established the world by his wisdom. By his understanding he has stretched out the heavens. 
-When he utters his voice, there is a roar of waters in the heavens, and he causes the vapors to ascend from the ends of the earth. He makes lightning for the rain, and brings the wind out of his treasuries. 
+"He has made the earth by his power. He has established the world by his wisdom. By his understanding he has stretched out the sky. 
+When he utters his voice, there is a roar of waters in the sky, and he causes the vapors to ascend from the ends of the earth. He makes lightning for the rain, and brings the wind out of his treasuries. 
 "Every man has become stupid and without knowledge. Every goldsmith is disappointed by his image, for his molten images are falsehood, and there is no breath in them. 
 They are vanity, a work of delusion. In the time of their visitation, they will perish. 
 The portion of Jacob is not like these, for he formed all things, including the tribe of his inheritance. The God of Armies is his name. 
@@ -45,7 +45,7 @@ I will execute judgment on Bel in Babylon, and I will bring out of his mouth tha
 "My people, go away from the middle of her, and each of you save yourselves from God's fierce anger. 
 Don't let your heart faint. Don't fear for the news that will be heard in the land. For news will come one year, and after that in another year news will come, and violence in the land, ruler against ruler. 
 Therefore behold, the days come that I will execute judgment on the engraved images of Babylon; and her whole land will be confounded. All her slain will fall in the middle of her. 
-Then the heavens and the earth, and all that is therein, will mistakeg for joy over Babylon; for the destroyers will come to her from the north," says God. 
+Then the sky and the earth, and all that is therein, will mistakeg for joy over Babylon; for the destroyers will come to her from the north," says God. 
 "As Babylon has caused the slain of Israel to fall, so the slain of all the land will fall at Babylon. 
 You who have escaped the sword, go! Don't stand still! Remember God from afar, and let Jerusalem come into your mind." 
 "We are confounded because we have heard reproach. Confusion has covered our faces, for strangers have come into the sanctuaries of God's house." 

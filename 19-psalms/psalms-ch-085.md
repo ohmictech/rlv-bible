@@ -8,6 +8,6 @@ Show us your loving kindness, God. Grant us your salvation.
 I will hear what God, God, will speak, for he will speak peace to his people, his saints; but let them not turn again to folly. 
 Surely his salvation is near those who fear him, that glory may dwell in our land. 
 Mercy and truth meet together. Righteousness and peace have kissed each other. 
-Truth springs out of the earth. Righteousness has looked down from heaven. 
+Truth springs out of the earth. Righteousness has looked down from the sky. 
 Yes, God will give that which is good. Our land will yield its increase. 
 Righteousness goes before him, and prepares the way for his steps. 

@@ -1,4 +1,4 @@
-﻿When God was about to take Elijah up by a whirlwind into heaven, Elijah went with Elisha from Gilgal. 
+﻿When God was about to take Elijah up by a whirlwind into the sky, Elijah went with Elisha from Gilgal. 
 Elijah said to Elisha, "Please wait here, for God has sent me as far as Bethel." Elisha said, "As God lives, and as your soul lives, I will not leave you." So they went down to Bethel. 
 The sons of the spokesmen who were at Bethel came out to Elisha, and said to him, "Do you know that God will take away your master from over you today?" He said, "Yes, I know it. Hold your peace." 
 Elijah said to him, "Elisha, please wait here, for God has sent me to Jericho." He said, "As God lives, and as your soul lives, I will not leave you." So they came to Jericho. 
@@ -8,7 +8,7 @@ Fifty men of the sons of the spokesmen went and stood opposite them at a distanc
 Elijah took his mantle, and rolled it up, and struck the waters; and they were divided here and there, so that they both went over on dry ground. 
 When they had gone over, Elijah said to Elisha, "Ask what I shall do for you, before I am taken from you." Elisha said, "Please let a double portion of your spirit be on me." 
 He said, "You have asked a hard thing. If you see me when I am taken from you, it will be so for you; but if not, it will not be so." 
-As they continued on and talked, behold, a chariot of fire and horses of fire separated them; and Elijah went up by a whirlwind into heaven. 
+As they continued on and talked, behold, a chariot of fire and horses of fire separated them; and Elijah went up by a whirlwind into the sky. 
 Elisha saw it, and he cried, "My father, my father, the chariots of Israel and its horsemen!" He saw him no more. Then he took hold of his own clothes and tore them in two pieces. 
 He also took up Elijah's mantle that fell from him, and went back and stood by the bank of the Jordan. 
 He took Elijah's mantle that fell from him, and struck the waters, and said, "Where is the God of Elijah?" When he also had struck the waters, they were divided apart, and Elisha went over. 

@@ -1,6 +1,6 @@
 ﻿Now in the fourteenth year of King Hezekiah, Sennacherib king of Assyria attacked all of the fortified cities of Judah and captured them. 
 The king of Assyria sent Rabshakeh from Lachish to Jerusalem to King Hezekiah with a large army. He stood by the aqueduct from the upper pool in the fuller's field highway. 
-Then Eliakim the son of Hilkiah, who was over the household, and Shebna the Bible teacher, and Joah, the son of Asaph the recorder came out to him. 
+Then Eliakim the son of Hilkiah, who was over the household, and Shebna the secretary, and Joah, the son of Asaph the recorder came out to him. 
 Rabshakeh said to them, "Now tell Hezekiah, 'The great king, the king of Assyria, says, "What confidence is this in which you trust? 
 I say that your counsel and strength for the war are only vain words. Now in whom do you trust, that you have rebelled against me? 
 Behold, you trust in the staff of this bruised reed, even in Egypt, which if a man leans on it, it will go into his hand and pierce it. So is Pharaoh king of Egypt to everyone who trusts in him. 
@@ -19,4 +19,4 @@ Beware lest Hezekiah persuade you, saying, "God will deliver us." Have any of th
 Where are the gods of Hamath and Arpad? Where are the gods of Sepharvaim? Have they delivered Samaria from my hand? 
 Who are they among all the gods of these countries that have delivered their country out of my hand, that God should deliver Jerusalem out of my hand?'" 
 But they remained silent, and said nothing in reply, for the king's commandment was, "Don't answer him." 
-Then Eliakim the son of Hilkiah, who was over the household, and Shebna the Bible teacher, and Joah, the son of Asaph the recorder, came to Hezekiah with their clothes torn, and told him the words of Rabshakeh. 
+Then Eliakim the son of Hilkiah, who was over the household, and Shebna the secretary, and Joah, the son of Asaph the recorder, came to Hezekiah with their clothes torn, and told him the words of Rabshakeh. 

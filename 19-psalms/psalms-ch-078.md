@@ -20,7 +20,7 @@ Yes, they spoke against God. They said, "Can God prepare a table in the wilderne
 Behold, he struck the rock, so that waters gushed out, and streams overflowed. Can he give bread also? Will he provide meat for his people?" 
 Therefore God heard, and was angry. A fire was kindled against Jacob, anger also went up against Israel, 
 because they didn't believe in God, and didn't trust in his salvation. 
-Yet he commanded the skies above, and opened the doors of heaven. 
+Yet he commanded the skies above, and opened the doors of the sky. 
 He rained down manna on them to eat, and gave them food from the sky. 
 Man ate the bread of messengers. He sent them food to the full. 
 He caused the east wind to blow in the sky. By his power he guided the south wind. 

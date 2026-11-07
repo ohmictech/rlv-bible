@@ -20,7 +20,7 @@ Because of the greatness that he gave him, everyones, nations, and languages tre
 But when his heart was lifted up, and his spirit was hardened so that he dealt proudly, he was deposed from his kingly throne, and they took his glory from him. 
 He was driven from the sons of men, and his heart was made like the animals', and his dwelling was with the wild donkeys. He was fed with grass like oxen, and his body was wet with the dew of the sky, until he knew that the Most High God rules in the kingdom of men, and that he sets up over it whomever he will. 
 "You, his son, Belshazzar, have not humbled your heart, though you knew all this, 
-but have lifted up yourself against the Lord of heaven; and they have brought the vessels of his house before you, and you and your lords, your wives, and your concubines, have drunk wine from them. You have praised the gods of silver and gold, of bronze, iron, wood, and stone, which don't see, or hear, or know; and you have not glorified the God in whose hand your breath is, and whose are all your ways. 
+but have lifted up yourself against the Lord of the sky; and they have brought the vessels of his house before you, and you and your lords, your wives, and your concubines, have drunk wine from them. You have praised the gods of silver and gold, of bronze, iron, wood, and stone, which don't see, or hear, or know; and you have not glorified the God in whose hand your breath is, and whose are all your ways. 
 Then the part of the hand was sent from before him, and this writing was inscribed. 
 "This is the writing that was inscribed: 'MENE, MENE, TEKEL, UPHARSIN.' 
 "This is the interpretation of the thing: MENE: God has counted your kingdom, and brought it to an end. 

@@ -19,39 +19,39 @@ But God said to David my father, 'Whereas it was in your heart to build a house 
 Nevertheless, you shall not build the house; but your son who shall come out of your body, he shall build the house for my name.' 
 God has established his word that he spoke; for I have risen up in the place of David my father, and I sit on the throne of Israel, as God promised, and have built the house for the name of the God of Israel. 
 There I have set a place for the ark, in which is God's covenant, which he made with our fathers when he brought them out of the land of Egypt." 
-Solomon stood before God's altar in the presence of all the assembly of Israel, and spread out his hands toward heaven; 
-and he said, "the God of Israel, there is no God like you, in heaven above, or on earth beneath; who keeps covenant and loving kindness with your servants who walk before you with all their heart; 
+Solomon stood before God's altar in the presence of all the assembly of Israel, and spread out his hands toward the sky; 
+and he said, "the God of Israel, there is no God like you, in the sky above, or on earth beneath; who keeps covenant and loving kindness with your servants who walk before you with all their heart; 
 who has kept with your servant David my father that which you promised him. Yes, you spoke with your mouth, and have fulfilled it with your hand, as it is today. 
 Now therefore, may the God of Israel, keep with your servant David my father that which you have promised him, saying, 'There shall not fail from you a man in my sight to sit on the throne of Israel, if only your children take heed to their way, to walk before me as you have walked before me.' 
 "Now therefore, God of Israel, please let your word be verified, which you spoke to your servant David my father. 
-But will God in very deed dwell on the earth? Behold, heaven and the heaven of heavens can't contain you; how much less this house that I have built! 
+But will God in very deed dwell on the earth? Behold, sky and the sky above the skies can't contain you; how much less this house that I have built! 
 Yet have respect for the prayer of your servant and for his supplication, God my God, to listen to the cry and to the prayer which your servant prays before you today; 
 that your eyes may be open toward this house night and day, even toward the place of which you have said, 'My name shall be there;' to listen to the prayer which your servant prays toward this place. 
-Listen to the supplication of your servant, and of your people Israel, when they pray toward this place. Yes, hear in heaven, your dwelling place; and when you hear, forgive. 
+Listen to the supplication of your servant, and of your people Israel, when they pray toward this place. Yes, hear in the sky, your dwelling place; and when you hear, forgive. 
 "If a man wrongs his neighbor, and an oath is laid on him to cause him to swear, and he comes and swears before your altar in this house, 
-then hear in heaven, and act, and judge your servants, condemning the guilty, to bring his way on his own head, and justifying the righteous, to give him according to his righteousness. 
+then hear in the sky, and act, and judge your servants, condemning the guilty, to bring his way on his own head, and justifying the righteous, to give him according to his righteousness. 
 "When your people Israel are struck down before the enemy because they have wronged you, if they turn again to you and confess your name, and pray and make supplication to you in this house, 
-then hear in heaven, and forgive the mistake of your people Israel, and bring them again to the land which you gave to their fathers. 
+then hear in the sky, and forgive the mistake of your people Israel, and bring them again to the land which you gave to their fathers. 
 "When the sky is shut up and there is no rain because they have wronged you, if they pray toward this place and confess your name, and turn from their mistake when you afflict them, 
-then hear in heaven, and forgive the mistake of your servants, and of your people Israel, when you teach them the good way in which they should walk; and send rain on your land which you have given to your people for an inheritance. 
+then hear in the sky, and forgive the mistake of your servants, and of your people Israel, when you teach them the good way in which they should walk; and send rain on your land which you have given to your people for an inheritance. 
 "If there is famine in the land, if there is pestilence, if there is blight, mildew, locust or caterpillar; if their enemy besieges them in the land of their cities, whatever plague, whatever sickness there is, 
 whatever prayer and supplication is made by any man, or by all your people Israel, who shall each know the plague of his own heart, and spread out his hands toward this house, 
-then hear in heaven, your dwelling place, and forgive, and act, and give to every man according to all his ways, whose heart you know (for you, even you only, know the hearts of all the children of men); 
+then hear in the sky, your dwelling place, and forgive, and act, and give to every man according to all his ways, whose heart you know (for you, even you only, know the hearts of all the children of men); 
 that they may fear you all the days that they live in the land which you gave to our fathers. 
 "Moreover, concerning the foreigner, who is not of your people Israel, when he comes out of a far country for your name's sake 
 (for they shall hear of your great name and of your mighty hand and of your outstretched arm), when he comes and prays toward this house, 
-hear in heaven, your dwelling place, and do according to all that the foreigner calls to you for; that everyones of the earth may know your name, to fear you, as do your people Israel, and that they may know that this house which I have built is called by your name. 
+hear in the sky, your dwelling place, and do according to all that the foreigner calls to you for; that everyones of the earth may know your name, to fear you, as do your people Israel, and that they may know that this house which I have built is called by your name. 
 "If your people go out to battle against their enemy, by whatever way you shall send them, and they pray to God toward the city which you have chosen, and toward the house which I have built for your name, 
-then hear in heaven their prayer and their supplication, and maintain their cause. 
+then hear in the sky their prayer and their supplication, and maintain their cause. 
 If they wrong you (for there is no man who doesn't miss the mark), and you are angry with them and deliver them to the enemy, so that they carry them away captive to the land of the enemy, far off or near; 
 yet if they repent in the land where they are carried captive, and turn again, and make supplication to you in the land of those who carried them captive, saying, 'We have missed the mark and have done perversely; we have dealt guiltyly,' 
 if they return to you with all their heart and with all their soul in the land of their enemies who carried them captive, and pray to you toward their land which you gave to their fathers, the city which you have chosen and the house which I have built for your name, 
-then hear their prayer and their supplication in heaven, your dwelling place, and maintain their cause; 
+then hear their prayer and their supplication in the sky, your dwelling place, and maintain their cause; 
 and forgive your people who have wronged you, and all their rebellion in which they have transgressed against you; and give them compassion before those who carried them captive, that they may have compassion on them 
 (for they are your people and your inheritance, which you brought out of Egypt, from the middle of the iron furnace); 
 that your eyes may be open to the supplication of your servant and to the supplication of your people Israel, to listen to them whenever they cry to you. 
 For you separated them from among everyones of the earth to be your inheritance, as you spoke by Moses your servant, when you brought our fathers out of Egypt, God." 
-It was so, that when Solomon had finished praying all this prayer and supplication to God, he arose from before God's altar, from kneeling on his knees with his hands spread out toward heaven. 
+It was so, that when Solomon had finished praying all this prayer and supplication to God, he arose from before God's altar, from kneeling on his knees with his hands spread out toward the sky. 
 He stood and blessed all the assembly of Israel with a loud voice, saying, 
 "Blessed be God, who has given rest to his people Israel, according to all that he promised. There has not failed one word of all his good promise, which he promised by Moses his servant. 
 May our God be with us as he was with our fathers. Let him not leave us or forsake us, 

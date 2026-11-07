@@ -5,13 +5,13 @@ I call on God, who is worthy to be praised; So shall I be saved from my enemies.
 For the waves of death surrounded me. The floods of ungodliness made me afraid. 
 The cords of Hades were around me. The snares of death caught me. 
 In my distress, I called on God. Yes, I called to my God. He heard my voice out of his temple. My cry came into his ears. 
-Then the earth shook and trembled. The foundations of heaven quaked and were shaken, because he was angry. 
+Then the earth shook and trembled. The foundations of the sky quaked and were shaken, because he was angry. 
 Smoke went up out of his nostrils. Consuming fire came out of his mouth. Coals were kindled by it. 
-He bowed the heavens also, and came down. Thick darkness was under his feet. 
+He bowed the sky also, and came down. Thick darkness was under his feet. 
 He rode on a cherub, and flew. Yes, he was seen on the wings of the wind. 
 He made darkness a shelter around himself, gathering of waters, and thick clouds of the skies. 
 At the brightness before him, coals of fire were kindled. 
-God thundered from heaven. The Most High uttered his voice. 
+God thundered from the sky. The Most High uttered his voice. 
 He sent out arrows and scattered them, lightning and confused them. 
 Then the channels of the sea appeared. The foundations of the world were laid bare by God's rebuke, at the blast of the breath of his nostrils. 
 He sent from on high and he took me. He drew me out of many waters. 

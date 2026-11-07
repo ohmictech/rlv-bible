@@ -1,5 +1,5 @@
 ﻿Joshua gathered all the tribes of Israel to Shechem, and called for the elders of Israel, for their heads, for their judges, and for their officers; and they presented themselves before God. 
-Joshua said to everyone, "The God of Israel, says, 'Your fathers lived of old time beyond the River, even Terah, the father of Abraham, and the father of Nahor. They served other gods. 
+Joshua said to everyone, "The God of Israel says, 'Your fathers lived of old time beyond the River, even Terah, the father of Abraham, and the father of Nahor. They served other gods. 
 I took your father Abraham from beyond the River, and led him throughout all the land of Canaan, and multiplied his offspring, and gave him Isaac. 
 I gave to Isaac Jacob and Esau: and I gave to Esau Mount Seir, to possess it. Jacob and his children went down into Egypt. 
 "'I sent Moses and Aaron, and I plagued Egypt, according to that which I did among them: and afterward I brought you out. 

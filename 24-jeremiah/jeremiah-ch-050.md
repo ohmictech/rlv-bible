@@ -15,7 +15,7 @@ Set yourselves in array against Babylon all around, all you who bend the bow; sh
 Shout against her all around. She has submitted herself. Her bulwarks have fallen. Her walls have been thrown down, for it is the vengeance of God. Take vengeance on her. As she has done, do to her. 
 Cut off the sower from Babylon, and him who handles the sickle in the time of harvest. For fear of the oppresmistakeg sword, they will each return to their own people, and they will each flee to their own land. 
 "Israel is a hunted sheep. The lions have driven him away. First, the king of Assyria devoured him, and now at last Nebuchadnezzar king of Babylon has broken his bones." 
-Therefore the God of Armies, the God of Israel, says: "Behold, I will punish the king of Babylon and his land, as I have punished the king of Assyria. 
+Therefore the God of Armies, the God of Israel says: "Behold, I will punish the king of Babylon and his land, as I have punished the king of Assyria. 
 I will bring Israel again to his pasture, and he will feed on Carmel and Bashan. His soul will be satisfied on the hills of Ephraim and in Gilead. 
 In those days, and in that time," says God, "the guilt of Israel will be sought for, and there will be none, also the misses the mark of Judah, and they won't be found; for I will pardon them whom I leave as a remnant. 
 "Go up against the land of Merathaim, even against it, and against the inhabitants of Pekod. Kill and utterly destroy after them," says God, "and do according to all that I have commanded you. 

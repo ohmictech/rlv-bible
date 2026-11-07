@@ -13,7 +13,7 @@ He put shields and spears in every city, and made them exceedingly strong. Judah
 The priests and the Levites who were in all Israel stood with him out of all their territory. 
 For the Levites left their pasture lands and their possessions, and came to Judah and Jerusalem; for Jeroboam and his sons cast them off, that they should not execute the priest's office to God. 
 He himself appointed priests for the high places, for the male goat and calf idols which he had made. 
-After them, out of all the tribes of Israel, those who set their hearts to seek the God of Israel, came to Jerusalem to sacrifice to the God of their fathers. 
+After them, out of all the tribes of Israel, those who set their hearts to seek the God of Israel came to Jerusalem to sacrifice to the God of their fathers. 
 So they strengthened the kingdom of Judah and made Rehoboam the son of Solomon strong for three years, for they walked three years in the way of David and Solomon. 
 Rehoboam took a wife for himself, Mahalath the daughter of Jerimoth the son of David and of Abihail the daughter of Eliab the son of Jesse. 
 She bore him sons: Jeush, Shemariah, and Zaham. 

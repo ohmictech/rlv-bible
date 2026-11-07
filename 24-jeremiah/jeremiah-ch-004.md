@@ -20,12 +20,12 @@ My anguish, my anguish! I am pained at my very heart! My heart trembles within m
 Destruction on destruction is decreed, for the whole land is laid waste. Suddenly my tents are destroyed, and my curtains gone in a moment. 
 How long will I see the standard and hear the sound of the trumpet? 
 "For my people are foolish. They don't know me. They are foolish children, and they have no understanding. They are skillful in doing bad, but they don't know how to do good." 
-I saw the earth and, behold, it was waste and void, and the heavens, and they had no light. 
+I saw the earth and, behold, it was waste and void, and the sky, and they had no light. 
 I saw the mountains, and behold, they trembled, and all the hills moved back and forth. 
 I saw, and behold, there was no man, and all the birds of the sky had fled. 
 I saw, and behold, the fruitful field was a wilderness, and all its cities were broken down at the presence of God, before his fierce anger. 
 For God says, "The whole land will be a desolation; yet I will not make a full end. 
-For this the earth will mourn, and the heavens above be black, because I have spoken it. I have planned it, and I have not repented, neither will I turn back from it." 
+For this the earth will mourn, and the sky above be black, because I have spoken it. I have planned it, and I have not repented, neither will I turn back from it." 
 Every city flees for the noise of the horsemen and archers. They go into the thickets and climb up on the rocks. Every city is forsaken, and not a man dwells therein. 
 You, when you are made desolate, what will you do? Though you clothe yourself with scarlet, though you deck yourself with ornaments of gold, though you enlarge your eyes with makeup, you make yourself beautiful in vain. Your lovers despise you. They seek your life. 
 For I have heard a voice as of a woman in travail, the anguish as of her who gives birth to her first child, the voice of the daughter of Zion, who gasps for breath, who spreads her hands, saying, "Woe is me now! For my soul faints before the murderers." 

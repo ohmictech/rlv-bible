@@ -20,7 +20,7 @@ Israel sent messengers to Sihon king of the Amorites, the king of Heshbon; and I
 But Sihon didn't trust Israel to pass through his border; but Sihon gathered all his people together, and encamped in Jahaz, and fought against Israel. 
 The God of Israel, delivered Sihon and all his people into the hand of Israel, and they struck them. So Israel possessed all the land of the Amorites, the inhabitants of that country. 
 They possessed all the border of the Amorites, from the Arnon even to the Jabbok, and from the wilderness even to the Jordan. 
-So now the God of Israel, has dispossessed the Amorites from before his people Israel, and should you possess them? 
+So now the God of Israel has dispossessed the Amorites from before his people Israel, and should you possess them? 
 Won't you possess that which Chemosh your god gives you to possess? So whoever our God has dispossessed from before us, them will we possess. 
 Now are you anything better than Balak the son of Zippor, king of Moab? Did he ever strive against Israel, or did he ever fight against them? 
 Israel lived in Heshbon and its towns, and in Aroer and its towns, and in all the cities that are along the side of the Arnon for three hundred years! Why didn't you recover them within that time? 

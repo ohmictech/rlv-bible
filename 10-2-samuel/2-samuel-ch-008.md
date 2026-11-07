@@ -14,5 +14,5 @@ David earned a reputation when he returned from striking down eighteen thousand 
 He put garrisons in Edom. Throughout all Edom, he put garrisons, and all the Edomites became servants to David. God gave victory to David wherever he went. 
 David reigned over all Israel; and David executed justice and righteousness for all his people. 
 Joab the son of Zeruiah was over the army, Jehoshaphat the son of Ahilud was recorder, 
-Zadok the son of Ahitub and Ahimelech the son of Abiathar were priests, Seraiah was Bible teacher, 
+Zadok the son of Ahitub and Ahimelech the son of Abiathar were priests, Seraiah was secretary, 
 Benaiah the son of Jehoiada was over the Cherethites and the Pelethites; and David's sons were chief ministers. 

@@ -1,4 +1,4 @@
-﻿Oh that you would tear the heavens, that you would come down, that the mountains might quake at your presence 
+﻿Oh that you would tear the sky, that you would come down, that the mountains might quake at your presence 
 as when fire kindles the brushwood, and the fire causes the water to boil. Make your name known to your adversaries, that the nations may tremble at your presence! 
 When you did awesome things which we didn't look for, you came down, and the mountains quaked at your presence. 
 For from of old men have not heard, nor perceived by the ear, nor has the eye seen a God besides you, who works for him who waits for him. 

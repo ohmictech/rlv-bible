@@ -17,7 +17,7 @@ His servants spoke yet more against God and against his servant Hezekiah.
 He also wrote letters insulting the God of Israel, and speaking against him, saying, "As the gods of the nations of the lands, which have not delivered their people out of my hand, so shall the God of Hezekiah not deliver his people out of my hand." 
 They called out with a loud voice in the Jews' language to the people of Jerusalem who were on the wall, to frighten them and to trouble them, that they might take the city. 
 They spoke of the God of Jerusalem as of the gods of the peoples of the earth, which are the work of men's hands. 
-Hezekiah the king and Isaiah the spokesman, the son of Amoz, prayed because of this, and cried to heaven. 
+Hezekiah the king and Isaiah the spokesman, the son of Amoz, prayed because of this, and cried to the sky. 
 God sent an messenger, who cut off all the mighty men of valor, the leaders, and captains in the camp of the king of Assyria. So he returned with shame of face to his own land. When he had come into the house of his god, those who came out of his own body killed him there with the sword. 
 Thus God saved Hezekiah and the inhabitants of Jerusalem from the hand of Sennacherib the king of Assyria and from the hand of all others, and guided them on every side. 
 Many brought gifts to God to Jerusalem, and precious things to Hezekiah king of Judah, so that he was exalted in the sight of all nations from then on. 

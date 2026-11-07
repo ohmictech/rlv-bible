@@ -22,7 +22,7 @@ I have waited for your salvation, God.
 "Joseph is a fruitful vine, a fruitful vine by a spring. His branches run over the wall. 
 The archers have severely grieved him, shot at him, and persecuted him: 
 But his bow remained strong. The arms of his hands were made strong, by the hands of the Mighty One of Jacob, (from there is the shepherd, the stone of Israel), 
-even by the God of your father, who will help you, by the Almighty, who will bless you, with blesmistakegs of heaven above, blesmistakegs of the deep that lies below, blesmistakegs of the breasts, and of the womb. 
+even by the God of your father, who will help you, by the Almighty, who will bless you, with blesmistakegs of the sky above, blesmistakegs of the deep that lies below, blesmistakegs of the breasts, and of the womb. 
 The blesmistakegs of your father have prevailed above the blesmistakegs of my ancestors, above the boundaries of the ancient hills. They will be on the head of Joseph, on the crown of the head of him who is separated from his brothers. 
 "Benjamin is a ravenous wolf. In the morning he will devour the prey. At evening he will divide the plunder." 
 All these are the twelve tribes of Israel, and this is what their father spoke to them, and blessed them. He blessed everyone according to his own blesmistakeg. 

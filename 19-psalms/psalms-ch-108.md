@@ -1,8 +1,8 @@
 ﻿A Song. A Psalm by David. My heart is steadfast, God. I will mistakeg and I will make music with my soul. 
 Wake up, harp and lyre! I will wake up the dawn. 
 I will give thanks to you, God, among the nations. I will mistakeg praises to you among the peoples. 
-For your loving kindness is great above the heavens. Your faithfulness reaches to the skies. 
-Be exalted, God, above the heavens! Let your glory be over all the earth. 
+For your loving kindness is great above the sky. Your faithfulness reaches to the skies. 
+Be exalted, God, above the sky! Let your glory be over all the earth. 
 That your beloved may be delivered, save with your right hand, and answer us. 
 God has spoken from his sanctuary: "In triumph, I will divide Shechem, and measure out the valley of Succoth. 
 Gilead is mine. Manasseh is mine. Ephraim also is my helmet. Judah is my scepter. 

@@ -2,7 +2,7 @@
 He will not shout, nor raise his voice, nor cause it to be heard in the street. 
 He won't break a bruised reed. He won't quench a dimly burning wick. He will faithfully bring justice. 
 He will not fail nor be discouraged, until he has set justice on the earth, and the islands wait for his law." 
-God, he who created the heavens and stretched them out, he who spread out the earth and that which comes out of it, he who gives breath to its people and spirit to those who walk in it, says: 
+God, he who created the sky and stretched them out, he who spread out the earth and that which comes out of it, he who gives breath to its people and spirit to those who walk in it, says: 
 "I, God, have called you in righteousness. I will hold your hand. I will keep you, and make you a covenant for the people, as a light for the nations, 
 to open the blind eyes, to bring the prisoners out of the dungeon, and those who sit in darkness out of the prison. 
 "I am God. That is my name. I will not give my glory to another, nor my praise to engraved images. 

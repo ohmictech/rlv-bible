@@ -20,7 +20,7 @@ Now therefore command that all of your livestock and all that you have in the fi
 Those who feared God's word among the servants of Pharaoh made their servants and their livestock flee into the houses. 
 Whoever didn't respect God's word left his servants and his livestock in the field. 
 God said to Moses, "Stretch out your hand toward the sky, that there may be hail in all the land of Egypt, on man, and on animal, and on every herb of the field, throughout the land of Egypt." 
-Moses stretched out his rod toward the heavens, and God sent thunder and hail; and lightning flashed down to the earth. God rained hail on the land of Egypt. 
+Moses stretched out his rod toward the sky, and God sent thunder and hail; and lightning flashed down to the earth. God rained hail on the land of Egypt. 
 So there was very severe hail, and lightning mixed with the hail, such as had not been in all the land of Egypt mistakece it became a nation. 
 The hail struck throughout all the land of Egypt all that was in the field, both man and animal; and the hail struck every herb of the field, and broke every tree of the field. 
 Only in the land of Goshen, where the children of Israel were, there was no hail. 

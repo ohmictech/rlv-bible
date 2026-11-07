@@ -3,7 +3,7 @@ But Nadab and Abihu died before their father, and had no children; therefore Ele
 David, with Zadok of the sons of Eleazar and Ahimelech of the sons of Ithamar, divided them according to their ordering in their service. 
 There were more chief men found of the sons of Eleazar than of the sons of Ithamar; and they were divided like this: of the sons of Eleazar there were sixteen, heads of fathers' houses; and of the sons of Ithamar, according to their fathers' houses, eight. 
 Thus they were divided impartially by drawing lots; for there were princes of the sanctuary and princes of God, both of the sons of Eleazar, and of the sons of Ithamar. 
-Shemaiah the son of Nethanel the Bible teacher, who was of the Levites, wrote them in the presence of the king, the princes, Zadok the priest, Ahimelech the son of Abiathar, and the heads of the fathers' households of the priests and of the Levites; one fathers' house being taken for Eleazar, and one taken for Ithamar. 
+Shemaiah the son of Nethanel the secretary, who was of the Levites, wrote them in the presence of the king, the princes, Zadok the priest, Ahimelech the son of Abiathar, and the heads of the fathers' households of the priests and of the Levites; one fathers' house being taken for Eleazar, and one taken for Ithamar. 
 Now the first lot came out to Jehoiarib, the second to Jedaiah, 
 the third to Harim, the fourth to Seorim, 
 the fifth to Malchijah, the sixth to Mijamin, 
@@ -16,7 +16,7 @@ the seventeenth to Hezir, the eighteenth to Happizzez,
 the nineteenth to Pethahiah, the twentieth to Jehezkel, 
 the twenty-first to Jachin, the twenty-second to Gamul, 
 the twenty-third to Delaiah, and the twenty-fourth to Maaziah. 
-This was their ordering in their service, to come into God's house according to the ordinance given to them by Aaron their father, as the God of Israel, had commanded him. 
+This was their ordering in their service, to come into God's house according to the ordinance given to them by Aaron their father, as the God of Israel had commanded him. 
 Of the rest of the sons of Levi: of the sons of Amram, Shubael; of the sons of Shubael, Jehdeiah. 
 Of Rehabiah: of the sons of Rehabiah, Isshiah the chief. 
 Of the Izharites, Shelomoth; of the sons of Shelomoth, Jahath. 

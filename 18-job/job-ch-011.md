@@ -5,7 +5,7 @@ For you say, 'My doctrine is pure. I am clean in your eyes.'
 But oh that God would speak, and open his lips against you, 
 that he would show you the secrets of wisdom! For true wisdom has two sides. Know therefore that God exacts of you less than your guilt deserves. 
 "Can you fathom the mystery of God? Or can you probe the limits of the Almighty? 
-They are high as heaven. What can you do? They are deeper than Hades. What can you know? 
+They are high as sky. What can you do? They are deeper than Hades. What can you know? 
 Its measure is longer than the earth, and broader than the sea. 
 If he passes by, or confines, or convenes a court, then who can oppose him? 
 For he knows false men. He sees guilt also, even though he doesn't consider it. 

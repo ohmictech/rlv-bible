@@ -6,7 +6,7 @@ Therefore his God delivered him into the hand of the king of Syria. They struck 
 For Pekah the son of Remaliah killed in Judah one hundred twenty thousand in one day, everyone valiant men, because they had forsaken the God of their fathers. 
 Zichri, a mighty man of Ephraim, killed Maaseiah the king's son, Azrikam the ruler of the house, and Elkanah who was next to the king. 
 The children of Israel carried away captive of their brothers two hundred thousand women, sons, and daughters, and also took away much plunder from them, and brought the plunder to Samaria. 
-But a spokesman of God was there, whose name was Oded; and he went out to meet the army that came to Samaria, and said to them, "Behold, because the God of your fathers, was angry with Judah, he has delivered them into your hand, and you have slain them in a rage which has reached up to heaven. 
+But a spokesman of God was there, whose name was Oded; and he went out to meet the army that came to Samaria, and said to them, "Behold, because the God of your fathers was angry with Judah, he has delivered them into your hand, and you have slain them in a rage which has reached up to the sky. 
 Now you intend to degrade the children of Judah and Jerusalem as male and female slaves for yourselves. Aren't there even with you trespasses of your own against your God? 
 Now hear me therefore, and send back the captives that you have taken captive from your brothers, for the fierce wrath of God is on you." 
 Then some of the heads of the children of Ephraim, Azariah the son of Johanan, Berechiah the son of Meshillemoth, Jehizkiah the son of Shallum, and Amasa the son of Hadlai, stood up against those who came from the war, 

@@ -86,7 +86,7 @@ The proud have dug pits for me, contrary to your law.
 All of your commandments are faithful. They persecute me wrongfully. Help me! 
 They had almost wiped me from the earth, but I didn't forsake your precepts. 
 Preserve my life according to your loving kindness, so I will obey the statutes of your mouth. LAMEDH 
-God, your word is settled in heaven for the eras. 
+God, your word is settled in the sky for the eras. 
 Your faithfulness is to all generations. You have established the earth, and it remains. 
 Your laws remain to this day, for all things serve you. 
 Unless your law had been my delight, I would have perished in my affliction. 

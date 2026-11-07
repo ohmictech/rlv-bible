@@ -5,4 +5,4 @@ then the waters would have overwhelmed us, the stream would have gone over our s
 Then the proud waters would have gone over our soul. 
 Blessed be God, who has not given us as a prey to their teeth. 
 Our soul has escaped like a bird out of the fowler's snare. The snare is broken, and we have escaped. 
-Our help is in God's name, who made heaven and earth. 
+Our help is in God's name, who made the sky and the earth. 

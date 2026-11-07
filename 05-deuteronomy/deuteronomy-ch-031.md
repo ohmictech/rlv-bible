@@ -25,6 +25,6 @@ When Moses had finished writing the words of this law in a book, until they were
 Moses commanded the Levites, who bore the ark of God's covenant, saying, 
 "Take this book of the law, and put it by the side of the ark of your God's covenant, that it may be there for a witness against you. 
 For I know your rebellion and your stiff neck. Behold, while I am yet alive with you today, you have been rebellious against God. How much more after my death? 
-Assemble to me all the elders of your tribes and your officers, that I may speak these words in their ears, and call heaven and earth to witness against them. 
+Assemble to me all the elders of your tribes and your officers, that I may speak these words in their ears, and call the sky and earth to witness against them. 
 For I know that after my death you will utterly corrupt yourselves, and turn away from the way which I have commanded you; and bad will happen to you in the latter days, because you will do that which is bad in God's sight, to provoke him to anger through the work of your hands." 
 Moses spoke in the ears of all the assembly of Israel the words of this song, until they were finished. 

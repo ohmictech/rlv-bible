@@ -1,4 +1,4 @@
-﻿Afterward Moses and Aaron came, and said to Pharaoh, "This is what the God of Israel, says, 'Let my people go, that they may hold a feast to me in the wilderness.'" 
+﻿Afterward Moses and Aaron came, and said to Pharaoh, "This is what the God of Israel says, 'Let my people go, that they may hold a feast to me in the wilderness.'" 
 Pharaoh said, "Who is God, that I should listen to his voice to let Israel go? I don't know God, and moreover I will not let Israel go." 
 They said, "The God of the Hebrews has met with us. Please let us go three days' journey into the wilderness, and sacrifice to God, our God, lest he fall on us with pestilence, or with the sword." 
 The king of Egypt said to them, "Why do you, Moses and Aaron, take the people from their work? Get back to your burdens!" 

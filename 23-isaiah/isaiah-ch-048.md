@@ -10,7 +10,7 @@ For my name's sake, I will defer my anger, and for my praise, I hold it back for
 Behold, I have refined you, but not as silver. I have chosen you in the furnace of affliction. 
 For my own sake, for my own sake, I will do it; for how would my name be profaned? I will not give my glory to another. 
 "Listen to me, O Jacob, and Israel my called: I am he. I am the first. I am also the last. 
-Yes, my hand has laid the foundation of the earth, and my right hand has spread out the heavens. when I call to them, they stand up together. 
+Yes, my hand has laid the foundation of the earth, and my right hand has spread out the sky. when I call to them, they stand up together. 
 "Assemble yourselves, all of you, and hear! Who among them has declared these things? He whom God loves will do what he likes to Babylon, and his arm will be against the Chaldeans. 
 I, even I, have spoken. Yes, I have called him. I have brought him and he shall make his way prosperous. 
 "Come near to me and hear this: "From the beginning I have not spoken in secret; from the time that it happened, I was there." Now God has sent me with his Spirit. 

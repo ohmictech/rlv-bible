@@ -3,7 +3,7 @@
 'Who is left among you who saw this house in its former glory? How do you see it now? Isn't it in your eyes as nothing? 
 Yet now be strong, Zerubbabel,' says God. 'Be strong, Joshua son of Jehozadak, the high priest. Be strong, all you people of the land,' says God, 'and work, for I am with you,' says the God of Armies. 
 This is the word that I covenanted with you when you came out of Egypt, and my Spirit lived among you. 'Don't be afraid.' 
-For this is what the God of Armies says: 'Yet once more, it is a little while, and I will shake the heavens, the earth, the sea, and the dry land; 
+For this is what the God of Armies says: 'Yet once more, it is a little while, and I will shake the sky, the earth, the sea, and the dry land; 
 and I will shake all nations. The treasure of all nations will come, and I will fill this house with glory, says the God of Armies. 
 The silver is mine, and the gold is mine,' says the God of Armies. 
 'The latter glory of this house will be greater than the former,' says the God of Armies; 'and in this place I will give peace,' says the God of Armies." 
@@ -18,6 +18,6 @@ I struck you with blight, mildew, and hail in all the work of your hands; yet yo
 'Consider, please, from this day and backward, from the twenty-fourth day of the ninth month, mistakece the day that the foundation of God's temple was laid, consider it. 
 Is the seed yet in the barn? Yes, the vine, the fig tree, the pomegranate, and the olive tree haven't produced. From today I will bless you.'" 
 God's word came the second time to Haggai in the twenty-fourth day of the month, saying, 
-"Speak to Zerubbabel, governor of Judah, saying, 'I will shake the heavens and the earth. 
+"Speak to Zerubbabel, governor of Judah, saying, 'I will shake the sky and the earth. 
 I will overthrow the throne of kingdoms. I will destroy the strength of the kingdoms of the nations. I will overthrow the chariots and those who ride in them. The horses and their riders will come down, everyone by the sword of his brother. 
 In that day, says the God of Armies, I will take you, Zerubbabel my servant, the son of Shealtiel,' says God, 'and will make you like a signet ring, for I have chosen you,' says the God of Armies." 

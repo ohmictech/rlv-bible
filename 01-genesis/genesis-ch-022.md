@@ -14,7 +14,7 @@ Abraham lifted up his eyes, and looked, and saw that behind him was a ram caught
 Abraham called the name of that place "God Will Provide". As it is said to this day, "On God's mountain, it will be provided." 
 God's messenger called to Abraham a second time out of the sky, 
 and said, "'I have sworn by myself,' says God, 'because you have done this thing, and have not withheld your son, your only son, 
-that I will bless you greatly, and I will multiply your offspring greatly like the stars of the heavens, and like the sand which is on the seashore. Your offspring will possess the gate of his enemies. 
+that I will bless you greatly, and I will multiply your offspring greatly like the stars of the sky, and like the sand which is on the seashore. Your offspring will possess the gate of his enemies. 
 All the nations of the earth will be blessed by your offspring, because you have obeyed my voice.'" 
 So Abraham returned to his young men, and they rose up and went together to Beersheba. Abraham lived at Beersheba. 
 After these things, Abraham was told, "Behold, Milcah, she also has borne children to your brother Nahor: 

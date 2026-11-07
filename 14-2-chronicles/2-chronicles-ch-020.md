@@ -3,7 +3,7 @@ Then some came who told Jehoshaphat, saying, "A great multitude is coming agains
 Jehoshaphat was alarmed, and set himself to seek God. He proclaimed a fast throughout all Judah. 
 Judah gathered themselves together to seek help from God. They came out of all the cities of Judah to seek God. 
 Jehoshaphat stood in the assembly of Judah and Jerusalem, in God's house, before the new court; 
-and he said, "the God of our fathers, aren't you God in heaven? Aren't you ruler over all the kingdoms of the nations? Power and might are in your hand, so that no one is able to withstand you. 
+and he said, "the God of our fathers, aren't you God in the sky? Aren't you ruler over all the kingdoms of the nations? Power and might are in your hand, so that no one is able to withstand you. 
 Didn't you, our God, drive out the inhabitants of this land before your people Israel, and give it to the offspring of Abraham your friend for the eras? 
 They lived in it, and have built you a sanctuary in it for your name, saying, 
 'If bad comes on us, the sword, judgment, pestilence, or famine, we will stand before this house, and before you (for your name is in this house), and cry to you in our affliction, and you will hear and save.' 

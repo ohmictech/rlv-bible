@@ -18,7 +18,7 @@ and God's anger be kindled against you, and he shut up the sky so that there is 
 Therefore you shall lay up these words of mine in your heart and in your soul. You shall bind them for a sign on your hand, and they shall be for frontlets between your eyes. 
 You shall teach them to your children, talking of them when you sit in your house, when you walk by the way, when you lie down, and when you rise up. 
 You shall write them on the door posts of your house and on your gates; 
-that your days and your children's days may be multiplied in the land which God swore to your fathers to give them, as the days of the heavens above the earth. 
+that your days and your children's days may be multiplied in the land which God swore to your fathers to give them, as the days of the sky above the earth. 
 For if you shall diligently keep all these commandments which I command you, to do them, to love your God, to walk in all his ways, and to cling to him 
 then God will drive out all these nations from before you, and you shall dispossess nations greater and mightier than yourselves. 
 Every place on which the sole of your foot treads shall be yours: from the wilderness and Lebanon, from the river, the river Euphrates, even to the western sea shall be your border. 

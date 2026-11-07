@@ -1,7 +1,7 @@
-﻿The heavens, the earth, and all their vast array were finished. 
+﻿The sky, the earth, and all their vast array were finished. 
 On the seventh day God finished his work which he had done; and he rested on the seventh day from all his work which he had done. 
 God blessed the seventh day, and made it holy, because he rested in it from all his work of creation which he had done. 
-This is the history of the generations of the heavens and of the earth when they were created, in the day that God made the earth and the heavens. 
+This is the history of the generations of the sky and of the earth when they were created, in the day that God made the earth and the sky. 
 No plant of the field was yet on the earth, and no herb of the field had yet sprung up; for God had not caused it to rain on the earth. There was not a man to till the ground, 
 but a mist went up from the earth, and watered the whole surface of the ground. 
 God formed man from the dust of the ground, and breathed into his nostrils the breath of life; and man became a living soul. 

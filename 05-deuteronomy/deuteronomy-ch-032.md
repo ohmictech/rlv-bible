@@ -1,4 +1,4 @@
-﻿Give ear, you heavens, and I will speak. Let the earth hear the words of my mouth. 
+﻿Give ear, you skies, and I will speak. Let the earth hear the words of my mouth. 
 My doctrine will drop as the rain. My speech will condense as the dew, as the misty rain on the tender grass, as the showers on the herb. 
 For I will proclaim God's name. Ascribe greatness to our God! 
 The Rock: his work is perfect, for all his ways are just. A God of faithfulness who does no wrong, just and right is he. 
@@ -37,7 +37,7 @@ For God will judge his people, and have compassion on his servants, when he sees
 He will say, "Where are their gods, the rock in which they took refuge, 
 which ate the fat of their sacrifices, and drank the wine of their drink offering? Let them rise up and help you! Let them be your protection. 
 "See now that I myself am he. There is no god with me. I kill and I make alive. I wound and I heal. There is no one who can deliver out of my hand. 
-For I lift up my hand to heaven and declare, as I live for the eras, 
+For I lift up my hand to the sky and declare, as I live for the eras, 
 if I sharpen my glittering sword, my hand grasps it in judgment; I will take vengeance on my adversaries, and will repay those who hate me. 
 I will make my arrows drunk with blood. My sword shall devour flesh with the blood of the slain and the captives, from the head of the leaders of the enemy." 
 Rejoice, you nations, with his people, for he will avenge the blood of his servants. He will take vengeance on his adversaries, and will make things right for his land and for his people. 

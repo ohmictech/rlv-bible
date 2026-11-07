@@ -1,4 +1,4 @@
-﻿God says: "Heaven is my throne, and the earth is my footstool. What kind of house will you build to me? Where will I rest? 
+﻿God says: "Sky is my throne, and the earth is my footstool. What kind of house will you build to me? Where will I rest? 
 For my hand has made all these things, and so all these things came to be," says God: "but I will look to this man, even to he who is poor and of a contrite spirit, and who trembles at my word. 
 He who kills an ox is as he who kills a man; he who sacrifices a lamb, as he who breaks a dog's neck; he who offers an offering, as he who offers pig's blood; he who burns frankincense, as he who blesses an idol. Yes, they have chosen their own ways, and their soul delights in their abominations. 
 I also will choose their delusions, and will bring their fears on them, because when I called, no one answered; when I spoke, they didn't listen, but they did that which was bad in my eyes, and chose that in which I didn't delight." 
@@ -19,6 +19,6 @@ For God will execute judgment by fire and by his sword on all flesh; and those s
 "I will set a sign among them, and I will send those who escape of them to the nations, to Tarshish, Pul, and Lud, who draw the bow, to Tubal and Javan, to far-away islands, who have not heard my fame, nor have seen my glory; and they shall declare my glory among the nations. 
 They shall bring all your brothers out of all the nations for an offering to God, on horses, in chariots, in litters, on mules, and on camels, to my holy mountain Jerusalem, says God, as the children of Israel bring their offering in a clean vessel into God's house. 
 Of them I will also select priests and Levites," says God. 
-"For as the new heavens and the new earth, which I will make, shall remain before me," says God, "so your offspring and your name shall remain. 
+"For as the new skies and the new earth, which I will make, shall remain before me," says God, "so your offspring and your name shall remain. 
 It shall happen that from one new moon to another, and from one Sabbath to another, all flesh will come to worship before me," says God. 
 "They will go out, and look at the dead bodies of the men who have transgressed against me; for their worm will not die, nor will their fire be quenched, and they will be loathsome to all mankind." 

@@ -12,7 +12,7 @@ Then he remembered the days of old, Moses and his people, saying, "Where is he w
 Who caused his glorious arm to be at Moses' right hand? Who divided the waters before them, to make himself an perpetual name? 
 Who led them through the depths, like a horse in the wilderness, so that they didn't stumble? 
 As the livestock that go down into the valley, God's Spirit caused them to rest. So you led your people to make yourself a glorious name. 
-Look down from heaven, and see from the habitation of your holiness and of your glory. Where are your passion and your mighty acts? The yearning of your heart and your compassion is restrained toward me. 
+Look down from the sky, and see from the habitation of your holiness and of your glory. Where are your passion and your mighty acts? The yearning of your heart and your compassion is restrained toward me. 
 For you are our Father, though Abraham doesn't know us, and Israel does not acknowledge us. You, God, are our Father. the one who buys us back from perpetual is your name. 
 O God, why do you make us wander from your ways, and harden our heart from your fear? Return for your servants' sake, the tribes of your inheritance. 
 Your holy people possessed it but a little while. Our adversaries have trodden down your sanctuary. 

@@ -11,10 +11,10 @@ I signed the deed, sealed it, called witnesses, and weighed the money in the bal
 So I took the deed of the purchase, both that which was sealed, containing the terms and conditions, and that which was open; 
 and I delivered the deed of the purchase to Baruch the son of Neriah, the son of Mahseiah, in the presence of Hanamel my uncle's son, and in the presence of the witnesses who signed the deed of the purchase, before all the Jews who sat in the court of the guard. 
 "I commanded Baruch before them, saying, 
-the God of Armies, the God of Israel, says: 'Take these deeds, this deed of the purchase which is sealed, and this deed which is open, and put them in an earthen vessel, that they may last many days.' 
+the God of Armies, the God of Israel says: 'Take these deeds, this deed of the purchase which is sealed, and this deed which is open, and put them in an earthen vessel, that they may last many days.' 
 For the God of Armies, the God of Israel says: 'Houses and fields and vineyards will yet again be bought in this land.' 
 Now after I had delivered the deed of the purchase to Baruch the son of Neriah, I prayed to God, saying, 
-"Ah God! Behold, you have made the heavens and the earth by your great power and by your outstretched arm. There is nothing too hard for you. 
+"Ah God! Behold, you have made the sky and the earth by your great power and by your outstretched arm. There is nothing too hard for you. 
 You show loving kindness to thousands, and repay the guilt of the fathers into the bosom of their children after them. The great, the mighty God of Armies is your name: 
 great in counsel, and mighty in work; whose eyes are open to all the ways of the children of men, to give everyone according to his ways, and according to the fruit of his doings; 
 who performed signs and wonders in the land of Egypt, even to this day, both in Israel and among other men; and made yourself a name, as it is today; 
@@ -33,7 +33,7 @@ because of all the bad of the children of Israel and of the children of Judah, w
 They have turned their backs to me, and not their faces. Although I taught them, rimistakeg up early and teaching them, yet they have not listened to receive instruction. 
 But they set their abominations in the house which is called by my name, to defile it. 
 They built the high places of Baal, which are in the valley of the son of Hinnom, to cause their sons and their daughters to pass through fire to Molech, which I didn't command them. It didn't even come into my mind, that they should do this abomination, to cause Judah to miss the mark." 
-Now therefore the God of Israel, says concerning this city, about which you say, "It is given into the hand of the king of Babylon by the sword, by the famine, and by the pestilence:" 
+Now therefore the God of Israel says concerning this city, about which you say, "It is given into the hand of the king of Babylon by the sword, by the famine, and by the pestilence:" 
 "Behold, I will gather them out of all the countries where I have driven them in my anger, and in my wrath, and in great indignation; and I will bring them again to this place. I will cause them to dwell safely. 
 Then they will be my people, and I will be their God. 
 I will give them one heart and one way, that they may fear me for the eras, for their good and the good of their children after them. 

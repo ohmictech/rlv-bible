@@ -1,5 +1,5 @@
 ﻿Now in the first year of Cyrus king of Persia, that God's word by Jeremiah's mouth might be accomplished, God stirred up the spirit of Cyrus king of Persia, so that he made a proclamation throughout all his kingdom, and put it also in writing, saying, 
-"Cyrus king of Persia says, 'The God of heaven, has given me all the kingdoms of the earth; and he has commanded me to build him a house in Jerusalem, which is in Judah. 
+"Cyrus king of Persia says, 'The God of the sky has given me all the kingdoms of the earth; and he has commanded me to build him a house in Jerusalem, which is in Judah. 
 Whoever there is among you of all his people, may his God be with him, and let him go up to Jerusalem, which is in Judah, and build the house of the God of Israel (he is God), which is in Jerusalem. 
 Whoever is left, in any place where he lives, let the men of his place help him with silver, with gold, with goods, and with animals, in addition to the free will offering for God's house which is in Jerusalem.'" 
 Then the heads of fathers' households of Judah and Benjamin, the priests and the Levites, all whose spirit God had stirred to go up, rose up to build God's house which is in Jerusalem. 

@@ -24,7 +24,7 @@ For they said to me, 'Make us gods, which shall go before us. As for this Moses,
 I said to them, 'Whoever has any gold, let them take it off.' So they gave it to me; and I threw it into the fire, and out came this calf." 
 When Moses saw that the people were out of control, (for Aaron had let them lose control, caumistakeg derision among their enemies), 
 then Moses stood in the gate of the camp, and said, "Whoever is on God's side, come to me!" All the sons of Levi gathered themselves together to him. 
-He said to them, "The God of Israel, says, 'Every man put his sword on his thigh, and go back and forth from gate to gate throughout the camp, and every man kill his brother, and every man his companion, and every man his neighbor.'" 
+He said to them, "The God of Israel says, 'Every man put his sword on his thigh, and go back and forth from gate to gate throughout the camp, and every man kill his brother, and every man his companion, and every man his neighbor.'" 
 The sons of Levi did according to the word of Moses. About three thousand men fell of the people that day. 
 Moses said, "Consecrate yourselves today to God, for every man was against his son and against his brother, that he may give you a blesmistakeg today." 
 On the next day, Moses said to the people, "You have missed the mark a great mistake. Now I will go up to God. Perhaps I shall make things right for your mistake." 

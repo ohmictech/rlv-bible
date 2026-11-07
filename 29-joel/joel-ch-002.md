@@ -7,7 +7,7 @@ At their presence the peoples are in anguish. All faces have grown pale.
 They run like mighty men. They climb the wall like warriors. They each march in his line, and they don't swerve off course. 
 One doesn't jostle another. They each march in their own path. They burst through the defenses and don't break ranks. 
 They rush on the city. They run on the wall. They climb up into the houses. They enter in at the windows like thieves. 
-The earth quakes before them. The heavens tremble. The sun and the moon are darkened, and the stars withdraw their shining. 
+The earth quakes before them. The sky tremble. The sun and the moon are darkened, and the stars withdraw their shining. 
 God thunders his voice before his army, for his forces are very great; for he is strong who obeys his command; for the day of God is great and very awesome, and who can endure it? 
 "Yet even now," says God, "turn to me with all your heart, and with fasting, and with weeping, and with mourning." 
 Tear your heart and not your garments, and turn to God, your God; for he is gracious and merciful, slow to anger, and abundant in loving kindness, and relents from sending calamity. 
@@ -27,6 +27,6 @@ You will have plenty to eat and be satisfied, and will praise the name of God, y
 You will know that I am among Israel, and that I am God, your God, and there is no one else; and my people will never again be disappointed. 
 "It will happen afterward, that I will pour out my Spirit on all flesh; and your sons and your daughters will prophesy. Your old men will dream dreams. Your young men will see visions. 
 And also on the servants and on the handmaids in those days, I will pour out my Spirit. 
-I will show wonders in the heavens and on the earth: blood, fire, and pillars of smoke. 
+I will show wonders in the sky and on the earth: blood, fire, and pillars of smoke. 
 The sun will be turned into darkness, and the moon into blood, before the great and terrible day of God comes. 
 It will happen that whoever will call on God's name shall be saved; for in Mount Zion and in Jerusalem there will be those who escape, as God has said, and among the remnant, those whom God calls. 

@@ -1,6 +1,6 @@
 ﻿These also are proverbs of Solomon, which the men of Hezekiah king of Judah copied out. 
 It is the glory of God to conceal a thing, but the glory of kings is to search out a matter. 
-As the heavens for height, and the earth for depth, so the hearts of kings are unsearchable. 
+As the sky for height, and the earth for depth, so the hearts of kings are unsearchable. 
 Take away the dross from the silver, and material comes out for the refiner. 
 Take away the guilty from the king's presence, and his throne will be established in righteousness. 
 Don't exalt yourself in the presence of the king, or claim a place among great men; 

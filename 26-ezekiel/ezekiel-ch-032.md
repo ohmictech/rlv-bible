@@ -4,7 +4,7 @@ The God says: "I will spread out my net on you with a company of many peoples. T
 I will leave you on the land. I will cast you out on the open field, and will cause all the birds of the sky to settle on you. I will satisfy the animals of the whole earth with you. 
 I will lay your flesh on the mountains, and fill the valleys with your height. 
 I will also water the land in which you swim with your blood, even to the mountains. The watercourses will be full of you. 
-When I extinguish you, I will cover the heavens and make its stars dark. I will cover the sun with a cloud, and the moon won't give its light. 
+When I extinguish you, I will cover the sky and make its stars dark. I will cover the sun with a cloud, and the moon won't give its light. 
 I will make all the bright lights of the sky dark over you, and set darkness on your land," says God. 
 "I will also trouble the hearts of many peoples, when I bring your destruction among the nations, into the countries which you have not known. 
 Yes, I will make many peoples amazed at you, and their kings will be horribly afraid for you, when I brandish my sword before them. They will tremble at every moment, every man for his own life, in the day of your fall." 

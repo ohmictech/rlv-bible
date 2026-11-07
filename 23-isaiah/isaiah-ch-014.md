@@ -9,8 +9,8 @@ Yes, the cypress trees rejoice with you, with the cedars of Lebanon, saying, "Mi
 Hades from beneath has moved for you to meet you at your coming. It stirs up the departed spirits for you, even all the rulers of the earth. It has raised up from their thrones all the kings of the nations. 
 They all will answer and ask you, "Have you also become as weak as we are? Have you become like us?" 
 Your pomp is brought down to Hades, with the sound of your stringed instruments. Maggots are spread out under you, and worms cover you. 
-How you have fallen from heaven, shining one, son of the dawn! How you are cut down to the ground, who laid the nations low! 
-You said in your heart, "I will ascend into heaven! I will exalt my throne above the stars of God! I will sit on the mountain of assembly, in the far north! 
+How you have fallen from the sky, shining one, son of the dawn! How you are cut down to the ground, who laid the nations low! 
+You said in your heart, "I will ascend into the sky! I will exalt my throne above the stars of God! I will sit on the mountain of assembly, in the far north! 
 I will ascend above the heights of the clouds! I will make myself like the Most High!" 
 Yet you shall be brought down to Hades, to the depths of the pit. 
 Those who see you will stare at you. They will ponder you, saying, "Is this the man who made the earth to tremble, who shook kingdoms, 

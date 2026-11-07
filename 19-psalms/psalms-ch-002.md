@@ -1,7 +1,7 @@
 ﻿Why do the nations rage, and the peoples plot a vain thing? 
 The kings of the land take a stand, and the rulers take counsel together, against God, and against his Christ, saying, 
 "Let's break their bonds apart, and cast their cords from us." 
-He who sits in the heavens will laugh. The Lord will have them in derision. 
+He who sits in the sky will laugh. The Lord will have them in derision. 
 Then he will speak to them in his anger, and terrify them in his wrath: 
 "Yet I have set my King on my holy hill of Zion." 
 I will tell of the decree: God said to me, "You are my son. Today I have become your father. 

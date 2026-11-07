@@ -1,5 +1,5 @@
 ﻿When King Hezekiah heard it, he tore his clothes, covered himself with sackcloth, and went into God's house. 
-He sent Eliakim, who was over the household, Shebna the Bible teacher, and the elders of the priests, covered with sackcloth, to Isaiah the spokesman the son of Amoz. 
+He sent Eliakim, who was over the household, Shebna the secretary, and the elders of the priests, covered with sackcloth, to Isaiah the spokesman the son of Amoz. 
 They said to him, "Hezekiah says, 'Today is a day of trouble, of rebuke, and of rejection; for the children have come to the point of birth, and there is no strength to deliver them. 
 It may be your God will hear all the words of Rabshakeh, whom the king of Assyria his master has sent to defy the living God, and will rebuke the words which your God has heard. Therefore lift up your prayer for the remnant that is left.'" 
 So the servants of King Hezekiah came to Isaiah. 
@@ -12,12 +12,12 @@ Behold, you have heard what the kings of Assyria have done to all lands, by dest
 Have the gods of the nations delivered them, which my fathers have destroyed, Gozan, Haran, Rezeph, and the children of Eden who were in Telassar? 
 Where is the king of Hamath, the king of Arpad, and the king of the city of Sepharvaim, of Hena, and Ivvah?'" 
 Hezekiah received the letter from the hand of the messengers and read it. Then Hezekiah went up to God's house, and spread it before God. 
-Hezekiah prayed before God, and said, "the God of Israel, enthroned above the cherubim, you are the God, even you alone, of all the kingdoms of the earth. You have made heaven and earth. 
+Hezekiah prayed before God, and said, "the God of Israel, enthroned above the cherubim, you are the God, even you alone, of all the kingdoms of the earth. You have made the sky and the earth. 
 Incline your ear, God, and hear. Open your eyes, God, and see. Hear the words of Sennacherib, which he has sent to defy the living God. 
 Truly, God, the kings of Assyria have laid waste the nations and their lands, 
 and have cast their gods into the fire; for they were no gods, but the work of men's hands, wood and stone. Therefore they have destroyed them. 
 Now therefore, God our God, save us, I beg you, out of his hand, that all the kingdoms of the earth may know that you, God, are God alone." 
-Then Isaiah the son of Amoz sent to Hezekiah, saying, "The God of Israel, says 'You have prayed to me against Sennacherib king of Assyria, and I have heard you. 
+Then Isaiah the son of Amoz sent to Hezekiah, saying, "The God of Israel says 'You have prayed to me against Sennacherib king of Assyria, and I have heard you. 
 This is the word that God has spoken concerning him: 'The virgin daughter of Zion has despised you and ridiculed you. The daughter of Jerusalem has shaken her head at you. 
 Whom have you defied and blasphemed? Against whom have you exalted your voice and lifted up your eyes on high? Against the Holy One of Israel! 
 By your messengers, you have defied the Lord, and have said, "With the multitude of my chariots, I have come up to the height of the mountains, to the innermost parts of Lebanon, and I will cut down its tall cedars and its choice cypress trees; and I will enter into his farthest lodging place, the forest of his fruitful field. 

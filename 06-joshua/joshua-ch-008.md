@@ -17,7 +17,7 @@ Everyone who was in the city were called together to pursue after them. They pur
 There was not a man left in Ai or Bethel who didn't go out after Israel. They left the city open, and pursued Israel. 
 God said to Joshua, "Stretch out the javelin that is in your hand toward Ai, for I will give it into your hand." Joshua stretched out the javelin that was in his hand toward the city. 
 The ambush arose quickly out of their place, and they ran as soon as he had stretched out his hand and entered into the city and took it. They hurried and set the city on fire. 
-When the men of Ai looked behind them, they saw, and behold, the smoke of the city ascended up to heaven, and they had no power to flee this way or that way. The people who fled to the wilderness turned back on the pursuers. 
+When the men of Ai looked behind them, they saw, and behold, the smoke of the city ascended up to the sky, and they had no power to flee this way or that way. The people who fled to the wilderness turned back on the pursuers. 
 When Joshua and all Israel saw that the ambush had taken the city, and that the smoke of the city ascended, then they turned back and killed the men of Ai. 
 The others came out of the city against them, so they were in the middle of Israel, some on this side, and some on that side. They struck them, so that they let none of them remain or escape. 
 They captured the king of Ai alive, and brought him to Joshua. 

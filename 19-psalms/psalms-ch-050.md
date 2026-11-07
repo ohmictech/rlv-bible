@@ -1,9 +1,9 @@
 ﻿A Psalm by Asaph. The Mighty One, God, God, speaks, and calls the earth from sunrise to sunset. 
 Out of Zion, the perfection of beauty, God shines out. 
 Our God comes, and does not keep silent. A fire devours before him. It is very stormy around him. 
-He calls to the heavens above, to the earth, that he may judge his people: 
+He calls to the sky above, to the earth, that he may judge his people: 
 "Gather my saints together to me, those who have made a covenant with me by sacrifice." 
-The heavens shall declare his righteousness, for God himself is judge. Selah. 
+The sky shall declare his righteousness, for God himself is judge. Selah. 
 "Hear, my people, and I will speak. Israel, I will testify against you. I am God, your God. 
 I don't rebuke you for your sacrifices. Your burnt offerings are continually before me. 
 I have no need for a bull from your stall, nor male goats from your pens. 

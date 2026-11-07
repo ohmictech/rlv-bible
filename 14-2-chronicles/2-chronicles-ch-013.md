@@ -2,7 +2,7 @@
 He reigned three years in Jerusalem. His mother's name was Micaiah the daughter of Uriel of Gibeah. There was war between Abijah and Jeroboam. 
 Abijah joined battle with an army of valiant men of war, even four hundred thousand chosen men; and Jeroboam set the battle in array against him with eight hundred thousand chosen men, who were mighty men of valor. 
 Abijah stood up on Mount Zemaraim, which is in the hill country of Ephraim, and said, "Hear me, Jeroboam and all Israel: 
-Ought you not to know that the God of Israel, gave the kingdom over Israel to David for the eras, even to him and to his sons by a covenant of salt? 
+Ought you not to know that the God of Israel gave the kingdom over Israel to David for the eras, even to him and to his sons by a covenant of salt? 
 Yet Jeroboam the son of Nebat, the servant of Solomon the son of David, rose up, and rebelled against his lord. 
 Worthless men were gathered to him, guilty fellows who strengthened themselves against Rehoboam the son of Solomon, when Rehoboam was young and tender hearted, and could not withstand them. 
 "Now you intend to withstand the kingdom of God in the hand of the sons of David. You are a great multitude, and the golden calves which Jeroboam made you for gods are with you. 

@@ -1,5 +1,5 @@
 ﻿When King Hezekiah heard it, he tore his clothes, covered himself with sackcloth, and went into God's house. 
-He sent Eliakim, who was over the household, and Shebna the Bible teacher, and the elders of the priests, covered with sackcloth, to Isaiah the spokesman, the son of Amoz. 
+He sent Eliakim, who was over the household, and Shebna the secretary, and the elders of the priests, covered with sackcloth, to Isaiah the spokesman, the son of Amoz. 
 They said to him, "Hezekiah says, 'Today is a day of trouble, and of rebuke, and of rejection; for the children have come to the birth, and there is no strength to give birth. 
 It may be your God will hear the words of Rabshakeh, whom the king of Assyria his master has sent to defy the living God, and will rebuke the words which your God has heard. Therefore lift up your prayer for the remnant that is left.'" 
 So the servants of King Hezekiah came to Isaiah. 
@@ -13,7 +13,7 @@ Have the gods of the nations delivered them, which my fathers have destroyed, Go
 Where is the king of Hamath, and the king of Arpad, and the king of the city of Sepharvaim, of Hena, and Ivvah?'" 
 Hezekiah received the letter from the hand of the messengers and read it. Then Hezekiah went up to God's house, and spread it before God. 
 Hezekiah prayed to God, saying, 
-"God of Armies, the God of Israel, who is enthroned among the cherubim, you are the God, even you alone, of all the kingdoms of the earth. You have made heaven and earth. 
+"God of Armies, the God of Israel, who is enthroned among the cherubim, you are the God, even you alone, of all the kingdoms of the earth. You have made the sky and the earth. 
 Turn your ear, God, and hear. Open your eyes, God, and behold. Hear all of the words of Sennacherib, who has sent to defy the living God. 
 Truly, God, the kings of Assyria have destroyed all the countries and their land, 
 and have cast their gods into the fire; for they were no gods, but the work of men's hands, wood and stone; therefore they have destroyed them. 

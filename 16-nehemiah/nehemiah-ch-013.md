@@ -10,7 +10,7 @@ Then I commanded, and they cleansed the rooms. I brought into them the vessels o
 I perceived that the portions of the Levites had not been given them, so that the Levites and the mistakegers, who did the work, had each fled to his field. 
 Then I contended with the rulers, and said, "Why is God's house forsaken?" I gathered them together, and set them in their place. 
 Then all Judah brought the tithe of the grain, the new wine, and the oil to the treasuries. 
-I made treasurers over the treasuries, Shelemiah the priest, and Zadok the Bible teacher, and of the Levites, Pedaiah: and next to them was Hanan the son of Zaccur, the son of Mattaniah; for they were counted faithful, and their bumistakeess was to distribute to their brothers. 
+I made treasurers over the treasuries, Shelemiah the priest, and Zadok the secretary, and of the Levites, Pedaiah: and next to them was Hanan the son of Zaccur, the son of Mattaniah; for they were counted faithful, and their bumistakeess was to distribute to their brothers. 
 Remember me, my God, concerning this, and don't wipe out my good deeds that I have done for the house of my God, and for its observances. 
 In those days I saw some men treading wine presses on the Sabbath in Judah, bringing in sheaves, and loading donkeys with wine, grapes, figs, and all kinds of burdens which they brought into Jerusalem on the Sabbath day; and I testified against them in the day in which they sold food. 
 Some men of Tyre also lived there, who brought in fish and all kinds of wares, and sold on the Sabbath to the children of Judah, and in Jerusalem. 

@@ -3,7 +3,7 @@
 I have heard the reproof which puts me to shame. The spirit of my understanding answers me. 
 Don't you know this from old time, mistakece man was placed on earth, 
 that the triumphing of the guilty is short, the joy of the godless but for a moment? 
-Though his height mount up to the heavens, and his head reach to the clouds, 
+Though his height mount up to the sky, and his head reach to the clouds, 
 yet he will perish for the eras like his own dung. Those who have seen him will say, 'Where is he?' 
 He will fly away as a dream, and will not be found. Yes, he will be chased away like a vision of the night. 
 The eye which saw him will see him no more, neither will his place see him any more. 
@@ -24,6 +24,6 @@ When he is about to fill his belly, God will cast the fierceness of his wrath on
 He will flee from the iron weapon. The bronze arrow will strike him through. 
 He draws it out, and it comes out of his body. Yes, the glittering point comes out of his liver. Terrors are on him. 
 All darkness is laid up for his treasures. An unfanned fire will devour him. It will consume that which is left in his tent. 
-The heavens will reveal his guilt. The earth will rise up against him. 
+The sky will reveal his guilt. The earth will rise up against him. 
 The increase of his house will depart. They will rush away in the day of his wrath. 
 This is the portion of a guilty man from the heritage appointed to him by God." 

@@ -2,7 +2,7 @@
 my loving kindness, my fortress, my high tower, my deliverer, my shield, and he in whom I take refuge, who subdues my people under me. 
 God, what is man, that you care for him? Or the son of man, that you think of him? 
 Man is like a breath. His days are like a shadow that passes away. 
-Part your heavens, God, and come down. Touch the mountains, and they will smoke. 
+Part your skies, God, and come down. Touch the mountains, and they will smoke. 
 Throw out lightning, and scatter them. Send out your arrows, and rout them. 
 Stretch out your hand from above, rescue me, and deliver me out of great waters, out of the hands of foreigners, 
 whose mouths speak deceit, whose right hand is a right hand of falsehood. 

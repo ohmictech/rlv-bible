@@ -12,10 +12,10 @@ Don't be afraid of the king of Babylon, of whom you are afraid. Don't be afraid 
 I will grant you mercy, that he may have mercy on you, and cause you to return to your own land. 
 "'But if you say, "We will not dwell in this land," so that you don't obey your God's voice, 
 saying, "No, but we will go into the land of Egypt, where we will see no war, nor hear the sound of the trumpet, nor have hunger of bread; and there we will dwell;"' 
-now therefore hear God's word, O remnant of Judah! The God of Armies, the God of Israel, says, 'If you indeed set your faces to enter into Egypt, and go to live there, 
+now therefore hear God's word, O remnant of Judah! The God of Armies, the God of Israel says, 'If you indeed set your faces to enter into Egypt, and go to live there, 
 then it will happen that the sword, which you fear, will overtake you there in the land of Egypt; and the famine, about which you are afraid, will follow close behind you there in Egypt; and you will die there. 
 So will it be with all the men who set their faces to go into Egypt to live there. They will die by the sword, by the famine, and by the pestilence. None of them will remain or escape from the bad that I will bring on them.' 
-For the God of Armies, the God of Israel, says: 'As my anger and my wrath has been poured out on the inhabitants of Jerusalem, so my wrath will be poured out on you, when you enter into Egypt; and you will be an object of horror, an astonishment, a curse, and a reproach; and you will see this place no more.' 
+For the God of Armies, the God of Israel says: 'As my anger and my wrath has been poured out on the inhabitants of Jerusalem, so my wrath will be poured out on you, when you enter into Egypt; and you will be an object of horror, an astonishment, a curse, and a reproach; and you will see this place no more.' 
 "God has spoken concerning you, remnant of Judah, 'Don't go into Egypt!' Know certainly that I have testified to you today. 
 For you have dealt deceitfully against your own souls; for you sent me to your God, saying, 'Pray for us to our God; and according to all that our God says, so declare to us, and we will do it.' 
 I have declared it to you today; but you have not obeyed your God's voice in anything for which he has sent me to you. 

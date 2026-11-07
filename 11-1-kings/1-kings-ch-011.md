@@ -28,7 +28,7 @@ This was the reason why he lifted up his hand against the king: Solomon built Mi
 The man Jeroboam was a mighty man of valor; and Solomon saw that the young man was industrious, and he put him in charge of all the labor of the house of Joseph. 
 At that time, when Jeroboam went out of Jerusalem, the spokesman Ahijah the Shilonite found him on the way. Now Ahijah had clad himself with a new garment; and the two of them were alone in the field. 
 Ahijah took the new garment that was on him, and tore it in twelve pieces. 
-He said to Jeroboam, "Take ten pieces; for the God of Israel, says, 'Behold, I will tear the kingdom out of the hand of Solomon and will give ten tribes to you 
+He said to Jeroboam, "Take ten pieces; for the God of Israel says, 'Behold, I will tear the kingdom out of the hand of Solomon and will give ten tribes to you 
 (but he shall have one tribe, for my servant David's sake and for Jerusalem's sake, the city which I have chosen out of all the tribes of Israel), 
 because they have forsaken me, and have worshiped Ashtoreth the goddess of the Sidonians, Chemosh the god of Moab, and Milcom the god of the children of Ammon. They have not walked in my ways, to do that which is right in my eyes, and to keep my statutes and my ordinances, as David his father did. 
 "'However, I will not take the whole kingdom out of his hand, but I will make him prince all the days of his life for David my servant's sake whom I chose, who kept my commandments and my statutes, 

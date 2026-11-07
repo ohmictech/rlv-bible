@@ -37,7 +37,7 @@ Joshua went up from Eglon, and all Israel with him, to Hebron; and they fought a
 They took it, and struck it with the edge of the sword, with its king and all its cities, and all the souls who were in it. He left no one remaining, according to all that he had done to Eglon; but he utterly destroyed it, and all the souls who were in it. 
 Joshua returned, and all Israel with him, to Debir, and fought against it. 
 He took it, with its king and all its cities. They struck them with the edge of the sword, and utterly destroyed all the souls who were in it. He left no one remaining. As he had done to Hebron, so he did to Debir, and to its king; as he had done also to Libnah, and to its king. 
-So Joshua struck all the land, the hill country, the South, the lowland, the slopes, and all their kings. He left no one remaining, but he utterly destroyed all that breathed, as the God of Israel, commanded. 
+So Joshua struck all the land, the hill country, the South, the lowland, the slopes, and all their kings. He left no one remaining, but he utterly destroyed all that breathed, as the God of Israel commanded. 
 Joshua struck them from Kadesh Barnea even to Gaza, and all the country of Goshen, even to Gibeon. 
 Joshua took all these kings and their land at one time because the God of Israel, fought for Israel. 
 Joshua returned, and all Israel with him, to the camp to Gilgal. 

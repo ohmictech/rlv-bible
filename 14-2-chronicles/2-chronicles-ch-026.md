@@ -8,7 +8,7 @@ God helped him against the Philistines, and against the Arabians who lived in Gu
 The Ammonites gave tribute to Uzziah. His name spread abroad even to the entrance of Egypt, for he grew exceedingly strong. 
 Moreover Uzziah built towers in Jerusalem at the corner gate, at the valley gate, and at the turning of the wall, and fortified them. 
 He built towers in the wilderness, and dug out many cisterns, for he had much livestock, both in the lowlands and in the plains. He had farmers and vineyard keepers in the mountains and in the fruitful fields, for he loved farming. 
-Moreover Uzziah had an army of fighting men who went out to war by bands, according to the number of their reckoning made by Jeiel the Bible teacher and Maaseiah the officer, under the hand of Hananiah, one of the king's captains. 
+Moreover Uzziah had an army of fighting men who went out to war by bands, according to the number of their reckoning made by Jeiel the secretary and Maaseiah the officer, under the hand of Hananiah, one of the king's captains. 
 The whole number of the heads of fathers' households, even the mighty men of valor, was two thousand six hundred. 
 Under their hand was an army, three hundred seven thousand five hundred, who made war with mighty power, to help the king against the enemy. 
 Uzziah prepared for them, even for all the army, shields, spears, helmets, coats of mail, bows, and stones for slinging. 

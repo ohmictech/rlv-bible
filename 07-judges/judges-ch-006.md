@@ -5,7 +5,7 @@ They encamped against them, and destroyed the increase of the earth, until you c
 For they came up with their livestock and their tents. They came in as locusts for multitude. Both they and their camels were without number; and they came into the land to destroy it. 
 Israel was brought very low because of Midian; and the children of Israel cried to God. 
 When the children of Israel cried to God because of Midian, 
-God sent a spokesman to the children of Israel; and he said to them, "The God of Israel, says, 'I brought you up from Egypt, and brought you out of the house of bondage. 
+God sent a spokesman to the children of Israel; and he said to them, "The God of Israel says, 'I brought you up from Egypt, and brought you out of the house of bondage. 
 I delivered you out of the hand of the Egyptians and out of the hand of everyone who oppressed you, and drove them out from before you, and gave you their land. 
 I said to you, "I am your God. You shall not fear the gods of the Amorites, in whose land you dwell." But you have not listened to my voice.'" 
 God's messenger came and sat under the oak which was in Ophrah, that belonged to Joash the Abiezrite. His son Gideon was beating out wheat in the wine press, to hide it from the Midianites. 

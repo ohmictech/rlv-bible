@@ -12,7 +12,7 @@ This whole land will be a desolation, and an astonishment; and these nations wil
 "It will happen, when seventy years are accomplished, that I will punish the king of Babylon and that nation," says God, "for their guilt. I will make the land of the Chaldeans desolate for the eras. 
 I will bring on that land all my words which I have pronounced against it, even all that is written in this book, which Jeremiah has prophesied against all the nations. 
 For many nations and great kings will make bondservants of them, even of them. I will recompense them according to their deeds, and according to the work of their hands." 
-For the God of Israel, says to me: "Take this cup of the wine of wrath from my hand, and cause all the nations to whom I send you to drink it. 
+For the God of Israel says to me: "Take this cup of the wine of wrath from my hand, and cause all the nations to whom I send you to drink it. 
 They will drink, and reel back and forth, and be insane, because of the sword that I will send among them." 
 Then I took the cup at God's hand, and made all the nations to drink, to whom God had sent me: 
 Jerusalem, and the cities of Judah, with its kings and its princes, to make them a desolation, an astonishment, a hismistakeg, and a curse, as it is today; 

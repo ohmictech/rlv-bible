@@ -3,7 +3,7 @@ God sold them into the hand of Jabin king of Canaan, who reigned in Hazor; the c
 The children of Israel cried to God, for he had nine hundred chariots of iron; and he mightily oppressed the children of Israel for twenty years. 
 Now Deborah, a prophetess, the wife of Lappidoth, judged Israel at that time. 
 She lived under Deborah's palm tree between Ramah and Bethel in the hill country of Ephraim; and the children of Israel came up to her for judgment. 
-She sent and called Barak the son of Abinoam out of Kedesh Naphtali, and said to him, "Hasn't the God of Israel, commanded, 'Go and lead the way to Mount Tabor, and take with you ten thousand men of the children of Naphtali and of the children of Zebulun? 
+She sent and called Barak the son of Abinoam out of Kedesh Naphtali, and said to him, "Hasn't the God of Israel commanded, 'Go and lead the way to Mount Tabor, and take with you ten thousand men of the children of Naphtali and of the children of Zebulun? 
 I will draw to you, to the river Kishon, Sisera, the captain of Jabin's army, with his chariots and his multitude; and I will deliver him into your hand.'" 
 Barak said to her, "If you will go with me, then I will go; but if you will not go with me, I will not go." 
 She said, "I will surely go with you. Nevertheless, the journey that you take won't be for your honor; for God will sell Sisera into a woman's hand." Deborah arose, and went with Barak to Kedesh. 

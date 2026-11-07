@@ -2,7 +2,7 @@
 Give thanks to the God of gods, for his loving kindness endures for the eras. 
 Give thanks to the Lord of lords, for his loving kindness endures for the eras; 
 to him who alone does great wonders, for his loving kindness endures for the eras; 
-to him who by understanding made the heavens, for his loving kindness endures for the eras; 
+to him who by understanding made the sky, for his loving kindness endures for the eras; 
 to him who spread out the earth above the waters, for his loving kindness endures for the eras; 
 to him who made the great lights, for his loving kindness endures for the eras; 
 the sun to rule by day, for his loving kindness endures for the eras; 
@@ -23,4 +23,4 @@ even a heritage to Israel his servant, for his loving kindness endures for the e
 who remembered us in our low estate, for his loving kindness endures for the eras; 
 and has delivered us from our adversaries, for his loving kindness endures for the eras; 
 who gives food to every creature, for his loving kindness endures for the eras. 
-Oh give thanks to the God of heaven, for his loving kindness endures for the eras. 
+Oh give thanks to the God of the sky, for his loving kindness endures for the eras. 

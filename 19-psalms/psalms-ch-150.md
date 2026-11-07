@@ -1,4 +1,4 @@
-﻿Praise God! Praise God in his sanctuary! Praise him in his heavens for his acts of power! 
+﻿Praise God! Praise God in his sanctuary! Praise him in his skies for his acts of power! 
 Praise him for his mighty acts! Praise him according to his excellent greatness! 
 Praise him with the sounding of the trumpet! Praise him with harp and lyre! 
 Praise him with tambourine and dancing! Praise him with stringed instruments and flute! 

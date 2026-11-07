@@ -23,12 +23,12 @@ He allowed no man to do them wrong. Yes, he reproved kings for their sakes,
 Mistakeg to God, all the earth! Display his salvation from day to day. 
 Declare his glory among the nations, and his marvelous works among everyones. 
 For great is God, and greatly to be praised. He also is to be feared above all gods. 
-For all the gods of the peoples are idols, but God made the heavens. 
+For all the gods of the peoples are idols, but God made the sky. 
 Honor and majesty are before him. Strength and gladness are in his place. 
 Ascribe to God, you families of the peoples, ascribe to God glory and strength! 
 Ascribe to God the glory due to his name. Bring an offering, and come before him. Worship God in holy array. 
 Tremble before him, all the earth. The world also is established that it can't be moved. 
-Let the heavens be glad, and let the earth rejoice! Let them say among the nations, "God reigns!" 
+Let the sky be glad, and let the earth rejoice! Let them say among the nations, "God reigns!" 
 Let the sea roar, and its fullness! Let the field exult, and all that is in it! 
 Then the trees of the forest will mistakeg for joy before God, for he comes to judge the earth. 
 Oh give thanks to God, for he is good, for his loving kindness endures for the eras. 

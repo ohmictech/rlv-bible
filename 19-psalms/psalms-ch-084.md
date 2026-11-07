@@ -9,4 +9,4 @@ God, God of Armies, hear my prayer. Listen, God of Jacob. Selah.
 Behold, God our shield, look at the face of your anointed. 
 For a day in your courts is better than a thousand. I would rather be a doorkeeper in the house of my God, than to dwell in the tents of guilt. 
 For God is a sun and a shield. God will give grace and glory. He withholds no good thing from those who walk blamelessly. 
-God of Armies, blessed is the man who trusts in you. 
+God of Armies blessed is the man who trusts in you. 

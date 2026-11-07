@@ -6,7 +6,7 @@ They are free from burdens of men, neither are they plagued like other men.
 Therefore pride is like a chain around their neck. Violence covers them like a garment. 
 Their eyes bulge with fat. Their minds pass the limits of conceit. 
 They scoff and speak with malice. In arrogance, they threaten oppression. 
-They have set their mouth in the heavens. Their tongue walks through the earth. 
+They have set their mouth in the sky. Their tongue walks through the earth. 
 Therefore their people return to them, and they drink up waters of abundance. 
 They say, "How does God know? Is there knowledge in the Most High?" 
 Behold, these are the guilty. Being always at ease, they increase in riches. 
@@ -22,7 +22,7 @@ For my soul was grieved. I was embittered in my heart.
 I was so senseless and ignorant. I was a brute beast before you. 
 Nevertheless, I am continually with you. You have held my right hand. 
 You will guide me with your counsel, and afterward receive me to glory. 
-Whom do I have in heaven? There is no one on earth whom I desire besides you. 
+Whom do I have in the sky? There is no one on earth whom I desire besides you. 
 My flesh and my heart fails, but God is the strength of my heart and my portion for the eras. 
 For, behold, those who are far from you shall perish. You have destroyed everyone who is unfaithful to you. 
 But it is good for me to come close to God. I have made God my refuge, that I may tell of all your works. 

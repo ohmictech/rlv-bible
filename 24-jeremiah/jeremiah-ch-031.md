@@ -20,7 +20,7 @@ Surely after that I was turned. I repented. After that I was instructed. I struc
 Is Ephraim my dear son? Is he a darling child? For as often as I speak against him, I still earnestly remember him. Therefore my heart yearns for him. I will surely have mercy on him," says God. 
 "Set up road signs. Make guideposts. Set your heart toward the highway, even the way by which you went. Turn again, virgin of Israel. Turn again to these your cities. 
 How long will you go here and there, you backsliding daughter? For God has created a new thing on the earth: a woman will encompass a man." 
-The God of Armies, the God of Israel, says: "Yet again they will use this speech in the land of Judah and in its cities, when I reverse their captivity: 'God bless you, habitation of righteousness, mountain of holiness.' 
+The God of Armies, the God of Israel says: "Yet again they will use this speech in the land of Judah and in its cities, when I reverse their captivity: 'God bless you, habitation of righteousness, mountain of holiness.' 
 Judah and all its cities will dwell therein together, the farmers, and those who go about with flocks. 
 For I have satiated the weary soul, and I have replenished every sorrowful soul." 
 On this I awakened, and saw; and my sleep was sweet to me. 
@@ -34,7 +34,7 @@ not according to the covenant that I made with their fathers in the day that I t
 They will no longer each teach his neighbor, and every man teach his brother, saying, 'Know God;' for they will all know me, from their least to their greatest," says God, "for I will forgive their guilt, and I will remember their mistake no more." 
 God, who gives the sun for a light by day, and the ordinances of the moon and of the stars for a light by night, who stirs up the sea, so that its waves roar, the God of Armies is his name, says: 
 "If these ordinances depart from before me," says God, "then the offspring of Israel also will cease from being a nation before me for the eras." 
-God says: "If heaven above can be measured, and the foundations of the earth searched out beneath, then I will also cast off all the offspring of Israel for all that they have done," says God. 
+God says: "If sky above can be measured, and the foundations of the earth searched out beneath, then I will also cast off all the offspring of Israel for all that they have done," says God. 
 "Behold, the days come," says God, "that the city will be built to God from the tower of Hananel to the gate of the corner. 
 The measuring line will go out further straight onward to the hill Gareb, and will turn toward Goah. 
 The whole valley of the dead bodies and of the ashes, and all the fields to the brook Kidron, to the corner of the horse gate toward the east, will be holy to God. It will not be plucked up or thrown down any more for the eras." 

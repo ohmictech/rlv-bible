@@ -2,7 +2,7 @@
 God said to him, "What is that in your hand?" He said, "A rod." 
 He said, "Throw it on the ground." He threw it on the ground, and it became a snake; and Moses ran away from it. 
 God said to Moses, "Stretch out your hand, and take it by the tail." He stretched out his hand, and took hold of it, and it became a rod in his hand. 
-"This is so that they may believe that the God of their fathers, the God of Abraham, the God of Isaac, and the God of Jacob, has appeared to you." 
+"This is so that they may believe that the God of their fathers, the God of Abraham, the God of Isaac, and the God of Jacob has appeared to you." 
 God said furthermore to him, "Now put your hand inside your cloak." He put his hand inside his cloak, and when he took it out, behold, his hand was leprous, as white as snow. 
 He said, "Put your hand inside your cloak again." He put his hand inside his cloak again, and when he took it out of his cloak, behold, it had turned again as his other flesh. 
 "It will happen, if they will not believe you or listen to the voice of the first sign, that they will believe the voice of the latter sign. 

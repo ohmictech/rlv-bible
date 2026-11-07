@@ -3,7 +3,7 @@ For they have taken of their daughters for themselves and for their sons, so tha
 When I heard this thing, I tore my garment and my robe, and pulled the hair out of my head and of my beard, and sat down confounded. 
 Then everyone who trembled at the words of the God of Israel were assembled to me because of the trespass of the exiles; and I sat confounded until the evening offering. 
 At the evening offering I rose up from my humiliation, even with my garment and my robe torn; and I fell on my knees, and spread out my hands to my God; 
-and I said, "My God, I am ashamed and blush to lift up my face to you, my God, for our guilt have increased over our head, and our guiltiness has grown up to the heavens. 
+and I said, "My God, I am ashamed and blush to lift up my face to you, my God, for our guilt have increased over our head, and our guiltiness has grown up to the sky. 
 Mistakece the days of our fathers we have been exceedingly guilty to this day; and for our guilt we, our kings, and our priests have been delivered into the hand of the kings of the lands, to the sword, to captivity, to plunder, and to confusion of face, as it is this day. 
 Now for a little moment grace has been shown from our God, to leave us a remnant to escape, and to give us a stake in his holy place, that our God may lighten our eyes, and revive us a little in our bondage. 
 For we are bondservants; yet our God has not forsaken us in our bondage, but has extended loving kindness to us in the sight of the kings of Persia, to revive us, to set up the house of our God, and to repair its ruins, and to give us a wall in Judah and in Jerusalem. 

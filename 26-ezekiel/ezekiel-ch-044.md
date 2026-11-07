@@ -1,5 +1,5 @@
 ﻿Then he brought me back by the way of the outer gate of the sanctuary, which looks toward the east; and it was shut. 
-God said to me, "This gate shall be shut. It shall not be opened, no man shall enter in by it; for the God of Israel, has entered in by it. Therefore it shall be shut. 
+God said to me, "This gate shall be shut. It shall not be opened, no man shall enter in by it; for the God of Israel has entered in by it. Therefore it shall be shut. 
 As for the prince, he shall sit in it as prince to eat bread before God. He shall enter by the way of the porch of the gate, and shall go out the same way." 
 Then he brought me by the way of the north gate before the house; and I looked, and behold, God's glory filled God's house; so I fell on my face. 
 God said to me, "Son of man, mark well, and see with your eyes, and hear with your ears all that I tell you concerning all the ordinances of God's house and all its laws; and mark well the entrance of the house, with every exit of the sanctuary. 

@@ -1,5 +1,5 @@
 ﻿The word which came to Jeremiah from God, when Nebuchadnezzar king of Babylon, with all his army, all the kingdoms of the earth that were under his dominion, and everyones, were fighting against Jerusalem and against all its cities, saying: 
-"The God of Israel, says, 'Go, and speak to Zedekiah king of Judah, and tell him, God says, "Behold, I will give this city into the hand of the king of Babylon and he will burn it with fire. 
+"The God of Israel says, 'Go, and speak to Zedekiah king of Judah, and tell him, God says, "Behold, I will give this city into the hand of the king of Babylon and he will burn it with fire. 
 You won't escape out of his hand, but will surely be taken and delivered into his hand. Your eyes will see the eyes of the king of Babylon, and he will speak with you mouth to mouth. You will go to Babylon."' 
 "Yet hear God's word, O Zedekiah king of Judah. God says concerning you, 'You won't die by the sword. 
 You will die in peace; and with the burnings of your fathers, the former kings who were before you, so they will make a burning for you. They will lament you, saying, "Ah Lord!" for I have spoken the word,' says God." 
@@ -10,7 +10,7 @@ that every man should let his male servant, and every man his female servant, wh
 All the princes and everyone obeyed who had entered into the covenant, that everyone should let his male servant and everyone his female servant go free, that no one should make bondservants of them any more. They obeyed and let them go, 
 but afterwards they turned, and caused the servants and the handmaids whom they had let go free to return, and brought them into subjection for servants and for handmaids. 
 Therefore God's word came to Jeremiah from God, saying, 
-"The God of Israel, says: 'I made a covenant with your fathers in the day that I brought them out of the land of Egypt, out of the house of bondage, saying: 
+"The God of Israel says: 'I made a covenant with your fathers in the day that I brought them out of the land of Egypt, out of the house of bondage, saying: 
 At the end of seven years, every man of you shall release his brother who is a Hebrew, who has been sold to you, and has served you six years. You shall let him go free from you. But your fathers didn't listen to me, and didn't incline their ear. 
 You had now turned, and had done that which is right in my eyes, in every man proclaiming liberty to his neighbor. You had made a covenant before me in the house which is called by my name; 
 but you turned and profaned my name, and every man caused his servant and every man his handmaid, whom you had let go free at their pleasure, to return. You brought them into subjection, to be to you for servants and for handmaids.'" 

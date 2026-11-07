@@ -1,6 +1,6 @@
 ﻿King Solomon was king over all Israel. 
 These were the princes whom he had: Azariah the son of Zadok, the priest; 
-Elihoreph and Ahijah, the sons of Shisha, Bible teachers; Jehoshaphat the son of Ahilud, the recorder; 
+Elihoreph and Ahijah, the sons of Shisha, secretaries; Jehoshaphat the son of Ahilud, the recorder; 
 Benaiah the son of Jehoiada was over the army; Zadok and Abiathar were priests; 
 Azariah the son of Nathan was over the officers; Zabud the son of Nathan was chief minister, the king's friend; 
 Ahishar was over the household; and Adoniram the son of Abda was over the men subject to forced labor. 

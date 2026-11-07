@@ -1,5 +1,5 @@
 ﻿That same year, in the beginning of the reign of Zedekiah king of Judah, in the fourth year, in the fifth month, Hananiah the son of Azzur, the spokesman, who was of Gibeon, spoke to me in God's house, in the presence of the priests and of everyone, saying, 
-"The God of Armies, the God of Israel, says, 'I have broken the yoke of the king of Babylon. 
+"The God of Armies, the God of Israel says, 'I have broken the yoke of the king of Babylon. 
 Within two full years I will bring again into this place all the vessels of God's house that Nebuchadnezzar king of Babylon took away from this place and carried to Babylon. 
 I will bring again to this place Jeconiah the son of Jehoiakim, king of Judah, with all the captives of Judah, who went to Babylon,' says God; 'for I will break the yoke of the king of Babylon.'" 
 Then the spokesman Jeremiah said to the spokesman Hananiah in the presence of the priests, and in the presence of everyone who stood in God's house, 

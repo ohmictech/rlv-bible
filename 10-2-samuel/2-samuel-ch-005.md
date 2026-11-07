@@ -7,7 +7,7 @@ The king and his men went to Jerusalem against the Jebusites, the inhabitants of
 Nevertheless David took the stronghold of Zion. This is David's city. 
 David said on that day, "Whoever strikes the Jebusites, let him go up to the watercourse and strike those lame and blind, who are hated by David's soul." Therefore they say, "The blind and the lame can't come into the house." 
 David lived in the stronghold, and called it David's city. David built around from Millo and inward. 
-David grew greater and greater, for the God of Armies, was with him. 
+David grew greater and greater, for the God of Armies was with him. 
 Hiram king of Tyre sent messengers to David, with cedar trees, carpenters, and masons; and they built David a house. 
 David perceived that God had established him king over Israel, and that he had exalted his kingdom for his people Israel's sake. 
 David took more concubines and wives for himself out of Jerusalem, after he had come from Hebron; and more sons and daughters were born to David. 

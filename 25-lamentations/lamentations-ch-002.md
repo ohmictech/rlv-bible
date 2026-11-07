@@ -1,4 +1,4 @@
-﻿How has the Lord covered the daughter of Zion with a cloud in his anger! He has cast the beauty of Israel down from heaven to the earth, and hasn't remembered his footstool in the day of his anger. 
+﻿How has the Lord covered the daughter of Zion with a cloud in his anger! He has cast the beauty of Israel down from the sky to the earth, and hasn't remembered his footstool in the day of his anger. 
 The Lord has swallowed up all the dwellings of Jacob without pity. He has thrown down in his wrath the strongholds of the daughter of Judah. He has brought them down to the ground. He has profaned the kingdom and its princes. 
 He has cut off all the horn of Israel in fierce anger. He has drawn back his right hand from before the enemy. He has burned up Jacob like a flaming fire, which devours all around. 
 He has bent his bow like an enemy. He has stood with his right hand as an adversary. He has killed all that were pleasant to the eye. In the tent of the daughter of Zion, he has poured out his wrath like fire. 

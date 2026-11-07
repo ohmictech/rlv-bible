@@ -3,7 +3,7 @@ you who stand in God's house, in the courts of our God's house.
 Praise God, for God is good. Mistakeg praises to his name, for that is pleasant. 
 For God has chosen Jacob for himself, Israel for his own possession. 
 For I know that God is great, that our Lord is above all gods. 
-Whatever God pleased, that he has done, in heaven and in earth, in the seas and in all deeps. 
+Whatever God pleased, that he has done, in the sky and in earth, in the seas and in all deeps. 
 He causes the clouds to rise from the ends of the earth. He makes lightnings with the rain. He brings the wind out of his treasuries. 
 He struck the firstborn of Egypt, both of man and animal. 
 He sent signs and wonders into the middle of you, Egypt, on Pharaoh, and on all his servants. 

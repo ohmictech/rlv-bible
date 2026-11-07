@@ -10,14 +10,14 @@ They came to Hilkiah the high priest and delivered the money that was brought in
 They delivered it into the hands of the workmen who had the oversight of God's house; and the workmen who labored in God's house gave it to mend and repair the house. 
 They gave it to the carpenters and to the builders to buy cut stone and timber for couplings, and to make beams for the houses which the kings of Judah had destroyed. 
 The men did the work faithfully. Their overseers were Jahath and Obadiah the Levites, of the sons of Merari; and Zechariah and Meshullam, of the sons of the Kohathites, to give direction; and others of the Levites, who were all skillful with musical instruments. 
-Also they were over the bearers of burdens, and directed everyone who did the work in every kind of service. Of the Levites, there were Bible teachers, officials, and gatekeepers. 
+Also they were over the bearers of burdens, and directed everyone who did the work in every kind of service. Of the Levites, there were secretaries, officials, and gatekeepers. 
 When they brought out the money that was brought into God's house, Hilkiah the priest found the book of God's law given by Moses. 
-Hilkiah answered Shaphan the Bible teacher, "I have found the book of the law in God's house." So Hilkiah delivered the book to Shaphan. 
+Hilkiah answered Shaphan the secretary, "I have found the book of the law in God's house." So Hilkiah delivered the book to Shaphan. 
 Shaphan carried the book to the king, and moreover brought back word to the king, saying, "All that was committed to your servants, they are doing. 
 They have emptied out the money that was found in God's house, and have delivered it into the hand of the overseers and into the hand of the workmen." 
-Shaphan the Bible teacher told the king, saying, "Hilkiah the priest has delivered me a book." Shaphan read from it to the king. 
+Shaphan the secretary told the king, saying, "Hilkiah the priest has delivered me a book." Shaphan read from it to the king. 
 When the king had heard the words of the law, he tore his clothes. 
-The king commanded Hilkiah, Ahikam the son of Shaphan, Abdon the son of Micah, Shaphan the Bible teacher, and Asaiah the king's servant, saying, 
+The king commanded Hilkiah, Ahikam the son of Shaphan, Abdon the son of Micah, Shaphan the secretary, and Asaiah the king's servant, saying, 
 "Go inquire of God for me, and for those who are left in Israel and in Judah, concerning the words of the book that is found; for great is God's wrath that is poured out on us, because our fathers have not kept God's word, to do according to all that is written in this book." 
 So Hilkiah and those whom the king had commanded went to Huldah the prophetess, the wife of Shallum the son of Tokhath, the son of Hasrah, keeper of the wardrobe (now she lived in Jerusalem in the second quarter), and they spoke to her to that effect. 
 She said to them, "The God of Israel says: 'Tell the man who sent you to me, 

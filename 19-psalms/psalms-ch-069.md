@@ -31,6 +31,6 @@ I will praise the name of God with a song, and will magnify him with thanksgivin
 It will please God better than an ox, or a bull that has horns and hoofs. 
 The humble have seen it, and are glad. You who seek after God, let your heart live. 
 For God hears the needy, and doesn't despise his captive people. 
-Let heaven and earth praise him; the seas, and everything that moves therein! 
+Let sky and earth praise him; the seas, and everything that moves therein! 
 For God will save Zion, and build the cities of Judah. They shall settle there, and own it. 
 The children also of his servants shall inherit it. Those who love his name shall dwell therein. 

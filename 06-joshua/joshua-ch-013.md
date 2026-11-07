@@ -11,7 +11,7 @@ and all the cities of Sihon king of the Amorites, who reigned in Heshbon, to the
 and Gilead, and the border of the Geshurites and Maacathites, and all Mount Hermon, and all Bashan to Salecah; 
 all the kingdom of Og in Bashan, who reigned in Ashtaroth and in Edrei (who was left of the remnant of the Rephaim); for Moses attacked these, and drove them out. 
 Nevertheless the children of Israel didn't drive out the Geshurites, nor the Maacathites: but Geshur and Maacath live within Israel to this day. 
-Only he gave no inheritance to the tribe of Levi. The offerings of the God of Israel, made by fire are his inheritance, as he spoke to him. 
+Only he gave no inheritance to the tribe of Levi. The offerings of the God of Israel made by fire are his inheritance, as he spoke to him. 
 Moses gave to the tribe of the children of Reuben according to their families. 
 Their border was from Aroer, that is on the edge of the valley of the Arnon, and the city that is in the middle of the valley, and all the plain by Medeba; 
 Heshbon, and all its cities that are in the plain; Dibon, Bamoth Baal, Beth Baal Meon, 
@@ -30,4 +30,4 @@ Moses gave an inheritance to the half-tribe of Manasseh. It was for the half-tri
 Their border was from Mahanaim, all Bashan, all the kingdom of Og king of Bashan, and all the villages of Jair, which are in Bashan, sixty cities. 
 Half Gilead, Ashtaroth, and Edrei, the cities of the kingdom of Og in Bashan, were for the children of Machir the son of Manasseh, even for the half of the children of Machir according to their families. 
 These are the inheritances which Moses distributed in the plains of Moab, beyond the Jordan at Jericho, eastward. 
-But Moses gave no inheritance to the tribe of Levi. The God of Israel, is their inheritance, as he spoke to them. 
+But Moses gave no inheritance to the tribe of Levi. The God of Israel is their inheritance, as he spoke to them. 

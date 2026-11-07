@@ -1,7 +1,7 @@
 ﻿The words of Agur the son of Jakeh, the revelation: the man says to Ithiel, to Ithiel and Ucal: 
 "Surely I am the most ignorant man, and don't have a man's understanding. 
 I have not learned wisdom, neither do I have the knowledge of the Holy One. 
-Who has ascended up into heaven, and descended? Who has gathered the wind in his fists? Who has bound the waters in his garment? Who has established all the ends of the earth? What is his name, and what is his son's name, if you know? 
+Who has ascended up into the sky, and descended? Who has gathered the wind in his fists? Who has bound the waters in his garment? Who has established all the ends of the earth? What is his name, and what is his son's name, if you know? 
 "Every word of God is flawless. He is a shield to those who take refuge in him. 
 Don't you add to his words, lest he reprove you, and you be found a liar. 
 "Two things I have asked of you. Don't deny me before I die. 

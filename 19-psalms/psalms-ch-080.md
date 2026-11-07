@@ -11,7 +11,7 @@ The mountains were covered with its shadow. Its boughs were like God's cedars.
 It sent out its branches to the sea, its shoots to the River. 
 Why have you broken down its walls, so that everyone who passes by the way pluck it? 
 The boar out of the wood ravages it. The wild animals of the field feed on it. 
-Turn again, we beg you, God of Armies. Look down from heaven, and see, and visit this vine, 
+Turn again, we beg you, God of Armies. Look down from the sky, and see, and visit this vine, 
 the stock which your right hand planted, the branch that you made strong for yourself. 
 It's burned with fire. It's cut down. They perish at your rebuke. 
 Let your hand be on the man of your right hand, on the son of man whom you made strong for yourself. 

@@ -13,7 +13,7 @@ Hurry and come, all you surrounding nations, and gather yourselves together." Ca
 Put in the sickle; for the harvest is ripe. Come, tread, for the wine press is full, the vats overflow, for their guilt is great." 
 Multitudes, multitudes in the valley of decision! For the day of God is near in the valley of decision. 
 The sun and the moon are darkened, and the stars withdraw their shining. 
-God will roar from Zion, and thunder from Jerusalem; and the heavens and the earth will shake; but God will be a refuge to his people, and a stronghold to the children of Israel. 
+God will roar from Zion, and thunder from Jerusalem; and the sky and the earth will shake; but God will be a refuge to his people, and a stronghold to the children of Israel. 
 "So you will know that I am God, your God, dwelling in Zion, my holy mountain. Then Jerusalem will be holy, and no strangers will pass through her any more. 
 It will happen in that day, that the mountains will drop down sweet wine, the hills will flow with milk, all the brooks of Judah will flow with waters; and a fountain will flow out from God's house, and will water the valley of Shittim. 
 Egypt will be a desolation and Edom will be a desolate wilderness, for the violence done to the children of Judah, because they have shed innocent blood in their land. 

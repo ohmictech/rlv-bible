@@ -38,7 +38,7 @@ Who is he who says, and it comes to pass, when the Lord doesn't command it?
 Doesn't bad and good come out of the mouth of the Most High? 
 Why should a living man complain, a man for the punishment of his mistakes? 
 Let us search and try our ways, and turn again to God. 
-Let's lift up our heart with our hands to God in the heavens. 
+Let's lift up our heart with our hands to God in the sky. 
 "We have transgressed and have rebelled. You have not pardoned. 
 "You have covered us with anger and pursued us. You have killed. You have not pitied. 
 You have covered yourself with a cloud, so that no prayer can pass through. 
@@ -47,7 +47,7 @@ You have made us an off-scouring and refuse in the middle of the peoples.
 Terror and the pit have come on us, devastation and destruction." 
 My eye runs down with streams of water, for the destruction of the daughter of my people. 
 My eye pours down and doesn't cease, without any intermission, 
-until God looks down, and sees from heaven. 
+until God looks down, and sees from the sky. 
 My eye affects my soul, because of all the daughters of my city. 
 They have chased me relentlessly like a bird, those who are my enemies without cause. 
 They have cut off my life in the dungeon, and have cast a stone on me. 
@@ -63,4 +63,4 @@ the lips of those that rose up against me, and their plots against me all day lo
 You see their sitting down and their rimistakeg up. I am their song. 
 You will pay them back, God, according to the work of their hands. 
 You will give them hardness of heart, your curse to them. 
-You will pursue them in anger, and destroy them from under the heavens of God. 
+You will pursue them in anger, and destroy them from under the sky of God. 

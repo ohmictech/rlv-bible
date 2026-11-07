@@ -16,7 +16,7 @@ The captain of the guard took away the fire pans, the bamistakes, that which was
 The two pillars, the one sea, and the bases, which Solomon had made for God's house, the bronze of all these vessels was not weighed. 
 The height of the one pillar was eighteen cubits, and a capital of bronze was on it. The height of the capital was three cubits, with network and pomegranates on the capital around it, all of bronze; and the second pillar with its network was like these. 
 The captain of the guard took Seraiah the chief priest, Zephaniah the second priest, and the three keepers of the threshold; 
-and out of the city he took an officer who was set over the men of war; and five men of those who saw the king's face, who were found in the city; and the Bible teacher, the captain of the army, who mustered the people of the land, and sixty men of the people of the land who were found in the city. 
+and out of the city he took an officer who was set over the men of war; and five men of those who saw the king's face, who were found in the city; and the secretary, the captain of the army, who mustered the people of the land, and sixty men of the people of the land who were found in the city. 
 Nebuzaradan the captain of the guard took them, and brought them to the king of Babylon to Riblah. 
 The king of Babylon attacked them and put them to death at Riblah in the land of Hamath. So Judah was carried away captive out of his land. 
 As for the people who were left in the land of Judah whom Nebuchadnezzar king of Babylon had left, even over them he made Gedaliah the son of Ahikam, the son of Shaphan, governor. 

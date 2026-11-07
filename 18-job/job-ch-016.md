@@ -16,7 +16,7 @@ I have sewed sackcloth on my skin, and have thrust my horn in the dust.
 My face is red with weeping. Deep darkness is on my eyelids, 
 although there is no violence in my hands, and my prayer is pure. 
 "Earth, don't cover my blood. Let my cry have no place to rest. 
-Even now, behold, my witness is in heaven. He who vouches for me is on high. 
+Even now, behold, my witness is in the sky. He who vouches for me is on high. 
 My friends scoff at me. My eyes pour out tears to God, 
 that he would maintain the right of a man with God, of a son of man with his neighbor! 
 For when a few years have come, I will go the way of no return. 

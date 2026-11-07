@@ -1,5 +1,5 @@
 ﻿Guard your steps when you go to God's house; for to draw near to listen is better than to give the sacrifice of fools, for they don't know that they do bad things. 
-Don't be rash with your mouth, and don't let your heart be hasty to utter anything before God; for God is in heaven, and you on earth. Therefore let your words be few. 
+Don't be rash with your mouth, and don't let your heart be hasty to utter anything before God; for God is in the sky, and you on earth. Therefore let your words be few. 
 For as a dream comes with a multitude of cares, so a fool's speech with a multitude of words. 
 When you vow a vow to God, don't defer to pay it; for he has no pleasure in fools. Pay that which you vow. 
 It is better that you should not vow, than that you should vow and not pay. 

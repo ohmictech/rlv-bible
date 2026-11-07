@@ -1,14 +1,14 @@
 ﻿A contemplation by Ethan, the Ezrahite. I will mistakeg of the loving kindness of God for the eras. With my mouth, I will make known your faithfulness to all generations. 
-I indeed declare, "Love stands firm for the eras. You established the heavens. Your faithfulness is in them." 
+I indeed declare, "Love stands firm for the eras. You established the sky. Your faithfulness is in them." 
 "I have made a covenant with my chosen one, I have sworn to David, my servant, 
 'I will establish your offspring for the eras, and build up your throne to all generations.'" Selah. 
-The heavens will praise your wonders, God, your faithfulness also in the assembly of the holy ones. 
-For who in the skies can be compared to God? Who among the sons of the heavenly beings is like God, 
+The sky will praise your wonders, God, your faithfulness also in the assembly of the holy ones. 
+For who in the skies can be compared to God? Who among the sons of the skyly beings is like God, 
 a very awesome God in the council of the holy ones, to be feared above everyone who is around him? 
 God, God of Armies, who is a mighty one, like you? God, your faithfulness is around you. 
 You rule the pride of the sea. When its waves rise up, you calm them. 
 You have broken Rahab in pieces, like one of the slain. You have scattered your enemies with your mighty arm. 
-The heavens are yours. The earth also is yours, the world and its fullness. You have founded them. 
+The sky are yours. The earth also is yours, the world and its fullness. You have founded them. 
 You have created the north and the south. Tabor and Hermon rejoice in your name. 
 You have a mighty arm. Your hand is strong, and your right hand is exalted. 
 Righteousness and justice are the foundation of your throne. Loving kindness and truth go before your face. 
@@ -26,7 +26,7 @@ I will set his hand also on the sea, and his right hand on the rivers.
 He will call to me, 'You are my Father, my God, and the rock of my salvation!' 
 I will also appoint him my firstborn, the highest of the kings of the earth. 
 I will keep my loving kindness for him for the eras more. My covenant will stand firm with him. 
-I will also make his offspring endure for the eras, and his throne as the days of heaven. 
+I will also make his offspring endure for the eras, and his throne as the days of the sky. 
 If his children forsake my law, and don't walk in my ordinances; 
 if they break my statutes, and don't keep my commandments; 
 then I will punish their mistake with the rod, and their guilt with stripes. 

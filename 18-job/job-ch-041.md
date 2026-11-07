@@ -8,7 +8,7 @@ Can you fill his skin with barbed irons, or his head with fish spears?
 Lay your hand on him. Remember the battle, and do so no more. 
 Behold, the hope of him is in vain. Won't one be cast down even at the sight of him? 
 None is so fierce that he dare stir him up. Who then is he who can stand before me? 
-Who has first given to me, that I should repay him? Everything under the heavens is mine. 
+Who has first given to me, that I should repay him? Everything under the sky is mine. 
 "I will not keep silence concerning his limbs, nor his mighty strength, nor his goodly frame. 
 Who can strip off his outer garment? Who will come within his jaws? 
 Who can open the doors of his face? Around his teeth is terror. 

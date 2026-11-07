@@ -1,4 +1,4 @@
-﻿For everything there is a season, and a time for every purpose under heaven: 
+﻿For everything there is a season, and a time for every purpose under the sky: 
 a time to be born, and a time to die; a time to plant, and a time to pluck up that which is planted; 
 a time to kill, and a time to heal; a time to break down, and a time to build up; 
 a time to weep, and a time to laugh; a time to mourn, and a time to dance; 

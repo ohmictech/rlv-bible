@@ -1,6 +1,6 @@
 ﻿I said in my heart, "Come now, I will test you with mirth; therefore enjoy pleasure;" and behold, this also was vanity. 
 I said of laughter, "It is foolishness;" and of mirth, "What does it accomplish?" 
-I searched in my heart how to cheer my flesh with wine, my heart yet guiding me with wisdom, and how to lay hold of folly, until I might see what it was good for the sons of men that they should do under heaven all the days of their lives. 
+I searched in my heart how to cheer my flesh with wine, my heart yet guiding me with wisdom, and how to lay hold of folly, until I might see what it was good for the sons of men that they should do under the sky all the days of their lives. 
 I made myself great works. I built myself houses. I planted myself vineyards. 
 I made myself gardens and parks, and I planted trees in them of all kinds of fruit. 
 I made myself pools of water, to water the forest where trees were grown. 

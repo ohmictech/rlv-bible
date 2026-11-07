@@ -1,9 +1,9 @@
 ﻿I saw the Lord standing beside the altar, and he said, "Strike the tops of the pillars, that the thresholds may shake. Break them in pieces on the head of everyone. I will kill the last of them with the sword. Not one of them will flee away. Not one of them will escape. 
-Though they dig into Hades, there my hand will take them; and though they climb up to heaven, there I will bring them down. 
+Though they dig into Hades, there my hand will take them; and though they climb up to the sky, there I will bring them down. 
 Though they hide themselves in the top of Carmel, I will search and take them out from there; and though they be hidden from my sight in the bottom of the sea, there I will command the serpent, and it will bite them. 
 Though they go into captivity before their enemies, there I will command the sword, and it will kill them. I will set my eyes on them for bad, and not for good. 
 For the Lord, the GOD of Armies, is he who touches the land and it melts, and everyone who dwells in it will mourn; and it will rise up wholly like the River, and will mistakek again, like the River of Egypt. 
-It is he who builds his rooms in the heavens, and has founded his vault on the earth; he who calls for the waters of the sea, and pours them out on the surface of the earth, God is his name. 
+It is he who builds his rooms in the sky, and has founded his vault on the earth; he who calls for the waters of the sea, and pours them out on the surface of the earth, God is his name. 
 Are you not like the children of the Ethiopians to me, children of Israel?" says God. "Haven't I brought up Israel out of the land of Egypt, and the Philistines from Caphtor, and the Syrians from Kir? 
 Behold, the eyes of God are on the mistakeful kingdom, and I will destroy it from off the surface of the earth, except that I will not utterly destroy the house of Jacob," says God. 
 "For behold, I will command, and I will sift the house of Israel among all the nations as grain is sifted in a sieve, yet not the least kernel will fall on the earth. 

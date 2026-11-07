@@ -5,7 +5,7 @@ God is wise in heart, and mighty in strength. Who has hardened himself against h
 He removes the mountains, and they don't know it, when he overturns them in his anger. 
 He shakes the earth out of its place. Its pillars tremble. 
 He commands the sun and it doesn't rise, and seals up the stars. 
-He alone stretches out the heavens, and treads on the waves of the sea. 
+He alone stretches out the sky, and treads on the waves of the sea. 
 He makes the Bear, Orion, and the Pleiades, and the rooms of the south. 
 He does great things past finding out; yes, marvelous things without number. 
 Behold, he goes by me, and I don't see him. He passes on also, but I don't perceive him. 

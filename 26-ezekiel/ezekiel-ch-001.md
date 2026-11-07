@@ -1,4 +1,4 @@
-﻿Now in the thirtieth year, in the fourth month, in the fifth day of the month, as I was among the captives by the river Chebar, the heavens were opened, and I saw visions of God. 
+﻿Now in the thirtieth year, in the fourth month, in the fifth day of the month, as I was among the captives by the river Chebar, the sky were opened, and I saw visions of God. 
 In the fifth of the month, which was the fifth year of King Jehoiachin's captivity, 
 God's word came to Ezekiel the priest, the son of Buzi, in the land of the Chaldeans by the river Chebar; and God's hand was there on him. 
 I looked, and behold, a stormy wind came out of the north: a great cloud, with flashing lightning, and a brightness around it, and out of the middle of it as it were glowing metal, out of the middle of the fire. 

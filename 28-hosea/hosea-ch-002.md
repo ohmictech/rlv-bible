@@ -18,6 +18,6 @@ For I will take away the names of the Baals out of her mouth, and they will no l
 In that day I will make a covenant for them with the animals of the field, and with the birds of the sky, and with the creeping things of the ground. I will break the bow, the sword, and the battle out of the land, and will make them lie down safely. 
 I will betroth you to me for the eras. Yes, I will betroth you to me in righteousness, in justice, in loving kindness, and in compassion. 
 I will even betroth you to me in faithfulness; and you shall know God. 
-It will happen in that day, that I will respond," says God. "I will respond to the heavens, and they will respond to the earth; 
+It will happen in that day, that I will respond," says God. "I will respond to the sky, and they will respond to the earth; 
 and the earth will respond to the grain, and the new wine, and the oil; and they will respond to Jezreel. 
 I will sow her to me in the earth; and I will have mercy on her who had not obtained mercy; and I will tell those who were not my people, 'You are my people;' and they will say, 'You are My God!'" 

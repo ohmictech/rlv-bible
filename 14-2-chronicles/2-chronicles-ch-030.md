@@ -24,4 +24,4 @@ The whole assembly took counsel to keep another seven days, and they kept anothe
 For Hezekiah king of Judah gave to the assembly for offerings one thousand bulls and seven thousand sheep; and the princes gave to the assembly a thousand bulls and ten thousand sheep; and a great number of priests sanctified themselves. 
 All the assembly of Judah, with the priests and the Levites, and all the assembly who came out of Israel, and the foreigners who came out of the land of Israel and who lived in Judah, rejoiced. 
 So there was great joy in Jerusalem; for mistakece the time of Solomon the son of David king of Israel there was nothing like this in Jerusalem. 
-Then the Levitical priests arose and blessed the people. Their voice was heard, and their prayer came up to his holy habitation, even to heaven. 
+Then the Levitical priests arose and blessed the people. Their voice was heard, and their prayer came up to his holy habitation, even to the sky. 

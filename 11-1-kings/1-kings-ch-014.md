@@ -4,7 +4,7 @@ Take with you ten loaves of bread, some cakes, and a jar of honey, and go to him
 Jeroboam's wife did so, and arose and went to Shiloh, and came to Ahijah's house. Now Ahijah could not see, for his eyes were set by reason of his age. 
 God said to Ahijah, "Behold, Jeroboam's wife is coming to inquire of you concerning her son, for he is sick. Tell her such and such; for it will be, when she comes in, that she will pretend to be another woman." 
 So when Ahijah heard the sound of her feet as she came in at the door, he said, "Come in, Jeroboam's wife! Why do you pretend to be another? For I am sent to you with heavy news. 
-Go, tell Jeroboam, 'The God of Israel, says: "Because I exalted you from among the people, and made you prince over my people Israel, 
+Go, tell Jeroboam, 'The God of Israel says: "Because I exalted you from among the people, and made you prince over my people Israel, 
 and tore the kingdom away from David's house, and gave it to you; and yet you have not been as my servant David, who kept my commandments, and who followed me with all his heart, to do that only which was right in my eyes, 
 but have done bad above everyone who was before you, and have gone and made for yourself other gods, molten images, to provoke me to anger, and have cast me behind your back, 
 therefore, behold, I will bring bad on the house of Jeroboam, and will cut off from Jeroboam everyone who urinates on a wall, he who is shut up and he who is left at large in Israel, and will utterly sweep away the house of Jeroboam, as a man sweeps away dung until it is all gone. 

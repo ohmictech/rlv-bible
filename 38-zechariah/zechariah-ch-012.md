@@ -1,4 +1,4 @@
-﻿A revelation of God's word concerning Israel: God, who stretches out the heavens and lays the foundation of the earth, and forms the spirit of man within him says: 
+﻿A revelation of God's word concerning Israel: God, who stretches out the sky and lays the foundation of the earth, and forms the spirit of man within him says: 
 "Behold, I will make Jerusalem a cup of reeling to all the surrounding peoples, and it will also be on Judah in the siege against Jerusalem. 
 It will happen in that day that I will make Jerusalem a burdensome stone for everyones. Everyone who burden themselves with it will be severely wounded, and all the nations of the earth will be gathered together against it. 
 In that day," says God, "I will strike every horse with terror and his rider with madness. I will open my eyes on the house of Judah, and will strike every horse of the peoples with blindness. 

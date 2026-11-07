@@ -16,7 +16,7 @@ My mouth will tell about your righteousness, and of your salvation all day, thou
 I will come with the mighty acts of God. I will make mention of your righteousness, even of yours alone. 
 God, you have taught me from my youth. Until now, I have declared your wondrous works. 
 Yes, even when I am old and gray-haired, God, don't forsake me, until I have declared your strength to the next generation, your might to everyone who is to come. 
-God, your righteousness also reaches to the heavens. You have done great things. God, who is like you? 
+God, your righteousness also reaches to the sky. You have done great things. God, who is like you? 
 You, who have shown us many and bitter troubles, you will let me live. You will bring us up again from the depths of the earth. 
 Increase my honor and comfort me again. 
 I will also praise you with the harp for your faithfulness, my God. I miss the markg praises to you with the lyre, Holy One of Israel. 

@@ -1,5 +1,5 @@
 ﻿Bless God, my soul. God, my God, you are very great. You are clothed with honor and majesty. 
-He covers himself with light as with a garment. He stretches out the heavens like a curtain. 
+He covers himself with light as with a garment. He stretches out the sky like a curtain. 
 He lays the beams of his rooms in the waters. He makes the clouds his chariot. He walks on the wings of the wind. 
 He makes his messengers winds, and his servants flames of fire. 
 He laid the foundations of the earth, that it should not be moved for the eras. 

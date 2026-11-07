@@ -18,5 +18,5 @@ Don't listen to them. Serve the king of Babylon, and live. Why should this city 
 But if they are spokesmen, and if God's word is with them, let them now make intercession to the God of Armies, that the vessels which are left in God's house, in the house of the king of Judah, and at Jerusalem, don't go to Babylon. 
 For the God of Armies says concerning the pillars, concerning the sea, concerning the bases, and concerning the rest of the vessels that are left in this city, 
 which Nebuchadnezzar king of Babylon didn't take when he carried away captive Jeconiah the son of Jehoiakim, king of Judah, from Jerusalem to Babylon, and all the nobles of Judah and Jerusalem 
-yes, the God of Armies, the God of Israel, says concerning the vessels that are left in God's house, and in the house of the king of Judah, and at Jerusalem: 
+yes, the God of Armies, the God of Israel says concerning the vessels that are left in God's house, and in the house of the king of Judah, and at Jerusalem: 
 'They will be carried to Babylon, and there they will be, until the day that I visit them,' says God; 'then I will bring them up, and restore them to this place.'" 

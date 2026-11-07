@@ -3,7 +3,7 @@ Clouds and darkness are around him. Righteousness and justice are the foundation
 A fire goes before him, and burns up his adversaries on every side. 
 His lightning lights up the world. The earth sees, and trembles. 
 The mountains melt like wax at the presence of God, at the presence of the Lord of the whole earth. 
-The heavens declare his righteousness. Everyones have seen his glory. 
+The sky declare his righteousness. Everyones have seen his glory. 
 Let all them be shamed who serve engraved images, who boast in their idols. Worship him, all you gods! 
 Zion heard and was glad. The daughters of Judah rejoiced because of your judgments, God. 
 For you, God, are most high above all the earth. You are exalted far above all gods. 

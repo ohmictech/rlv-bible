@@ -4,7 +4,7 @@ but the poor man had nothing, except one little ewe lamb, which he had bought an
 A traveler came to the rich man, and he didn't want to take of his own flock and of his own herd to prepare for the wayfaring man who had come to him, but took the poor man's lamb and prepared it for the man who had come to him." 
 David's anger burned hot against the man, and he said to Nathan, "As God lives, the man who has done this deserves to die! 
 He must restore the lamb fourfold, because he did this thing and because he had no pity!" 
-Nathan said to David, "You are the man! This is what the God of Israel, says: 'I anointed you king over Israel, and I delivered you out of the hand of Saul. 
+Nathan said to David, "You are the man! This is what the God of Israel says: 'I anointed you king over Israel, and I delivered you out of the hand of Saul. 
 I gave you your master's house and your master's wives into your bosom, and gave you the house of Israel and of Judah; and if that would have been too little, I would have added to you many more such things. 
 Why have you despised God's word, to do that which is bad in his sight? You have struck Uriah the Hittite with the sword, have taken his wife to be your wife, and have slain him with the sword of the children of Ammon. 
 Now therefore the sword will never depart from your house, because you have despised me and have taken Uriah the Hittite's wife to be your wife.' 

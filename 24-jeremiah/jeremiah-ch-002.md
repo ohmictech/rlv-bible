@@ -9,7 +9,7 @@ The priests didn't say, 'Where is God?' and those who handle the law didn't know
 "Therefore I will yet contend with you," says God, "and I will contend with your children's children. 
 For pass over to the islands of Kittim, and see. Send to Kedar, and consider diligently, and see if there has been such a thing. 
 Has a nation changed its gods, which really are no gods? But my people have changed their glory for that which doesn't profit. 
-"Be astonished, you heavens, at this and be horribly afraid. Be very desolate," says God. 
+"Be astonished, you skies, at this and be horribly afraid. Be very desolate," says God. 
 "For my people have committed two bads: they have forsaken me, the spring of living waters, and cut out cisterns for themselves: broken cisterns that can't hold water. 
 Is Israel a slave? Is he born into slavery? Why has he become a captive? 
 The young lions have roared at him and raised their voices. They have made his land waste. His cities are burned up, without inhabitant. 

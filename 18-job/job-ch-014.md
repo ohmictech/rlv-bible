@@ -9,7 +9,7 @@ Though its root grows old in the earth, and its stock dies in the ground,
 yet through the scent of water it will bud, and sprout boughs like a plant. 
 But man dies, and is laid low. Yes, man gives up the spirit, and where is he? 
 As the waters fail from the sea, and the river wastes and dries up, 
-so man lies down and doesn't rise. Until the heavens are no more, they will not awake, nor be roused out of their sleep. 
+so man lies down and doesn't rise. Until the sky are no more, they will not awake, nor be roused out of their sleep. 
 "Oh that you would hide me in Hades, that you would keep me secret until your wrath is past, that you would appoint me a set time and remember me! 
 If a man dies, will he live again? I would wait all the days of my warfare, until my release should come. 
 You would call, and I would answer you. You would have a desire for the work of your hands. 

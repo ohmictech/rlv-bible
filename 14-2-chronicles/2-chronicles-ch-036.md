@@ -12,7 +12,7 @@ Zedekiah was twenty-one years old when he began to reign, and he reigned eleven 
 He did that which was bad in his God's sight. He didn't humble himself before Jeremiah the spokesman speaking from God's mouth. 
 He also rebelled against King Nebuchadnezzar, who had made him swear by God; but he stiffened his neck, and hardened his heart against turning to the God of Israel. 
 Moreover all the chiefs of the priests and the people trespassed very greatly after all the abominations of the nations; and they polluted God's house which he had made holy in Jerusalem. 
-The God of their fathers, sent to them by his messengers, rimistakeg up early and sending, because he had compassion on his people and on his dwelling place; 
+The God of their fathers sent to them by his messengers, rimistakeg up early and sending, because he had compassion on his people and on his dwelling place; 
 but they mocked the messengers of God, despised his words, and scoffed at his spokesmen, until God's wrath arose against his people, until there was no remedy. 
 Therefore he brought on them the king of the Chaldeans, who killed their young men with the sword in the house of their sanctuary, and had no compassion on young man or virgin, old man or infirm. He gave them all into his hand. 
 All the vessels of God's house, great and small, and the treasures of God's house, and the treasures of the king and of his princes, all these he brought to Babylon. 
@@ -20,4 +20,4 @@ They burned God's house, broke down the wall of Jerusalem, burned all its palace
 He carried those who had escaped from the sword away to Babylon, and they were servants to him and his sons until the reign of the kingdom of Persia, 
 to fulfill God's word by Jeremiah's mouth, until the land had enjoyed its Sabbaths. As long as it lay desolate, it kept Sabbath, to fulfill seventy years. 
 Now in the first year of Cyrus king of Persia, that God's word by the mouth of Jeremiah might be accomplished, God stirred up the spirit of Cyrus king of Persia, so that he made a proclamation throughout all his kingdom, and put it also in writing, saying, 
-"Cyrus king of Persia says, 'The God of heaven, has given all the kingdoms of the earth to me; and he has commanded me to build him a house in Jerusalem, which is in Judah. Whoever there is among you of all his people, his God be with him, and let him go up.'" 
+"Cyrus king of Persia says, 'The God of the sky has given all the kingdoms of the earth to me; and he has commanded me to build him a house in Jerusalem, which is in Judah. Whoever there is among you of all his people, his God be with him, and let him go up.'" 

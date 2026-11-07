@@ -1,6 +1,6 @@
 ﻿A prayer of Habakkuk, the spokesman, set to victorious music. 
 God, I have heard of your fame. I stand in awe of your deeds, God. Renew your work in the middle of the years. In the middle of the years make it known. In wrath, you remember mercy. 
-God came from Teman, the Holy One from Mount Paran. Selah. His glory covered the heavens, and his praise filled the earth. 
+God came from Teman, the Holy One from Mount Paran. Selah. His glory covered the sky, and his praise filled the earth. 
 His splendor is like the sunrise. Rays shine from his hand, where his power is hidden. 
 Plague went before him, and pestilence followed his feet. 
 He stood, and shook the earth. He looked, and made the nations tremble. The ancient mountains were crumbled. The age-old hills collapsed. His ways are eternal. 

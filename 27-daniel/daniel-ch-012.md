@@ -4,7 +4,7 @@ Those who are wise will shine as the brightness of the expanse. Those who turn m
 But you, Daniel, shut up the words and seal the book, even to the time of the end. Many will run back and forth, and knowledge will be increased." 
 Then I, Daniel, looked, and behold, two others stood, one on the river bank on this side, and the other on the river bank on that side. 
 One said to the man clothed in linen, who was above the waters of the river, "How long will it be to the end of these wonders?" 
-I heard the man clothed in linen, who was above the waters of the river, when he held up his right hand and his left hand to heaven, and swore by him who lives for the eras that it will be for a time, times, and a half; and when they have finished breaking in pieces the power of the holy people, all these things will be finished. 
+I heard the man clothed in linen, who was above the waters of the river, when he held up his right hand and his left hand to the sky, and swore by him who lives for the eras that it will be for a time, times, and a half; and when they have finished breaking in pieces the power of the holy people, all these things will be finished. 
 I heard, but I didn't understand. Then I said, "My lord, what will be the outcome of these things?" 
 He said, "Go your way, Daniel; for the words are shut up and sealed until the time of the end. 
 Many will purify themselves, and make themselves white, and be refined, but the guilty will do guiltyly; and none of the guilty will understand, but those who are wise will understand. 

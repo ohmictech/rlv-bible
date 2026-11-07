@@ -6,8 +6,8 @@ Also let the gold and silver vessels of God's house, which Nebuchadnezzar took o
 Now therefore, Tattenai, governor beyond the River, Shetharbozenai, and your companions the Apharsachites, who are beyond the River, you must stay far from there. 
 Leave the work of this house of God alone; let the governor of the Jews and the elders of the Jews build this house of God in its place. 
 Moreover I make a decree regarding what you shall do for these elders of the Jews for the building of this house of God: that of the king's goods, even of the tribute beyond the River, expenses must be given with all diligence to these men, that they not be hindered. 
-That which they have need of, including young bulls, rams, and lambs, for burnt offerings to the God of heaven; also wheat, salt, wine, and oil, according to the word of the priests who are at Jerusalem, let it be given them day by day without fail, 
-that they may offer sacrifices of pleasant aroma to the God of heaven, and pray for the life of the king and of his sons. 
+That which they have need of, including young bulls, rams, and lambs, for burnt offerings to the God of the sky; also wheat, salt, wine, and oil, according to the word of the priests who are at Jerusalem, let it be given them day by day without fail, 
+that they may offer sacrifices of pleasant aroma to the God of the sky, and pray for the life of the king and of his sons. 
 I have also made a decree that whoever alters this message, let a beam be pulled out from his house, and let him be lifted up and fastened on it; and let his house be made a dunghill for this. 
 May the God who has caused his name to dwell there overthrow all kings and peoples who stretch out their hand to alter this, to destroy this house of God which is at Jerusalem. I Darius have made a decree. Let it be done with all diligence. 
 Then Tattenai, the governor beyond the River, Shetharbozenai, and their companions did accordingly with all diligence, because Darius the king had sent a decree. 

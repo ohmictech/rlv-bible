@@ -1,6 +1,6 @@
 ﻿Moses and the elders of Israel commanded the people, saying, "Keep all the commandment which I command you today. 
 It shall be on the day when you shall pass over the Jordan to the land which your God gives you, that you shall set yourself up great stones, and coat them with plaster. 
-You shall write on them all the words of this law, when you have passed over, that you may go in to the land which your God gives you, a land flowing with milk and honey, as the God of your fathers, has promised you. 
+You shall write on them all the words of this law, when you have passed over, that you may go in to the land which your God gives you, a land flowing with milk and honey, as the God of your fathers has promised you. 
 It shall be, when you have crossed over the Jordan, that you shall set up these stones, which I command you today, on Mount Ebal, and you shall coat them with plaster. 
 There you shall build an altar to your God, an altar of stones. You shall not use any iron tool on them. 
 You shall build your God's altar of uncut stones. You shall offer burnt offerings on it to your God. 

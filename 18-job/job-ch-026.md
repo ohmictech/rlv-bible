@@ -8,7 +8,7 @@ He stretches out the north over empty space, and hangs the earth on nothing.
 He binds up the waters in his thick clouds, and the cloud is not burst under them. 
 He encloses the face of his throne, and spreads his cloud on it. 
 He has described a boundary on the surface of the waters, and to the confines of light and darkness. 
-The pillars of heaven tremble and are astonished at his rebuke. 
+The pillars of the sky tremble and are astonished at his rebuke. 
 He stirs up the sea with his power, and by his understanding he strikes through Rahab. 
-By his Spirit the heavens are garnished. His hand has pierced the swift serpent. 
+By his Spirit the sky are garnished. His hand has pierced the swift serpent. 
 Behold, these are but the outskirts of his ways. How small a whisper do we hear of him! But the thunder of his power who can understand?" 

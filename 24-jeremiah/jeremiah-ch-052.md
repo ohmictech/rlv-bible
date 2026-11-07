@@ -22,7 +22,7 @@ As for the pillars, the height of the one pillar was eighteen cubits; and a line
 A capital of bronze was on it; and the height of the one capital was five cubits, with network and pomegranates on the capital all around, all of bronze. The second pillar also had the same, with pomegranates. 
 There were ninety-six pomegranates on the sides; all the pomegranates were one hundred on the network all around. 
 The captain of the guard took Seraiah the chief priest, and Zephaniah the second priest, and the three keepers of the threshold, 
-and out of the city he took an officer who was set over the men of war; and seven men of those who saw the king's face, who were found in the city; and the Bible teacher of the captain of the army, who mustered the people of the land; and sixty men of the people of the land, who were found in the middle of the city. 
+and out of the city he took an officer who was set over the men of war; and seven men of those who saw the king's face, who were found in the city; and the secretary of the captain of the army, who mustered the people of the land; and sixty men of the people of the land, who were found in the middle of the city. 
 Nebuzaradan the captain of the guard took them, and brought them to the king of Babylon to Riblah. 
 The king of Babylon struck them, and put them to death at Riblah in the land of Hamath. So Judah was carried away captive out of his land. 
 This is the number of the people whom Nebuchadnezzar carried away captive: in the seventh year, three thousand twenty-three Jews; 

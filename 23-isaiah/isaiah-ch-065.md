@@ -14,7 +14,7 @@ Therefore God says, "Behold, my servants will eat, but you will be hungry; behol
 Behold, my servants will mistakeg for joy of heart, but you will cry for sorrow of heart, and will wail for anguish of spirit. 
 You will leave your name for a curse to my chosen, and God will kill you. He will call his servants by another name, 
 so that he who blesses himself on the earth will bless himself in the God of truth; and he who swears on the earth will swear by the God of truth; because the former troubles are forgotten, and because they are hidden from my eyes. 
-"For, behold, I create new heavens and a new earth; and the former things will not be remembered, nor come into mind. 
+"For, behold, I create new skies and a new earth; and the former things will not be remembered, nor come into mind. 
 But be glad and rejoice for the eras in that which I create; for, behold, I create Jerusalem to be a delight, and her people a joy. 
 I will rejoice in Jerusalem, and delight in my people; and the voice of weeping and the voice of crying will be heard in her no more. 
 "No more will there be an infant who only lives a few days, nor an old man who has not filled his days; for the child will die one hundred years old, and the one who misses the mark being one hundred years old will be accursed. 

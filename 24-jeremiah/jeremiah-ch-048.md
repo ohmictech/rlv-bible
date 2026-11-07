@@ -1,4 +1,4 @@
-﻿Of Moab. The God of Armies, the God of Israel, says: "Woe to Nebo! For it is laid waste. Kiriathaim is disappointed. It is taken. Misgab is put to shame and broken down. 
+﻿Of Moab. The God of Armies, the God of Israel says: "Woe to Nebo! For it is laid waste. Kiriathaim is disappointed. It is taken. Misgab is put to shame and broken down. 
 The praise of Moab is no more. In Heshbon they have devised bad against her: 'Come! Let's cut her off from being a nation.' You also, Madmen, will be brought to silence. The sword will pursue you. 
 The sound of a cry from Horonaim, desolation and great destruction! 
 Moab is destroyed. Her little ones have caused a cry to be heard. 

@@ -1,0 +1,25 @@
+﻿Paul, a prisoner of Christ Jesus, and Timothy our brother, to Philemon, who is truly loved and who works alongside us, 
+to Apphia, who is truly loved, to Archippus who fights alongside us, and to the gathering in your house: 
+Favor and wholeness to you from God our Father and the Lord Jesus Christ. 
+I always give thanks to my God when I mention you in my prayers, 
+because I hear of your love and of the trust you have toward the Lord Jesus and toward all the set-apart ones, 
+I pray that the sharing that comes from your trust may become active as you know every good thing that is in us, in Christ Jesus. 
+For your love has given me much joy and comfort, because the hearts of the set-apart ones have been given relief through you, brother. 
+So although I have plenty of boldness in Christ to tell you what you should do, 
+still, for love's sake I would rather ask you (I, Paul, an old man, and now a prisoner of Jesus Christ as well). 
+I am asking you on behalf of my child Onesimus, whose father I became while I was in chains. 
+Once he was useless to you, but now he is useful to you and to me. 
+I am sending him back to you (him, that is, my own heart). 
+I would have liked to keep him with me, so that he could serve me in your place while I am in chains for the Good News. 
+But I did not want to do anything without your consent, so that your kindness would not be a matter of necessity, but of your own free choice. 
+Maybe this is why he was separated from you for a while, so that you could have him back for good, 
+no longer as a slave, but as more than a slave: a brother who is truly loved, especially to me, but how much more to you, both as a person and in the Lord. 
+So if you count me as a partner, welcome him the way you would welcome me. 
+If he has wronged you in any way or owes you anything, charge it to me. 
+I, Paul, am writing this with my own hand: I will pay it back, and I will not mention that you owe me your own self as well. 
+Yes, brother, let me get some good out of you in the Lord. Give my heart relief in the Lord. 
+I write to you trusting that you will do as I ask, and I know that you will do even more than I say. 
+At the same time, prepare a guest room for me, because I hope that through your prayers I will be given back to you. 
+Epaphras, who is a prisoner with me in Christ Jesus, sends you greetings, 
+and so do Mark, Aristarchus, Demas, and Luke, who work alongside me. 
+May the favor of the Lord Jesus Christ be with your spirit. Amen. 

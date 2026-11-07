@@ -1,0 +1,38 @@
+﻿He looked up and saw the rich people who were putting their gifts into the treasury. 
+He saw a certain poor widow casting in two small copper coins. 
+He said, "Truly I tell you, this poor widow put in more than all of them, 
+for all these put in gifts for God out of what they had to spare, but she, out of her poverty, put in all that she had to live on." 
+As some were talking about the temple and how it was decorated with beautiful stones and gifts, he said, 
+"As for these things which you see, the days will come in which there will not be left here one stone on another that will not be thrown down." 
+They asked him, "Teacher, so when will these things be? What is the sign that these things are about to happen?" 
+He said, "Watch out that you don't get led astray, for many will come in my name, saying, 'I am he,' and, 'The time is near.' Therefore don't follow them. 
+When you hear of wars and disturbances, don't be terrified, for these things must happen first, but the end won't come immediately." 
+Then he said to them, "Nation will rise against nation, and reign against reign. 
+There will be great earthquakes, famines, and plagues in various places. There will be terrors and great signs from the sky. 
+But before all these things, they will lay their hands on you and will hunt you down, delivering you up to gathering places and prisons, bringing you before kings and governors for my name's sake. 
+It will turn out as a witness for you. 
+So settle it in your hearts not to prepare beforehand how to answer, 
+for I will give you a mouth and wisdom which all your adversaries will not be able to withstand or to contradict. 
+You will be handed over even by parents, brothers, relatives, and friends. They will cause some of you to be put to death. 
+You will be hated by all men for my name's sake. 
+And not a hair of your head will be lost. 
+"By your endurance you will win your lives. 
+"But when you see Jerusalem surrounded by armies, then know that its desolation is near. 
+Then let those who are in Judea flee to the mountains. Let those who are in the middle of her depart. Let those who are in the countryside not enter it. 
+For these are days of reckoning, that all things which are written may be fulfilled. 
+How terrible for those who are pregnant and to those who nurse infants in those days! For there will be great distress in the land and heat on this people. 
+They will fall by the edge of the sword, and will be led captive into all the nations. Jerusalem will be trampled down by the nations until the times of the nations are fulfilled. 
+"There will be signs in the sun, moon, and stars; and on the land distress of nations, in perplexity for the roaring of the sea and the waves; 
+men fainting for fear and for expectation of the things which are coming on the world, for the powers of the sky will be shaken. 
+Then they will see the Human One coming in a cloud with power and great weight. 
+But when these things begin to happen, look up and lift up your heads, because your setting free is near." 
+He told them a story. "See the fig tree and all the trees. 
+When they are already budding, you see it and know for yourselves that summer is already near. 
+So also, when you see these things happening, know that God's reign is near. 
+Truly I tell you, this generation will not pass away until all things are accomplished. 
+The sky and the land will pass away, but my words will by no means pass away. 
+"So be careful, or your hearts will be loaded down with carousing, drunkenness, and cares of this life, and that day will come on you suddenly. 
+For it will come like a snare on all those who dwell on the surface of all the earth. 
+Therefore be watchful all the time, praying that you may be counted worthy to escape all these things that will happen, and to stand before the Human One." 
+Every day Jesus was teaching in the temple courts, and every night he would go out and spend the night on the mountain that is called Olivet. 
+All the people came early in the morning to him in the temple courts to hear him. 

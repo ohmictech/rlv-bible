@@ -1,0 +1,23 @@
+﻿What shall we say then? Should we continue in the mistake, so that favor may overflow? 
+May it never be! We who died to the mistake, how could we live in it any longer? 
+Or don't you know that all of us who were immersed into Christ Jesus were immersed into his death? 
+We were buried therefore with him through immersion into death, that just as Christ was raised from the dead through the weight of the Father, so we also might walk in newness of life. 
+For if we have become united with him in the likeness of his death, we will also be part of his rising; 
+knowing this, that our old man was crucified with him, that the body of the mistake might be put out of work, so that we would no longer be slaves to the mistake. 
+For he who has died has been freed from the mistake. 
+But if we died with Christ, we trust that we will also live with him, 
+knowing that Christ, being raised from the dead, dies no more. Death no longer has dominion over him! 
+For the death that he died, he died to the mistake once; but the life that he lives, he lives to God. 
+Thus consider yourselves also to be dead to the mistake, but alive to God in Christ Jesus our Lord. 
+Therefore don't let the mistake reign in your mortal body, that you should obey it in its cravings. 
+Also, do not present your members to the mistake as instruments of wrong, but present yourselves to God as alive from the dead, and your members as instruments of rightness to God. 
+For the mistake will not have dominion over you, for you are not under law, but under favor. 
+What then? Shall we miss the mark because we are not under law but under favor? May it never be! 
+Don't you know that when you present yourselves as slaves and obey someone, you are the slaves of whomever you obey, whether of the mistake to death, or of obedience to rightness? 
+But thanks be to God that, whereas you were slaves of the mistake, you became obedient from the heart to that form of teaching to which you were handed over. 
+Being made free from the mistake, you became slaves of rightness. 
+I speak in human terms because of the weakness of your flesh; for just as you once handed your bodies over as slaves to what is unclean and to living as if there were no law, which led to more of the same, so now hand your bodies over as slaves to rightness, which leads to being set apart. 
+For when you were slaves of the mistake, you were free from rightness. 
+What fruit then did you have at that time in the things of which you are now ashamed? For the end of those things is death. 
+But now, being made free from the mistake and having become slaves of God, you have your fruit of set-apartness and the result of the real life of the era. 
+For the earned result of the mistake is death, but the free gift of God is the real life of the era in Christ Jesus our Lord. 

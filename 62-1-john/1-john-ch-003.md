@@ -1,0 +1,24 @@
+﻿See what great love the Father has given us, that we should be called God's children! And that is what we are. That is why the world does not know us: it did not know Him. 
+My truly loved friends, we are God's children now. What we will be has not yet been shown, but we know that when he appears we will be like him, for we will see him just as he is. 
+Everyone who has this expectation set on him makes themselves pure, even as he is pure. 
+Everyone who keeps missing the mark is also living as if there were no law. The mistake is living as if there were no law. 
+You know that he appeared to take away our mistakes, and there is no mistake in him. 
+No one who makes their home in him keeps missing the mark. No one who keeps missing the mark has seen him or known him. 
+Dear children, do not let anyone lead you astray. Whoever does what is right is upright, just as he is upright. 
+Whoever keeps missing the mark belongs to the Slanderer, because the Slanderer has been missing the mark from the beginning. The Son of God appeared for this reason: to undo the deeds of the Slanderer. 
+No one who has been born of God keeps on missing the mark, because God's seed makes its home in them, and they cannot keep on missing the mark, because they have been born of God. 
+This is how God's children and the Slanderer's children are shown for what they are. Anyone who does not do what is right is not God's child, and neither is anyone who does not love their brother or sister. 
+For this is the message which you heard from the beginning: we should love one another. 
+Do not be like Cain, who belonged to the Slanderer and murdered his brother. Why did he murder him? Because his own deeds were bad and his brother's were right. 
+Brothers and sisters, do not be surprised if the world hates you. 
+We know that we have moved out of death into real life, because we love our brothers and sisters. Anyone who does not love makes their home in death. 
+Anyone who hates a brother or sister is a murderer, and you know that no murderer has the real life of the era making its home in them. 
+This is how we know what love is: he laid down his life for us. And we should lay down our lives for our brothers and sisters. 
+If anyone has enough to live on and sees a brother or sister in need and then shuts off their deep compassion from them, how can God's love make its home in them? 
+My dear children, let us not love with words or talk only, but in what we do and in truth. 
+This is how we know that we belong to the truth, and how we set our hearts at rest in his presence: 
+if our own heart finds us guilty, God is greater than our heart, and he knows everything. 
+My truly loved friends, if our hearts do not find us guilty, we have boldness before God, 
+and we receive whatever we ask from him, because we keep his commands and do the things that please him. 
+And this is his command: that we should trust in the name of his Son, Jesus Christ, and that we should love one another, just as he commanded us. 
+Whoever keeps his commands makes their home in him, and he in them. And this is how we know that he makes his home in us: by the Spirit he gave us. 

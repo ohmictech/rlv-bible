@@ -1,32 +1,32 @@
 ﻿Jacob went on his way, and the messengers of God met him. 
-When he saw them, Jacob said, "This is God's army." He called the name of that place Mahanaim. 
-Jacob sent messengers in front of him to Esau, his brother, to the land of Seir, the field of Edom. 
-He commanded them, saying, "This is what you will tell my lord, Esau: 'This is what your servant, Jacob, says. I have lived as a foreigner with Laban, and stayed until now. 
-I have cattle, donkeys, flocks, male servants, and female servants. I have sent to tell my lord, that I can find favor in your sight.'" 
-The messengers returned to Jacob, saying, "We came to your brother Esau. He's coming to meet you, and four hundred men are with him." 
-Then Jacob was greatly afraid and was distressed. He divided the people who were with him, along with the flocks, the herds, and the camels, into two companies. 
-He said, "If Esau comes to the one company, and strikes it, then the company which is left will escape." 
-Jacob said, "God of my father Abraham, and God of my father Isaac, God, who said to me, 'Return to your country, and to your relatives, and I'll do you good,' 
-I'm not worthy of the least of all the loving kindnesses, and of all the truth, which you have shown to your servant; for with just my staff I crossed over this Jordan; and now I have become two companies. 
-Please deliver me from the hand of my brother, from the hand of Esau; for I fear him, lest he come and strike me and the mothers with the children. 
-You said, 'I'll surely do you good, and make your offspring as the sand of the sea, which can't be counted because there are so many.'" 
-He stayed there that night, and took from that which he had with him a present for Esau, his brother: 
-two hundred female goats and twenty male goats, two hundred ewes and twenty rams, 
-thirty milk camels and their colts, forty cows, ten bulls, twenty female donkeys and ten foals. 
-He delivered them into the hands of his servants, every herd by itself, and said to his servants, "Pass over before me, and put a space between herd and herd." 
-He commanded the foremost, saying, "When Esau, my brother, meets you, and asks you, saying, 'Whose are you? Where are you going? Whose are these before you?' 
-Then you will say, 'They're your servant, Jacob's. It's a present sent to my lord, Esau. Look, he also is behind us.'" 
-He commanded also the second, and the third, and all that followed the herds, saying, "This is how you will speak to Esau, when you find him. 
-You will say, 'Not only that, but look, your servant, Jacob, is behind us.'" For, he said, "I'll appease him with the present that goes before me, and afterward I'll see his face. Perhaps he'll accept me." 
-So the present passed over before him, and he himself stayed that night in the camp. 
-He rose up that night, and took his two wives, and his two servants, and his eleven sons, and crossed over the ford of the Jabbok. 
-He took them, and sent them over the stream, and sent over that which he had. 
-Jacob was left alone, and wrestled with a man there until the breaking of the day. 
-When he saw that he didn't prevail against him, the man touched the hollow of his thigh, and the hollow of Jacob's thigh was strained as he wrestled. 
-The man said, "Let me go, for the day breaks." Jacob said, "I won't let you go unless you bless me." 
-He said to him, "What's your name?" He said, "Jacob". 
-He said, "Your name will no longer be called Jacob, but Israel; for you have fought with God and with men, and have prevailed." 
-Jacob asked him, "Please tell me your name." He said, "Why is it that you ask what my name is?" So he blessed him there. 
-Jacob called the name of the place Peniel; for he said, "I have seen God face to face, and my life is preserved." 
-The sun rose on him as he passed over Peniel, and he limped because of his thigh. 
-So the children of Israel don't eat the sinew of the hip, which is on the hollow of the thigh, to this day, because he touched the hollow of Jacob's thigh in the sinew of the hip. 
+When he saw them, Jacob said, "This is God's army!" So he named that place Mahanaim. 
+Jacob sent messengers ahead of him to his brother Esau in the land of Seir, the country of Edom. 
+He told them, "Say this to my lord Esau: Your servant Jacob says: I've been living as a foreigner with Laban, and I've stayed there until now. 
+I have cattle, donkeys, flocks, and male and female servants. I'm sending this message to my lord, hoping to find favor with you." 
+The messengers came back to Jacob and said, "We went to your brother Esau, and he's coming to meet you with four hundred men." 
+Jacob was terrified and deeply distressed. So he divided the people with him, along with the flocks, herds, and camels, into two camps. 
+He thought, "If Esau attacks one camp, the other one can get away." 
+Then Jacob prayed, "God of my father Abraham and God of my father Isaac, you told me, 'Go back to your country and your relatives, and I'll do you good.' 
+I'm not worthy of all the kindness and faithfulness you've shown your servant. I crossed this Jordan with nothing but my walking stick, and now I've become two camps. 
+Please save me from my brother Esau. I'm afraid he'll come and attack me, and the mothers with their children too. 
+But you said, 'I'll certainly do you good and make your offspring as many as the sand of the sea, too many to count.'" 
+Jacob spent the night there, and from what he had he chose a gift for his brother Esau: 
+two hundred female goats and twenty male goats, two hundred female sheep and twenty rams, 
+thirty camels with their young, forty cows, ten bulls, twenty female donkeys, and ten foals. 
+He put each herd in the care of his servants and said, "Go on ahead of me, and keep a space between each herd." 
+He told the first servant, "When my brother Esau meets you and asks, 'Who do you work for? Where are you going? Who owns these animals in front of you?' 
+tell him, 'They belong to your servant Jacob. They're a gift for my lord Esau, and he's coming along behind us.'" 
+He gave the same instructions to the second and third servants, and to everyone driving the herds: "Say the same thing to Esau when you meet him, 
+and add, 'Your servant Jacob is right behind us.'" Then Jacob thought, "I'll soften him up with the gifts going ahead of me, and when I face him afterwards, maybe he'll accept me." 
+So the gifts went on ahead of him, and he spent that night in the camp. 
+That night Jacob got up, took his two wives, his two servant women, and his eleven sons, and crossed the ford of the Jabbok. 
+He sent them across the stream, along with everything he had. 
+So Jacob was left alone, and a man wrestled with him until daybreak. 
+When the man saw he wasn't winning, he struck Jacob's hip socket, and it was thrown out of place as they wrestled. 
+The man said, "Let me go. It's almost daylight." But Jacob said, "I won't let you go unless you bless me." 
+The man asked him, "What's your name?" He said, "Jacob." 
+The man said, "Your name won't be Jacob any longer. It'll be Israel, because you've struggled with God and with people, and you've won." 
+Jacob asked, "Please tell me your name." But he said, "Why do you ask my name?" And he blessed him there. 
+Jacob named the place Peniel, saying, "I've seen God face to face, and my life was spared." 
+The sun came up as he passed Peniel, and he was limping because of his hip. 
+That's why, to this day, the people of Israel don't eat the tendon on the hip socket, because the man struck Jacob's hip socket at the tendon of the hip. 

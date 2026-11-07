@@ -1,55 +1,55 @@
-﻿Jacob heard Laban's sons' words, saying, "Jacob has taken away all that was our father's. He has obtained all this wealth from that which was our father's." 
-Jacob saw the expression on Laban's face, and, look, it wasn't toward him as before. 
-God said to Jacob, "Return to the land of your fathers, and to your relatives, and I'll be with you." 
-Jacob sent and called Rachel and Leah to the field to his flock, 
-and said to them, "I see the expression on your father's face, that it isn't toward me as before; but the God of my father has been with me. 
-You know that I have served your father with all of my strength. 
-Your father has deceived me, and changed my wages ten times, but God didn't allow him to hurt me. 
-If he said, 'The speckled will be your wages,' then all the flock bore speckled. If he said, 'The streaked will be your wages,' then all the flock bore streaked. 
-Thus God has taken away your father's livestock, and given them to me. 
-During mating season, I lifted up my eyes, and saw in a dream, and look, the male goats which leaped on the flock were streaked, speckled, and grizzled. 
-The messenger of God said to me in the dream, 'Jacob,' and I said, 'Here I am.' 
-He said, 'Now lift up your eyes, and look, all the male goats which leap on the flock are streaked, speckled, and grizzled, for I have seen all that Laban does to you. 
-I'm the God of Bethel, where you anointed a pillar, where you vowed a vow to me. Now arise, get out from this land, and return to the land of your birth.'" 
-Rachel and Leah answered him, "Is there yet any portion or inheritance for us in our father's house? 
-Aren't we considered as foreigners by him? He has sold us, and has also used up our money. 
-All the riches which God has taken away from our father are ours and our children's. Now then, whatever God has said to you, do." 
-Then Jacob rose up, and set his sons and his wives on the camels, 
-and he took away all his livestock, and all his possessions which he had gathered, including the livestock which he had gained in Paddan Aram, to go to Isaac his father, to the land of Canaan. 
-Now Laban had gone to shear his sheep; and Rachel stole the teraphim that were her father's. 
-Jacob deceived Laban the Syrian, in that he didn't tell him that he was running away. 
-So he fled with all that he had. He rose up, passed over the River, and set his face toward the mountain of Gilead. 
-Laban was told on the third day that Jacob had fled. 
-He took his relatives with him, and pursued him seven days' journey. He overtook him in the mountain of Gilead. 
-God came to Laban the Syrian in a dream of the night, and said to him, "Be careful that you don't speak to Jacob either good or bad." 
-Laban caught up with Jacob. Now Jacob had pitched his tent in the mountain, and Laban with his relatives encamped in the mountain of Gilead. 
-Laban said to Jacob, "What have you done, that you have deceived me, and carried away my daughters like captives of the sword? 
-Why did you flee secretly, and deceive me, and didn't tell me, that I might have sent you away with mirth and with songs, with tambourine and with harp; 
-and didn't allow me to kiss my sons and my daughters? Now you have done foolishly. 
-It's in the power of my hand to hurt you, but the God of your father spoke to me last night, saying, 'Be careful that you don't speak to Jacob either good or bad.' 
-Now, you want to be gone, because you greatly longed for your father's house, but why have you stolen my gods?" 
-Jacob answered Laban, "Because I was afraid, for I said, 'Lest you should take your daughters from me by force.' 
-Anyone you find your gods with won't live. Before our relatives, discern what's yours with me, and take it." Jacob didn't know that Rachel had stolen them. 
-Laban went into Jacob's tent, into Leah's tent, and into the tent of the two female servants; but he didn't find them. He went out of Leah's tent, and entered into Rachel's tent. 
-Now Rachel had taken the teraphim, put them in the camel's saddle, and sat on them. Laban felt around all the tent, but didn't find them. 
-She said to her father, "Don't let my lord be angry that I can't rise up before you; for I'm having my period." He searched, but didn't find the teraphim. 
-Jacob was angry, and argued with Laban. Jacob answered Laban, "What's my trespass? What's my wrongdoing, that you have hotly pursued me? 
-Now that you have felt around in all my stuff, what have you found of all your household stuff? Set it here before my relatives and your relatives, that they can judge between us two. 
-"These twenty years I have been with you. Your ewes and your female goats haven't cast their young, and I haven't eaten the rams of your flocks. 
-That which was torn of animals, I didn't bring to you. I bore its loss. Of my hand you required it, whether stolen by day or stolen by night. 
-This was my situation: in the day the drought consumed me, and the frost by night; and my sleep fled from my eyes. 
-These twenty years I have been in your house. I served you fourteen years for your two daughters, and six years for your flock, and you have changed my wages ten times. 
-Unless the God of my father, the God of Abraham, and the fear of Isaac, had been with me, surely now you'd have sent me away empty. God has seen my affliction and the labor of my hands, and rebuked you last night." 
-Laban answered Jacob, "The daughters are my daughters, the children are my children, the flocks are my flocks, and all that you see is mine! What can I do today to these my daughters, or to their children whom they have borne? 
-Now come, let's make a covenant, you and I. Let it be for a witness between me and you." 
-Jacob took a stone, and set it up for a pillar. 
-Jacob said to his relatives, "Gather stones." They took stones, and made a heap. They ate there by the heap. 
-Laban called it Jegar Sahadutha, but Jacob called it Galeed. 
-Laban said, "This heap is witness between me and you today." So it was named Galeed 
-and Mizpah, for he said, "God watch between me and you, when we're absent one from another. 
-If you afflict my daughters, or if you take wives in addition to my daughters, no man is with us; look, God is witness between me and you." 
-Laban said to Jacob, "See this heap, and see the pillar, which I have set between me and you. 
-May this heap be a witness, and the pillar be a witness, that I won't pass over this heap to you, and that you won't pass over this heap and this pillar to me, for harm. 
-The God of Abraham, and the God of Nahor, the God of their father, judge between us." Then Jacob swore by the fear of his father, Isaac. 
-Jacob offered a sacrifice in the mountain, and called his relatives to eat bread. They ate bread, and stayed all night in the mountain. 
-Early in the morning, Laban rose up, and kissed his sons and his daughters, and blessed them. Laban departed and returned to his place. 
+﻿Jacob heard what Laban's sons were saying: "Jacob has taken everything our father had. He's built all this wealth out of what belonged to our father." 
+Jacob also noticed that Laban was no longer looking at him the way he used to. 
+Then God said to Jacob, "Go back to the land of your fathers and your relatives, and I'll be with you." 
+So Jacob sent for Rachel and Leah to come out to the field where his flock was, 
+and said to them, "I can see your father isn't looking at me the way he used to, but my father's God has been with me. 
+You know I've worked for your father with everything I had. 
+Your father has cheated me and changed my wages ten times, but God wouldn't let him harm me. 
+When he said, 'The speckled ones will be your wages,' the whole flock had speckled young. When he said, 'The streaked ones will be your wages,' the whole flock had streaked young. 
+So God has taken your father's livestock away and given them to me. 
+Once, during mating season, I had a dream, and I saw that the male goats mating with the flock were streaked, speckled, and spotted. 
+The messenger of God called to me in the dream, 'Jacob!' and I said, 'Here I am.' 
+He said, 'Look up, and you'll see that all the male goats mating with the flock are streaked, speckled, and spotted, because I've seen everything Laban has been doing to you. 
+I'm the God of Bethel, where you poured oil on the pillar and made a promise to me. Now get up, leave this land, and go back to the land where you were born.'" 
+Rachel and Leah answered, "Is there any share or inheritance left for us in our father's house? 
+Doesn't he treat us like outsiders? He sold us, and he's spent the money he got for us. 
+All the wealth God took from our father belongs to us and our children. So do whatever God told you." 
+Then Jacob got up and put his children and his wives on the camels. 
+He drove off all his livestock and everything he had acquired in Paddan Aram, to go to his father Isaac in the land of Canaan. 
+Laban had gone off to shear his sheep, and while he was away Rachel stole her father's household idols. 
+Jacob slipped away without telling Laban the Aramean that he was leaving. 
+So he fled with everything he had. He crossed the river and headed for the hill country of Gilead. 
+On the third day Laban was told that Jacob had run away. 
+So he took his relatives with him and chased Jacob for seven days, and caught up with him in the hill country of Gilead. 
+But God came to Laban the Aramean in a dream that night and said, "Watch yourself. Don't say a word to Jacob, good or bad." 
+Laban caught up with Jacob, who had pitched his tent in the hill country, and Laban and his relatives camped there too. 
+Laban said to Jacob, "What have you done? You tricked me and carried off my daughters like prisoners of war. 
+Why did you sneak off and cheat me like this, without telling me? I would have sent you off with music, with tambourines and harps. 
+You didn't even let me kiss my grandchildren and my daughters goodbye. That was a foolish thing to do. 
+I have the power to hurt you, but your father's God spoke to me last night and said, 'Watch yourself. Don't say a word to Jacob, good or bad.' 
+I understand you wanted to go, because you were longing for your father's house. But why did you steal my gods?" 
+Jacob answered, "I was afraid, because I thought you'd take your daughters away from me by force. 
+But if you find your gods with anyone here, that person won't live. Go ahead, search in front of our relatives and take back whatever is yours." Jacob didn't know that Rachel had stolen them. 
+So Laban went into Jacob's tent, then Leah's, then the tent of the two servant women, but he found nothing. Then he came out of Leah's tent and went into Rachel's. 
+Rachel had taken the idols and put them inside her camel's saddle, and she was sitting on them. Laban searched the whole tent but found nothing. 
+She said to her father, "Don't be angry, my lord, that I can't stand up in front of you. I'm having my period." So he searched and found nothing. 
+Then Jacob lost his temper and confronted Laban. He said, "What have I done wrong? What's my crime, that you've chased after me like this? 
+You've searched through all my belongings, so what did you find that belongs to you? Put it out here in front of my relatives and yours, and let them decide between us. 
+I've been with you twenty years now. Your sheep and your goats never lost their young, and I never ate any of the rams from your flock. 
+When an animal was torn apart by wild beasts, I never brought it to you. I paid for it myself. You demanded compensation from me whether it was stolen by day or by night. 
+That's how it was: the heat ate me up by day and the frost by night, and I couldn't sleep. 
+I've been in your house twenty years. I worked fourteen for your two daughters and six for your flocks, and you changed my wages ten times. 
+If the God of my father, the God of Abraham, the one Isaac fears, hadn't been with me, you'd have sent me away with nothing. But God saw my hardship and how hard I worked, and he spoke to you last night." 
+Laban answered, "These women are my daughters, these children are my grandchildren, and these flocks are my flocks. Everything you see belongs to me. But what can I do now about my own daughters and the children they've borne? 
+So come on, let's make a treaty, you and I, and let it stand as a witness between us." 
+So Jacob took a stone and set it up as a pillar. 
+He said to his relatives, "Gather some stones." So they gathered stones and piled them up, and they ate there beside the pile. 
+Laban called it Jegar Sahadutha, and Jacob called it Galeed. 
+Laban said, "This pile stands as a witness between you and me today." That's why it was named Galeed, 
+and also Mizpah, because he said, "May God keep watch between you and me when we're apart from each other. 
+If you mistreat my daughters, or take other wives besides them, even though nobody is with us, remember that God is a witness between you and me." 
+Laban said to Jacob, "Here is this pile of stones, and here is this pillar I've set up between us. 
+This pile is a witness, and so is this pillar, that I won't cross over to your side to harm you, and you won't cross over to mine to harm me. 
+May the God of Abraham and the God of Nahor, the God of their father, settle it between us." And Jacob swore by the one his father Isaac feared. 
+Then Jacob offered a sacrifice there in the hill country and invited his relatives to eat. They ate, and spent the night there. 
+Early the next morning Laban got up, kissed his grandchildren and his daughters, and blessed them. Then he left and went back home. 

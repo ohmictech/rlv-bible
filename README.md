@@ -74,7 +74,11 @@ Verse *V* sits on line *V*, so the verse number is the line number. Files are UT
 
 ## Building a reading edition
 
-`tools/build_docx.py` turns the chapter files into Word documents, one per book plus one combined volume, with a title page, a table of contents, page numbers, book and chapter headings, and the verse number set small at the start of each verse. It only reads the chapter files and writes to `build/`, which git ignores, so the text never has a second copy to drift out of step. `python tools/build_docx.py --list` shows what it can build, `--book genesis` builds a single book, and `--layout inline` runs the verses of a chapter together the way a printed Bible does. It needs `python-docx` from `tools/requirements.txt`.
+`tools/build_pdf.py` turns the chapter files into a PDF. By default it makes one volume for the whole Bible, 6 by 9 inches, with a title page, contents, running heads, page numbers, book and chapter headings, and the verse number set small at the start of each verse. `--book genesis` builds a single book, `--per-book` writes a separate file for each book, `--layout inline` runs a chapter's verses together the way a printed Bible does, and `--justify` sets the verse lines to full measure instead of ragged right. Everything it writes goes to `build/`, which git ignores, so the text never has a second copy to fall out of step.
+
+`tools/build_docx.py` does the same job in Word format. One thing worth knowing about that one: the combined volume runs to about 3.9 million characters, past the limit Google Docs will import, so upload the per-book files there rather than the whole thing. The PDF has no such limit.
+
+Both scripts need the packages in `tools/requirements.txt`.
 
 ## Source and license
 

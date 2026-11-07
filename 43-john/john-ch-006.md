@@ -54,7 +54,7 @@ Jesus said to them, "Truly I tell you, unless you eat the flesh of the Human One
 Whoever eats my flesh and drinks my blood has the real life of the era, and I'll raise them up at the last day. 
 My flesh is food indeed, and my blood is drink indeed. 
 Whoever eats my flesh and drinks my blood makes their home in me, and I in them. 
-As the living Father sent me, and I live because of the Father, so whoever feeds on me will also live because of me. 
+As the living Father sent me, and I truly live because of the Father, so whoever feeds on me will also truly live because of me. 
 This is the bread which came down out of the sky, not as our fathers ate the manna and died. Whoever eats this bread will live forever." 
 He said these things in the gathering place, as he taught in Capernaum. 
 So many of his students, when they heard this, said, "This is a hard saying! Who can listen to it?" 

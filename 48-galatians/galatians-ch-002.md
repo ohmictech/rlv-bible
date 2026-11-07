@@ -16,6 +16,6 @@ But when I saw that they weren't walking straight according to the truth of the 
 yet knowing that no one is made right by deeds of the law but through trust in Jesus Christ, we too trusted in Christ Jesus, so that we might be made right by trust in Christ and not by deeds of the law, because no flesh will be made right by deeds of the law. 
 But if, while we were seeking to be made right in Christ, we ourselves were found to be people who drift, is Christ then a servant of the drift? Certainly not! 
 If I build again what I tore down, I show myself to be a breaker of the law. 
-I through the law died to the law, that I might live to God. 
+I through the law died to the law, that I might truly live for God. 
 I have been crucified with Christ, and it's no longer I who live, but Christ lives in me. The life I now live in the flesh, I live by trust in the Son of God, who truly loved me and gave himself up for me. 
 I don't set aside the favor of God. If rightness comes through the law, then Christ died for nothing!" 

@@ -1,13 +1,13 @@
 ﻿What should we say then? Should we continue in the drift, so that favor can overflow? 
 Never! We who died to the drift, how could we live in it any longer? 
 Don't you know that all of us who were immersed into Christ Jesus were immersed into his death? 
-We were buried with him through immersion into death, so that just as Christ was raised from the dead through the weight of the Father, we also would walk in new life. 
-If we have become united with him in the way of his death, we will also be part of his rising; 
-knowing this, that our old man was crucified with him, so that the body of the drift would be put out of work, and we would no longer be slaves to the drift. 
+We were buried with him through immersion into death, so that just as Christ was raised from the dead through the weight of the Father, we too would walk in new life. 
+If we've become united with him in the way of his death, we'll also be part of his rising; 
+knowing this, that the person we used to be was crucified with him, so that the body of the drift would be put out of work, and we'd no longer be slaves to the drift. 
 The person who died has been freed from the drift. 
-But if we died with Christ, we trust that we will also live with him, 
+If we died with Christ, we trust that we'll also truly live with him, 
 knowing that Christ, being raised from the dead, dies no more. Death no longer dominates him! 
-For the death he died, he died to the drift once; but the life that he lives, he lives to God. 
+For the death he died, he died to the drift once; but the life he lives, he truly lives for God. 
 So consider yourselves dead to the drift, but alive to God in Christ Jesus our Lord. 
 So don't let the drift reign in your mortal body, to obey it in its cravings. 
 Also, don't give your hands and feet to the drift as tools of wrong, but present yourselves to God as alive from the dead, and your limbs as tools of rightness to God. 

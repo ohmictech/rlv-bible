@@ -18,7 +18,7 @@ but the latter out of love, knowing that I'm put here to defend the Good News.
 What does it matter? The one thing that matters is that Christ is announced in every way, whether from false motives or true. And in that I celebrate, yes, and I'll keep celebrating. 
 I know that this will turn out for my rescue, through your prayers and the help of the Spirit of Jesus Christ, 
 It's my own eager expectation and hope that I'll never be disgraced, but that with all openness, now as always, Christ will be made great in my body, whether by life or by death. 
-To me, living is Christ, and dying is gain. 
+To me, truly living is Christ, and dying is gain. 
 But if I go on living in the flesh, that means fruit from my work. Yet I don't know which I'd choose. 
 I'm torn between the two: I long to leave and be with Christ, which is far better. 
 But staying on in the flesh is more necessary for your sake. 

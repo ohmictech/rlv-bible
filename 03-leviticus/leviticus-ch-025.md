@@ -17,7 +17,7 @@ According to the length of the years you shall increase its price, and according
 You shall not wrong one another, but you shall fear your God; for I am your God. 
 "'Therefore you shall do my statutes, and keep my ordinances and do them; and you shall dwell in the land in safety. 
 The land shall yield its fruit, and you shall eat your fill, and dwell therein in safety. 
-If you said, "What shall we eat the seventh year? Behold, we shall not sow, nor gather in our increase;" 
+If you said, "What shall we eat the seventh year? Look, we shall not sow, nor gather in our increase;" 
 then I will command my blessing on you in the sixth year, and it shall bear fruit for the three years. 
 You shall sow the eighth year, and eat of the fruits from the old store until the ninth year. Until its fruits come in, you shall eat the old store. 
 "'The land shall not be sold in perpetuity, for the land is mine; for you are strangers and live as foreigners with me. 

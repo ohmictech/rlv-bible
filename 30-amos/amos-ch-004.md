@@ -1,5 +1,5 @@
 ﻿Listen to this word, you cows of Bashan, who are on the mountain of Samaria, who oppress the poor, who crush the needy, who tell their husbands, "Bring us drinks!" 
-The God has sworn by his holiness, "Behold, the days shall come on you that they will take you away with hooks, and the last of you with fish hooks. 
+The God has sworn by his holiness, "Look, the days shall come on you that they will take you away with hooks, and the last of you with fish hooks. 
 You will go out at the breaks in the wall, everyone straight before her; and you will cast yourselves into Harmon," says God. 
 "Go to Bethel, and drifts; to Gilgal, and drifts more. Bring your sacrifices every morning, your tithes every three days, 
 offer a sacrifice of thanksgiving of that which is leavened, and proclaim free will offerings and brag about them; for this pleases you, you children of Israel," says God. 
@@ -10,4 +10,4 @@ So two or three cities staggered to one city to drink water, and were not satisf
 "I sent plagues among you like I did Egypt. I have slain your young men with the sword, and have carried away your horses. I filled your nostrils with the stench of your camp, yet you haven't returned to me," says God. 
 "I have overthrown some of you, as when God overthrew Sodom and Gomorrah, and you were like a burning stick plucked out of the fire; yet you haven't returned to me," says God. 
 "So I will do this to you, Israel; because I will do this to you, prepare to meet your God, Israel. 
-For, behold, he who forms the mountains, creates the wind, declares to man what is his thought, who makes the morning darkness, and treads on the high places of the earth: The God of Armies is his name." 
+For, look, he who forms the mountains, creates the wind, declares to man what is his thought, who makes the morning darkness, and treads on the high places of the earth: The God of Armies is his name." 

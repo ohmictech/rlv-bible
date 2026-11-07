@@ -1,8 +1,8 @@
 ﻿"Hey! Come, everyone who thirsts, to the waters! Come, he who has no money, buy, and eat! Yes, come, buy wine and milk without money and without price. 
 Why do you spend money for that which is not bread, and your labor for that which doesn't satisfy? Listen diligently to me, and eat that which is good, and let your soul delight itself in richness. 
 Turn your ear, and come to me. Hear, and your soul will live. I will make an perpetual covenant with you, even the sure mercies of David. 
-Behold, I have given him for a witness to the peoples, a leader and commander to the peoples. 
-Behold, you shall call a nation that you don't know; and a nation that didn't know you shall run to you, because of your God, and for the Holy One of Israel; for he has glorified you." 
+Look, I have given him for a witness to the peoples, a leader and commander to the peoples. 
+Look, you shall call a nation that you don't know; and a nation that didn't know you shall run to you, because of your God, and for the Holy One of Israel; for he has glorified you." 
 Seek God while he may be found. Call on him while he is near. 
 Let the guilty forsake his way, and the unrighteous man his thoughts. Let him return to God, and he will have mercy on him, to our God, for he will freely pardon. 
 "My thoughts are not your thoughts, and your ways are not my ways," says God. 

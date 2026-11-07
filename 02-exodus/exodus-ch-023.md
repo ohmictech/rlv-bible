@@ -17,7 +17,7 @@ And the feast of harvest, the first fruits of your labors, which you sow in the 
 Three times in the year all your males shall appear before God. 
 "You shall not offer the blood of my sacrifice with leavened bread. The fat of my feast shall not remain all night until the morning. 
 You shall bring the first of the first fruits of your ground into the house of your God. "You shall not boil a young goat in its mother's milk. 
-"Behold, I send an messenger before you, to keep you by the way, and to bring you into the place which I have prepared. 
+"Look, I send an messenger before you, to keep you by the way, and to bring you into the place which I have prepared. 
 Pay attention to him, and listen to his voice. Don't provoke him, for he will not pardon your disobedience, for my name is in him. 
 But if you indeed listen to his voice, and do all that I speak, then I will be an enemy to your enemies, and an adversary to your adversaries. 
 My messenger shall go before you, and bring you in to the Amorite, the Hittite, the Perizzite, the Canaanite, the Hivite, and the Jebusite; and I will cut them off. 

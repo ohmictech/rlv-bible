@@ -1,4 +1,4 @@
-﻿God says: "Behold, I will raise up against Babylon, and against those who dwell in Lebkamai, a destroying wind. 
+﻿God says: "Look, I will raise up against Babylon, and against those who dwell in Lebkamai, a destroying wind. 
 I will send to Babylon strangers, who will winnow her. They will empty her land; for in the day of trouble they will be against her all around. 
 Against him who bends, let the archer bend his bow, also against him who lifts himself up in his coat of mail. Don't spare her young men! Utterly destroy all her army! 
 They will fall down slain in the land of the Chaldeans, and thrust through in her streets. 
@@ -22,7 +22,7 @@ With you I will break in pieces the horse and his rider.
 With you I will break in pieces the chariot and him who rides therein. With you I will break in pieces man and woman. With you I will break in pieces the old man and the youth. With you I will break in pieces the young man and the virgin. 
 With you I will break in pieces the shepherd and his flock. With you I will break in pieces the farmer and his yoke. With you I will break in pieces governors and deputies. 
 "I will give to Babylon and to all the inhabitants of Chaldea all their bad that they have done in Zion in your sight," says God. 
-"Behold, I am against you, destroying mountain," says God, "which destroys all the earth. I will stretch out my hand on you, roll you down from the rocks, and will make you a burned mountain. 
+"Look, I am against you, destroying mountain," says God, "which destroys all the earth. I will stretch out my hand on you, roll you down from the rocks, and will make you a burned mountain. 
 They won't take a cornerstone from you, nor a stone for foundations; but you will be desolate for the eras," says God. 
 "Set up a standard in the land! Blow the trumpet among the nations! Prepare the nations against her! Call together against her the kingdoms of Ararat, Minni, and Ashkenaz! Appoint a marshal against her! Cause the horses to come up as the swarming locusts! 
 Prepare against her the nations, the kings of the Medes, its governors, and all its deputies, and all the land of their dominion! 
@@ -33,7 +33,7 @@ So the passages are seized. They have burned the reeds with fire. The men of war
 The God of Armies, the God of Israel says: "The daughter of Babylon is like a threshing floor at the time when it is trodden. Yet a little while, and the time of harvest comes for her." 
 "Nebuchadnezzar the king of Babylon has devoured me. He has crushed me. He has made me an empty vessel. He has, like a monster, swallowed me up. He has filled his mouth with my delicacies. He has cast me out. 
 May the violence done to me and to my flesh be on Babylon!" the inhabitant of Zion will say; and, "May my blood be on the inhabitants of Chaldea!" will Jerusalem say. 
-So God says: "Behold, I will plead your cause, and take vengeance for you. I will dry up her sea, and make her fountain dry. 
+So God says: "Look, I will plead your cause, and take vengeance for you. I will dry up her sea, and make her fountain dry. 
 Babylon will become heaps, a dwelling place for jackals, an astonishment, and a hissing, without inhabitant. 
 They will roar together like young lions. They will growl as lions' cubs. 
 When they are inflamed, I will make their feast, and I will make them drunk, that they may rejoice, and sleep a perpetual sleep, and not wake up," says God. 
@@ -44,12 +44,12 @@ Her cities have become a desolation, a dry land, and a desert, a land in which n
 I will execute judgment on Bel in Babylon, and I will bring out of his mouth that which he has swallowed up. The nations will not flow any more to him. Yes, the wall of Babylon will fall. 
 "My people, go away from the middle of her, and each of you save yourselves from God's fierce anger. 
 Don't let your heart faint. Don't fear for the news that will be heard in the land. News will come one year, and after that in another year news will come, and violence in the land, ruler against ruler. 
-So behold, the days come that I will execute judgment on the engraved images of Babylon; and her whole land will be confounded. All her slain will fall in the middle of her. 
+Look, the days come that I will execute judgment on the engraved images of Babylon; and her whole land will be confounded. All her slain will fall in the middle of her. 
 Then the sky and the earth, and all that is therein, will sing for joy over Babylon; for the destroyers will come to her from the north," says God. 
 "As Babylon has caused the slain of Israel to fall, so the slain of all the land will fall at Babylon. 
 You who have escaped the sword, go! Don't stand still! Remember God from afar, and let Jerusalem come into your mind." 
 "We are confounded because we have heard reproach. Confusion has covered our faces, for strangers have come into the sanctuaries of God's house." 
-"So behold, the days come," says God, "that I will execute judgment on her engraved images; and through all her land the wounded will groan. 
+"Look, the days come," says God, "that I will execute judgment on her engraved images; and through all her land the wounded will groan. 
 Though Babylon should mount up to the sky, and though she should fortify the height of her strength, yet destroyers will come to her from me," says God. 
 "The sound of a cry comes from Babylon, and of great destruction from the land of the Chaldeans! 
 God lays Babylon waste, and destroys out of her the great voice! Their waves roar like many waters. The noise of their voice is uttered. 

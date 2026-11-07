@@ -9,7 +9,7 @@ Then Abner was very angry about Ishbosheth's words, and said, "Am I a dog's head
 God do so to Abner, and more also, if, as God has sworn to David, I don't do even so to him: 
 to transfer the kingdom from Saul's house, and to set up David's throne over Israel and over Judah, from Dan even to Beersheba." 
 He could not answer Abner another word, because he was afraid of him. 
-Abner sent messengers to David on his behalf, saying, "Whose is the land?" and saying, "Make your alliance with me, and behold, my hand will be with you to bring all Israel around to you." 
+Abner sent messengers to David on his behalf, saying, "Whose is the land?" and saying, "Make your alliance with me, and look, my hand will be with you to bring all Israel around to you." 
 David said, "Good. I will make a treaty with you, but one thing I require of you. That is, you will not see my face unless you first bring Michal, Saul's daughter, when you come to see my face." 
 David sent messengers to Ishbosheth, Saul's son, saying, "Deliver me my wife Michal, whom I was given to marry for one hundred foreskins of the Philistines." 
 Ishbosheth sent and took her from her husband, Paltiel the son of Laish. 
@@ -19,9 +19,9 @@ Now then do it! God has spoken of David, saying, 'By the hand of my servant Davi
 Abner also spoke in the ears of Benjamin; and Abner went also to speak in the ears of David in Hebron all that seemed good to Israel and to the whole house of Benjamin. 
 So Abner came to David to Hebron, and twenty men with him. David made Abner and the men who were with him a feast. 
 Abner said to David, "I will arise and go, and will gather all Israel to my lord the king, that they may make a covenant with you, and that you may reign over all that your soul desires." David sent Abner away; and he went in peace. 
-Behold, David's servants and Joab came from a raid and brought in a great plunder with them; but Abner was not with David in Hebron, for he had sent him away, and he had gone in peace. 
+Look, David's servants and Joab came from a raid and brought in a great plunder with them; but Abner was not with David in Hebron, for he had sent him away, and he had gone in peace. 
 When Joab and all the army who was with him had come, they told Joab, "Abner the son of Ner came to the king, and he has sent him away, and he has gone in peace." 
-Then Joab came to the king and said, "What have you done? Behold, Abner came to you. Why is it that you have sent him away, and he is already gone? 
+Then Joab came to the king and said, "What have you done? Look, Abner came to you. Why is it that you have sent him away, and he is already gone? 
 You know Abner the son of Ner. He came to deceive you, and to know your going out and your coming in, and to know all that you do." 
 When Joab had come out from David, he sent messengers after Abner, and they brought him back from the well of Sirah; but David didn't know it. 
 When Abner had returned to Hebron, Joab took him aside into the middle of the gate to speak with him quietly, and struck him there in the body, so that he died for the blood of Asahel his brother. 

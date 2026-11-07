@@ -2,7 +2,7 @@
 Now the name of his firstborn was Joel, and the name of his second, Abijah. They were judges in Beersheba. 
 His sons didn't walk in his ways, but turned away after dishonest gain, took bribes, and perverted justice. 
 Then all the elders of Israel gathered themselves together and came to Samuel to Ramah. 
-They said to him, "Behold, you are old, and your sons don't walk in your ways. Now make us a king to judge us like all the nations." 
+They said to him, "Look, you are old, and your sons don't walk in your ways. Now make us a king to judge us like all the nations." 
 But the thing displeased Samuel when they said, "Give us a king to judge us." Samuel prayed to God. 
 God said to Samuel, "Listen to the voice of the people in all that they tell you; for they have not rejected you, but they have rejected me as the king over them. 
 According to all the works which they have done since the day that I brought them up out of Egypt even to this day, in that they have forsaken me and served other gods, so they also do to you. 

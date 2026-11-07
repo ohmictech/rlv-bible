@@ -2,10 +2,10 @@
 Then Hezekiah turned his face to the wall and prayed to God, 
 and said, "Remember now, God, I beg you, how I have walked before you in truth and with a perfect heart, and have done that which is good in your sight." Then Hezekiah wept bitterly. 
 Then God's word came to Isaiah, saying, 
-"Go, and tell Hezekiah, 'The God of David your father, says, "I have heard your prayer. I have seen your tears. Behold, I will add fifteen years to your life. 
+"Go, and tell Hezekiah, 'The God of David your father, says, "I have heard your prayer. I have seen your tears. Look, I will add fifteen years to your life. 
 I will deliver you and this city out of the hand of the king of Assyria, and I will defend this city. 
 This shall be the sign to you from God, that God will do this thing that he has spoken. 
-Behold, I will cause the shadow on the sundial, which has gone down on the sundial of Ahaz with the sun, to return backward ten steps."'" So the sun returned ten steps on the sundial on which it had gone down. 
+Look, I will cause the shadow on the sundial, which has gone down on the sundial of Ahaz with the sun, to return backward ten steps."'" So the sun returned ten steps on the sundial on which it had gone down. 
 The writing of Hezekiah king of Judah, when he had been sick, and had recovered of his sickness: 
 I said, "In the middle of my life I go into the gates of Hades. I am deprived of the residue of my years." 
 I said, "I won't see God, God in the land of the living. I will see man no more with the inhabitants of the world. 
@@ -14,7 +14,7 @@ I waited patiently until morning. He breaks all my bones like a lion. From day e
 I chattered like a swallow or a crane. I moaned like a dove. My eyes weaken looking upward. Lord, I am oppressed. Be my security." 
 What will I say? He has both spoken to me, and himself has done it. I will walk carefully all my years because of the anguish of my soul. 
 Lord, men live by these things; and my spirit finds life in everyone. You restore me, and cause me to live. 
-Behold, for peace I had great anguish, but you have in love for my soul delivered it from the pit of corruption; for you have cast all my mistakes behind your back. 
+Look, for peace I had great anguish, but you have in love for my soul delivered it from the pit of corruption; for you have cast all my mistakes behind your back. 
 Hades can't praise you. Death can't celebrate you. Those who go down into the pit can't hope for your truth. 
 The living, the living, he shall praise you, as I do today. The father shall make known your truth to the children. 
 God will save me. So we will sing my songs with stringed instruments all the days of our life in God's house. 

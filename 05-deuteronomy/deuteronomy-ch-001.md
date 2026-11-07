@@ -5,9 +5,9 @@ after he had struck Sihon the king of the Amorites who lived in Heshbon, and Og 
 Beyond the Jordan, in the land of Moab, Moses began to declare this law, saying, 
 "Our God spoke to us in Horeb, saying, 'You have lived long enough at this mountain. 
 Turn, and take your journey, and go to the hill country of the Amorites and to all the places near there: in the Arabah, in the hill country, in the lowland, in the South, by the seashore, in the land of the Canaanites, and in Lebanon as far as the great river, the river Euphrates. 
-Behold, I have set the land before you. Go in and possess the land which God swore to your fathers, to Abraham, to Isaac, and to Jacob, to give to them and to their offspring after them.'" 
+Look, I have set the land before you. Go in and possess the land which God swore to your fathers, to Abraham, to Isaac, and to Jacob, to give to them and to their offspring after them.'" 
 I spoke to you at that time, saying, "I am not able to bear you myself alone. 
-Your God has multiplied you, and behold, you are today as the stars of the sky for multitude. 
+Your God has multiplied you, and look, you are today as the stars of the sky for multitude. 
 May the God of your fathers, make you a thousand times as many as you are and bless you, as he has promised you! 
 How can I myself alone bear your problems, your burdens, and your strife? 
 Take wise men of understanding who are respected among your tribes, and I will make them heads over you." 
@@ -18,7 +18,7 @@ You shall not show partiality in judgment; you shall hear the small and the grea
 I commanded you at that time all the things which you should do. 
 We traveled from Horeb and went through all that great and terrible wilderness which you saw, by the way to the hill country of the Amorites, as our God commanded us; and we came to Kadesh Barnea. 
 I said to you, "You have come to the hill country of the Amorites, which our God gives to us. 
-Behold, your God has set the land before you. Go up, take possession, as God the God of your fathers has spoken to you. Don't be afraid, neither be dismayed." 
+Look, your God has set the land before you. Go up, take possession, as God the God of your fathers has spoken to you. Don't be afraid, neither be dismayed." 
 You came near to me, everyone of you, and said, "Let's send men before us, that they may search the land for us, and bring back to us word of the way by which we must go up, and the cities to which we shall come." 
 The thing pleased me well. I took twelve of your men, one man for every tribe. 
 They turned and went up into the hill country, and came to the valley of Eshcol, and spied it out. 

@@ -31,7 +31,7 @@ Jephthah vowed a vow to God, and said, "If you will indeed deliver the children 
 then it shall be, that whatever comes out of the doors of my house to meet me when I return in peace from the children of Ammon, it shall be God's, and I will offer it up for a burnt offering." 
 So Jephthah passed over to the children of Ammon to fight against them; and God delivered them into his hand. 
 He struck them from Aroer until you come to Minnith, even twenty cities, and to Abelcheramim, with a very great slaughter. So the children of Ammon were subdued before the children of Israel. 
-Jephthah came to Mizpah to his house; and behold, his daughter came out to meet him with tambourines and with dances. She was his only child. Besides her he had neither son nor daughter. 
+Jephthah came to Mizpah to his house; and look, his daughter came out to meet him with tambourines and with dances. She was his only child. Besides her he had neither son nor daughter. 
 When he saw her, he tore his clothes, and said, "Alas, my daughter! You have brought me very low, and you are one of those who trouble me; for I have opened my mouth to God, and I can't go back." 
 She said to him, "My father, you have opened your mouth to God; do to me according to that which has proceeded out of your mouth, because God has taken vengeance for you on your enemies, even on the children of Ammon." 
 Then she said to her father, "Let this thing be done for me. Leave me alone two months, that I may depart and go down on the mountains, and bewail my virginity, I and my companions." 

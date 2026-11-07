@@ -1,6 +1,6 @@
 ﻿In the eleventh year, in the third month, in the first day of the month, God's word came to me, saying, 
 "Son of man, tell Pharaoh king of Egypt and his multitude: 'Whom are you like in your greatness? 
-Behold, the Assyrian was a cedar in Lebanon with beautiful branches, and with a forest-like shade, of high stature; and its top was among the thick boughs. 
+Look, the Assyrian was a cedar in Lebanon with beautiful branches, and with a forest-like shade, of high stature; and its top was among the thick boughs. 
 The waters nourished it. The deep made it to grow. Its rivers ran all around its plantation. It sent out its channels to all the trees of the field. 
 So its stature was exalted above all the trees of the field; and its boughs were multiplied. Its branches became long by reason of many waters, when it spread them out. 
 All the birds of the sky made their nests in its boughs. Under its branches, all the animals of the field gave birth to their young. All great nations lived under its shadow. 

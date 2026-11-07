@@ -1,10 +1,10 @@
 ﻿Then God said to Moses, "Go in to Pharaoh, and tell him, 'This is what the God of the Hebrews, says: "Let my people go, that they may serve me. 
 If you refuse to let them go, and hold them still, 
-behold, God's hand is on your livestock which are in the field, on the horses, on the donkeys, on the camels, on the herds, and on the flocks with a very grievous pestilence. 
+Look, God's hand is on your livestock which are in the field, on the horses, on the donkeys, on the camels, on the herds, and on the flocks with a very grievous pestilence. 
 God will make a distinction between the livestock of Israel and the livestock of Egypt; and nothing shall die of all that belongs to the children of Israel."'" 
 God appointed a set time, saying, "Tomorrow God shall do this thing in the land." 
 God did that thing on the next day; and all the livestock of Egypt died, but of the livestock of the children of Israel, not one died. 
-Pharaoh sent, and, behold, there was not so much as one of the livestock of the Israelites dead. But the heart of Pharaoh was stubborn, and he didn't let the people go. 
+Pharaoh sent, and, look, there was not so much as one of the livestock of the Israelites dead. But the heart of Pharaoh was stubborn, and he didn't let the people go. 
 God said to Moses and to Aaron, "Take handfuls of ashes of the furnace, and let Moses sprinkle it toward the sky in the sight of Pharaoh. 
 It shall become small dust over all the land of Egypt, and shall be boils and blisters breaking out on man and on animal, throughout all the land of Egypt." 
 They took ashes of the furnace, and stood before Pharaoh; and Moses sprinkled it up toward the sky; and it became boils and blisters breaking out on man and on animal. 
@@ -15,7 +15,7 @@ This time I will send all my plagues against your heart, against your officials,
 Now I would have stretched out my hand, and struck you and your people with pestilence, and you would have been cut off from the earth; 
 but indeed for this cause I have made you stand: to show you my power, and that my name may be declared throughout all the earth, 
 because you still exalt yourself against my people, that you won't let them go. 
-Behold, tomorrow about this time I will cause it to rain a very grievous hail, such as has not been in Egypt since the day it was founded even until now. 
+Look, tomorrow about this time I will cause it to rain a very grievous hail, such as has not been in Egypt since the day it was founded even until now. 
 Now command that all of your livestock and all that you have in the field be brought into shelter. The hail will come down on every man and animal that is found in the field, and isn't brought home, and they will die."'" 
 Those who feared God's word among the servants of Pharaoh made their servants and their livestock flee into the houses. 
 Whoever didn't respect God's word left his servants and his livestock in the field. 

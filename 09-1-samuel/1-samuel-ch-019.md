@@ -13,12 +13,12 @@ So Michal let David down through the window. He went away, fled, and escaped.
 Michal took the teraphim and laid it in the bed, and put a pillow of goats' hair at its head and covered it with clothes. 
 When Saul sent messengers to take David, she said, "He is sick." 
 Saul sent the messengers to see David, saying, "Bring him up to me in the bed, that I may kill him." 
-When the messengers came in, behold, the teraphim was in the bed, with the pillow of goats' hair at its head. 
+When the messengers came in, look, the teraphim was in the bed, with the pillow of goats' hair at its head. 
 Saul said to Michal, "Why have you deceived me like this and let my enemy go, so that he has escaped?" Michal answered Saul, "He said to me, 'Let me go! Why should I kill you?'" 
 Now David fled and escaped, and came to Samuel at Ramah, and told him all that Saul had done to him. He and Samuel went and lived in Naioth. 
-Saul was told, saying, "Behold, David is at Naioth in Ramah." 
+Saul was told, saying, "Look, David is at Naioth in Ramah." 
 Saul sent messengers to seize David; and when they saw the company of the spokesmen prophesying, and Samuel standing as head over them, God's Spirit came on Saul's messengers, and they also prophesied. 
 When Saul was told, he sent other messengers, and they also prophesied. Saul sent messengers again the third time, and they also prophesied. 
-Then he also went to Ramah, and came to the great well that is in Secu: and he asked, "Where are Samuel and David?" One said, "Behold, they are at Naioth in Ramah." 
+Then he also went to Ramah, and came to the great well that is in Secu: and he asked, "Where are Samuel and David?" One said, "Look, they are at Naioth in Ramah." 
 He went there to Naioth in Ramah. Then God's Spirit came on him also, and he went on, and prophesied, until he came to Naioth in Ramah. 
 He also stripped off his clothes. He also prophesied before Samuel and lay down naked all that day and all that night. So they say, "Is Saul also among the spokesmen?" 

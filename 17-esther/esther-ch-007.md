@@ -6,5 +6,5 @@ Then King Ahasuerus said to Esther the queen, "Who is he, and where is he who da
 Esther said, "An adversary and an enemy, even this guilty Haman!" Then Haman was afraid before the king and the queen. 
 The king arose in his wrath from the banquet of wine and went into the palace garden. Haman stood up to make request for his life to Esther the queen, for he saw that there was bad determined against him by the king. 
 Then the king returned out of the palace garden into the place of the banquet of wine; and Haman had fallen on the couch where Esther was. Then the king said, "Will he even assault the queen in front of me in the house?" As the word went out of the king's mouth, they covered Haman's face. 
-Then Harbonah, one of the eunuchs who were with the king, said, "Behold, the gallows fifty cubits high, which Haman has made for Mordecai, who spoke good for the king, is standing at Haman's house." The king said, "Hang him on it!" 
+Then Harbonah, one of the eunuchs who were with the king, said, "Look, the gallows fifty cubits high, which Haman has made for Mordecai, who spoke good for the king, is standing at Haman's house." The king said, "Hang him on it!" 
 So they hanged Haman on the gallows that he had prepared for Mordecai. Then the king's wrath was pacified. 

@@ -8,14 +8,14 @@ Nathan said to David, "You are the man! This is what the God of Israel says: 'I 
 I gave you your master's house and your master's wives into your bosom, and gave you the house of Israel and of Judah; and if that would have been too little, I would have added to you many more such things. 
 Why have you despised God's word, to do that which is bad in his sight? You have struck Uriah the Hittite with the sword, have taken his wife to be your wife, and have slain him with the sword of the children of Ammon. 
 Now the sword will never depart from your house, because you have despised me and have taken Uriah the Hittite's wife to be your wife.' 
-"This is what God says: 'Behold, I will raise up bad against you out of your own house; and I will take your wives before your eyes and give them to your neighbor, and he will lie with your wives in the sight of this sun. 
+"This is what God says: 'Look, I will raise up bad against you out of your own house; and I will take your wives before your eyes and give them to your neighbor, and he will lie with your wives in the sight of this sun. 
 You did this secretly, but I will do this thing before all Israel, and before the sun.'" 
 David said to Nathan, "I have wronged God." Nathan said to David, "God also has put away your wrongdoing. You will not die. 
 However, because by this deed you have given great occasion to God's enemies to blaspheme, the child also who is born to you will surely die." 
 Then Nathan departed to his house. God struck the child that Uriah's wife bore to David, and he was very sick. 
 David begged God for the child; and David fasted, and went in and lay all night on the ground. 
 The elders of his house arose beside him, to raise him up from the earth; but he would not, and he didn't eat bread with them. 
-On the seventh day, the child died. David's servants were afraid to tell him that the child was dead, for they said, "Behold, while the child was yet alive, we spoke to him and he didn't listen to our voice. How will he then harm himself if we tell him that the child is dead?" 
+On the seventh day, the child died. David's servants were afraid to tell him that the child was dead, for they said, "Look, while the child was yet alive, we spoke to him and he didn't listen to our voice. How will he then harm himself if we tell him that the child is dead?" 
 But when David saw that his servants were whispering together, David perceived that the child was dead; and David said to his servants, "Is the child dead?" They said, "He is dead." 
 Then David arose from the earth, and washed and anointed himself, and changed his clothing; and he came into God's house, and worshiped. Then he came to his own house; and when he requested, they set bread before him and he ate. 
 Then his servants said to him, "What is this that you have done? You fasted and wept for the child while he was alive, but when the child was dead, you rose up and ate bread." 

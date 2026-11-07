@@ -11,9 +11,9 @@ Moses commanded them, saying, "At the end of every seven years, in the set time 
 when all Israel has come to appear before your God in the place which he will choose, you shall read this law before all Israel in their hearing. 
 Assemble the people, the men and the women and the little ones, and the foreigners who are within your gates, that they may hear, learn, fear your God, and observe to do all the words of this law, 
 and that their children, who have not known, may hear and learn to fear your God, as long as you live in the land where you go over the Jordan to possess it." 
-God said to Moses, "Behold, your days approach that you must die. Call Joshua, and present yourselves in the Tent of Meeting, that I may commission him." Moses and Joshua went, and presented themselves in the Tent of Meeting. 
+God said to Moses, "Look, your days approach that you must die. Call Joshua, and present yourselves in the Tent of Meeting, that I may commission him." Moses and Joshua went, and presented themselves in the Tent of Meeting. 
 God appeared in the Tent in a pillar of cloud, and the pillar of cloud stood over the Tent's door. 
-God said to Moses, "Behold, you shall sleep with your fathers. This people will rise up and play the prostitute after the strange gods of the land where they go to be among them, and will forsake me and break my covenant which I have made with them. 
+God said to Moses, "Look, you shall sleep with your fathers. This people will rise up and play the prostitute after the strange gods of the land where they go to be among them, and will forsake me and break my covenant which I have made with them. 
 Then my anger shall be kindled against them in that day, and I will forsake them, and I will hide my face from them, and they shall be devoured, and many bad things and troubles shall come on them; so that they will say in that day, 'Haven't these bad things come on us because our God is not among us?' 
 I will surely hide my face in that day for all the bad which they have done, in that they have turned to other gods. 
 "Now write this song for yourselves, and teach it to the children of Israel. Put it in their mouths, that this song may be a witness for me against the children of Israel. 
@@ -24,7 +24,7 @@ He commissioned Joshua the son of Nun, and said, "Be strong and courageous; for 
 When Moses had finished writing the words of this law in a book, until they were finished, 
 Moses commanded the Levites, who bore the ark of God's covenant, saying, 
 "Take this book of the law, and put it by the side of the ark of your God's covenant, that it may be there for a witness against you. 
-I know your rebellion and your stiff neck. Behold, while I am yet alive with you today, you have been rebellious against God. How much more after my death? 
+I know your rebellion and your stiff neck. Look, while I am yet alive with you today, you have been rebellious against God. How much more after my death? 
 Assemble to me all the elders of your tribes and your officers, that I may speak these words in their ears, and call the sky and earth to witness against them. 
 I know that after my death you will utterly corrupt yourselves, and turn away from the way which I have commanded you; and bad will happen to you in the latter days, because you will do that which is bad in God's sight, to provoke him to anger through the work of your hands." 
 Moses spoke in the ears of all the assembly of Israel the words of this song, until they were finished. 

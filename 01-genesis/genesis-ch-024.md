@@ -10,9 +10,9 @@ The servant put his hand under the thigh of Abraham his master, and swore to him
 The servant took ten of his master's camels, and departed, having a variety of good things of his master's with him. He arose, and went to Mesopotamia, to the city of Nahor. 
 He made the camels kneel down outside the city by the well of water at the time of evening, the time that women go out to draw water. 
 He said, "the God of my master Abraham, please give me success today, and show kindness to my master Abraham. 
-Behold, I am standing by the spring of water. The daughters of the men of the city are coming out to draw water. 
+Look, I am standing by the spring of water. The daughters of the men of the city are coming out to draw water. 
 Let it happen, that the young lady to whom I will say, 'Please let down your pitcher, that I may drink,' then she says, 'Drink, and I will also give your camels a drink,', let her be the one you have appointed for your servant Isaac. By this I will know that you have shown kindness to my master." 
-Before he had finished speaking, behold, Rebekah came out, who was born to Bethuel the son of Milcah, the wife of Nahor, Abraham's brother, with her pitcher on her shoulder. 
+Before he had finished speaking, look, Rebekah came out, who was born to Bethuel the son of Milcah, the wife of Nahor, Abraham's brother, with her pitcher on her shoulder. 
 The young lady was very beautiful to look at, a virgin. No man had known her. She went down to the spring, filled her pitcher, and came up. 
 The servant ran to meet her, and said, "Please give me a drink, a little water from your pitcher." 
 She said, "Drink, my lord." She hurried, and let down her pitcher on her hand, and gave him a drink. 
@@ -27,7 +27,7 @@ The man bowed his head, and worshiped God.
 He said, "Blessed be the God of my master Abraham, who has not forsaken his loving kindness and his truth toward my master. As for me, God has led me on the way to the house of my master's relatives." 
 The young lady ran, and told her mother's house about these words. 
 Rebekah had a brother, and his name was Laban. Laban ran out to the man, to the spring. 
-When he saw the ring, and the bracelets on his sister's hands, and when he heard the words of Rebekah his sister, saying, "This is what the man said to me," he came to the man. Behold, he was standing by the camels at the spring. 
+When he saw the ring, and the bracelets on his sister's hands, and when he heard the words of Rebekah his sister, saying, "This is what the man said to me," he came to the man. Look, he was standing by the camels at the spring. 
 He said, "Come in, you blessed of God. Why do you stand outside? I have prepared the house, and room for the camels." 
 The man came into the house, and he unloaded the camels. He gave straw and feed for the camels, and water to wash his feet and the feet of the men who were with him. 
 Food was set before him to eat, but he said, "I will not eat until I have told my message." Laban said, "Speak on." 
@@ -40,15 +40,15 @@ I asked my master, 'What if the woman will not follow me?'
 He said to me, 'God, before whom I walk, will send his messenger with you, and prosper your way. You shall take a wife for my son from my relatives, and of my father's house. 
 Then you will be clear from my oath, when you come to my relatives. If they don't give her to you, you shall be clear from my oath.' 
 I came today to the spring, and said, 'The God of my master Abraham, if now you do prosper my way which I go 
-behold, I am standing by this spring of water. Let it happen, that the maiden who comes out to draw, to whom I will say, "Please give me a little water from your pitcher to drink," 
+Look, I am standing by this spring of water. Let it happen, that the maiden who comes out to draw, to whom I will say, "Please give me a little water from your pitcher to drink," 
 then she tells me, "Drink, and I will also draw for your camels,", let her be the woman whom God has appointed for my master's son.' 
-Before I had finished speaking in my heart, behold, Rebekah came out with her pitcher on her shoulder. She went down to the spring, and drew. I said to her, 'Please let me drink.' 
+Before I had finished speaking in my heart, look, Rebekah came out with her pitcher on her shoulder. She went down to the spring, and drew. I said to her, 'Please let me drink.' 
 She hurried and let down her pitcher from her shoulder, and said, 'Drink, and I will also give your camels a drink.' So I drank, and she also gave the camels a drink. 
 I asked her, and said, 'Whose daughter are you?' She said, 'The daughter of Bethuel, Nahor's son, whom Milcah bore to him.' I put the ring on her nose, and the bracelets on her hands. 
 I bowed my head, and worshiped God, and blessed the God of my master Abraham, who had led me in the right way to take my master's brother's daughter for his son. 
 Now if you will deal kindly and truly with my master, tell me. If not, tell me, that I may turn to the right hand, or to the left." 
 Then Laban and Bethuel answered, "The thing proceeds from God. We can't speak to you bad or good. 
-Behold, Rebekah is before you. Take her, and go, and let her be your master's son's wife, as God has spoken." 
+Look, Rebekah is before you. Take her, and go, and let her be your master's son's wife, as God has spoken." 
 When Abraham's servant heard their words, he bowed himself down to the earth to God. 
 The servant brought out jewels of silver, and jewels of gold, and clothing, and gave them to Rebekah. He also gave precious things to her brother and her mother. 
 They ate and drank, he and the men who were with him, and stayed all night. They rose up in the morning, and he said, "Send me away to my master." 
@@ -60,7 +60,7 @@ They sent away Rebekah, their sister, with her nurse, Abraham's servant, and his
 They blessed Rebekah, and said to her, "Our sister, may you be the mother of thousands of ten thousands, and let your offspring possess the gate of those who hate them." 
 Rebekah arose with her ladies. They rode on the camels, and followed the man. The servant took Rebekah, and went his way. 
 Isaac came from the way of Beer Lahai Roi, for he lived in the land of the South. 
-Isaac went out to meditate in the field at the evening. He lifted up his eyes and looked. Behold, there were camels coming. 
+Isaac went out to meditate in the field at the evening. He lifted up his eyes and looked. Look, there were camels coming. 
 Rebekah lifted up her eyes, and when she saw Isaac, she got off the camel. 
 She said to the servant, "Who is the man who is walking in the field to meet us?" The servant said, "It is my master." She took her veil, and covered herself. 
 The servant told Isaac all the things that he had done. 

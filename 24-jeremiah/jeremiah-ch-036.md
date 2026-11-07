@@ -9,7 +9,7 @@ Baruch the son of Neriah did according to all that Jeremiah the spokesman comman
 Now in the fifth year of Jehoiakim the son of Josiah, king of Judah, in the ninth month, everyone in Jerusalem and everyone who came from the cities of Judah to Jerusalem, proclaimed a fast before God. 
 Then Baruch read the words of Jeremiah from the book in God's house, in the room of Gemariah the son of Shaphan the secretary, in the upper court, at the entry of the new gate of God's house, in the ears of everyone. 
 When Micaiah the son of Gemariah, the son of Shaphan, had heard out of the book all God's words, 
-he went down into the king's house, into the secretary's room; and behold, all the princes were sitting there, Elishama the secretary, Delaiah the son of Shemaiah, Elnathan the son of Achbor, Gemariah the son of Shaphan, Zedekiah the son of Hananiah, and all the princes. 
+he went down into the king's house, into the secretary's room; and look, all the princes were sitting there, Elishama the secretary, Delaiah the son of Shemaiah, Elnathan the son of Achbor, Gemariah the son of Shaphan, Zedekiah the son of Hananiah, and all the princes. 
 Then Micaiah declared to them all the words that he had heard, when Baruch read the book in the ears of the people. 
 So all the princes sent Jehudi the son of Nethaniah, the son of Shelemiah, the son of Cushi, to Baruch, saying, "Take in your hand the scroll in which you have read in the ears of the people, and come." So Baruch the son of Neriah took the scroll in his hand, and came to them. 
 They said to him, "Sit down now, and read it in our hearing." So Baruch read it in their hearing. 

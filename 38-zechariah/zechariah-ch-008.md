@@ -4,7 +4,7 @@ God says: "I have returned to Zion, and will dwell in the middle of Jerusalem. J
 The God of Armies says: "Old men and old women will again dwell in the streets of Jerusalem, every man with his staff in his hand because of their old age. 
 The streets of the city will be full of boys and girls playing in its streets." 
 The God of Armies says: "If it is marvelous in the eyes of the remnant of this people in those days, should it also be marvelous in my eyes?" says the God of Armies. 
-The God of Armies says: "Behold, I will save my people from the east country and from the west country. 
+The God of Armies says: "Look, I will save my people from the east country and from the west country. 
 I will bring them, and they will dwell within Jerusalem. They will be my people, and I will be their God, in truth and in righteousness." 
 The God of Armies says: "Let your hands be strong, you who hear in these days these words from the mouth of the spokesmen who were in the day that the foundation of the house of the God of Armies was laid, even the temple, that it might be built. 
 Before those days there was no wages for man nor any wages for an animal, neither was there any peace to him who went out or came in, because of the adversary. I set everyone everyone against his neighbor. 

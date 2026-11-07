@@ -10,4 +10,4 @@ Take the plunder of silver. Take the plunder of gold, for there is no end of tre
 She is empty, void, and waste. The heart melts, the knees knock together, their bodies and faces have grown pale. 
 Where is the den of the lions, and the feeding place of the young lions, where the lion and the lioness walked with the lion's cubs, and no one made them afraid? 
 The lion tore in pieces enough for his cubs, and strangled prey for his lionesses, and filled his caves with the kill and his dens with prey. 
-"Behold, I am against you," says the God of Armies, "and I will burn her chariots in the smoke, and the sword will devour your young lions; and I will cut off your prey from the earth, and the voice of your messengers will no longer be heard." 
+"Look, I am against you," says the God of Armies, "and I will burn her chariots in the smoke, and the sword will devour your young lions; and I will cut off your prey from the earth, and the voice of your messengers will no longer be heard." 

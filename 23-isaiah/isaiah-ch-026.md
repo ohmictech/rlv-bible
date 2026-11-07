@@ -18,4 +18,4 @@ Just as a woman with child, who draws near the time of her delivery, is in pain 
 We have been with child. We have been in pain. We gave birth, it seems, only to wind. We have not worked any deliverance on the earth; neither have the inhabitants of the world fallen. 
 Your dead shall live. Their dead bodies shall arise. Awake and driftsg, you who dwell in the dust; for your dew is like the dew of herbs, and the earth will cast out the departed spirits. 
 Come, my people, enter into your rooms, and shut your doors behind you. Hide yourself for a little moment, until the indignation is past. 
-For, behold, God comes out of his place to punish the inhabitants of the earth for their guilt. The earth also will disclose her blood, and will no longer cover her slain. 
+For, look, God comes out of his place to punish the inhabitants of the earth for their guilt. The earth also will disclose her blood, and will no longer cover her slain. 

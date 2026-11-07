@@ -1,4 +1,4 @@
-﻿I said in my heart, "Come now, I will test you with mirth; enjoy pleasure;" and behold, this also was vanity. 
+﻿I said in my heart, "Come now, I will test you with mirth; enjoy pleasure;" and look, this also was vanity. 
 I said of laughter, "It is foolishness;" and of mirth, "What does it accomplish?" 
 I searched in my heart how to cheer my flesh with wine, my heart yet guiding me with wisdom, and how to lay hold of folly, until I might see what it was good for the sons of men that they should do under the sky all the days of their lives. 
 I made myself great works. I built myself houses. I planted myself vineyards. 
@@ -8,7 +8,7 @@ I bought male servants and female servants, and had servants born in my house. I
 I also gathered silver and gold for myself, and the treasure of kings and of the provinces. I got myself male and female singers, and the delights of the sons of men: musical instruments of all sorts. 
 So I was great, and increased more than everyone who was before me in Jerusalem. My wisdom also remained with me. 
 Whatever my eyes desired, I didn't keep from them. I didn't withhold my heart from any joy, for my heart rejoiced because of all my labor, and this was my portion from all my labor. 
-Then I looked at all the works that my hands had worked, and at the labor that I had labored to do; and behold, all was vanity and a chasing after wind, and there was no profit under the sun. 
+Then I looked at all the works that my hands had worked, and at the labor that I had labored to do; and look, all was vanity and a chasing after wind, and there was no profit under the sun. 
 I turned myself to consider wisdom, madness, and folly; for what can the king's successor do? Just that which has been done long ago. 
 Then I saw that wisdom excels folly, as far as light excels darkness. 
 The wise man's eyes are in his head, and the fool walks in darkness, and yet I perceived that one event happens to them all. 

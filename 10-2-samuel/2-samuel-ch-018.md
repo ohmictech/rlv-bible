@@ -7,8 +7,8 @@ So the people went out into the field against Israel; and the battle was in the 
 The people of Israel were struck there before David's servants, and there was a great slaughter there that day of twenty thousand men. 
 The battle was there spread over the surface of all the country, and the forest devoured more people that day than the sword devoured. 
 Absalom happened to meet David's servants. Absalom was riding on his mule, and the mule went under the thick boughs of a great oak; and his head caught hold of the oak, and he was hanging between the sky and earth; and the mule that was under him went on. 
-A certain man saw it, and told Joab, and said, "Behold, I saw Absalom hanging in an oak." 
-Joab said to the man who told him, "Behold, you saw it, and why didn't you strike him there to the ground? I would have given you ten pieces of silver and a sash." 
+A certain man saw it, and told Joab, and said, "Look, I saw Absalom hanging in an oak." 
+Joab said to the man who told him, "Look, you saw it, and why didn't you strike him there to the ground? I would have given you ten pieces of silver and a sash." 
 The man said to Joab, "Though I should receive a thousand pieces of silver in my hand, I still wouldn't stretch out my hand against the king's son; for in our hearing the king commanded you and Abishai and Ittai, saying, 'Beware that no one touch the young man Absalom.' 
 Otherwise, if I had dealt falsely against his life (and there is no matter hidden from the king), then you yourself would have set yourself against me." 
 Then Joab said, "I'm not going to wait like this with you." He took three darts in his hand and thrust them through Absalom's heart while he was still alive in the middle of the oak. 
@@ -21,13 +21,13 @@ Joab said to him, "You must not be the bearer of news today, but you must carry 
 Then Joab said to the Cushite, "Go, tell the king what you have seen!" The Cushite bowed himself to Joab, and ran. 
 Then Ahimaaz the son of Zadok said yet again to Joab, "But come what may, please let me also run after the Cushite." Joab said, "Why do you want to run, my son, since you will have no reward for the news?" 
 "But come what may," he said, "I will run." He said to him, "Run!" Then Ahimaaz ran by the way of the Plain, and outran the Cushite. 
-Now David was sitting between the two gates; and the watchman went up to the roof of the gate to the wall, and lifted up his eyes and looked, and, behold, a man running alone. 
+Now David was sitting between the two gates; and the watchman went up to the roof of the gate to the wall, and lifted up his eyes and looked, and, look, a man running alone. 
 The watchman shouted and told the king. The king said, "If he is alone, there is news in his mouth." He came closer and closer. 
-The watchman saw another man running; and the watchman called to the gatekeeper and said, "Behold, a man running alone!" The king said, "He also brings news." 
+The watchman saw another man running; and the watchman called to the gatekeeper and said, "Look, a man running alone!" The king said, "He also brings news." 
 The watchman said, "I think the running of the first one is like the running of Ahimaaz the son of Zadok." The king said, "He is a good man, and comes with good news." 
 Ahimaaz called, and said to the king, "All is well." He bowed himself before the king with his face to the earth, and said, "Blessed is your God, who has delivered up the men who lifted up their hand against my lord the king!" 
 The king said, "Is it well with the young man Absalom?" Ahimaaz answered, "When Joab sent the king's servant, even me your servant, I saw a great tumult, but I don't know what it was." 
 The king said, "Come and stand here." He came and stood still. 
-Behold, the Cushite came. The Cushite said, "Good news for my lord the king, for God has avenged you today of everyone who rose up against you." 
+Look, the Cushite came. The Cushite said, "Good news for my lord the king, for God has avenged you today of everyone who rose up against you." 
 The king said to the Cushite, "Is it well with the young man Absalom?" The Cushite answered, "May the enemies of my lord the king, and everyone who rises up against you to do you harm, be as that young man is." 
 The king was much moved, and went up to the room over the gate and wept. As he went, he said, "My son Absalom! My son, my son Absalom! I wish I had died instead of you, Absalom, my son, my son!" 

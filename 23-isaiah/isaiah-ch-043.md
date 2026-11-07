@@ -16,7 +16,7 @@ I am God, your Holy One, the Creator of Israel, your King."
 God, who makes a way in the sea, and a path in the mighty waters, 
 who brings out the chariot and horse, the army and the mighty man (they lie down together, they shall not rise; they are extinct, they are quenched like a wick) says: 
 "Don't remember the former things, and don't consider the things of old. 
-Behold, I will do a new thing. It springs out now. Don't you know it? I will even make a way in the wilderness, and rivers in the desert. 
+Look, I will do a new thing. It springs out now. Don't you know it? I will even make a way in the wilderness, and rivers in the desert. 
 The animals of the field, the jackals and the ostriches, shall honor me, because I give water in the wilderness and rivers in the desert, to give drink to my people, my chosen, 
 the people which I formed for myself, that they might declare my praise. 
 Yet you have not called on me, Jacob; but you have been weary of me, Israel. 

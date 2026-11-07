@@ -1,11 +1,11 @@
-﻿Joab was told, "Behold, the king weeps and mourns for Absalom." 
+﻿Joab was told, "Look, the king weeps and mourns for Absalom." 
 The victory that day was turned into mourning among everyone, for the people heard it said that day, "The king grieves for his son." 
 The people sneaked into the city that day, as people who are ashamed steal away when they flee in battle. 
 The king covered his face, and the king cried with a loud voice, "My son Absalom, Absalom, my son, my son!" 
 Joab came into the house to the king, and said, "Today you have shamed the faces of all your servants who today have saved your life, and the lives of your sons and of your daughters, and the lives of your wives, and the lives of your concubines; 
 in that you love those who hate you and hate those who love you. You have declared today that princes and servants are nothing to you. Today I perceive that if Absalom had lived and we had all died today, then it would have pleased you well. 
 Now arise, go out and speak to comfort your servants; for I swear by God, if you don't go out, not a man will stay with you this night. That would be worse to you than all the bad that has happened to you from your youth until now." 
-Then the king arose and sat in the gate. The people were all told, "Behold, the king is sitting in the gate." Everyone came before the king. Now Israel had fled every man to his tent. 
+Then the king arose and sat in the gate. The people were all told, "Look, the king is sitting in the gate." Everyone came before the king. Now Israel had fled every man to his tent. 
 Everyone was at strife throughout all the tribes of Israel, saying, "The king delivered us out of the hand of our enemies, and he saved us out of the hand of the Philistines; and now he has fled out of the land from Absalom. 
 Absalom, whom we anointed over us, is dead in battle. Now why don't you speak a word of bringing the king back?" 
 King David sent to Zadok and to Abiathar the priests, saying, "Speak to the elders of Judah, saying, 'Why are you the last to bring the king back to his house, since the speech of all Israel has come to the king, to return him to his house? 
@@ -17,7 +17,7 @@ Shimei the son of Gera, the Benjamite, who was of Bahurim, hurried and came down
 There were a thousand men of Benjamin with him, and Ziba the servant of Saul's house, and his fifteen sons and his twenty servants with him; and they went through the Jordan in the presence of the king. 
 A ferry boat went to bring over the king's household, and to do what he thought good. Shimei the son of Gera fell down before the king when he had come over the Jordan. 
 He said to the king, "Don't let my lord impute guilt to me, or remember that which your servant did perversely the day that my lord the king went out of Jerusalem, that the king should take it to his heart. 
-Your servant knows that I have drifted. So behold, I have come today as the first of all the house of Joseph to go down to meet my lord the king." 
+Your servant knows that I have drifted. Look, I have come today as the first of all the house of Joseph to go down to meet my lord the king." 
 But Abishai the son of Zeruiah answered, "Shouldn't Shimei be put to death for this, because he cursed God's anointed?" 
 David said, "What have I to do with you, you sons of Zeruiah, that you should be adversaries to me today? Shall any man be put to death today in Israel? Don't I know that I am king over Israel today?" 
 The king said to Shimei, "You will not die." The king swore to him. 
@@ -34,10 +34,10 @@ The king said to Barzillai, "Come over with me, and I will sustain you with me i
 Barzillai said to the king, "How many are the days of the years of my life, that I should go up with the king to Jerusalem? 
 I am eighty years old, today. Can I discern between good and bad? Can your servant taste what I eat or what I drink? Can I hear the voice of singing men and driftsging women any more? Why then should your servant be a burden to my lord the king? 
 Your servant will just go over the Jordan with the king. Why should the king repay me with such a reward? 
-Please let your servant turn back again, that I may die in my own city, by the grave of my father and my mother. But behold, your servant Chimham; let him go over with my lord the king; and do to him what shall seem good to you." 
+Please let your servant turn back again, that I may die in my own city, by the grave of my father and my mother. But look, your servant Chimham; let him go over with my lord the king; and do to him what shall seem good to you." 
 The king answered, "Chimham shall go over with me, and I will do to him that which shall seem good to you. Whatever you request of me, that I will do for you." 
 Everyone went over the Jordan, and the king went over. Then the king kissed Barzillai and blessed him; and he returned to his own place. 
 So the king went over to Gilgal, and Chimham went over with him. Everyone in Judah brought the king over, and also half the people of Israel. 
-Behold, all the men of Israel came to the king, and said to the king, "Why have our brothers the men of Judah stolen you away, and brought the king and his household, over the Jordan, and all David's men with him?" 
+Look, all the men of Israel came to the king, and said to the king, "Why have our brothers the men of Judah stolen you away, and brought the king and his household, over the Jordan, and all David's men with him?" 
 All the men of Judah answered the men of Israel, "Because the king is a close relative to us. Why then are you angry about this matter? Have we eaten at all at the king's cost? Or has he given us any gift?" 
 The men of Israel answered the men of Judah, and said, "We have ten parts in the king, and we have also more claim to David than you. Why then did you despise us, that our advice should not be first had in bringing back our king?" The words of the men of Judah were fiercer than the words of the men of Israel. 

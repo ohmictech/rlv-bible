@@ -1,10 +1,10 @@
 ﻿God's word came again to me, saying, 
 "Son of man, tell the prince of Tyre, 'The God says: "Because your heart is lifted up, and you have said, 'I am a god, I sit in the seat of God, in the middle of the seas;' yet you are man, and no god, though you set your heart as the heart of a god 
-behold, you are wiser than Daniel. There is no secret that is hidden from you. 
+Look, you are wiser than Daniel. There is no secret that is hidden from you. 
 By your wisdom and by your understanding you have gotten yourself riches, and have gotten gold and silver into your treasuries. 
 By your great wisdom and by your trading you have increased your riches, and your heart is lifted up because of your riches, " 
 "'So God says: "Because you have set your heart as the heart of God, 
-So, behold, I will bring strangers on you, the terrible of the nations. They will draw their swords against the beauty of your wisdom. They will defile your brightness. 
+So, look, I will bring strangers on you, the terrible of the nations. They will draw their swords against the beauty of your wisdom. They will defile your brightness. 
 They will bring you down to the pit. You will die the death of those who are slain in the heart of the seas. 
 Will you yet say before him who kills you, 'I am God'? But you are man, and not God, in the hand of him who wounds you. 
 You will die the death of the uncircumcised by the hand of strangers; for I have spoken it," says God.'" 
@@ -19,7 +19,7 @@ By the multitude of your guilt, in the unrighteousness of your commerce, you hav
 Everyone who know you among the peoples will be astonished at you. You have become a terror, and you will exist no more."'" 
 God's word came to me, saying, 
 "Son of man, set your face toward Sidon, and prophesy against it, 
-and say, 'The God says: "Behold, I am against you, Sidon. I will be glorified among you. Then they will know that I am God, when I have executed judgments in her, and am sanctified in her. 
+and say, 'The God says: "Look, I am against you, Sidon. I will be glorified among you. Then they will know that I am God, when I have executed judgments in her, and am sanctified in her. 
 I will send pestilence into her, and blood into her streets. The wounded will fall within her, with the sword on her on every side. Then they will know that I am God. 
 "'"There will no longer be a pricking brier to the house of Israel, nor a hurting thorn of any that are around them that scorned them. Then they will know that I am God." 
 "'The God says: "When I have gathered the house of Israel from the peoples among whom they are scattered, and am shown as holy among them in the sight of the nations, then they will dwell in their own land which I gave to my servant Jacob. 

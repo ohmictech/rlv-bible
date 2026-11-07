@@ -6,7 +6,7 @@ They come from a far country, from the uttermost part of the sky, even God, and 
 Wail, for God's day is at hand! It will come as destruction from the Almighty. 
 So all hands will be feeble, and everyone's heart will melt. 
 They will be dismayed. Pangs and sorrows will seize them. They will be in pain like a woman in labor. They will look in amazement one at another. Their faces will be faces of flame. 
-Behold, the day of God comes, cruel, with wrath and fierce anger; to make the land a desolation, and to destroy its those who have drifted out of it. 
+Look, the day of God comes, cruel, with wrath and fierce anger; to make the land a desolation, and to destroy its those who have drifted out of it. 
 The stars of the sky and its constellations will not give their light. The sun will be darkened in its going out, and the moon will not cause its light to shine. 
 I will punish the world for their bad, and the guilty for their guilt. I will cause the arrogance of the proud to cease, and will humble the arrogance of the terrible. 
 I will make people more rare than fine gold, even a person than the pure gold of Ophir. 
@@ -14,7 +14,7 @@ So I will make the sky tremble, and the earth will be shaken out of its place in
 It will happen that like a hunted gazelle and like sheep that no one gathers, they will each turn to their own people, and will each flee to their own land. 
 Everyone who is found will be thrust through. Everyone who is captured will fall by the sword. 
 Their infants also will be dashed in pieces before their eyes. Their houses will be ransacked, and their wives raped. 
-Behold, I will stir up the Medes against them, who will not value silver, and as for gold, they will not delight in it. 
+Look, I will stir up the Medes against them, who will not value silver, and as for gold, they will not delight in it. 
 Their bows will dash the young men in pieces; and they shall have no pity on the fruit of the womb. Their eyes will not spare children. 
 Babylon, the glory of kingdoms, the beauty of the Chaldeans' pride, will be like when God overthrew Sodom and Gomorrah. 
 It will never be inhabited, neither will it be lived in from generation to generation. The Arabian will not pitch a tent there, neither will shepherds make their flocks lie down there. 

@@ -1,6 +1,6 @@
 ﻿"Now, you priests, this commandment is for you. 
 If you will not listen, and if you will not take it to heart, to give glory to my name," says the God of Armies, "then I will send the curse on you, and I will curse your blessings. Indeed, I have cursed them already, because you do not take it to heart. 
-Behold, I will rebuke your offspring, and will spread dung on your faces, even the dung of your feasts; and you will be taken away with it. 
+Look, I will rebuke your offspring, and will spread dung on your faces, even the dung of your feasts; and you will be taken away with it. 
 You will know that I have sent this commandment to you, that my covenant may be with Levi," says the God of Armies. 
 "My covenant was with him of life and peace; and I gave them to him that he might be reverent toward me; and he was reverent toward me, and stood in awe of my name. 
 The law of truth was in his mouth, and unrighteousness was not found in his lips. He walked with me in peace and uprightness, and turned many away from guilt. 

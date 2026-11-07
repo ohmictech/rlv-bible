@@ -2,7 +2,7 @@
 When you come there, find Jehu the son of Jehoshaphat the son of Nimshi, and go in and make him rise up from among his brothers, and take him to an inner room. 
 Then take the vial of oil, and pour it on his head, and say, 'God says, "I have anointed you king over Israel."' Then open the door, flee, and don't wait." 
 So the young man, the young spokesman, went to Ramoth Gilead. 
-When he came, behold, the captains of the army were sitting. Then he said, "I have a message for you, captain." Jehu said, "To which one of us?" He said, "To you, O captain." 
+When he came, look, the captains of the army were sitting. Then he said, "I have a message for you, captain." Jehu said, "To which one of us?" He said, "To you, O captain." 
 He arose, and went into the house. Then he poured the oil on his head, and said to him, "The God of Israel says, 'I have anointed you king over the people of God, even over Israel. 
 You must strike your master Ahab's house, that I may avenge the blood of my servants the spokesmen, and the blood of all the servants of God, at the hand of Jezebel. 
 The whole house of Ahab will perish. I will cut off from Ahab everyone who urinates against a wall, both him who is shut up and him who is left at large in Israel. 

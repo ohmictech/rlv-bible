@@ -1,8 +1,8 @@
 ﻿In the third year of the reign of King Belshazzar, a vision appeared to me, even to me, Daniel, after that which appeared to me at the first. 
 I saw the vision. Now it was so, that when I saw, I was in the citadel of Susa, which is in the province of Elam. I saw in the vision, and I was by the river Ulai. 
-Then I lifted up my eyes and saw, and behold, a ram which had two horns stood before the river. The two horns were high, but one was higher than the other, and the higher came up last. 
+Then I lifted up my eyes and saw, and look, a ram which had two horns stood before the river. The two horns were high, but one was higher than the other, and the higher came up last. 
 I saw the ram pushing westward, northward, and southward. No animals could stand before him. There wasn't any who could deliver out of his hand, but he did according to his will, and magnified himself. 
-As I was considering, behold, a male goat came from the west over the surface of the whole earth, and didn't touch the ground. The goat had a notable horn between his eyes. 
+As I was considering, look, a male goat came from the west over the surface of the whole earth, and didn't touch the ground. The goat had a notable horn between his eyes. 
 He came to the ram that had the two horns, which I saw standing before the river, and ran on him in the fury of his power. 
 I saw him come close to the ram, and he was moved with anger against him, and struck the ram, and broke his two horns. There was no power in the ram to stand before him; but he cast him down to the ground and trampled on him. There was no one who could deliver the ram out of his hand. 
 The male goat magnified himself exceedingly. When he was strong, the great horn was broken; and instead of it there came up four notable horns toward the four winds of the sky. 
@@ -12,11 +12,11 @@ Yes, it magnified itself, even to the prince of the army; and it took away from 
 The army was given over to it together with the continual burnt offering through disobedience. It cast down truth to the ground, and it did its pleasure and prospered. 
 Then I heard a holy one speaking; and another holy one said to that certain one who spoke, "How long will the vision about the continual burnt offering, and the disobedience that makes desolate, to give both the sanctuary and the army to be trodden under foot be?" 
 He said to me, "To two thousand and three hundred evenings and mornings. Then the sanctuary will be cleansed." 
-When I, even I Daniel, had seen the vision, I sought to understand it. Then behold, there stood before me someone with the appearance of a man. 
+When I, even I Daniel, had seen the vision, I sought to understand it. Then look, there stood before me someone with the appearance of a man. 
 I heard a man's voice between the banks of the Ulai, which called and said, "Gabriel, make this man understand the vision." 
 So he came near where I stood; and when he came, I was frightened, and fell on my face; but he said to me, "Understand, son of man, for the vision belongs to the time of the end." 
 Now as he was speaking with me, I fell into a deep sleep with my face toward the ground; but he touched me and set me upright. 
-He said, "Behold, I will make you know what will be in the latter time of the indignation, for it belongs to the appointed time of the end. 
+He said, "Look, I will make you know what will be in the latter time of the indignation, for it belongs to the appointed time of the end. 
 The ram which you saw, that had the two horns, they are the kings of Media and Persia. 
 The rough male goat is the king of Greece. The great horn that is between his eyes is the first king. 
 As for that which was broken, in the place where four stood up, four kingdoms will stand up out of the nation, but not with his power. 

@@ -1,10 +1,10 @@
 ﻿The Chief Musician. To the tune of "Do Not Destroy." A poem by David, when Saul sent, and they watched the house to kill him. Deliver me from my enemies, my God. Set me on high from those who rise up against me. 
 Deliver me from the workers of guilt. Save me from the bloodthirsty men. 
-For, behold, they lie in wait for my soul. The mighty gather themselves together against me, not for my disobedience, nor for my wrongdoing, God. 
-I have done no wrong, yet they are ready to attack me. Rise up, behold, and help me! 
+For, look, they lie in wait for my soul. The mighty gather themselves together against me, not for my disobedience, nor for my wrongdoing, God. 
+I have done no wrong, yet they are ready to attack me. Rise up, look, and help me! 
 You, God of Armies, the God of Israel, rouse yourself to punish the nations. Show no mercy to the guilty traitors. Selah. 
 They return at evening, howling like dogs, and prowl around the city. 
-Behold, they spew with their mouth. Swords are in their lips, "For", they say, "who hears us?" 
+Look, they spew with their mouth. Swords are in their lips, "For", they say, "who hears us?" 
 But you, God, laugh at them. You scoff at all the nations. 
 Oh, my Strength, I watch for you, for God is my high tower. 
 My God will go before me with his loving kindness. God will let me look at my enemies in triumph. 

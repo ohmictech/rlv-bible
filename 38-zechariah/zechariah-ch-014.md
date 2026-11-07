@@ -1,4 +1,4 @@
-﻿Behold, a day of God comes, when your plunder will be divided within you. 
+﻿Look, a day of God comes, when your plunder will be divided within you. 
 I will gather all nations against Jerusalem to battle; and the city will be taken, the houses rifled, and the women ravished. Half of the city will go out into captivity, and the rest of the people will not be cut off from the city. 
 Then God will go out and fight against those nations, as when he fought in the day of battle. 
 His feet will stand in that day on the Mount of Olives, which is before Jerusalem on the east; and the Mount of Olives will be split in two from east to west, making a very great valley. Half of the mountain will move toward the north, and half of it toward the south. 

@@ -1,4 +1,4 @@
-﻿Then I returned and saw all the oppressions that are done under the sun: and behold, the tears of those who were oppressed, and they had no comforter; and on the side of their oppressors there was power; but they had no comforter. 
+﻿Then I returned and saw all the oppressions that are done under the sun: and look, the tears of those who were oppressed, and they had no comforter; and on the side of their oppressors there was power; but they had no comforter. 
 So I praised the dead who have been long dead more than the living who are yet alive. 
 Yes, better than them both is him who has not yet been, who has not seen the bad work that is done under the sun. 
 Then I saw all the labor and achievement that is the envy of a man's neighbor. This also is vanity and a striving after wind. 

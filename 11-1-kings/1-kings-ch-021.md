@@ -15,10 +15,10 @@ Then they sent to Jezebel, saying, "Naboth has been stoned and is dead."
 When Jezebel heard that Naboth had been stoned and was dead, Jezebel said to Ahab, "Arise, take possession of the vineyard of Naboth the Jezreelite, which he refused to give you for money; for Naboth is not alive, but dead." 
 When Ahab heard that Naboth was dead, Ahab rose up to go down to the vineyard of Naboth the Jezreelite, to take possession of it. 
 God's word came to Elijah the Tishbite, saying, 
-"Arise, go down to meet Ahab king of Israel, who dwells in Samaria. Behold, he is in the vineyard of Naboth, where he has gone down to take possession of it. 
+"Arise, go down to meet Ahab king of Israel, who dwells in Samaria. Look, he is in the vineyard of Naboth, where he has gone down to take possession of it. 
 You shall speak to him, saying, 'God says, "Have you killed and also taken possession?"' You shall speak to him, saying, 'God says, "In the place where dogs licked the blood of Naboth, dogs will lick your blood, even yours."'" 
 Ahab said to Elijah, "Have you found me, my enemy?" He answered, "I have found you, because you have sold yourself to do that which is bad in God's sight. 
-Behold, I will bring bad on you, and will utterly sweep you away and will cut off from Ahab everyone who urinates against a wall, and him who is shut up and him who is left at large in Israel. 
+Look, I will bring bad on you, and will utterly sweep you away and will cut off from Ahab everyone who urinates against a wall, and him who is shut up and him who is left at large in Israel. 
 I will make your house like the house of Jeroboam the son of Nebat, and like the house of Baasha the son of Ahijah, for the provocation with which you have provoked me to anger, and have made Israel to drift." 
 God also spoke of Jezebel, saying, "The dogs will eat Jezebel by the rampart of Jezreel. 
 The dogs will eat whoever dies of Ahab in the city; and the birds of the sky will eat whoever dies in the field." 

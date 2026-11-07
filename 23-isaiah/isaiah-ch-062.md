@@ -8,5 +8,5 @@ and give him no rest until he establishes, and until he makes Jerusalem a praise
 God has sworn by his right hand, and by the arm of his strength, "Surely I will no more give your grain to be food for your enemies, and foreigners will not drink your new wine, for which you have labored, 
 but those who have harvested it will eat it, and praise God. Those who have gathered it will drink it in the courts of my sanctuary." 
 Go through, go through the gates! Prepare the way of the people! Build up, build up the highway! Gather out the stones! Lift up a banner for the peoples. 
-Behold, God has proclaimed to the end of the earth: "Say to the daughter of Zion, 'Behold, your salvation comes! Behold, his reward is with him, and his recompense before him!'" 
+Look, God has proclaimed to the end of the earth: "Say to the daughter of Zion, 'Look, your salvation comes! Look, his reward is with him, and his recompense before him!'" 
 They will call them "The Holy People, God's Bought back". You will be called "Sought Out, A City Not Forsaken". 

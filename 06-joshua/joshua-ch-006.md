@@ -1,5 +1,5 @@
 ﻿Now Jericho was tightly shut up because of the children of Israel. No one went out, and no one came in. 
-God said to Joshua, "Behold, I have given Jericho into your hand, with its king and the mighty men of valor. 
+God said to Joshua, "Look, I have given Jericho into your hand, with its king and the mighty men of valor. 
 All of your men of war shall march around the city, going around the city once. You shall do this six days. 
 Seven priests shall bear seven trumpets of rams' horns before the ark. On the seventh day, you shall march around the city seven times, and the priests shall blow the trumpets. 
 It shall be that when they make a long blast with the ram's horn, and when you hear the sound of the trumpet, everyone shall shout with a great shout; then the city wall will fall down flat, and the people shall go up, every man straight in front of him." 

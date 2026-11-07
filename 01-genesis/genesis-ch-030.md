@@ -1,6 +1,6 @@
 ﻿When Rachel saw that she bore Jacob no children, Rachel envied her sister. She said to Jacob, "Give me children, or else I will die." 
 Jacob's anger burned against Rachel, and he said, "Am I in God's place, who has withheld from you the fruit of the womb?" 
-She said, "Behold, my maid Bilhah. Go in to her, that she may bear on my knees, and I also may obtain children by her." 
+She said, "Look, my maid Bilhah. Go in to her, that she may bear on my knees, and I also may obtain children by her." 
 She gave him Bilhah her servant as wife, and Jacob went in to her. 
 Bilhah conceived, and bore Jacob a son. 
 Rachel said, "God has judged me, and has also heard my voice, and has given me a son." Therefore she called his name Dan. 
@@ -31,7 +31,7 @@ It was little which you had before I came, and it has increased to a multitude. 
 Laban said, "What shall I give you?" Jacob said, "You shall not give me anything. If you will do this thing for me, I will again feed your flock and keep it. 
 I will pass through all your flock today, removing from there every speckled and spotted one, and every black one among the sheep, and the spotted and speckled among the goats. This will be my hire. 
 So my righteousness will answer for me hereafter, when you come concerning my hire that is before you. Every one that is not speckled and spotted among the goats, and black among the sheep, that might be with me, will be considered stolen." 
-Laban said, "Behold, let it be according to your word." 
+Laban said, "Look, let it be according to your word." 
 That day, he removed the male goats that were streaked and spotted, and all the female goats that were speckled and spotted, every one that had white in it, and all the black ones among the sheep, and gave them into the hand of his sons. 
 He set three days' journey between himself and Jacob, and Jacob fed the rest of Laban's flocks. 
 Jacob took to himself rods of fresh poplar, almond, and plane tree, peeled white streaks in them, and made the white appear which was in the rods. 

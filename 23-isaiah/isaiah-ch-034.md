@@ -2,7 +2,7 @@
 God is enraged against all the nations, and angry with all their armies. He has utterly destroyed them. He has given them over for slaughter. 
 Their slain will also be cast out, and the stench of their dead bodies will come up. The mountains will melt in their blood. 
 All of the army of the sky will be dissolved. The sky will be rolled up like a scroll, and all its armies will fade away, as a leaf fades from off a vine or a fig tree. 
-My sword has drunk its fill in the sky. Behold, it will come down on Edom, and on the people of my curse, for judgment. 
+My sword has drunk its fill in the sky. Look, it will come down on Edom, and on the people of my curse, for judgment. 
 God's sword is filled with blood. It is covered with fat, with the blood of lambs and goats, with the fat of the kidneys of rams; for God has a sacrifice in Bozrah, and a great slaughter in the land of Edom. 
 The wild oxen will come down with them, and the young bulls with the mighty bulls; and their land will be drunken with blood, and their dust made greasy with fat. 
 God has a day of vengeance, a year of recompense for the cause of Zion. 

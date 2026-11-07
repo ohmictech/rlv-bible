@@ -1,6 +1,6 @@
 ﻿God's word came to me, saying, 
 "Son of man, set your face toward the mountains of Israel, and prophesy to them, 
-and say, 'You mountains of Israel, hear the word of God! The God says to the mountains and to the hills, to the watercourses and to the valleys: "Behold, I, even I, will bring a sword on you, and I will destroy your high places. 
+and say, 'You mountains of Israel, hear the word of God! The God says to the mountains and to the hills, to the watercourses and to the valleys: "Look, I, even I, will bring a sword on you, and I will destroy your high places. 
 Your altars will become desolate, and your incense altars will be broken. I will cast down your slain men before your idols. 
 I will lay the dead bodies of the children of Israel before their idols. I will scatter your bones around your altars. 
 In all your dwelling places, the cities will be laid waste and the high places will be desolate, so that your altars may be laid waste and made desolate, and your idols may be broken and cease, and your incense altars may be cut down, and your works may be abolished. 

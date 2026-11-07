@@ -2,15 +2,15 @@
 Then Jezebel sent a messenger to Elijah, saying, "So let the gods do to me, and more also, if I don't make your life as the life of one of them by tomorrow about this time!" 
 When he saw that, he arose and ran for his life, and came to Beersheba, which belongs to Judah, and left his servant there. 
 But he himself went a day's journey into the wilderness, and came and sat down under a juniper tree. Then he requested for himself that he might die, and said, "It is enough. Now, O God, take away my life; for I am not better than my fathers." 
-He lay down and slept under a juniper tree; and behold, an messenger touched him, and said to him, "Arise and eat!" 
-He looked, and behold, there was at his head a cake baked on the coals, and a jar of water. He ate and drank, and lay down again. 
+He lay down and slept under a juniper tree; and look, an messenger touched him, and said to him, "Arise and eat!" 
+He looked, and look, there was at his head a cake baked on the coals, and a jar of water. He ate and drank, and lay down again. 
 God's messenger came again the second time, and touched him, and said, "Arise and eat, because the journey is too great for you." 
 He arose, and ate and drank, and went in the strength of that food forty days and forty nights to Horeb, God's Mountain. 
-He came to a cave there, and camped there; and behold, God's word came to him, and he said to him, "What are you doing here, Elijah?" 
+He came to a cave there, and camped there; and look, God's word came to him, and he said to him, "What are you doing here, Elijah?" 
 He said, "I have been very jealous for the God of Armies; for the children of Israel have forsaken your covenant, thrown down your altars, and killed your spokesmen with the sword. I, even I only, am left; and they seek my life, to take it away." 
-He said, "Go out and stand on the mountain before God." Behold, God passed by, and a great and strong wind tore the mountains and broke in pieces the rocks before God; but God was not in the wind. After the wind there was an earthquake; but God was not in the earthquake. 
+He said, "Go out and stand on the mountain before God." Look, God passed by, and a great and strong wind tore the mountains and broke in pieces the rocks before God; but God was not in the wind. After the wind there was an earthquake; but God was not in the earthquake. 
 After the earthquake a fire passed; but God was not in the fire. After the fire, there was a still small voice. 
-When Elijah heard it, he wrapped his face in his mantle, went out, and stood in the entrance of the cave. Behold, a voice came to him, and said, "What are you doing here, Elijah?" 
+When Elijah heard it, he wrapped his face in his mantle, went out, and stood in the entrance of the cave. Look, a voice came to him, and said, "What are you doing here, Elijah?" 
 He said, "I have been very jealous for the God of Armies; for the children of Israel have forsaken your covenant, thrown down your altars, and killed your spokesmen with the sword. I, even I only, am left; and they seek my life, to take it away." 
 God said to him, "Go, return on your way to the wilderness of Damascus. When you arrive, anoint Hazael to be king over Syria. 
 Anoint Jehu the son of Nimshi to be king over Israel; and anoint Elisha the son of Shaphat of Abel Meholah to be spokesman in your place. 

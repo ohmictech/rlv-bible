@@ -18,7 +18,7 @@ But if you will not listen to us and be circumcised, then we will take our siste
 Their words pleased Hamor and Shechem, Hamor's son. 
 The young man didn't wait to do this thing, because he had delight in Jacob's daughter, and he was honored above all the house of his father. 
 Hamor and Shechem, his son, came to the gate of their city, and talked with the men of their city, saying, 
-"These men are peaceful with us. So let them live in the land and trade in it. Behold, the land is large enough for them. Let's take their daughters to us for wives, and let's give them our daughters. 
+"These men are peaceful with us. So let them live in the land and trade in it. Look, the land is large enough for them. Let's take their daughters to us for wives, and let's give them our daughters. 
 Only on this condition will the men consent to us to live with us, to become one people, if every male among us is circumcised, as they are circumcised. 
 Won't their livestock and their possessions and all their animals be ours? Only let's give our consent to them, and they will dwell with us." 
 Everyone who went out of the gate of his city listened to Hamor, and to Shechem his son; and every male was circumcised, everyone who went out of the gate of his city. 

@@ -12,4 +12,4 @@ One has gone out of you who devises bad against God, who counsels guilt.
 God says: "Though they are in full strength and likewise many, even so they will be cut down and pass away. Though I have afflicted you, I will afflict you no more. 
 Now I will break his yoke from off you, and will burst your bonds apart." 
 God has commanded concerning you: "No more descendants will bear your name. Out of the house of your gods, I will cut off the engraved image and the molten image. I will make your grave, for you are vile." 
-Behold, on the mountains the feet of him who brings good news, who publishes peace! Keep your feasts, Judah! Perform your vows, for the guilty one will no more pass through you. He is utterly cut off. 
+Look, on the mountains the feet of him who brings good news, who publishes peace! Keep your feasts, Judah! Perform your vows, for the guilty one will no more pass through you. He is utterly cut off. 

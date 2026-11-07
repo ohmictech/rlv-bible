@@ -7,7 +7,7 @@ He said, "Now hear my words. If there is a spokesman among you, I, God, will mak
 My servant Moses is not so. He is faithful in all my house. 
 With him, I will speak mouth to mouth, even plainly, and not in riddles; and he shall see God's form. Why then were you not afraid to speak against my servant, against Moses?" 
 God's anger burned against them; and he departed. 
-The cloud departed from over the Tent; and behold, Miriam was leprous, as white as snow. Aaron looked at Miriam, and behold, she was leprous. 
+The cloud departed from over the Tent; and look, Miriam was leprous, as white as snow. Aaron looked at Miriam, and look, she was leprous. 
 Aaron said to Moses, "Oh, my lord, please don't count this wrong us, in which we have done foolishly, and in which we have drifted. 
 Let her not, I pray, be as one dead, of whom the flesh is half consumed when he comes out of his mother's womb." 
 Moses cried to God, saying, "Heal her, God, I beg you!" 

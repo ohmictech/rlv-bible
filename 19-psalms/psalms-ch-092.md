@@ -6,7 +6,7 @@ How great are your works, God! Your thoughts are very deep.
 A senseless man doesn't know, neither does a fool understand this: 
 though the guilty spring up as the grass, and all the those who do bad flourish, they will be destroyed for the eras. 
 But you, God, are on high for the eras more. 
-Behold, your enemies, God, for behold, your enemies shall perish. All the those who do bad will be scattered. 
+Look, your enemies, God, look, your enemies shall perish. All the those who do bad will be scattered. 
 But you have exalted my horn like that of the wild ox. I am anointed with fresh oil. 
 My eye has also seen my enemies. My ears have heard of the guilty enemies who rise up against me. 
 The righteous shall flourish like the palm tree. He will grow like a cedar in Lebanon. 

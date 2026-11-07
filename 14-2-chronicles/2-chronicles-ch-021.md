@@ -11,7 +11,7 @@ So Edom has been in revolt from under the hand of Judah to this day. Then Libnah
 Moreover he made high places in the mountains of Judah, and made the inhabitants of Jerusalem play the prostitute, and led Judah astray. 
 A letter came to him from Elijah the spokesman, saying, "the God of David your father, says, 'Because you have not walked in the ways of Jehoshaphat your father, nor in the ways of Asa king of Judah, 
 but have walked in the way of the kings of Israel, and have made Judah and the inhabitants of Jerusalem to play the prostitute like Ahab's house did, and also have slain your brothers of your father's house, who were better than yourself, 
-behold, God will strike your people with a great plague, including your children, your wives, and all your possessions; 
+Look, God will strike your people with a great plague, including your children, your wives, and all your possessions; 
 and you will have great sickness with a disease of your bowels, until your bowels fall out by reason of the sickness, day by day.'" 
 God stirred up against Jehoram the spirit of the Philistines and of the Arabians who are beside the Ethiopians; 
 and they came up against Judah, broke into it, and carried away all the possessions that were found in the king's house, including his sons and his wives, so that there was no son left to him except Jehoahaz, the youngest of his sons. 

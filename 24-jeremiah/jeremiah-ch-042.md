@@ -1,7 +1,7 @@
 ﻿Then all the captains of the forces, and Johanan the son of Kareah, and Jezaniah the son of Hoshaiah, and everyone from the least even to the greatest, came near, 
 and said to Jeremiah the spokesman, "Please let our supplication be presented before you, and pray for us to your God, even for all this remnant, for we are left but a few of many, as your eyes see us, 
 that your God may show us the way in which we should walk, and the things that we should do." 
-Then Jeremiah the spokesman said to them, "I have heard you. Behold, I will pray to your God according to your words; and it will happen that whatever thing God answers you, I will declare it to you. I will keep nothing back from you." 
+Then Jeremiah the spokesman said to them, "I have heard you. Look, I will pray to your God according to your words; and it will happen that whatever thing God answers you, I will declare it to you. I will keep nothing back from you." 
 Then they said to Jeremiah, "May God be a true and faithful witness among us, if we don't do according to all the word with which your God sends you to tell us. 
 Whether it is good, or whether it is bad, we will obey the voice of our God, to whom we send you; that it may be well with us, when we obey the voice of our God." 
 After ten days, God's word came to Jeremiah. 

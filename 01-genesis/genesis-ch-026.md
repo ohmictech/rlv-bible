@@ -5,8 +5,8 @@ I will multiply your offspring as the stars of the sky, and will give all these 
 because Abraham obeyed my voice, and kept my requirements, my commandments, my statutes, and my laws." 
 Isaac lived in Gerar. 
 The men of the place asked him about his wife. He said, "She is my sister," for he was afraid to say, "My wife", lest, he thought, "the men of the place might kill me for Rebekah, because she is beautiful to look at." 
-When he had been there a long time, Abimelech king of the Philistines looked out at a window, and saw, and, behold, Isaac was caressing Rebekah, his wife. 
-Abimelech called Isaac, and said, "Behold, surely she is your wife. Why did you say, 'She is my sister'?" Isaac said to him, "Because I said, 'Lest I die because of her.'" 
+When he had been there a long time, Abimelech king of the Philistines looked out at a window, and saw, and, look, Isaac was caressing Rebekah, his wife. 
+Abimelech called Isaac, and said, "Look, surely she is your wife. Why did you say, 'She is my sister'?" Isaac said to him, "Because I said, 'Lest I die because of her.'" 
 Abimelech said, "What is this you have done to us? One of the people might easily have lain with your wife, and you would have brought guilt on us!" 
 Abimelech commanded everyone, saying, "He who touches this man or his wife will surely be put to death." 
 Isaac sowed in that land, and reaped in the same year one hundred times what he planted. God blessed him. 

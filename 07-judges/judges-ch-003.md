@@ -22,7 +22,7 @@ Ehud put out his left hand, and took the sword from his right thigh, and thrust 
 The handle also went in after the blade; and the fat closed on the blade, for he didn't draw the sword out of his body; and it came out behind. 
 Then Ehud went out onto the porch, and shut the doors of the upper room on him, and locked them. 
 After he had gone, his servants came and saw that the doors of the upper room were locked. They said, "Surely he is covering his feet in the upper room." 
-They waited until they were ashamed; and behold, he didn't open the doors of the upper room. So they took the key and opened them, and behold, their lord had fallen down dead on the floor. 
+They waited until they were ashamed; and look, he didn't open the doors of the upper room. So they took the key and opened them, and look, their lord had fallen down dead on the floor. 
 Ehud escaped while they waited, passed beyond the stone idols, and escaped to Seirah. 
 When he had come, he blew a trumpet in the hill country of Ephraim; and the children of Israel went down with him from the hill country, and he led them. 
 He said to them, "Follow me; for God has delivered your enemies the Moabites into your hand." They followed him, and took the fords of the Jordan against the Moabites, and didn't allow any man to pass over. 

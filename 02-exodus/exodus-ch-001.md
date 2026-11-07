@@ -6,7 +6,7 @@ All the souls who came out of Jacob's body were seventy souls, and Joseph was in
 Joseph died, as did all his brothers, and all that generation. 
 The children of Israel were fruitful, and increased abundantly, and multiplied, and grew exceedingly mighty; and the land was filled with them. 
 Now there arose a new king over Egypt, who didn't know Joseph. 
-He said to his people, "Behold, the people of the children of Israel are more and mightier than we. 
+He said to his people, "Look, the people of the children of Israel are more and mightier than we. 
 Come, let's deal wisely with them, lest they multiply, and it happen that when any war breaks out, they also join themselves to our enemies and fight against us, and escape out of the land." 
 So they set taskmasters over them to afflict them with their burdens. They built storage cities for Pharaoh: Pithom and Raamses. 
 But the more they afflicted them, the more they multiplied and the more they spread out. They started to dread the children of Israel. 

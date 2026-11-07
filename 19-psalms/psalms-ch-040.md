@@ -4,9 +4,9 @@ He has put a new song in my mouth, even praise to our God. Many shall see it, an
 Blessed is the man who makes God his trust, and doesn't respect the proud, nor such as turn away to lies. 
 Many, God, my God, are the wonderful works which you have done, and your thoughts which are toward us. They can't be declared back to you. If I would declare and speak of them, they are more than can be counted. 
 Sacrifice and offering you didn't desire. You have opened my ears. You have not required burnt offering and offering for wrongdoing. 
-Then I said, "Behold, I have come. It is written about me in the book in the scroll. 
+Then I said, "Look, I have come. It is written about me in the book in the scroll. 
 I delight to do your will, my God. Yes, your law is within my heart." 
-I have proclaimed glad news of righteousness in the great assembly. Behold, I will not seal my lips, God, you know. 
+I have proclaimed glad news of righteousness in the great assembly. Look, I will not seal my lips, God, you know. 
 I have not hidden your righteousness within my heart. I have declared your faithfulness and your salvation. I have not concealed your loving kindness and your truth from the great assembly. 
 Don't withhold your tender mercies from me, God. Let your loving kindness and your truth continually preserve me. 
 Innumerable bad things have surrounded me. My guilt have overtaken me, so that I am not able to look up. They are more than the hairs of my head. My heart has failed me. 

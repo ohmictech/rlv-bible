@@ -33,6 +33,6 @@ Now, our God, the great, the mighty, and the awesome God, who keeps covenant and
 However you are just in all that has come on us; for you have dealt truly, but we have done guiltily. 
 Also our kings, our princes, our priests, and our fathers have not kept your law, nor listened to your commandments and your testimonies with which you testified against them. 
 They have not served you in their kingdom, and in your great goodness that you gave them, and in the large and rich land which you gave before them. They didn't turn from their guilty works. 
-"Behold, we are servants today, and as for the land that you gave to our fathers to eat its fruit and its good, behold, we are servants in it. 
+"Look, we are servants today, and as for the land that you gave to our fathers to eat its fruit and its good, look, we are servants in it. 
 It yields much increase to the kings whom you have set over us because of our mistakes. Also they have power over our bodies and over our livestock, at their pleasure, and we are in great distress. 
 Yet for all this, we make a sure covenant, and write it; and our princes, our Levites, and our priests, seal it." 

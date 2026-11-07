@@ -10,6 +10,6 @@ God said to Joshua, "Today I have rolled away the reproach of Egypt from you." T
 The children of Israel encamped in Gilgal. They kept the Passover on the fourteenth day of the month at evening in the plains of Jericho. 
 They ate unleavened cakes and parched grain of the produce of the land on the next day after the Passover, in the same day. 
 The manna ceased on the next day, after they had eaten of the produce of the land. The children of Israel didn't have manna any more, but they ate of the fruit of the land of Canaan that year. 
-When Joshua was by Jericho, he lifted up his eyes and looked, and behold, a man stood in front of him with his sword drawn in his hand. Joshua went to him and said to him, "Are you for us, or for our enemies?" 
+When Joshua was by Jericho, he lifted up his eyes and looked, and look, a man stood in front of him with his sword drawn in his hand. Joshua went to him and said to him, "Are you for us, or for our enemies?" 
 He said, "No; but I have come now as commander of God's army." Joshua fell on his face to the earth, and worshiped, and asked him, "What does my lord say to his servant?" 
 The prince of God's army said to Joshua, "Take off your sandals, for the place on which you stand is holy." Joshua did so. 

@@ -10,20 +10,20 @@ This, clothe yourself with sackcloth, lament and wail; for the fierce anger of G
 Then I said, "Ah, God! Surely you have greatly deceived this people and Jerusalem, saying, 'You will have peace;' whereas the sword reaches to the heart." 
 At that time it will be said to this people and to Jerusalem, "A hot wind blows from the bare heights in the wilderness toward the daughter of my people, not to winnow, nor to cleanse. 
 A full wind from these will come for me. Now I will also utter judgments against them." 
-Behold, he will come up as clouds, and his chariots will be as the whirlwind. His horses are swifter than eagles. Woe to us! We are ruined. 
+Look, he will come up as clouds, and his chariots will be as the whirlwind. His horses are swifter than eagles. Woe to us! We are ruined. 
 Jerusalem, wash your heart from guilt, that you may be saved. How long will your bad thoughts lodge within you? 
 A voice declares from Dan, and publishes bad from the hills of Ephraim: 
-"Tell the nations, behold, publish against Jerusalem, 'Watchers come from a far country, and raise their voice against the cities of Judah. 
+"Tell the nations, look, publish against Jerusalem, 'Watchers come from a far country, and raise their voice against the cities of Judah. 
 As keepers of a field, they are against her all around, because she has been rebellious against me,'" says God. 
 "Your way and your doings have brought these things to you. This is your guilt, for it is bitter, for it reaches to your heart." 
 My anguish, my anguish! I am pained at my very heart! My heart trembles within me. I can't hold my peace, because you have heard, O my soul, the sound of the trumpet, the alarm of war. 
 Destruction on destruction is decreed, for the whole land is laid waste. Suddenly my tents are destroyed, and my curtains gone in a moment. 
 How long will I see the standard and hear the sound of the trumpet? 
 "My people are foolish. They don't know me. They are foolish children, and they have no understanding. They are skillful in doing bad, but they don't know how to do good." 
-I saw the earth and, behold, it was waste and void, and the sky, and they had no light. 
-I saw the mountains, and behold, they trembled, and all the hills moved back and forth. 
-I saw, and behold, there was no man, and all the birds of the sky had fled. 
-I saw, and behold, the fruitful field was a wilderness, and all its cities were broken down at the presence of God, before his fierce anger. 
+I saw the earth and, look, it was waste and void, and the sky, and they had no light. 
+I saw the mountains, and look, they trembled, and all the hills moved back and forth. 
+I saw, and look, there was no man, and all the birds of the sky had fled. 
+I saw, and look, the fruitful field was a wilderness, and all its cities were broken down at the presence of God, before his fierce anger. 
 God says, "The whole land will be a desolation; yet I will not make a full end. 
 This the earth will mourn, and the sky above be black, because I have spoken it. I have planned it, and I have not repented, neither will I turn back from it." 
 Every city flees for the noise of the horsemen and archers. They go into the thickets and climb up on the rocks. Every city is forsaken, and not a man dwells therein. 

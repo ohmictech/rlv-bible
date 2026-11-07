@@ -1,6 +1,6 @@
-﻿Behold, a man of God came out of Judah by God's word to Bethel; and Jeroboam was standing by the altar to burn incense. 
-He cried against the altar by God's word, and said, "Altar! Altar! God says: 'Behold, a son will be born to David's house, Josiah by name. On you he will sacrifice the priests of the high places who burn incense on you, and they will burn men's bones on you.'" 
-He gave a sign the same day, saying, "This is the sign which God has spoken: Behold, the altar will be split apart, and the ashes that are on it will be poured out." 
+﻿Look, a man of God came out of Judah by God's word to Bethel; and Jeroboam was standing by the altar to burn incense. 
+He cried against the altar by God's word, and said, "Altar! Altar! God says: 'Look, a son will be born to David's house, Josiah by name. On you he will sacrifice the priests of the high places who burn incense on you, and they will burn men's bones on you.'" 
+He gave a sign the same day, saying, "This is the sign which God has spoken: Look, the altar will be split apart, and the ashes that are on it will be poured out." 
 When the king heard the saying of the man of God, which he cried against the altar in Bethel, Jeroboam put out his hand from the altar, saying, "Seize him!" His hand, which he put out against him, dried up, so that he could not draw it back again to himself. 
 The altar was also split apart, and the ashes poured out from the altar, according to the sign which the man of God had given by God's word. 
 The king answered the man of God, "Now intercede for the favor of your God, and pray for me, that my hand may be restored to me." The man of God interceded with God, and the king's hand was restored to him, and became as it was before. 
@@ -22,7 +22,7 @@ and he cried out to the man of God who came from Judah, saying, "God says, 'Beca
 but came back, and have eaten bread and drank water in the place of which he said to you, "Eat no bread, and drink no water," your body will not come to the tomb of your fathers.'" 
 After he had eaten bread and after he drank, he saddled the donkey for the spokesman whom he had brought back. 
 When he had gone, a lion met him by the way and killed him. His body was thrown on the path, and the donkey stood by it. The lion also stood by the body. 
-Behold, men passed by and saw the body thrown on the path, and the lion standing by the body; and they came and told it in the city where the old spokesman lived. 
+Look, men passed by and saw the body thrown on the path, and the lion standing by the body; and they came and told it in the city where the old spokesman lived. 
 When the spokesman who brought him back from the way heard of it, he said, "It is the man of God who was disobedient to God's word. So God has delivered him to the lion, which has mauled him and slain him, according to God's word which he spoke to him." 
 He said to his sons, saying, "Saddle the donkey for me," and they saddled it. 
 He went and found his body thrown on the path, and the donkey and the lion standing by the body. The lion had not eaten the body nor mauled the donkey. 

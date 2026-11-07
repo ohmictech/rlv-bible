@@ -5,7 +5,7 @@ The king of Egypt made Eliakim his brother king over Judah and Jerusalem, and ch
 Jehoiakim was twenty-five years old when he began to reign, and he reigned eleven years in Jerusalem. He did that which was bad in his God's sight. 
 Nebuchadnezzar king of Babylon came up against him, and bound him in fetters to carry him to Babylon. 
 Nebuchadnezzar also carried some of the vessels of God's house to Babylon, and put them in his temple at Babylon. 
-Now the rest of the acts of Jehoiakim, and his abominations which he did, and that which was found in him, behold, they are written in the book of the kings of Israel and Judah; and Jehoiachin his son reigned in his place. 
+Now the rest of the acts of Jehoiakim, and his abominations which he did, and that which was found in him, look, they are written in the book of the kings of Israel and Judah; and Jehoiachin his son reigned in his place. 
 Jehoiachin was eight years old when he began to reign, and he reigned three months and ten days in Jerusalem. He did that which was bad in God's sight. 
 At the return of the year, King Nebuchadnezzar sent and brought him to Babylon, with the valuable vessels of God's house, and made Zedekiah his brother king over Judah and Jerusalem. 
 Zedekiah was twenty-one years old when he began to reign, and he reigned eleven years in Jerusalem. 

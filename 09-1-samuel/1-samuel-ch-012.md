@@ -1,5 +1,5 @@
-﻿Samuel said to all Israel, "Behold, I have listened to your voice in all that you said to me, and have made a king over you. 
-Now, behold, the king walks before you. I am old and gray-headed. Behold, my sons are with you. I have walked before you from my youth to this day. 
+﻿Samuel said to all Israel, "Look, I have listened to your voice in all that you said to me, and have made a king over you. 
+Now, look, the king walks before you. I am old and gray-headed. Look, my sons are with you. I have walked before you from my youth to this day. 
 Here I am. Witness against me before God and before his anointed. Whose ox have I taken? Whose donkey have I taken? Whom have I defrauded? Whom have I oppressed? Of whose hand have I taken a bribe to make me blind my eyes? I will restore it to you." 
 They said, "You have not defrauded us, nor oppressed us, neither have you taken anything from anyone's hand." 
 He said to them, "God is witness against you, and his anointed is witness today, that you have not found anything in my hand." They said, "He is witness." 
@@ -10,7 +10,7 @@ But they forgot their God; and he sold them into the hand of Sisera, captain of 
 They cried to God, and said, 'We have drifted, because we have forsaken God and have served the Baals and the Ashtaroth; but now deliver us out of the hand of our enemies, and we will serve you.' 
 God sent Jerubbaal, Bedan, Jephthah, and Samuel, and delivered you out of the hand of your enemies on every side; and you lived in safety. 
 "When you saw that Nahash the king of the children of Ammon came against you, you said to me, 'No, but a king shall reign over us,' when your God was your king. 
-Now see the king whom you have chosen and whom you have asked for. Behold, God has set a king over you. 
+Now see the king whom you have chosen and whom you have asked for. Look, God has set a king over you. 
 If you will fear God, and serve him, and listen to his voice, and not rebel against the commandment of God, then both you and also the king who reigns over you are followers of your God. 
 But if you will not listen to God's voice, but rebel against the commandment of God, then God's hand will be against you, as it was against your fathers. 
 "Now stand still and see this great thing, which God will do before your eyes. 

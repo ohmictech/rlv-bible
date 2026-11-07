@@ -18,7 +18,7 @@ It came to pass, when they had taken them out, that he said, "Escape for your li
 Lot said to them, "Oh, not so, my lord. 
 See now, your servant has found favor in your sight, and you have magnified your loving kindness, which you have shown to me in saving my life. I can't escape to the mountain, lest bad overtake me, and I die. 
 See now, this city is near to flee to, and it is a little one. Oh let me escape there (isn't it a little one?), and my soul will live." 
-He said to him, "Behold, I have granted your request concerning this thing also, that I will not overthrow the city of which you have spoken. 
+He said to him, "Look, I have granted your request concerning this thing also, that I will not overthrow the city of which you have spoken. 
 Hurry, escape there, for I can't do anything until you get there." Therefore the name of the city was called Zoar. 
 The sun had risen on the earth when Lot came to Zoar. 
 Then God rained on Sodom and on Gomorrah sulfur and fire from God out of the sky. 
@@ -31,7 +31,7 @@ Lot went up out of Zoar, and lived in the mountain, and his two daughters with h
 The firstborn said to the younger, "Our father is old, and there is not a man on the earth to come in to us in the way of all the earth. 
 Come, let's make our father drink wine, and we will lie with him, that we may preserve our father's family line." 
 They made their father drink wine that night: and the firstborn went in, and lay with her father. He didn't know when she lay down, nor when she arose. 
-It came to pass on the next day, that the firstborn said to the younger, "Behold, I lay last night with my father. Let's make him drink wine again tonight. You go in, and lie with him, that we may preserve our father's family line." 
+It came to pass on the next day, that the firstborn said to the younger, "Look, I lay last night with my father. Let's make him drink wine again tonight. You go in, and lie with him, that we may preserve our father's family line." 
 They made their father drink wine that night also. The younger went and lay with him. He didn't know when she lay down, nor when she got up. 
 Thus both of Lot's daughters were with child by their father. 
 The firstborn bore a son, and named him Moab. He is the father of the Moabites to this day. 

@@ -19,7 +19,7 @@ They arose out of Midian and came to Paran; and they took men with them out of P
 Hadad found great favor in the sight of Pharaoh, so that he gave him as wife the sister of his own wife, the sister of Tahpenes the queen. 
 The sister of Tahpenes bore him Genubath his son, whom Tahpenes weaned in Pharaoh's house; and Genubath was in Pharaoh's house among the sons of Pharaoh. 
 When Hadad heard in Egypt that David slept with his fathers, and that Joab the captain of the army was dead, Hadad said to Pharaoh, "Let me depart, that I may go to my own country." 
-Then Pharaoh said to him, "But what have you lacked with me, that behold, you seek to go to your own country?" He answered, "Nothing, however only let me depart." 
+Then Pharaoh said to him, "But what have you lacked with me, that look, you seek to go to your own country?" He answered, "Nothing, however only let me depart." 
 God raised up an adversary to him, Rezon the son of Eliada, who had fled from his lord, Hadadezer king of Zobah. 
 He gathered men to himself, and became captain over a troop, when David killed them of Zobah. They went to Damascus and lived there, and reigned in Damascus. 
 He was an adversary to Israel all the days of Solomon, in addition to the mischief of Hadad. He abhorred Israel, and reigned over Syria. 
@@ -28,7 +28,7 @@ This was the reason why he lifted up his hand against the king: Solomon built Mi
 The man Jeroboam was a mighty man of valor; and Solomon saw that the young man was industrious, and he put him in charge of all the labor of the house of Joseph. 
 At that time, when Jeroboam went out of Jerusalem, the spokesman Ahijah the Shilonite found him on the way. Now Ahijah had clad himself with a new garment; and the two of them were alone in the field. 
 Ahijah took the new garment that was on him, and tore it in twelve pieces. 
-He said to Jeroboam, "Take ten pieces; for the God of Israel says, 'Behold, I will tear the kingdom out of the hand of Solomon and will give ten tribes to you 
+He said to Jeroboam, "Take ten pieces; for the God of Israel says, 'Look, I will tear the kingdom out of the hand of Solomon and will give ten tribes to you 
 (but he shall have one tribe, for my servant David's sake and for Jerusalem's sake, the city which I have chosen out of all the tribes of Israel), 
 because they have forsaken me, and have worshiped Ashtoreth the goddess of the Sidonians, Chemosh the god of Moab, and Milcom the god of the children of Ammon. They have not walked in my ways, to do that which is right in my eyes, and to keep my statutes and my ordinances, as David his father did. 
 "'However, I will not take the whole kingdom out of his hand, but I will make him prince all the days of his life for David my servant's sake whom I chose, who kept my commandments and my statutes, 

@@ -2,7 +2,7 @@
 There were some who said, "We, our sons and our daughters, are many. Let us get grain, that we may eat and live." 
 There were also some who said, "We are mortgaging our fields, our vineyards, and our houses. Let us get grain, because of the famine." 
 There were also some who said, "We have borrowed money for the king's tribute using our fields and our vineyards as collateral. 
-Yet now our flesh is as the flesh of our brothers, our children as their children. Behold, we bring our sons and our daughters into bondage to be servants, and some of our daughters have been brought into bondage. It is also not in our power to help it, because other men have our fields and our vineyards." 
+Yet now our flesh is as the flesh of our brothers, our children as their children. Look, we bring our sons and our daughters into bondage to be servants, and some of our daughters have been brought into bondage. It is also not in our power to help it, because other men have our fields and our vineyards." 
 I was very angry when I heard their cry and these words. 
 Then I consulted with myself, and contended with the nobles and the rulers, and said to them, "You exact usury, everyone of his brother." I held a great assembly against them. 
 I said to them, "We, after our ability, have bought back our brothers the Jews that were sold to the nations; and would you even sell your brothers, and should they be sold to us?" Then they held their peace, and found not a word to say. 

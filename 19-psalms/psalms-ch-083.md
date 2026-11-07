@@ -1,5 +1,5 @@
 ﻿A song. A Psalm by Asaph. God, don't keep silent. Don't keep silent, and don't be still, God. 
-For, behold, your enemies are stirred up. Those who hate you have lifted up their heads. 
+For, look, your enemies are stirred up. Those who hate you have lifted up their heads. 
 They conspire with cunning against your people. They plot against your cherished ones. 
 "Come," they say, "let's destroy them as a nation, that the name of Israel may be remembered no more." 
 They have conspired together with one mind. They form an alliance against you. 

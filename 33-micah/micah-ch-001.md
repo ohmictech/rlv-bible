@@ -1,6 +1,6 @@
 ﻿God's word that came to Micah of Morasheth in the days of Jotham, Ahaz, and Hezekiah, kings of Judah, which he saw concerning Samaria and Jerusalem. 
 Hear, you peoples, all of you! Listen, O earth, and all that is therein. Let God be witness against you, the Lord from his holy temple. 
-Behold, God comes out of his place, and will come down and tread on the high places of the earth. 
+Look, God comes out of his place, and will come down and tread on the high places of the earth. 
 The mountains melt under him, and the valleys split apart like wax before the fire, like waters that are poured down a steep place. 
 "All this is for the disobedience of Jacob, and for the drifts of the house of Israel. What is the disobedience of Jacob? Isn't it Samaria? And what are the high places of Judah? Aren't they Jerusalem? 
 So I will make Samaria like a rubble heap of the field, like places for planting vineyards; and I will pour down its stones into the valley, and I will uncover its foundations. 

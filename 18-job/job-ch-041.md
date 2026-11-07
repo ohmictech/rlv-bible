@@ -6,7 +6,7 @@ Will you play with him as with a bird? Or will you bind him for your girls?
 Will traders barter for him? Will they part him among the merchants? 
 Can you fill his skin with barbed irons, or his head with fish spears? 
 Lay your hand on him. Remember the battle, and do so no more. 
-Behold, the hope of him is in vain. Won't one be cast down even at the sight of him? 
+Look, the hope of him is in vain. Won't one be cast down even at the sight of him? 
 None is so fierce that he dare stir him up. Who then is he who can stand before me? 
 Who has first given to me, that I should repay him? Everything under the sky is mine. 
 "I will not keep silence concerning his limbs, nor his mighty strength, nor his goodly frame. 

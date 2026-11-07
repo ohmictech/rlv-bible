@@ -27,7 +27,7 @@ All the women whose heart stirred them up in wisdom spun the goats' hair.
 The rulers brought the onyx stones and the stones to be set for the ephod and for the breastplate; 
 with the spice and the oil for the light, for the anointing oil, and for the sweet incense. 
 The children of Israel brought a free will offering to God; every man and woman whose heart made them willing to bring for all the work, which God had commanded to be made by Moses. 
-Moses said to the children of Israel, "Behold, God has called by name Bezalel the son of Uri, the son of Hur, of the tribe of Judah. 
+Moses said to the children of Israel, "Look, God has called by name Bezalel the son of Uri, the son of Hur, of the tribe of Judah. 
 He has filled him with the Spirit of God, in wisdom, in understanding, in knowledge, and in all kinds of workmanship; 
 and to make skillful works, to work in gold, in silver, in bronze, 
 in cutting of stones for setting, and in carving of wood, to work in all kinds of skillful workmanship. 

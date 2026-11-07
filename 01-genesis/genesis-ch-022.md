@@ -17,7 +17,7 @@ and said, "'I have sworn by myself,' says God, 'because you have done this thing
 that I will bless you greatly, and I will multiply your offspring greatly like the stars of the sky, and like the sand which is on the seashore. Your offspring will possess the gate of his enemies. 
 All the nations of the earth will be blessed by your offspring, because you have obeyed my voice.'" 
 So Abraham returned to his young men, and they rose up and went together to Beersheba. Abraham lived at Beersheba. 
-After these things, Abraham was told, "Behold, Milcah, she also has borne children to your brother Nahor: 
+After these things, Abraham was told, "Look, Milcah, she also has borne children to your brother Nahor: 
 Uz his firstborn, Buz his brother, Kemuel the father of Aram, 
 Chesed, Hazo, Pildash, Jidlaph, and Bethuel." 
 Bethuel became the father of Rebekah. These eight Milcah bore to Nahor, Abraham's brother. 

@@ -10,7 +10,7 @@ Be strong and behave like men, O you Philistines, that you not be servants to th
 The Philistines fought, and Israel was defeated, and each man fled to his tent. There was a very great slaughter; for thirty thousand footmen of Israel fell. 
 God's ark was taken; and the two sons of Eli, Hophni and Phinehas, were slain. 
 A man of Benjamin ran out of the army and came to Shiloh the same day, with his clothes torn and with dirt on his head. 
-When he came, behold, Eli was sitting on his seat by the road watching, for his heart trembled for God's ark. When the man came into the city and told about it, all the city cried out. 
+When he came, look, Eli was sitting on his seat by the road watching, for his heart trembled for God's ark. When the man came into the city and told about it, all the city cried out. 
 When Eli heard the noise of the crying, he said, "What does the noise of this tumult mean?" The man hurried, and came and told Eli. 
 Now Eli was ninety-eight years old. His eyes were set, so that he could not see. 
 The man said to Eli, "I am he who came out of the army, and I fled today out of the army." He said, "How did the matter go, my son?" 

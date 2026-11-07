@@ -9,8 +9,8 @@ They said to Joshua, "We are your servants." Joshua said to them, "Who are you? 
 They said to him, "Your servants have come from a very far country because of the name of your God; for we have heard of his fame, all that he did in Egypt, 
 and all that he did to the two kings of the Amorites who were beyond the Jordan, to Sihon king of Heshbon and to Og king of Bashan, who was at Ashtaroth. 
 Our elders and all the inhabitants of our country spoke to us, saying, 'Take supplies in your hand for the journey, and go to meet them. Tell them, "We are your servants. Now make a covenant with us."' 
-This our bread we took hot for our supplies out of our houses on the day we went out to go to you; but now, behold, it is dry, and has become moldy. 
-These wineskins, which we filled, were new; and behold, they are torn. These our garments and our sandals have become old because of the very long journey." 
+This our bread we took hot for our supplies out of our houses on the day we went out to go to you; but now, look, it is dry, and has become moldy. 
+These wineskins, which we filled, were new; and look, they are torn. These our garments and our sandals have become old because of the very long journey." 
 The men sampled their provisions, and didn't ask counsel from God's mouth. 
 Joshua made peace with them, and made a covenant with them, to let them live. The princes of the congregation swore to them. 
 At the end of three days after they had made a covenant with them, they heard that they were their neighbors, and that they lived among them. 
@@ -22,6 +22,6 @@ The princes said to them, "Let them live." So they became wood cutters and drawe
 Joshua called for them, and he spoke to them, saying, "Why have you deceived us, saying, 'We are very far from you,' when you live among us? 
 Now you are cursed, and some of you will never fail to be slaves, both wood cutters and drawers of water for the house of my God." 
 They answered Joshua, and said, "Because your servants were certainly told how your God commanded his servant Moses to give you all the land, and to destroy all the inhabitants of the land from before you. So we were very afraid for our lives because of you, and have done this thing. 
-Now, behold, we are in your hand. Do to us as it seems good and right to you to do." 
+Now, look, we are in your hand. Do to us as it seems good and right to you to do." 
 He did so to them, and delivered them out of the hand of the children of Israel, so that they didn't kill them. 
 That day Joshua made them wood cutters and drawers of water for the congregation and for God's altar to this day, in the place which he should choose. 

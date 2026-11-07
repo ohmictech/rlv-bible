@@ -7,7 +7,7 @@ The Egyptians mistreated us, afflicted us, and imposed hard labor on us.
 Then we cried to the God of our fathers. God heard our voice, and saw our affliction, our toil, and our oppression. 
 God brought us out of Egypt with a mighty hand, with an outstretched arm, with great terror, with signs, and with wonders; 
 and he has brought us into this place, and has given us this land, a land flowing with milk and honey. 
-Now, behold, I have brought the first of the fruit of the ground, which you, God, have given me." You shall set it down before your God, and worship before your God. 
+Now, look, I have brought the first of the fruit of the ground, which you, God, have given me." You shall set it down before your God, and worship before your God. 
 You shall rejoice in all the good which your God has given to you, and to your house, you, and the Levite, and the foreigner who is among you. 
 When you have finished tithing all the tithe of your increase in the third year, which is the year of tithing, then you shall give it to the Levite, to the foreigner, to the fatherless, and to the widow, that they may eat within your gates and be filled. 
 You shall say before your God, "I have put away the holy things out of my house, and also have given them to the Levite, to the foreigner, to the fatherless, and to the widow, according to all your commandment which you have commanded me. I have not transgressed any of your commandments, neither have I forgotten them. 

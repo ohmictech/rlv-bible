@@ -1,6 +1,6 @@
 ﻿God spoke to Moses, saying, 
 "This shall be the law of the leper in the day of his cleansing: He shall be brought to the priest, 
-and the priest shall go out of the camp. The priest shall examine him. Behold, if the plague of leprosy is healed in the leper, 
+and the priest shall go out of the camp. The priest shall examine him. Look, if the plague of leprosy is healed in the leper, 
 then the priest shall command them to take for him who is to be cleansed two living clean birds, cedar wood, scarlet, and hyssop. 
 The priest shall command them to kill one of the birds in an earthen vessel over running water. 
 As for the living bird, he shall take it, the cedar wood, the scarlet, and the hyssop, and shall dip them and the living bird in the blood of the bird that was killed over the running water. 
@@ -34,18 +34,18 @@ God spoke to Moses and to Aaron, saying,
 "When you have come into the land of Canaan, which I give to you for a possession, and I put a spreading mildew in a house in the land of your possession, 
 then he who owns the house shall come and tell the priest, saying, 'There seems to me to be some sort of plague in the house.' 
 The priest shall command that they empty the house, before the priest goes in to examine the plague, that all that is in the house not be made unclean. Afterward the priest shall go in to inspect the house. 
-He shall examine the plague; and behold, if the plague is in the walls of the house with hollow streaks, greenish or reddish, and it appears to be deeper than the wall, 
+He shall examine the plague; and look, if the plague is in the walls of the house with hollow streaks, greenish or reddish, and it appears to be deeper than the wall, 
 then the priest shall go out of the house to the door of the house, and shut up the house seven days. 
 The priest shall come again on the seventh day, and look. If the plague has spread in the walls of the house, 
 then the priest shall command that they take out the stones in which is the plague, and cast them into an unclean place outside of the city. 
 He shall cause the inside of the house to be scraped all over. They shall pour out the mortar that they scraped off outside of the city into an unclean place. 
 They shall take other stones, and put them in the place of those stones; and he shall take other mortar, and shall plaster the house. 
 "If the plague comes again, and breaks out in the house after he has taken out the stones, and after he has scraped the house, and after it was plastered, 
-then the priest shall come in and look; and behold, if the plague has spread in the house, it is a destructive mildew in the house. It is unclean. 
+then the priest shall come in and look; and look, if the plague has spread in the house, it is a destructive mildew in the house. It is unclean. 
 He shall break down the house, its stones, and its timber, and all the house's mortar. He shall carry them out of the city into an unclean place. 
 "Moreover he who goes into the house while it is shut up shall be unclean until the evening. 
 He who lies down in the house shall wash his clothes; and he who eats in the house shall wash his clothes. 
-"If the priest shall come in, and examine it, and behold, the plague hasn't spread in the house, after the house was plastered, then the priest shall pronounce the house clean, because the plague is healed. 
+"If the priest shall come in, and examine it, and look, the plague hasn't spread in the house, after the house was plastered, then the priest shall pronounce the house clean, because the plague is healed. 
 To cleanse the house he shall take two birds, cedar wood, scarlet, and hyssop. 
 He shall kill one of the birds in an earthen vessel over running water. 
 He shall take the cedar wood, the hyssop, the scarlet, and the living bird, and dip them in the blood of the slain bird, and in the running water, and sprinkle the house seven times. 

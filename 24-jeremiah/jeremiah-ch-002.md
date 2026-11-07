@@ -32,6 +32,6 @@ Generation, consider God's word. Have I been a wilderness to Israel? Or a land o
 "Can a virgin forget her ornaments, or a bride her attire? Yet my people have forgotten me for days without number. 
 How well you prepare your way to seek love! So you have even taught the guilty women your ways. 
 Also the blood of the souls of the innocent poor is found in your skirts. You didn't find them breaking in, but it is because of all these things. 
-"Yet you said, 'I am innocent. Surely his anger has turned away from me.' "Behold, I will judge you, because you say, 'I have not drifted.' 
+"Yet you said, 'I am innocent. Surely his anger has turned away from me.' "Look, I will judge you, because you say, 'I have not drifted.' 
 Why do you go about so much to change your ways? You will be ashamed of Egypt also, as you were ashamed of Assyria. 
 You will also leave that place with your hands on your head; for God has rejected those in whom you trust, and you won't prosper with them. 

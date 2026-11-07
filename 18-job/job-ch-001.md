@@ -9,14 +9,14 @@ God said to Satan, "Have you considered my servant, Job? There is no one like hi
 Then Satan answered God, and said, "Does Job fear God for nothing? 
 Haven't you made a hedge around him, and around his house, and around all that he has, on every side? You have blessed the work of his hands, and his substance is increased in the land. 
 But stretch out your hand now, and touch all that he has, and he will renounce you to your face." 
-God said to Satan, "Behold, all that he has is in your power. Only on himself don't stretch out your hand." So Satan went out from the presence of God. 
+God said to Satan, "Look, all that he has is in your power. Only on himself don't stretch out your hand." So Satan went out from the presence of God. 
 It fell on a day when his sons and his daughters were eating and drinking wine in their oldest brother's house, 
 that a messenger came to Job, and said, "The oxen were plowing, and the donkeys feeding beside them, 
 and the Sabeans attacked, and took them away. Yes, they have killed the servants with the edge of the sword, and I alone have escaped to tell you." 
 While he was still speaking, another also came and said, "The fire of God has fallen from the sky, and has burned up the sheep and the servants, and consumed them, and I alone have escaped to tell you." 
 While he was still speaking, another also came and said, "The Chaldeans made three bands, and swept down on the camels, and have taken them away, yes, and killed the servants with the edge of the sword; and I alone have escaped to tell you." 
 While he was still speaking, there came also another, and said, "Your sons and your daughters were eating and drinking wine in their oldest brother's house, 
-and behold, there came a great wind from the wilderness, and struck the four corners of the house, and it fell on the young men, and they are dead. I alone have escaped to tell you." 
+and look, there came a great wind from the wilderness, and struck the four corners of the house, and it fell on the young men, and they are dead. I alone have escaped to tell you." 
 Then Job arose, and tore his robe, and shaved his head, and fell down on the ground, and worshiped. 
 He said, "Naked I came out of my mother's womb, and naked will I return there. God gave, and God has taken away. Blessed be God's name." 
 In all this, Job didn't drift, nor charge God with wrongdoing. 

@@ -4,7 +4,7 @@ because of the voice of the enemy, because of the oppression of the guilty. They
 My heart is severely pained within me. The terrors of death have fallen on me. 
 Fearfulness and trembling have come on me. Horror has overwhelmed me. 
 I said, "Oh that I had wings like a dove! Then I would fly away, and be at rest. 
-Behold, then I would wander far off. I would lodge in the wilderness." Selah. 
+Look, then I would wander far off. I would lodge in the wilderness." Selah. 
 "I would hurry to a shelter from the stormy wind and storm." 
 Confuse them, Lord, and confound their language, for I have seen violence and strife in the city. 
 Day and night they prowl around on its walls. Malice and abuse are also within her. 

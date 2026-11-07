@@ -24,4 +24,4 @@ At the end of the year, the army of the Syrians came up against him. They came t
 The army of the Syrians came with a small company of men; and God delivered a very great army into their hand, because they had forsaken the God of their fathers. So they executed judgment on Joash. 
 When they had departed from him (for they left him seriously wounded), his own servants conspired against him for the blood of the sons of Jehoiada the priest, and killed him on his bed, and he died. They buried him in David's city, but they didn't bury him in the tombs of the kings. 
 These are those who conspired against him: Zabad the son of Shimeath the Ammonitess and Jehozabad the son of Shimrith the Moabitess. 
-Now concerning his sons, the greatness of the burdens laid on him, and the rebuilding of God's house, behold, they are written in the commentary of the book of the kings. Amaziah his son reigned in his place. 
+Now concerning his sons, the greatness of the burdens laid on him, and the rebuilding of God's house, look, they are written in the commentary of the book of the kings. Amaziah his son reigned in his place. 

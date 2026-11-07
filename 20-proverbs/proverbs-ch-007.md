@@ -7,7 +7,7 @@ At the window of my house, I looked out through my lattice.
 I saw among the simple ones. I discerned among the youths a young man void of understanding, 
 passing through the street near her corner, he went the way to her house, 
 in the twilight, in the evening of the day, in the middle of the night and in the darkness. 
-Behold, there a woman met him with the attire of a prostitute, and with crafty intent. 
+Look, there a woman met him with the attire of a prostitute, and with crafty intent. 
 She is loud and defiant. Her feet don't stay in her house. 
 Now she is in the streets, now in the squares, and lurking at every corner. 
 So she caught him, and kissed him. With an impudent face she said to him: 

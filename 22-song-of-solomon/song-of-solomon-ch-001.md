@@ -12,6 +12,6 @@ We will make you earrings of gold, with studs of silver.
 While the king sat at his table, my perfume spread its fragrance. 
 My beloved is to me a sachet of myrrh, that lies between my breasts. 
 My beloved is to me a cluster of henna blossoms from the vineyards of En Gedi. 
-Behold, you are beautiful, my love. Behold, you are beautiful. Your eyes are like doves. 
-Behold, you are beautiful, my beloved, yes, pleasant; and our couch is verdant. 
+Look, you are beautiful, my love. Look, you are beautiful. Your eyes are like doves. 
+Look, you are beautiful, my beloved, yes, pleasant; and our couch is verdant. 
 The beams of our house are cedars. Our rafters are firs. 

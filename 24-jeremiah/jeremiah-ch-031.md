@@ -5,7 +5,7 @@ I will build you again, and you will be built, O virgin of Israel. You will agai
 Again you will plant vineyards on the mountains of Samaria. The planters will plant, and will enjoy its fruit. 
 There will be a day that the watchmen on the hills of Ephraim cry, 'Arise! Let's go up to Zion to our God.'" 
 God says, "Sing with gladness for Jacob, and shout for the chief of the nations. Publish, praise, and say, 'God, save your people, the remnant of Israel!' 
-Behold, I will bring them from the north country, and gather them from the uttermost parts of the earth, along with the blind and the lame, the woman with child and her who travails with child together. They will return as a great company. 
+Look, I will bring them from the north country, and gather them from the uttermost parts of the earth, along with the blind and the lame, the woman with child and her who travails with child together. They will return as a great company. 
 They will come with weeping. I will lead them with petitions. I will cause them to walk by rivers of waters, in a straight way in which they won't stumble; for I am a father to Israel. Ephraim is my firstborn. 
 "Hear God's word, you nations, and declare it in the distant islands. Say, 'He who scattered Israel will gather him, and keep him, as a shepherd does his flock.' 
 For God has ransomed Jacob, and bought back him from the hand of him who was stronger than he. 
@@ -24,17 +24,17 @@ The God of Armies, the God of Israel says: "Yet again they will use this speech 
 Judah and all its cities will dwell therein together, the farmers, and those who go about with flocks. 
 I have satiated the weary soul, and I have replenished every sorrowful soul." 
 On this I awakened, and saw; and my sleep was sweet to me. 
-"Behold, the days come," says God, "that I will sow the house of Israel and the house of Judah with the seed of man and with the seed of animal. 
+"Look, the days come," says God, "that I will sow the house of Israel and the house of Judah with the seed of man and with the seed of animal. 
 It will happen that, like as I have watched over them to pluck up and to break down and to overthrow and to destroy and to afflict, so I will watch over them to build and to plant," says God. 
 "In those days they will say no more, "'The fathers have eaten sour grapes, and the children's teeth are set on edge.' 
 But everyone will die for his own guilt. Every man who eats the sour grapes, his teeth will be set on edge. 
-"Behold, the days come," says God, "that I will make a new covenant with the house of Israel, and with the house of Judah, 
+"Look, the days come," says God, "that I will make a new covenant with the house of Israel, and with the house of Judah, 
 not according to the covenant that I made with their fathers in the day that I took them by the hand to bring them out of the land of Egypt, which covenant of mine they broke, although I was a husband to them," says God. 
 "But this is the covenant that I will make with the house of Israel after those days," says God: "I will put my law in their inward parts, and I will write it in their heart. I will be their God, and they shall be my people. 
 They will no longer each teach his neighbor, and every man teach his brother, saying, 'Know God;' for they will all know me, from their least to their greatest," says God, "for I will forgive their guilt, and I will remember their wrongdoing no more." 
 God, who gives the sun for a light by day, and the ordinances of the moon and of the stars for a light by night, who stirs up the sea, so that its waves roar, the God of Armies is his name, says: 
 "If these ordinances depart from before me," says God, "then the offspring of Israel also will cease from being a nation before me for the eras." 
 God says: "If the sky above can be measured, and the foundations of the earth searched out beneath, then I will also cast off all the offspring of Israel for all that they have done," says God. 
-"Behold, the days come," says God, "that the city will be built to God from the tower of Hananel to the gate of the corner. 
+"Look, the days come," says God, "that the city will be built to God from the tower of Hananel to the gate of the corner. 
 The measuring line will go out further straight onward to the hill Gareb, and will turn toward Goah. 
 The whole valley of the dead bodies and of the ashes, and all the fields to the brook Kidron, to the corner of the horse gate toward the east, will be holy to God. It will not be plucked up or thrown down any more for the eras." 

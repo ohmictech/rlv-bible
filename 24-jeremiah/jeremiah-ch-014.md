@@ -10,13 +10,13 @@ Why should you be like a scared man, as a mighty man who can't save? Yet you, Go
 God says to this people: "Even so they have loved to wander. They have not restrained their feet. So God does not accept them. Now he will remember their guilt, and punish them for their mistakes." 
 God said to me, "Don't pray for this people for their good. 
 When they fast, I will not hear their cry; and when they offer burnt offering and meal offering, I will not accept them; but I will consume them by the sword, by famine, and by pestilence." 
-Then I said, "Ah, God! Behold, the spokesmen tell them, 'You will not see the sword, neither will you have famine; but I will give you assured peace in this place.'" 
+Then I said, "Ah, God! Look, the spokesmen tell them, 'You will not see the sword, neither will you have famine; but I will give you assured peace in this place.'" 
 Then God said to me, "The spokesmen prophesy lies in my name. I didn't send them. I didn't command them. I didn't speak to them. They prophesy to you a lying vision, divination, and a thing of nothing, and the deceit of their own heart. 
 So God says concerning the spokesmen who prophesy in my name, but I didn't send them, yet they say, 'Sword and famine will not be in this land.' Those spokesmen will be consumed by sword and famine. 
 The people to whom they prophesy will be cast out in the streets of Jerusalem because of the famine and the sword. They will have no one to bury them, them, their wives, their sons, or their daughters, for I will pour their guilt on them. 
 "You shall say this word to them: "'Let my eyes run down with tears night and day, and let them not cease; for the virgin daughter of my people is broken with a great breach, with a very grievous wound. 
-If I go out into the field, then behold, the slain with the sword! If I enter into the city, then behold, those who are sick with famine! Both the spokesman and the priest go about in the land, and have no knowledge.'" 
-Have you utterly rejected Judah? Has your soul loathed Zion? Why have you struck us, and there is no healing for us? We looked for peace, but no good came; and for a time of healing, and behold, dismay! 
+If I go out into the field, then look, the slain with the sword! If I enter into the city, then look, those who are sick with famine! Both the spokesman and the priest go about in the land, and have no knowledge.'" 
+Have you utterly rejected Judah? Has your soul loathed Zion? Why have you struck us, and there is no healing for us? We looked for peace, but no good came; and for a time of healing, and look, dismay! 
 We acknowledge, God, our guilt, and the guilt of our fathers; for we have wronged you. 
 Do not abhor us, for your name's sake. Do not disgrace the throne of your glory. Remember, and don't break your covenant with us. 
 Are there any among the vanities of the nations that can cause rain? Or can the sky give showers? Aren't you he, our God? So we will wait for you; for you have made all these things. 

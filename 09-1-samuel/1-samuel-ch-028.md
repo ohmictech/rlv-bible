@@ -4,9 +4,9 @@ Now Samuel was dead, and all Israel had mourned for him and buried him in Ramah,
 The Philistines gathered themselves together, and came and encamped in Shunem; and Saul gathered all Israel together, and they encamped in Gilboa. 
 When Saul saw the army of the Philistines, he was afraid, and his heart trembled greatly. 
 When Saul inquired of God, God didn't answer him by dreams, by Urim, or by spokesmen. 
-Then Saul said to his servants, "Seek for me a woman who has a familiar spirit, that I may go to her and inquire of her." His servants said to him, "Behold, there is a woman who has a familiar spirit at Endor." 
+Then Saul said to his servants, "Seek for me a woman who has a familiar spirit, that I may go to her and inquire of her." His servants said to him, "Look, there is a woman who has a familiar spirit at Endor." 
 Saul disguised himself and put on other clothing, and went, he and two men with him, and they came to the woman by night. Then he said, "Please consult for me by the familiar spirit, and bring me up whomever I shall name to you." 
-The woman said to him, "Behold, you know what Saul has done, how he has cut off those who have familiar spirits and the wizards out of the land. Why then do you lay a snare for my life, to cause me to die?" 
+The woman said to him, "Look, you know what Saul has done, how he has cut off those who have familiar spirits and the wizards out of the land. Why then do you lay a snare for my life, to cause me to die?" 
 Saul swore to her by God, saying, "As God lives, no punishment will happen to you for this thing." 
 Then the woman said, "Whom shall I bring up to you?" He said, "Bring Samuel up for me." 
 When the woman saw Samuel, she cried with a loud voice; and the woman spoke to Saul, saying, "Why have you deceived me? You are Saul!" 
@@ -18,7 +18,7 @@ God has done to you as he spoke by me. God has torn the kingdom out of your hand
 Because you didn't obey God's voice, and didn't execute his fierce wrath on Amalek, God has done this thing to you today. 
 Moreover God will deliver Israel also with you into the hand of the Philistines; and tomorrow you and your sons will be with me. God will deliver the army of Israel also into the hand of the Philistines." 
 Then Saul fell immediately his full length on the earth, and was terrified, because of Samuel's words. There was no strength in him, for he had eaten no bread all day long or all night long. 
-The woman came to Saul and saw that he was very troubled, and said to him, "Behold, your servant has listened to your voice, and I have put my life in my hand, and have listened to your words which you spoke to me. 
+The woman came to Saul and saw that he was very troubled, and said to him, "Look, your servant has listened to your voice, and I have put my life in my hand, and have listened to your words which you spoke to me. 
 Now, please listen also to the voice of your servant, and let me set a morsel of bread before you. Eat, that you may have strength when you go on your way." 
 But he refused, and said, "I will not eat." But his servants, together with the woman, constrained him; and he listened to their voice. So he arose from the earth and sat on the bed. 
 The woman had a fattened calf in the house. She hurried and killed it; and she took flour and kneaded it, and baked unleavened bread of it. 

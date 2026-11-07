@@ -1,4 +1,4 @@
-﻿Then all Israel gathered themselves to David to Hebron, saying, "Behold, we are your bone and your flesh. 
+﻿Then all Israel gathered themselves to David to Hebron, saying, "Look, we are your bone and your flesh. 
 In times past, even when Saul was king, it was you who led out and brought in Israel. Your God said to you, 'You shall be shepherd of my people Israel, and you shall be prince over my people Israel.'" 
 So all the elders of Israel came to the king to Hebron; and David made a covenant with them in Hebron before God. They anointed David king over Israel, according to God's word by Samuel. 
 David and all Israel went to Jerusalem (also called Jebus); and the Jebusites, the inhabitants of the land, were there. 
@@ -22,7 +22,7 @@ Of the three, he was more honorable than the two, and was made their captain; ho
 Benaiah the son of Jehoiada, the son of a valiant man of Kabzeel, who had done mighty deeds, killed the two sons of Ariel of Moab. He also went down and killed a lion in the middle of a pit on a snowy day. 
 He killed an Egyptian, a man of great stature, five cubits high. In the Egyptian's hand was a spear like a weaver's beam; and he went down to him with a staff, plucked the spear out of the Egyptian's hand, and killed him with his own spear. 
 Benaiah the son of Jehoiada did these things and had a name among the three mighty men. 
-Behold, he was more honorable than the thirty, but he didn't attain to the three; and David set him over his guard. 
+Look, he was more honorable than the thirty, but he didn't attain to the three; and David set him over his guard. 
 The mighty men of the armies also include Asahel the brother of Joab, Elhanan the son of Dodo of Bethlehem, 
 Shammoth the Harorite, Helez the Pelonite, 
 Ira the son of Ikkesh the Tekoite, Abiezer the Anathothite, 

@@ -15,8 +15,8 @@ Now after this, he built an outer wall to David's city on the west side of Gihon
 He took away the foreign gods and the idol out of God's house, and all the altars that he had built in the mountain of God's house and in Jerusalem, and cast them out of the city. 
 He built up God's altar, and offered sacrifices of offerings for wholeness and of thanksgiving on it, and commanded Judah to serve the God of Israel. 
 Nevertheless the people still sacrificed in the high places, but only to their God. 
-Now the rest of the acts of Manasseh, and his prayer to his God, and the words of the seers who spoke to him in the name of the God of Israel, behold, they are written among the acts of the kings of Israel. 
-His prayer also, and how God listened to his request, and all his wrongdoing and his trespass, and the places in which he built high places and set up the Asherah poles and the engraved images before he humbled himself: behold, they are written in the history of Hozai. 
+Now the rest of the acts of Manasseh, and his prayer to his God, and the words of the seers who spoke to him in the name of the God of Israel, look, they are written among the acts of the kings of Israel. 
+His prayer also, and how God listened to his request, and all his wrongdoing and his trespass, and the places in which he built high places and set up the Asherah poles and the engraved images before he humbled himself: look, they are written in the history of Hozai. 
 So Manasseh slept with his fathers, and they buried him in his own house; and Amon his son reigned in his place. 
 Amon was twenty-two years old when he began to reign; and he reigned two years in Jerusalem. 
 He did that which was bad in God's sight, as did Manasseh his father; and Amon sacrificed to all the engraved images which Manasseh his father had made, and served them. 

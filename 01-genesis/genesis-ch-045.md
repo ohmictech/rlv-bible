@@ -9,7 +9,7 @@ So now it wasn't you who sent me here, but God, and he has made me a father to P
 Hurry, and go up to my father, and tell him, 'This is what your son Joseph says, "God has made me lord of all Egypt. Come down to me. Don't wait. 
 You shall dwell in the land of Goshen, and you will be near to me, you, your children, your children's children, your flocks, your herds, and all that you have. 
 There I will provide for you; for there are yet five years of famine; lest you come to poverty, you, and your household, and all that you have."' 
-Behold, your eyes see, and the eyes of my brother Benjamin, that it is my mouth that speaks to you. 
+Look, your eyes see, and the eyes of my brother Benjamin, that it is my mouth that speaks to you. 
 You shall tell my father of all my glory in Egypt, and of all that you have seen. You shall hurry and bring my father down here." 
 He fell on his brother Benjamin's neck and wept, and Benjamin wept on his neck. 
 He kissed all his brothers, and wept on them. After that his brothers talked with him. 

@@ -4,7 +4,7 @@ Go in to the king and speak like this to him." So Joab put the words in her mout
 When the woman of Tekoa spoke to the king, she fell on her face to the ground, showed respect, and said, "Help, O king!" 
 The king said to her, "What ails you?" She answered, "Truly I am a widow, and my husband is dead. 
 Your servant had two sons; and they both fought together in the field, and there was no one to part them, but the one struck the other and killed him. 
-Behold, the whole family has risen against your servant, and they say, 'Deliver him who struck his brother, that we may kill him for the life of his brother whom he killed, and so destroy the heir also.' Thus they would quench my coal which is left, and would leave to my husband neither name nor remainder on the surface of the earth." 
+Look, the whole family has risen against your servant, and they say, 'Deliver him who struck his brother, that we may kill him for the life of his brother whom he killed, and so destroy the heir also.' Thus they would quench my coal which is left, and would leave to my husband neither name nor remainder on the surface of the earth." 
 The king said to the woman, "Go to your house, and I will give a command concerning you." 
 The woman of Tekoa said to the king, "My lord, O king, may the guilt be on me, and on my father's house; and may the king and his throne be guiltless." 
 The king said, "Whoever says anything to you, bring him to me, and he will not bother you any more." 
@@ -18,7 +18,7 @@ Then your servant said, 'Please let the word of my lord the king bring rest; for
 Then the king answered the woman, "Please don't hide anything from me that I ask you." The woman said, "Let my lord the king now speak." 
 The king said, "Is the hand of Joab with you in all this?" The woman answered, "As your soul lives, my lord the king, no one can turn to the right hand or to the left from anything that my lord the king has spoken; for your servant Joab urged me, and he put all these words in the mouth of your servant. 
 Your servant Joab has done this thing to change the face of the matter. My lord is wise, according to the wisdom of an messenger of God, to know all things that are on the earth." 
-The king said to Joab, "Behold now, I have granted this thing. Go, and bring the young man Absalom back." 
+The king said to Joab, "Look now, I have granted this thing. Go, and bring the young man Absalom back." 
 Joab fell to the ground on his face, showed respect, and blessed the king. Joab said, "Today your servant knows that I have found favor in your sight, my lord, O king, in that the king has performed the request of his servant." 
 So Joab arose and went to Geshur, and brought Absalom to Jerusalem. 
 The king said, "Let him return to his own house, but let him not see my face." So Absalom returned to his own house, and didn't see the king's face. 
@@ -27,7 +27,7 @@ When he cut the hair of his head (now it was at every year's end that he cut it;
 Three sons were born to Absalom, and one daughter, whose name was Tamar. She was a woman with a beautiful face. 
 Absalom lived two full years in Jerusalem, and he didn't see the king's face. 
 Then Absalom sent for Joab, to send him to the king, but he would not come to him. Then he sent again a second time, but he would not come. 
-So he said to his servants, "Behold, Joab's field is near mine, and he has barley there. Go and set it on fire." So Absalom's servants set the field on fire. 
+So he said to his servants, "Look, Joab's field is near mine, and he has barley there. Go and set it on fire." So Absalom's servants set the field on fire. 
 Then Joab arose and came to Absalom to his house, and said to him, "Why have your servants set my field on fire?" 
-Absalom answered Joab, "Behold, I sent to you, saying, 'Come here, that I may send you to the king, to say, "Why have I come from Geshur? It would be better for me to be there still. Now, let me see the king's face; and if there is guilt in me, let him kill me."'" 
+Absalom answered Joab, "Look, I sent to you, saying, 'Come here, that I may send you to the king, to say, "Why have I come from Geshur? It would be better for me to be there still. Now, let me see the king's face; and if there is guilt in me, let him kill me."'" 
 So Joab came to the king and told him; and when he had called for Absalom, he came to the king and bowed himself on his face to the ground before the king; and the king kissed Absalom. 

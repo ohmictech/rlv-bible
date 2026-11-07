@@ -18,7 +18,7 @@ He said, "Open the window eastward;" and he opened it. Then Elisha said, "Shoot!
 He said, "Take the arrows;" and he took them. He said to the king of Israel, "Strike the ground;" and he struck three times, and stopped. 
 The man of God was angry with him, and said, "You should have struck five or six times. Then you would have struck Syria until you had consumed it, but now you will strike Syria just three times." 
 Elisha died, and they buried him. Now the bands of the Moabites invaded the land at the coming in of the year. 
-As they were burying a man, behold, they saw a band of raiders; and they threw the man into Elisha's tomb. As soon as the man touched Elisha's bones, he revived, and stood up on his feet. 
+As they were burying a man, look, they saw a band of raiders; and they threw the man into Elisha's tomb. As soon as the man touched Elisha's bones, he revived, and stood up on his feet. 
 Hazael king of Syria oppressed Israel all the days of Jehoahaz. 
 But God was gracious to them, and had compassion on them, and favored them because of his covenant with Abraham, Isaac, and Jacob, and would not destroy them and he didn't cast them from his presence as yet. 
 Hazael king of Syria died; and Benhadad his son reigned in his place. 

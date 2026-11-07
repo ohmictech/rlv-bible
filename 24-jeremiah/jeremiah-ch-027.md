@@ -13,7 +13,7 @@ I spoke to Zedekiah king of Judah according to all these words, saying, "Bring y
 Why will you die, you and your people, by the sword, by the famine, and by the pestilence, as God has spoken concerning the nation that will not serve the king of Babylon? 
 Don't listen to the words of the spokesmen who speak to you, saying, 'You shall not serve the king of Babylon;' for they prophesy a lie to you. 
 I have not sent them," says God, "but they prophesy falsely in my name; that I may drive you out, and that you may perish, you, and the spokesmen who prophesy to you." 
-Also I spoke to the priests and to all this people, saying, God says, "Don't listen to the words of your spokesmen who prophesy to you, saying, 'Behold, the vessels of God's house will now shortly be brought again from Babylon;' for they prophesy a lie to you. 
+Also I spoke to the priests and to all this people, saying, God says, "Don't listen to the words of your spokesmen who prophesy to you, saying, 'Look, the vessels of God's house will now shortly be brought again from Babylon;' for they prophesy a lie to you. 
 Don't listen to them. Serve the king of Babylon, and live. Why should this city become a desolation? 
 But if they are spokesmen, and if God's word is with them, let them now make intercession to the God of Armies, that the vessels which are left in God's house, in the house of the king of Judah, and at Jerusalem, don't go to Babylon. 
 The God of Armies says concerning the pillars, concerning the sea, concerning the bases, and concerning the rest of the vessels that are left in this city, 

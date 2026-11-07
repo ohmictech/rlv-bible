@@ -2,12 +2,12 @@
 "You, son of man, God says to the land of Israel, 'An end! The end has come on the four corners of the land. 
 Now the end is on you, and I will send my anger on you, and will judge you according to your ways. I will bring on you all your abominations. 
 My eye will not spare you, neither will I have pity; but I will bring your ways on you, and your abominations will be among you. Then you will know that I am God.' 
-"The God says: 'A disaster! A unique disaster! Behold, it comes. 
-An end has come. The end has come! It awakes against you. Behold, it comes. 
+"The God says: 'A disaster! A unique disaster! Look, it comes. 
+An end has come. The end has come! It awakes against you. Look, it comes. 
 Your doom has come to you, inhabitant of the land! The time has come! The day is near, a day of tumult, and not of joyful shouting, on the mountains. 
 Now I will shortly pour out my wrath on you, and accomplish my anger against you, and will judge you according to your ways. I will bring on you all your abominations. 
 My eye won't spare, neither will I have pity. I will punish you according to your ways. Your abominations will be among you. Then you will know that I, God, strike. 
-"'Behold, the day! Behold, it comes! Your doom has gone out. The rod has blossomed. Pride has budded. 
+"'Look, the day! Look, it comes! Your doom has gone out. The rod has blossomed. Pride has budded. 
 Violence has risen up into a rod of guilt. None of them will remain, nor of their multitude, nor of their wealth. There will be nothing of value among them. 
 The time has come! The day draws near. Don't let the buyer rejoice, nor the seller mourn; for wrath is on all its multitude. 
 The seller won't return to that which is sold, although they are still alive; for the vision concerns the whole multitude of it. None will return. None will strengthen himself in the guilt of his life. 

@@ -15,11 +15,11 @@ Every man has become brutish and without knowledge. Every goldsmith is disappoin
 They are vanity, a work of delusion. In the time of their visitation they will perish. 
 The portion of Jacob is not like these; for he is the maker of all things; and Israel is the tribe of his inheritance. The God of Armies is his name. 
 Gather up your wares out of the land, you who live under siege. 
-God says, "Behold, I will sling out the inhabitants of the land at this time, and will distress them, that they may feel it." 
+God says, "Look, I will sling out the inhabitants of the land at this time, and will distress them, that they may feel it." 
 Woe is me because of my injury! My wound is serious; but I said, "Truly this is my grief, and I must bear it." 
 My tent has been destroyed, and all my cords are broken. My children have gone away from me, and they are no more. There is no one to spread my tent any more, to set up my curtains. 
 The shepherds have become brutish, and have not inquired of God. So they have not prospered, and all their flocks have scattered. 
-The voice of news, behold, it comes, and a great commotion out of the north country, to make the cities of Judah a desolation, a dwelling place of jackals. 
+The voice of news, look, it comes, and a great commotion out of the north country, to make the cities of Judah a desolation, a dwelling place of jackals. 
 God, I know that the way of man is not in himself. It is not in man who walks to direct his steps. 
 God, correct me, but gently; not in your anger, lest you reduce me to nothing. 
 Pour out your wrath on the nations that don't know you, and on the families that don't call on your name; for they have devoured Jacob. Yes, they have devoured him, consumed him, and have laid waste his habitation. 

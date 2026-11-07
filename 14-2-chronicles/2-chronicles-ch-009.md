@@ -3,7 +3,7 @@ Solomon answered all her questions. There wasn't anything hidden from Solomon wh
 When the queen of Sheba had seen the wisdom of Solomon, the house that he had built, 
 the food of his table, the seating of his servants, the attendance of his ministers, their clothing, his cup bearers and their clothing, and his ascent by which he went up to God's house, there was no more spirit in her. 
 She said to the king, "It was a true report that I heard in my own land of your acts and of your wisdom. 
-However I didn't believe their words until I came, and my eyes had seen it; and behold half of the greatness of your wisdom wasn't told me. You exceed the fame that I heard! 
+However I didn't believe their words until I came, and my eyes had seen it; and look half of the greatness of your wisdom wasn't told me. You exceed the fame that I heard! 
 Happy are your men, and happy are these your servants, who stand continually before you and hear your wisdom. 
 Blessed be your God, who delighted in you and set you on his throne to be king for your God, because your God loved Israel, to establish them for the eras. So he made you king over them, to do justice and righteousness." 
 She gave the king one hundred and twenty talents of gold, spices in great abundance, and precious stones. There was never before such spice as the queen of Sheba gave to King Solomon. 

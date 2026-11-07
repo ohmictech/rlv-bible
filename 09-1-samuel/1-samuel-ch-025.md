@@ -11,13 +11,13 @@ Nabal answered David's servants and said, "Who is David? Who is the son of Jesse
 Shall I then take my bread, my water, and my meat that I have killed for my shearers, and give it to men who I don't know where they come from?" 
 So David's young men turned on their way and went back, and came and told him all these words. 
 David said to his men, "Every man put on his sword!" Every man put on his sword. David also put on his sword. About four hundred men followed David, and two hundred stayed by the baggage. 
-But one of the young men told Abigail, Nabal's wife, saying, "Behold, David sent messengers out of the wilderness to greet our master; and he insulted them. 
+But one of the young men told Abigail, Nabal's wife, saying, "Look, David sent messengers out of the wilderness to greet our master; and he insulted them. 
 But the men were very good to us, and we were not harmed, and we didn't miss anything as long as we went with them, when we were in the fields. 
 They were a wall to us both by night and by day, all the while we were with them keeping the sheep. 
 Now know and consider what you will do; for bad is determined against our master and against all his house, for he is such a worthless fellow that one can't speak to him." 
 Then Abigail hurried and took two hundred loaves of bread, two containers of wine, five sheep ready dressed, five seahs of parched grain, one hundred clusters of raisins, and two hundred cakes of figs, and laid them on donkeys. 
-She said to her young men, "Go on before me. Behold, I am coming after you." But she didn't tell her husband, Nabal. 
-As she rode on her donkey, and came down hidden by the mountain, behold, David and his men came down toward her, and she met them. 
+She said to her young men, "Go on before me. Look, I am coming after you." But she didn't tell her husband, Nabal. 
+As she rode on her donkey, and came down hidden by the mountain, look, David and his men came down toward her, and she met them. 
 Now David had said, "Surely in vain I have kept all that this fellow has in the wilderness, so that nothing was missed of all that pertained to him. He has returned me bad for good. 
 God do so to the enemies of David, and more also, if I leave of all that belongs to him by the morning light so much as one who urinates on a wall." 
 When Abigail saw David, she hurried and got off her donkey, and fell before David on her face and bowed herself to the ground. 
@@ -32,13 +32,13 @@ that this shall be no grief to you, nor offense of heart to my lord, either that
 David said to Abigail, "Blessed is the God of Israel, who sent you today to meet me! 
 Blessed is your discretion, and blessed are you, who have kept me today from blood guiltiness, and from avenging myself with my own hand. 
 Indeed, as God the God of Israel lives, who has withheld me from harming you, unless you had hurried and come to meet me, surely there wouldn't have been left to Nabal by the morning light so much as one who urinates on a wall." 
-So David received from her hand that which she had brought him. Then he said to her, "Go up in peace to your house. Behold, I have listened to your voice and have granted your request." 
-Abigail came to Nabal; and behold, he held a feast in his house like the feast of a king. Nabal's heart was merry within him, for he was very drunk. So she told him nothing until the morning light. 
+So David received from her hand that which she had brought him. Then he said to her, "Go up in peace to your house. Look, I have listened to your voice and have granted your request." 
+Abigail came to Nabal; and look, he held a feast in his house like the feast of a king. Nabal's heart was merry within him, for he was very drunk. So she told him nothing until the morning light. 
 In the morning, when the wine had gone out of Nabal, his wife told him these things; and his heart died within him, and he became as a stone. 
 About ten days later, God struck Nabal, so that he died. 
 When David heard that Nabal was dead, he said, "Blessed is God, who has pleaded the cause of my reproach from the hand of Nabal, and has kept back his servant from what is bad. God has returned the bad Nabal did on his own head." David sent and spoke concerning Abigail, to take her to himself as wife. 
 When David's servants had come to Abigail to Carmel, they spoke to her, saying, "David has sent us to you, to take you to him as wife." 
-She arose and bowed herself with her face to the earth, and said, "Behold, your servant is a servant to wash the feet of the servants of my lord." 
+She arose and bowed herself with her face to the earth, and said, "Look, your servant is a servant to wash the feet of the servants of my lord." 
 Abigail hurriedly arose and rode on a donkey with her five maids who followed her; and she went after the messengers of David, and became his wife. 
 David also took Ahinoam of Jezreel; and they both became his wives. 
 Now Saul had given Michal his daughter, David's wife, to Palti the son of Laish, who was of Gallim. 

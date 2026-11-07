@@ -30,5 +30,5 @@ They have gone over the pass. They have taken up their lodging at Geba. Ramah tr
 Cry aloud with your voice, daughter of Gallim! Listen, Laishah! You poor Anathoth! 
 Madmenah is a fugitive. The inhabitants of Gebim flee for safety. 
 This very day he will halt at Nob. He shakes his hand at the mountain of the daughter of Zion, the hill of Jerusalem. 
-Behold, the Lord, GOD of Armies, will lop the boughs with terror. The tall will be cut down, and the lofty will be brought low. 
+Look, the Lord, GOD of Armies, will lop the boughs with terror. The tall will be cut down, and the lofty will be brought low. 
 He will cut down the thickets of the forest with iron, and Lebanon will fall by the Mighty One. 

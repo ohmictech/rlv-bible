@@ -16,7 +16,7 @@ He will lean on his house, but it will not stand. He will cling to it, but it wi
 He is green before the sun. His shoots go out along his garden. 
 His roots are wrapped around the rock pile. He sees the place of stones. 
 If he is destroyed from his place, then it will deny him, saying, 'I have not seen you.' 
-Behold, this is the joy of his way. Out of the earth, others will spring. 
-"Behold, God will not cast away a blameless man, neither will he uphold the those who do bad. 
+Look, this is the joy of his way. Out of the earth, others will spring. 
+"Look, God will not cast away a blameless man, neither will he uphold the those who do bad. 
 He will still fill your mouth with laughter, your lips with shouting. 
 Those who hate you will be clothed with shame. The tent of the guilty will be no more." 

@@ -6,7 +6,7 @@ A sword will come on Egypt, and anguish will be in Ethiopia, when the slain fall
 "'God says: "They also who uphold Egypt will fall. The pride of her power will come down. They will fall by the sword in it from the tower of Seveneh," says God. 
 "They will be desolate in the middle of the countries that are desolate. Her cities will be among the cities that are wasted. 
 They will know that I am God when I have set a fire in Egypt, and all her helpers are destroyed. 
-"'"In that day messengers will go out from before me in ships to make the careless Ethiopians afraid. There will be anguish on them, as in the day of Egypt; for, behold, it comes." 
+"'"In that day messengers will go out from before me in ships to make the careless Ethiopians afraid. There will be anguish on them, as in the day of Egypt; for, look, it comes." 
 "'The God says: "I will also make the multitude of Egypt to cease, by the hand of Nebuchadnezzar king of Babylon. 
 He and his people with him, the terrible of the nations, will be brought in to destroy the land. They will draw their swords against Egypt, and fill the land with the slain. 
 I will make the rivers dry, and will sell the land into the hand of bad men. I will make the land desolate, and all that is therein, by the hand of foreigners. I, God, have spoken it." 
@@ -18,8 +18,8 @@ The young men of Aven and of Pibeseth will fall by the sword. They will go into 
 At Tehaphnehes also the day will withdraw itself, when I break the yokes of Egypt there. The pride of her power will cease in her. As for her, a cloud will cover her, and her daughters will go into captivity. 
 Thus I will execute judgments on Egypt. Then they will know that I am God."'" 
 In the eleventh year, in the first month, in the seventh day of the month, God's word came to me, saying, 
-"Son of man, I have broken the arm of Pharaoh king of Egypt. Behold, it has not been bound up, to apply medicines, to put a bandage to bind it, that it may become strong to hold the sword. 
-So God says: 'Behold, I am against Pharaoh king of Egypt, and will break his arms, the strong arm, and that which was broken. I will cause the sword to fall out of his hand. 
+"Son of man, I have broken the arm of Pharaoh king of Egypt. Look, it has not been bound up, to apply medicines, to put a bandage to bind it, that it may become strong to hold the sword. 
+So God says: 'Look, I am against Pharaoh king of Egypt, and will break his arms, the strong arm, and that which was broken. I will cause the sword to fall out of his hand. 
 I will scatter the Egyptians among the nations, and will disperse them through the countries. 
 I will strengthen the arms of the king of Babylon, and put my sword in his hand; but I will break the arms of Pharaoh, and he will groan before the king of Babylon with the groaning of a mortally wounded man. 
 I will hold up the arms of the king of Babylon, but the arms of Pharaoh will fall down. Then they will know that I am God when I put my sword into the hand of the king of Babylon, and he stretches it out on the land of Egypt. 

@@ -6,7 +6,7 @@ So you shall make images of your tumors and images of your mice that mar the lan
 Why then do you harden your hearts as the Egyptians and Pharaoh hardened their hearts? When he had worked wonderfully among them, didn't they let the people go, and they departed? 
 "Now take and prepare yourselves a new cart and two milk cows on which there has come no yoke; and tie the cows to the cart, and bring their calves home from them; 
 and take God's ark and lay it on the cart. Put the jewels of gold, which you return him for a trespass offering, in a box by its side; and send it away, that it may go. 
-Behold, if it goes up by the way of its own border to Beth Shemesh, then he has done us this great bad; but if not, then we shall know that it is not his hand that struck us. It was a chance that happened to us." 
+Look, if it goes up by the way of its own border to Beth Shemesh, then he has done us this great bad; but if not, then we shall know that it is not his hand that struck us. It was a chance that happened to us." 
 The men did so, and took two milk cows and tied them to the cart, and shut up their calves at home. 
 They put God's ark on the cart, and the box with the golden mice and the images of their tumors. 
 The cows took the straight way by the way to Beth Shemesh. They went along the highway, lowing as they went, and didn't turn away to the right hand or to the left; and the lords of the Philistines went after them to the border of Beth Shemesh. 

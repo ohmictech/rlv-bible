@@ -1,10 +1,10 @@
-﻿At the end of two full years, Pharaoh dreamed, and behold, he stood by the river. 
-Behold, seven cattle came up out of the river. They were sleek and fat, and they fed in the marsh grass. 
-Behold, seven other cattle came up after them out of the river, ugly and thin, and stood by the other cattle on the brink of the river. 
+﻿At the end of two full years, Pharaoh dreamed, and look, he stood by the river. 
+Look, seven cattle came up out of the river. They were sleek and fat, and they fed in the marsh grass. 
+Look, seven other cattle came up after them out of the river, ugly and thin, and stood by the other cattle on the brink of the river. 
 The ugly and thin cattle ate up the seven sleek and fat cattle. So Pharaoh awoke. 
-He slept and dreamed a second time; and behold, seven heads of grain came up on one stalk, healthy and good. 
-Behold, seven heads of grain, thin and blasted with the east wind, sprung up after them. 
-The thin heads of grain swallowed up the seven healthy and full ears. Pharaoh awoke, and behold, it was a dream. 
+He slept and dreamed a second time; and look, seven heads of grain came up on one stalk, healthy and good. 
+Look, seven heads of grain, thin and blasted with the east wind, sprung up after them. 
+The thin heads of grain swallowed up the seven healthy and full ears. Pharaoh awoke, and look, it was a dream. 
 In the morning, his spirit was troubled, and he sent and called for all of Egypt's magicians and wise men. Pharaoh told them his dreams, but there was no one who could interpret them to Pharaoh. 
 Then the chief cup bearer spoke to Pharaoh, saying, "I remember my faults today. 
 Pharaoh was angry with his servants, and put me in custody in the house of the captain of the guard, with the chief baker. 
@@ -14,19 +14,19 @@ As he interpreted to us, so it was. He restored me to my office, and he hanged h
 Then Pharaoh sent and called Joseph, and they brought him hastily out of the dungeon. He shaved himself, changed his clothing, and came in to Pharaoh. 
 Pharaoh said to Joseph, "I have dreamed a dream, and there is no one who can interpret it. I have heard it said of you, that when you hear a dream you can interpret it." 
 Joseph answered Pharaoh, saying, "It isn't in me. God will give Pharaoh an answer of peace." 
-Pharaoh spoke to Joseph, "In my dream, behold, I stood on the brink of the river; 
-and behold, seven fat and sleek cattle came up out of the river. They fed in the marsh grass; 
-and behold, seven other cattle came up after them, poor and very ugly and thin, such as I never saw in all the land of Egypt for ugliness. 
+Pharaoh spoke to Joseph, "In my dream, look, I stood on the brink of the river; 
+and look, seven fat and sleek cattle came up out of the river. They fed in the marsh grass; 
+and look, seven other cattle came up after them, poor and very ugly and thin, such as I never saw in all the land of Egypt for ugliness. 
 The thin and ugly cattle ate up the first seven fat cattle; 
 and when they had eaten them up, it couldn't be known that they had eaten them, but they were still ugly, as at the beginning. So I awoke. 
-I saw in my dream, and behold, seven heads of grain came up on one stalk, full and good; 
-and behold, seven heads of grain, withered, thin, and blasted with the east wind, sprung up after them. 
+I saw in my dream, and look, seven heads of grain came up on one stalk, full and good; 
+and look, seven heads of grain, withered, thin, and blasted with the east wind, sprung up after them. 
 The thin heads of grain swallowed up the seven good heads of grain. I told it to the magicians, but there was no one who could explain it to me." 
 Joseph said to Pharaoh, "The dream of Pharaoh is one. What God is about to do he has declared to Pharaoh. 
 The seven good cattle are seven years; and the seven good heads of grain are seven years. The dream is one. 
 The seven thin and ugly cattle that came up after them are seven years, and also the seven empty heads of grain blasted with the east wind; they will be seven years of famine. 
 That is the thing which I have spoken to Pharaoh. God has shown Pharaoh what he is about to do. 
-Behold, seven years of great plenty throughout all the land of Egypt are coming. 
+Look, seven years of great plenty throughout all the land of Egypt are coming. 
 Seven years of famine will arise after them, and all the plenty will be forgotten in the land of Egypt. The famine will consume the land, 
 and the plenty will not be known in the land by reason of that famine which follows; for it will be very grievous. 
 The dream was doubled to Pharaoh, because the thing is established by God, and God will shortly bring it to pass. 
@@ -38,7 +38,7 @@ The thing was good in the eyes of Pharaoh, and in the eyes of all his servants.
 Pharaoh said to his servants, "Can we find such a one as this, a man in whom is the Spirit of God?" 
 Pharaoh said to Joseph, "Because God has shown you all of this, there is no one so discreet and wise as you. 
 You shall be over my house. All my people will be ruled according to your word. Only in the throne I will be greater than you." 
-Pharaoh said to Joseph, "Behold, I have set you over all the land of Egypt." 
+Pharaoh said to Joseph, "Look, I have set you over all the land of Egypt." 
 Pharaoh took off his signet ring from his hand, and put it on Joseph's hand, and arrayed him in robes of fine linen, and put a gold chain about his neck. 
 He made him ride in the second chariot which he had. They cried before him, "Bow the knee!" He set him over all the land of Egypt. 
 Pharaoh said to Joseph, "I am Pharaoh. Without you, no man shall lift up his hand or his foot in all the land of Egypt." 

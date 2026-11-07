@@ -21,14 +21,14 @@ When you come near the border of the children of Ammon, don't bother them, nor c
 a great people, many, and tall, as the Anakim; but God destroyed them from before Israel, and they succeeded them, and lived in their place, 
 as he did for the children of Esau who dwell in Seir, when he destroyed the Horites from before them; and they succeeded them, and lived in their place even to this day. 
 Then the Avvim, who lived in villages as far as Gaza: the Caphtorim, who came out of Caphtor, destroyed them and lived in their place.) 
-"Rise up, take your journey, and pass over the valley of the Arnon. Behold, I have given into your hand Sihon the Amorite, king of Heshbon, and his land; begin to possess it, and contend with him in battle. 
+"Rise up, take your journey, and pass over the valley of the Arnon. Look, I have given into your hand Sihon the Amorite, king of Heshbon, and his land; begin to possess it, and contend with him in battle. 
 Today I will begin to put the dread of you and the fear of you on the peoples who are under the whole sky, who shall hear the report of you, and shall tremble and be in anguish because of you." 
 I sent messengers out of the wilderness of Kedemoth to Sihon king of Heshbon with words of peace, saying, 
 "Let me pass through your land. I will go along by the highway. I will turn neither to the right hand nor to the left. 
 You shall sell me food for money, that I may eat; and give me water for money, that I may drink. Just let me pass through on my feet, 
 as the children of Esau who dwell in Seir, and the Moabites who dwell in Ar, did to me, until I pass over the Jordan into the land which our God gives us." 
 But Sihon king of Heshbon would not let us pass by him, for your God hardened his spirit and made his heart obstinate, that he might deliver him into your hand, as it is today. 
-God said to me, "Behold, I have begun to deliver up Sihon and his land before you. Begin to possess, that you may inherit his land." 
+God said to me, "Look, I have begun to deliver up Sihon and his land before you. Begin to possess, that you may inherit his land." 
 Then Sihon came out against us, he and all his people, to battle at Jahaz. 
 Our God delivered him up before us; and we struck him, his sons, and all his people. 
 We took all his cities at that time, and utterly destroyed every inhabited city, with the women and the little ones. We left no one remaining. 

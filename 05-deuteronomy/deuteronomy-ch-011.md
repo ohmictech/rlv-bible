@@ -23,7 +23,7 @@ If you shall diligently keep all these commandments which I command you, to do t
 then God will drive out all these nations from before you, and you shall dispossess nations greater and mightier than yourselves. 
 Every place on which the sole of your foot treads shall be yours: from the wilderness and Lebanon, from the river, the river Euphrates, even to the western sea shall be your border. 
 No man will be able to stand before you. Your God will lay the fear of you and the dread of you on all the land that you tread on, as he has spoken to you. 
-Behold, I set before you today a blessing and a curse: 
+Look, I set before you today a blessing and a curse: 
 the blessing, if you listen to the commandments of your God, which I command you today; 
 and the curse, if you do not listen to the commandments of your God, but turn away out of the way which I command you today, to go after other gods which you have not known. 
 It shall happen, when your God brings you into the land that you go to possess, that you shall set the blessing on Mount Gerizim, and the curse on Mount Ebal. 

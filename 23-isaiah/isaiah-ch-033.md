@@ -4,7 +4,7 @@ At the noise of the thunder, the peoples have fled. When you lift yourself up, t
 Your plunder will be gathered as the caterpillar gathers. Men will leap on it as locusts leap. 
 God is exalted, for he dwells on high. He has filled Zion with justice and righteousness. 
 There will be stability in your times, abundance of salvation, wisdom, and knowledge. The fear of God is your treasure. 
-Behold, their valiant ones cry outside; the ambassadors of peace weep bitterly. 
+Look, their valiant ones cry outside; the ambassadors of peace weep bitterly. 
 The highways are desolate. The traveling man ceases. The covenant is broken. He has despised the cities. He doesn't respect man. 
 The land mourns and languishes. Lebanon is confounded and withers away. Sharon is like a desert, and Bashan and Carmel are stripped bare. 
 "Now I will arise," says God. "Now I will lift myself up. Now I will be exalted. 

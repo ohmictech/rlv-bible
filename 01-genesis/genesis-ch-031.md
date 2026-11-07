@@ -1,5 +1,5 @@
 ﻿Jacob heard Laban's sons' words, saying, "Jacob has taken away all that was our father's. He has obtained all this wealth from that which was our father's." 
-Jacob saw the expression on Laban's face, and, behold, it was not toward him as before. 
+Jacob saw the expression on Laban's face, and, look, it was not toward him as before. 
 God said to Jacob, "Return to the land of your fathers, and to your relatives, and I will be with you." 
 Jacob sent and called Rachel and Leah to the field to his flock, 
 and said to them, "I see the expression on your father's face, that it is not toward me as before; but the God of my father has been with me. 
@@ -7,9 +7,9 @@ You know that I have served your father with all of my strength.
 Your father has deceived me, and changed my wages ten times, but God didn't allow him to hurt me. 
 If he said, 'The speckled will be your wages,' then all the flock bore speckled. If he said, 'The streaked will be your wages,' then all the flock bore streaked. 
 Thus God has taken away your father's livestock, and given them to me. 
-During mating season, I lifted up my eyes, and saw in a dream, and behold, the male goats which leaped on the flock were streaked, speckled, and grizzled. 
+During mating season, I lifted up my eyes, and saw in a dream, and look, the male goats which leaped on the flock were streaked, speckled, and grizzled. 
 The messenger of God said to me in the dream, 'Jacob,' and I said, 'Here I am.' 
-He said, 'Now lift up your eyes, and behold, all the male goats which leap on the flock are streaked, speckled, and grizzled, for I have seen all that Laban does to you. 
+He said, 'Now lift up your eyes, and look, all the male goats which leap on the flock are streaked, speckled, and grizzled, for I have seen all that Laban does to you. 
 I am the God of Bethel, where you anointed a pillar, where you vowed a vow to me. Now arise, get out from this land, and return to the land of your birth.'" 
 Rachel and Leah answered him, "Is there yet any portion or inheritance for us in our father's house? 
 Aren't we considered as foreigners by him? He has sold us, and has also used up our money. 
@@ -47,7 +47,7 @@ Jacob said to his relatives, "Gather stones." They took stones, and made a heap.
 Laban called it Jegar Sahadutha, but Jacob called it Galeed. 
 Laban said, "This heap is witness between me and you today." Therefore it was named Galeed 
 and Mizpah, for he said, "God watch between me and you, when we are absent one from another. 
-If you afflict my daughters, or if you take wives in addition to my daughters, no man is with us; behold, God is witness between me and you." 
+If you afflict my daughters, or if you take wives in addition to my daughters, no man is with us; look, God is witness between me and you." 
 Laban said to Jacob, "See this heap, and see the pillar, which I have set between me and you. 
 May this heap be a witness, and the pillar be a witness, that I will not pass over this heap to you, and that you will not pass over this heap and this pillar to me, for harm. 
 The God of Abraham, and the God of Nahor, the God of their father, judge between us." Then Jacob swore by the fear of his father, Isaac. 

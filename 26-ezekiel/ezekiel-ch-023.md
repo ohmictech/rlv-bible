@@ -19,13 +19,13 @@ So she uncovered her prostitution and uncovered her nakedness. Then my soul was 
 Yet she multiplied her prostitution, remembering the days of her youth, in which she had played the prostitute in the land of Egypt. 
 She lusted after their lovers, whose flesh is as the flesh of donkeys, and whose issue is like the issue of horses. 
 Thus you called to memory the lewdness of your youth, in the caressing of your nipples by the Egyptians because of your youthful breasts. 
-"So, Oholibah, God says: 'Behold, I will raise up your lovers against you, from whom your soul is alienated, and I will bring them against you on every side: 
+"So, Oholibah, God says: 'Look, I will raise up your lovers against you, from whom your soul is alienated, and I will bring them against you on every side: 
 the Babylonians and all the Chaldeans, Pekod, Shoa, Koa, and all the Assyrians with them; everyone desirable young men, governors and rulers, princes and men of renown, everyone riding on horses. 
 They will come against you with weapons, chariots, and wagons, and with a company of peoples. They will set themselves against you with buckler, shield, and helmet all around. I will commit the judgment to them, and they will judge you according to their judgments. 
 I will set my jealousy against you, and they will deal with you in fury. They will take away your nose and your ears. Your remnant will fall by the sword. They will take your sons and your daughters; and the rest of you will be devoured by the fire. 
 They will also strip you of your clothes and take away your beautiful jewels. 
 Thus I will make your lewdness to cease from you, and remove your prostitution from the land of Egypt, so that you will not lift up your eyes to them, nor remember Egypt any more.' 
-"For God says: 'Behold, I will deliver you into the hand of them whom you hate, into the hand of them from whom your soul is alienated. 
+"For God says: 'Look, I will deliver you into the hand of them whom you hate, into the hand of them from whom your soul is alienated. 
 They will deal with you in hatred, and will take away all your labor, and will leave you naked and bare. The nakedness of your prostitution will be uncovered, both your lewdness and your prostitution. 
 These things will be done to you because you have played the prostitute after the nations, and because you are polluted with their idols. 
 You have walked in the way of your sister; I will give her cup into your hand.' 
@@ -36,8 +36,8 @@ You will even drink it and drain it out. You will gnaw the broken pieces of it, 
 God said moreover to me: "Son of man, will you judge Oholah and Oholibah? Then declare to them their abominations. 
 They have committed adultery, and blood is in their hands. They have committed adultery with their idols. They have also caused their sons, whom they bore to me, to pass through the fire to them to be devoured. 
 Moreover this they have done to me: they have defiled my sanctuary in the same day, and have profaned my Sabbaths. 
-When they had slain their children to their idols, then they came the same day into my sanctuary to profane it; and behold, they have done this in the middle of my house. 
-"Furthermore you sisters have sent for men who come from far away, to whom a messenger was sent, and behold, they came; for whom you washed yourself, painted your eyes, decorated yourself with ornaments, 
+When they had slain their children to their idols, then they came the same day into my sanctuary to profane it; and look, they have done this in the middle of my house. 
+"Furthermore you sisters have sent for men who come from far away, to whom a messenger was sent, and look, they came; for whom you washed yourself, painted your eyes, decorated yourself with ornaments, 
 and sat on a stately bed, with a table prepared before it, whereupon you set my incense and my oil. 
 "The voice of a multitude being at ease was with her. With men of the common sort were brought drunkards from the wilderness; and they put bracelets on their hands, and beautiful crowns on their heads. 
 Then I said of her who was old in adulteries, 'Now they will play the prostitute with her, and she with them.' 

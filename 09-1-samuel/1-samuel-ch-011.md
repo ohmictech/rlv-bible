@@ -2,7 +2,7 @@
 Nahash the Ammonite said to them, "On this condition I will make it with you, that all your right eyes be gouged out. I will make this dishonor all Israel." 
 The elders of Jabesh said to him, "Give us seven days, that we may send messengers to all the borders of Israel; and then, if there is no one to save us, we will come out to you." 
 Then the messengers came to Gibeah of Saul, and spoke these words in the ears of the people, then everyone lifted up their voice and wept. 
-Behold, Saul came following the oxen out of the field; and Saul said, "What ails the people that they weep?" They told him the words of the men of Jabesh. 
+Look, Saul came following the oxen out of the field; and Saul said, "What ails the people that they weep?" They told him the words of the men of Jabesh. 
 God's Spirit came mightily on Saul when he heard those words, and his anger burned hot. 
 He took a yoke of oxen and cut them in pieces, then sent them throughout all the borders of Israel by the hand of messengers, saying, "Whoever doesn't come out after Saul and after Samuel, so shall it be done to his oxen." The dread of God fell on the people, and they came out as one man. 
 He counted them in Bezek; and the children of Israel were three hundred thousand, and the men of Judah thirty thousand. 

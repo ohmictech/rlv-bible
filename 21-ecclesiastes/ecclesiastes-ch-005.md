@@ -15,6 +15,6 @@ Those riches perish by misfortune, and if he has fathered a son, there is nothin
 As he came out of his mother's womb, naked shall he go again as he came, and shall take nothing for his labor, which he may carry away in his hand. 
 This also is a grievous bad, that in all points as he came, so shall he go. And what profit does he have who labors for the wind? 
 All his days he also eats in darkness, he is frustrated, and has sickness and wrath. 
-Behold, that which I have seen to be good and proper is for one to eat and to drink, and to enjoy good in all his labor, in which he labors under the sun, all the days of his life which God has given him; for this is his portion. 
+Look, that which I have seen to be good and proper is for one to eat and to drink, and to enjoy good in all his labor, in which he labors under the sun, all the days of his life which God has given him; for this is his portion. 
 Every man also to whom God has given riches and wealth, and has given him power to eat of it, and to take his portion, and to rejoice in his labor, this is the gift of God. 
 He shall not often reflect on the days of his life, because God occupies him with the joy of his heart. 

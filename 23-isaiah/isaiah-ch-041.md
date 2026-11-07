@@ -8,11 +8,11 @@ So the carpenter encourages the goldsmith. He who smooths with the hammer encour
 "But you, Israel, my servant, Jacob whom I have chosen, the offspring of Abraham my friend, 
 you whom I have taken hold of from the ends of the earth, and called from its corners, and said to you, 'You are my servant. I have chosen you and have not cast you away.' 
 Don't you be afraid, for I am with you. Don't be dismayed, for I am your God. I will strengthen you. Yes, I will help you. Yes, I will uphold you with the right hand of my righteousness. 
-Behold, everyone who is incensed against you will be disappointed and confounded. Those who strive with you will be like nothing, and shall perish. 
+Look, everyone who is incensed against you will be disappointed and confounded. Those who strive with you will be like nothing, and shall perish. 
 You will seek them, and won't find them, even those who contend with you. Those who war against you will be as nothing, as a nonexistent thing. 
 I, your God, will hold your right hand, saying to you, 'Don't be afraid. I will help you.' 
 Don't be afraid, you worm Jacob, and you men of Israel. I will help you," says God. "Ythe one who buys us back is the Holy One of Israel. 
-Behold, I have made you into a new sharp threshing instrument with teeth. You will thresh the mountains, and beat them small, and will make the hills like chaff. 
+Look, I have made you into a new sharp threshing instrument with teeth. You will thresh the mountains, and beat them small, and will make the hills like chaff. 
 You will winnow them, and the wind will carry them away, and the whirlwind will scatter them. You will rejoice in God. You will glory in the Holy One of Israel. 
 The poor and needy seek water, and there is none. Their tongue fails for thirst. I, God, will answer them. I, the God of Israel will not forsake them. 
 I will open rivers on the bare heights, and springs in the middle of the valleys. I will make the wilderness a pool of water, and the dry land springs of water. 
@@ -21,9 +21,9 @@ that they may see, know, consider, and understand together, that God's hand has 
 Produce your cause," says God. "Bring out your strong reasons!" says the King of Jacob. 
 "Let them announce and declare to us what will happen! Declare the former things, what they are, that we may consider them, and know the latter end of them; or show us things to come. 
 Declare the things that are to come hereafter, that we may know that you are gods. Yes, do good, or do bad things, that we may be dismayed, and see it together. 
-Behold, you are nothing, and your work is nothing. He who chooses you is an abomination. 
+Look, you are nothing, and your work is nothing. He who chooses you is an abomination. 
 "I have raised up one from the north, and he has come, from the rising of the sun, one who calls on my name, and he shall come on rulers as on mortar, and as the potter treads clay. 
 Who has declared it from the beginning, that we may know? and before, that we may say, 'He is right'? Surely, there is no one who declares. Surely, there is no one who shows. Surely, there is no one who hears your words. 
-I am the first to say to Zion, 'Behold, look at them;' and I will give one who brings good news to Jerusalem. 
+I am the first to say to Zion, 'Look, look at them;' and I will give one who brings good news to Jerusalem. 
 When I look, there is no man, even among them there is no counselor who, when I ask, can answer a word. 
-Behold, all of their deeds are vanity and nothing. Their molten images are wind and confusion. 
+Look, all of their deeds are vanity and nothing. Their molten images are wind and confusion. 

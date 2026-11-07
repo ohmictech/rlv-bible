@@ -11,8 +11,8 @@ Shouldn't I punish them for these things?" says God. "Shouldn't my soul be aveng
 The house of Israel and the house of Judah have dealt very treacherously against me," says God. 
 They have denied God, and said, "It is not he. Bad won't come on us. We won't see sword or famine. 
 The spokesmen will become wind, and the word is not in them. Thus it will be done to them." 
-So the God of Armies says, "Because you speak this word, behold, I will make my words in your mouth fire, and this people wood, and it will devour them. 
-Behold, I will bring a nation on you from far away, house of Israel," says God. "It is a mighty nation. It is an ancient nation, a nation whose language you don't know and don't understand what they say. 
+So the God of Armies says, "Because you speak this word, look, I will make my words in your mouth fire, and this people wood, and it will devour them. 
+Look, I will bring a nation on you from far away, house of Israel," says God. "It is a mighty nation. It is an ancient nation, a nation whose language you don't know and don't understand what they say. 
 Their quiver is an open tomb. They are all mighty men. 
 They will eat up your harvest and your bread, which your sons and your daughters should eat. They will eat up your flocks and your herds. They will eat up your vines and your fig trees. They will beat down your fortified cities in which you trust with the sword. 
 "But even in those days," says God, "I will not make a full end of you. 

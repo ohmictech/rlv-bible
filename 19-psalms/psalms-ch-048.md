@@ -1,7 +1,7 @@
 ﻿A Song. A Psalm by the sons of Korah. Great is God, and greatly to be praised, in the city of our God, in his holy mountain. 
 Beautiful in elevation, the joy of the whole earth, is Mount Zion, on the north sides, the city of the great King. 
 God has shown himself in her citadels as a refuge. 
-For, behold, the kings assembled themselves, they passed by together. 
+For, look, the kings assembled themselves, they passed by together. 
 They saw it, then they were amazed. They were dismayed. They hurried away. 
 Trembling took hold of them there, pain, as of a woman in travail. 
 With the east wind, you break the ships of Tarshish. 

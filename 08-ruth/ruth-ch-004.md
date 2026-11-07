@@ -1,4 +1,4 @@
-﻿Now Boaz went up to the gate and sat down there. Behold, the near kinsman of whom Boaz spoke came by. Boaz said to him, "Come over here, friend, and sit down!" He came over, and sat down. 
+﻿Now Boaz went up to the gate and sat down there. Look, the near kinsman of whom Boaz spoke came by. Boaz said to him, "Come over here, friend, and sit down!" He came over, and sat down. 
 Boaz took ten men of the elders of the city, and said, "Sit down here," and they sat down. 
 He said to the near kinsman, "Naomi, who has come back out of the country of Moab, is selling the parcel of land, which was our brother Elimelech's. 
 I thought I should tell you, saying, 'Buy it before those who sit here, and before the elders of my people.' If you will buy it back, buy it back; but if you will not buy it back, then tell me, that I may know. There is no one to buy it back besides you; and I am after you." He said, "I will buy it back." 

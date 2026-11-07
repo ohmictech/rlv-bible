@@ -6,7 +6,7 @@ Now, if you will indeed obey my voice and keep my covenant, then you shall be my
 and you shall be to me a kingdom of priests and a holy nation.' These are the words which you shall speak to the children of Israel." 
 Moses came and called for the elders of the people, and set before them all these words which God commanded him. 
 Everyone answered together, and said, "All that God has spoken we will do." Moses reported the words of the people to God. 
-God said to Moses, "Behold, I come to you in a thick cloud, that the people may hear when I speak with you, and may also believe you for the eras." Moses told the words of the people to God. 
+God said to Moses, "Look, I come to you in a thick cloud, that the people may hear when I speak with you, and may also believe you for the eras." Moses told the words of the people to God. 
 God said to Moses, "Go to the people, and sanctify them today and tomorrow, and let them wash their garments, 
 and be ready for the third day; for on the third day God will come down in the sight of everyone on Mount Sinai. 
 You shall set bounds to the people all around, saying, 'Be careful that you don't go up onto the mountain, or touch its border. Whoever touches the mountain shall be surely put to death. 

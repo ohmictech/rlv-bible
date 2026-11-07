@@ -9,7 +9,7 @@ They shall keep all the furnishings of the Tent of Meeting, and the obligations 
 You shall give the Levites to Aaron and to his sons. They are wholly given to him on the behalf of the children of Israel. 
 You shall appoint Aaron and his sons, and they shall keep their priesthood, but the stranger who comes near shall be put to death." 
 God spoke to Moses, saying, 
-"Behold, I have taken the Levites from among the children of Israel instead of all the firstborn who open the womb among the children of Israel; and the Levites shall be mine, 
+"Look, I have taken the Levites from among the children of Israel instead of all the firstborn who open the womb among the children of Israel; and the Levites shall be mine, 
 for all the firstborn are mine. On the day that I struck down all the firstborn in the land of Egypt I made holy to me all the firstborn in Israel, both man and animal. They shall be mine. I am God." 
 God spoke to Moses in the wilderness of Sinai, saying, 
 "Count the children of Levi by their fathers' houses, by their families. You shall count every male from a month old and upward." 

@@ -8,14 +8,14 @@ But God said to Samuel, "Don't look on his face, or on the height of his stature
 Then Jesse called Abinadab, and made him pass before Samuel. He said, "God has not chosen this one, either." 
 Then Jesse made Shammah to pass by. He said, "God has not chosen this one, either." 
 Jesse made seven of his sons to pass before Samuel. Samuel said to Jesse, "God has not chosen these." 
-Samuel said to Jesse, "Are all your children here?" He said, "There remains yet the youngest. Behold, he is keeping the sheep." Samuel said to Jesse, "Send and get him, for we will not sit down until he comes here." 
+Samuel said to Jesse, "Are all your children here?" He said, "There remains yet the youngest. Look, he is keeping the sheep." Samuel said to Jesse, "Send and get him, for we will not sit down until he comes here." 
 He sent, and brought him in. Now he was ruddy, with a handsome face and good appearance. God said, "Arise! Anoint him, for this is he." 
 Then Samuel took the horn of oil and anointed him in the middle of his brothers. Then God's Spirit came mightily on David from that day forward. So Samuel rose up and went to Ramah. 
 Now God's Spirit departed from Saul, and an harmful spirit from God troubled him. 
 Saul's servants said to him, "See now, an harmful spirit from God troubles you. 
 Let our lord now command your servants who are in front of you to seek out a man who is a skillful player on the harp. Then when the harmful spirit from God is on you, he will play with his hand, and you will be well." 
 Saul said to his servants, "Provide me now a man who can play well, and bring him to me." 
-Then one of the young men answered and said, "Behold, I have seen a son of Jesse the Bethlehemite who is skillful in playing, a mighty man of valor, a man of war, prudent in speech, and a handsome person; and God is with him." 
+Then one of the young men answered and said, "Look, I have seen a son of Jesse the Bethlehemite who is skillful in playing, a mighty man of valor, a man of war, prudent in speech, and a handsome person; and God is with him." 
 So Saul sent messengers to Jesse, and said, "Send me David your son, who is with the sheep." 
 Jesse took a donkey loaded with bread, a container of wine, and a young goat, and sent them by David his son to Saul. 
 David came to Saul and stood before him. He loved him greatly; and he became his armor bearer. 

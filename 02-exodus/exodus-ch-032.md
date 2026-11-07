@@ -6,7 +6,7 @@ When Aaron saw this, he built an altar before it; and Aaron made a proclamation,
 They rose up early on the next day, and offered burnt offerings, and brought offerings for wholeness; and the people sat down to eat and to drink, and rose up to play. 
 God spoke to Moses, "Go, get down; for your people, whom you brought up out of the land of Egypt, have corrupted themselves! 
 They have turned away quickly out of the way which I commanded them. They have made themselves a molded calf, and have worshiped it, and have sacrificed to it, and said, 'These are your gods, Israel, which brought you up out of the land of Egypt.'" 
-God said to Moses, "I have seen these people, and behold, they are a stiff-necked people. 
+God said to Moses, "I have seen these people, and look, they are a stiff-necked people. 
 Now leave me alone, that my wrath may burn hot against them, and that I may consume them; and I will make of you a great nation." 
 Moses begged his God, and said, "God, why does your wrath burn hot against your people, that you have brought out of the land of Egypt with great power and with a mighty hand? 
 Why should the Egyptians talk, saying, 'He brought them out for bad, to kill them in the mountains, and to consume them from the surface of the earth'? Turn from your fierce wrath, and turn away from this bad against your people. 
@@ -31,5 +31,5 @@ On the next day, Moses said to the people, "You have done a great wrong. Now I w
 Moses returned to God, and said, "Oh, this people have done a great wrong, and have made themselves gods of gold. 
 Yet now, if you will, forgive their wrongdoing, and if not, please blot me out of your book which you have written." 
 God said to Moses, "Whoever has wronged me, I will blot him out of my book. 
-Now go, lead the people to the place of which I have spoken to you. Behold, my messenger shall go before you. Nevertheless, in the day when I punish, I will punish them for their wrongdoing." 
+Now go, lead the people to the place of which I have spoken to you. Look, my messenger shall go before you. Nevertheless, in the day when I punish, I will punish them for their wrongdoing." 
 God struck the people, because of what they did with the calf, which Aaron made. 

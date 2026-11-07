@@ -12,4 +12,4 @@ which you have commanded by your servants the spokesmen, saying, 'The land to wh
 Now don't give your daughters to their sons. Don't take their daughters to your sons, nor seek their peace or their prosperity for the eras, that you may be strong and eat the good of the land, and leave it for an inheritance to your children for the eras.' 
 "After all that has come on us for our bad deeds and for our great guilt, since you, our God, have punished us less than our guilt deserve, and have given us such a remnant, 
 shall we again break your commandments, and join ourselves with the peoples that do these abominations? Wouldn't you be angry with us until you had consumed us, so that there would be no remnant, nor any to escape? 
-the God of Israel, you are righteous; for we are left a remnant that has escaped, as it is today. Behold, we are before you in our guiltiness; for no one can stand before you because of this." 
+the God of Israel, you are righteous; for we are left a remnant that has escaped, as it is today. Look, we are before you in our guiltiness; for no one can stand before you because of this." 

@@ -11,5 +11,5 @@ You have trusted in your guilt. You have said, 'No one sees me.' Your wisdom and
 Therefore disaster will come on you. You won't know when it dawns. Mischief will fall on you. You won't be able to put it away. Desolation will come on you suddenly, which you don't understand. 
 "Stand now with your enchantments and with the multitude of your sorceries, in which you have labored from your youth, as if you might profit, as if you might prevail. 
 You are wearied in the multitude of your counsels. Now let the astrologers, the stargazers, and the monthly prognosticators stand up and save you from the things that will happen to you. 
-Behold, they are like stubble. The fire will burn them. They won't deliver themselves from the power of the flame. It won't be a coal to warm at or a fire to sit by. 
+Look, they are like stubble. The fire will burn them. They won't deliver themselves from the power of the flame. It won't be a coal to warm at or a fire to sit by. 
 The things that you labored in will be like this: those who have trafficked with you from your youth will each wander in his own way. There will be no one to save you. 

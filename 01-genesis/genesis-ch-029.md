@@ -4,7 +4,7 @@ There all the flocks were gathered. They rolled the stone from the well's mouth,
 Jacob said to them, "My relatives, where are you from?" They said, "We are from Haran." 
 He said to them, "Do you know Laban, the son of Nahor?" They said, "We know him." 
 He said to them, "Is it well with him?" They said, "It is well. See, Rachel, his daughter, is coming with the sheep." 
-He said, "Behold, it is still the middle of the day, not time to gather the livestock together. Water the sheep, and go and feed them." 
+He said, "Look, it is still the middle of the day, not time to gather the livestock together. Water the sheep, and go and feed them." 
 They said, "We can't, until all the flocks are gathered together, and they roll the stone from the well's mouth. Then we will water the sheep." 
 While he was yet speaking with them, Rachel came with her father's sheep, for she kept them. 
 When Jacob saw Rachel the daughter of Laban, his mother's brother, and the sheep of Laban, his mother's brother, Jacob went near, and rolled the stone from the well's mouth, and watered the flock of Laban his mother's brother. 
@@ -22,7 +22,7 @@ Jacob said to Laban, "Give me my wife, for my days are fulfilled, that I may go 
 Laban gathered together all the men of the place, and made a feast. 
 In the evening, he took Leah his daughter, and brought her to Jacob. He went in to her. 
 Laban gave Zilpah his servant to his daughter Leah for a servant. 
-In the morning, behold, it was Leah! He said to Laban, "What is this you have done to me? Didn't I serve with you for Rachel? Why then have you deceived me?" 
+In the morning, look, it was Leah! He said to Laban, "What is this you have done to me? Didn't I serve with you for Rachel? Why then have you deceived me?" 
 Laban said, "It is not done so in our place, to give the younger before the firstborn. 
 Fulfill the week of this one, and we will give you the other also for the service which you will serve with me for seven more years." 
 Jacob did so, and fulfilled her week. He gave him Rachel his daughter as wife. 

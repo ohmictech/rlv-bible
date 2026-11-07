@@ -14,11 +14,11 @@ You shall seek me and find me, when you search for me with all your heart.
 I will be found by you," says God, "and I will turn again your captivity, and I will gather you from all the nations, and from all the places where I have driven you," says God. "I will bring you again to the place from where I caused you to be carried away captive." 
 Because you have said, "God has raised us up spokesmen in Babylon," 
 God says concerning the king who sits on David's throne, and concerning everyone who dwells in this city, your brothers who haven't gone with you into captivity, 
-the God of Armies says: "Behold, I will send on them the sword, the famine, and the pestilence, and will make them like rotten figs that can't be eaten, they are so bad. 
+the God of Armies says: "Look, I will send on them the sword, the famine, and the pestilence, and will make them like rotten figs that can't be eaten, they are so bad. 
 I will pursue after them with the sword, with the famine, and with the pestilence, and will deliver them to be tossed back and forth among all the kingdoms of the earth, to be an object of horror, an astonishment, a hissing, and a reproach among all the nations where I have driven them, 
 because they have not listened to my words," says God, "with which I sent to them my servants the spokesmen, rising up early and sending them; but you would not hear," says God. 
 Hear God's word, all you captives whom I have sent away from Jerusalem to Babylon. 
-The God of Armies, the God of Israel says concerning Ahab the son of Kolaiah, and concerning Zedekiah the son of Maaseiah, who prophesy a lie to you in my name: "Behold, I will deliver them into the hand of Nebuchadnezzar king of Babylon; and he will kill them before your eyes. 
+The God of Armies, the God of Israel says concerning Ahab the son of Kolaiah, and concerning Zedekiah the son of Maaseiah, who prophesy a lie to you in my name: "Look, I will deliver them into the hand of Nebuchadnezzar king of Babylon; and he will kill them before your eyes. 
 A curse will be taken up about them by all the captives of Judah who are in Babylon, saying, 'God make you like Zedekiah and like Ahab, whom the king of Babylon roasted in the fire;' 
 because they have done foolish things in Israel, and have committed adultery with their neighbors' wives, and have spoken words in my name falsely, which I didn't command them. I am he who knows, and am witness," says God. 
 Concerning Shemaiah the Nehelamite you shall speak, saying, 
@@ -29,4 +29,4 @@ because he has sent to us in Babylon, saying, The captivity is long. Build house
 Zephaniah the priest read this letter in the hearing of Jeremiah the spokesman. 
 Then God's word came to Jeremiah, saying, 
 "Send to all of the captives, saying, 'God says concerning Shemaiah the Nehelamite: "Because Shemaiah has prophesied to you, and I didn't send him, and he has caused you to trust in a lie," 
-So God says, "Behold, I will punish Shemaiah the Nehelamite and his offspring. He will not have a man to dwell among this people. He won't see the good that I will do to my people," says God, "because he has spoken rebellion against God."'" 
+So God says, "Look, I will punish Shemaiah the Nehelamite and his offspring. He will not have a man to dwell among this people. He won't see the good that I will do to my people," says God, "because he has spoken rebellion against God."'" 

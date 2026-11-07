@@ -1,5 +1,5 @@
 ﻿"As for me, in the first year of Darius the Mede, I stood up to confirm and strengthen him. 
-"Now I will show you the truth. Behold, three more kings will stand up in Persia. The fourth will be far richer than everyone. When he has grown strong through his riches, he will stir up all against the realm of Greece. 
+"Now I will show you the truth. Look, three more kings will stand up in Persia. The fourth will be far richer than everyone. When he has grown strong through his riches, he will stir up all against the realm of Greece. 
 A mighty king will stand up, who will rule with great dominion, and do according to his will. 
 When he stands up, his kingdom will be broken and will be divided toward the four winds of the sky, but not to his posterity, nor according to his dominion with which he ruled; for his kingdom will be plucked up, even for others besides these. 
 "The king of the south will be strong. One of his princes will become stronger than him, and have dominion. His dominion will be a great dominion. 

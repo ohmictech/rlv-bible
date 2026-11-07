@@ -9,9 +9,9 @@ Worthless men were gathered to him, guilty fellows who strengthened themselves a
 Haven't you driven out the priests of God, the sons of Aaron, and the Levites, and made priests for yourselves according to the ways of the peoples of other lands? Whoever comes to consecrate himself with a young bull and seven rams may be a priest of those who are no gods. 
 "But as for us, God is our God, and we have not forsaken him. We have priests serving God, the sons of Aaron, and the Levites in their work. 
 They burn to God every morning and every evening burnt offerings and sweet incense. They also set the show bread in order on the pure table, and care for the gold lamp stand with its lamps, to burn every evening; for we keep the instruction of our God, but you have forsaken him. 
-Behold, God is with us at our head, and his priests with the trumpets of alarm to sound an alarm against you. Children of Israel, don't fight against the God of your fathers; for you will not prosper." 
+Look, God is with us at our head, and his priests with the trumpets of alarm to sound an alarm against you. Children of Israel, don't fight against the God of your fathers; for you will not prosper." 
 But Jeroboam caused an ambush to come about behind them; so they were before Judah, and the ambush was behind them. 
-When Judah looked back, behold, the battle was before and behind them; and they cried to God, and the priests sounded with the trumpets. 
+When Judah looked back, look, the battle was before and behind them; and they cried to God, and the priests sounded with the trumpets. 
 Then the men of Judah gave a shout. As the men of Judah shouted, God struck Jeroboam and all Israel before Abijah and Judah. 
 The children of Israel fled before Judah, and God delivered them into their hand. 
 Abijah and his people killed them with a great slaughter, so five hundred thousand chosen men of Israel fell down slain. 

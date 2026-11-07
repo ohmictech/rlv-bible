@@ -15,7 +15,7 @@ From the place of his habitation he looks out on all the inhabitants of the eart
 he who fashions all of their hearts; and he considers all of their works. 
 There is no king saved by the multitude of an army. A mighty man is not delivered by great strength. 
 A horse is a vain thing for safety, neither does he deliver any by his great power. 
-Behold, God's eye is on those who fear him, on those who hope in his loving kindness, 
+Look, God's eye is on those who fear him, on those who hope in his loving kindness, 
 to deliver their soul from death, to keep them alive in famine. 
 Our soul has waited for God. He is our help and our shield. 
 Our heart rejoices in him, because we have trusted in his holy name. 

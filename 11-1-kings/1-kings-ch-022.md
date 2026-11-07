@@ -20,9 +20,9 @@ Micaiah said, "Therefore hear God's word. I saw God sitting on his throne, and a
 God said, 'Who will entice Ahab, that he may go up and fall at Ramoth Gilead?' One said one thing, and another said another. 
 A spirit came out and stood before God, and said, 'I will entice him.' 
 God said to him, 'How?' He said, 'I will go out and will be a lying spirit in the mouth of all his spokesmen.' He said, 'You will entice him, and will also prevail. Go out and do so.' 
-Now, behold, God has put a lying spirit in the mouth of all these your spokesmen; and God has spoken bad concerning you." 
+Now, look, God has put a lying spirit in the mouth of all these your spokesmen; and God has spoken bad concerning you." 
 Then Zedekiah the son of Chenaanah came near and struck Micaiah on the cheek, and said, "Which way did God's Spirit go from me to speak to you?" 
-Micaiah said, "Behold, you will see on that day when you go into an inner room to hide yourself." 
+Micaiah said, "Look, you will see on that day when you go into an inner room to hide yourself." 
 The king of Israel said, "Take Micaiah, and carry him back to Amon the governor of the city and to Joash the king's son. 
 Say, 'The king says, "Put this fellow in the prison, and feed him with bread of affliction and with water of affliction, until I come in peace."'" 
 Micaiah said, "If you return at all in peace, God has not spoken by me." He said, "Listen, all you people!" 

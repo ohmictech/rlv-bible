@@ -1,7 +1,7 @@
 ﻿You shall not sacrifice to your God an ox or a sheep in which is a defect or anything bad; for that is an abomination to your God. 
 If there is found among you, within any of your gates which your God gives you, a man or woman who does that which is bad in your God's sight in transgressing his covenant, 
 and has gone and served other gods and worshiped them, or the sun, or the moon, or any of the stars of the sky, which I have not commanded, 
-and you are told, and you have heard of it, then you shall inquire diligently. Behold, if it is true, and the thing certain, that such abomination is done in Israel, 
+and you are told, and you have heard of it, then you shall inquire diligently. Look, if it is true, and the thing certain, that such abomination is done in Israel, 
 then you shall bring out that man or that woman who has done this bad thing to your gates, even that same man or woman; and you shall stone them to death with stones. 
 At the mouth of two witnesses, or three witnesses, he who is to die shall be put to death. At the mouth of one witness he shall not be put to death. 
 The hands of the witnesses shall be first on him to put him to death, and afterward the hands of everyone. So you shall remove the bad from among you. 

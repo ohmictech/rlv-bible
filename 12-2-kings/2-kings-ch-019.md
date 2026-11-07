@@ -4,11 +4,11 @@ They said to him, "Hezekiah says, 'Today is a day of trouble, of rebuke, and of 
 It may be your God will hear all the words of Rabshakeh, whom the king of Assyria his master has sent to defy the living God, and will rebuke the words which your God has heard. So lift up your prayer for the remnant that is left.'" 
 So the servants of King Hezekiah came to Isaiah. 
 Isaiah said to them, "Tell your master this: 'God says, "Don't be afraid of the words that you have heard, with which the servants of the king of Assyria have blasphemed me. 
-Behold, I will put a spirit in him, and he will hear news, and will return to his own land. I will cause him to fall by the sword in his own land."'" 
+Look, I will put a spirit in him, and he will hear news, and will return to his own land. I will cause him to fall by the sword in his own land."'" 
 So Rabshakeh returned and found the king of Assyria warring against Libnah; for he had heard that he had departed from Lachish. 
-When he heard it said of Tirhakah king of Ethiopia, "Behold, he has come out to fight against you," he sent messengers again to Hezekiah, saying, 
+When he heard it said of Tirhakah king of Ethiopia, "Look, he has come out to fight against you," he sent messengers again to Hezekiah, saying, 
 "Tell Hezekiah king of Judah this: 'Don't let your God in whom you trust deceive you, saying, Jerusalem will not be given into the hand of the king of Assyria. 
-Behold, you have heard what the kings of Assyria have done to all lands, by destroying them utterly. Will you be delivered? 
+Look, you have heard what the kings of Assyria have done to all lands, by destroying them utterly. Will you be delivered? 
 Have the gods of the nations delivered them, which my fathers have destroyed, Gozan, Haran, Rezeph, and the children of Eden who were in Telassar? 
 Where is the king of Hamath, the king of Arpad, and the king of the city of Sepharvaim, of Hena, and Ivvah?'" 
 Hezekiah received the letter from the hand of the messengers and read it. Then Hezekiah went up to God's house, and spread it before God. 
@@ -32,6 +32,6 @@ Out of Jerusalem a remnant will go out, and out of Mount Zion those who shall es
 "So God says concerning the king of Assyria, 'He will not come to this city, nor shoot an arrow there. He will not come before it with shield, nor cast up a mound against it. 
 He will return the same way that he came, and he will not come to this city,' says God. 
 'I will defend this city to save it, for my own sake and for my servant David's sake.'" 
-That night, God's messenger went out and struck one hundred eighty-five thousand in the camp of the Assyrians. When men arose early in the morning, behold, these were all dead bodies. 
+That night, God's messenger went out and struck one hundred eighty-five thousand in the camp of the Assyrians. When men arose early in the morning, look, these were all dead bodies. 
 So Sennacherib king of Assyria departed, went home, and lived at Nineveh. 
 As he was worshiping in the house of Nisroch his god, Adrammelech and Sharezer struck him with the sword; and they escaped into the land of Ararat. Esar Haddon his son reigned in his place. 

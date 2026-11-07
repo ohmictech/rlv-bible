@@ -1,10 +1,10 @@
-﻿"For, behold, in those days, and in that time, when I restore the fortunes of Judah and Jerusalem, 
+﻿"For, look, in those days, and in that time, when I restore the fortunes of Judah and Jerusalem, 
 I will gather all nations, and will bring them down into the valley of Jehoshaphat; and I will execute judgment on them there for my people, and for my heritage, Israel, whom they have scattered among the nations. They have divided my land, 
 and have cast lots for my people, and have given a boy for a prostitute, and sold a girl for wine, that they may drink. 
 "Yes, and what are you to me, Tyre and Sidon, and all the regions of Philistia? Will you repay me? And if you repay me, I will swiftly and speedily return your repayment on your own head. 
 Because you have taken my silver and my gold, and have carried my finest treasures into your temples, 
 and have sold the children of Judah and the children of Jerusalem to the sons of the Greeks, that you may remove them far from their border. 
-Behold, I will stir them up out of the place where you have sold them, and will return your repayment on your own head; 
+Look, I will stir them up out of the place where you have sold them, and will return your repayment on your own head; 
 and I will sell your sons and your daughters into the hands of the children of Judah, and they will sell them to the men of Sheba, to a faraway nation, for God has spoken it." 
 Proclaim this among the nations: "Prepare for war! Stir up the mighty men. Let all the warriors draw near. Let them come up. 
 Beat your plowshares into swords, and your pruning hooks into spears. Let the weak say, 'I am strong.' 

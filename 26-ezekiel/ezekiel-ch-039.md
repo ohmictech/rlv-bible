@@ -1,11 +1,11 @@
-﻿"You, son of man, prophesy against Gog, and say, 'The God says: "Behold, I am against you, Gog, prince of Rosh, Meshech, and Tubal. 
+﻿"You, son of man, prophesy against Gog, and say, 'The God says: "Look, I am against you, Gog, prince of Rosh, Meshech, and Tubal. 
 I will turn you around, will lead you on, and will cause you to come up from the uttermost parts of the north; and I will bring you onto the mountains of Israel. 
 I will strike your bow out of your left hand, and will cause your arrows to fall out of your right hand. 
 You will fall on the mountains of Israel, you, and all your hordes, and the peoples who are with you. I will give you to the ravenous birds of every sort and to the animals of the field to be devoured. 
 You will fall on the open field, for I have spoken it," says God. 
 "I will send a fire on Magog and on those who dwell securely in the islands. Then they will know that I am God. 
 "'"I will make my holy name known among my people Israel. I won't allow my holy name to be profaned any more. Then the nations will know that I am God, the Holy One in Israel. 
-Behold, it comes, and it will be done," says God. "This is the day about which I have spoken. 
+Look, it comes, and it will be done," says God. "This is the day about which I have spoken. 
 "'"Those who dwell in the cities of Israel will go out and will make fires of the weapons and burn them, both the shields and the bucklers, the bows and the arrows, and the war clubs and the spears, and they will make fires with them for seven years; 
 so that they will take no wood out of the field, and not cut down any out of the forests; for they will make fires with the weapons. They will plunder those who plundered them, and rob those who robbed them," says God. 
 "'"It will happen in that day, that I will give to Gog a place for burial in Israel, the valley of those who pass through on the east of the sea; and it will stop those who pass through. They will bury Gog and all his multitude there, and they will call it 'The valley of Hamon Gog'. 

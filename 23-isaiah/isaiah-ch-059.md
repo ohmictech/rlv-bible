@@ -1,4 +1,4 @@
-﻿Behold, God's hand is not shortened, that it can't save; nor his ear dull, that it can't hear. 
+﻿Look, God's hand is not shortened, that it can't save; nor his ear dull, that it can't hear. 
 But your guilt have separated you and your God, and your mistakes have hidden his face from you, so that he will not hear. 
 Your hands are defiled with blood, and your fingers with guilt. Your lips have spoken lies. Your tongue mutters guilt. 
 No one sues in righteousness, and no one pleads in truth. They trust in vanity and speak lies. They conceive mischief and give birth to guilt. 

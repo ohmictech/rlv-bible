@@ -1,4 +1,4 @@
-﻿Behold, you are beautiful, my love. Behold, you are beautiful. Your eyes are like doves behind your veil. Your hair is as a flock of goats, that descend from Mount Gilead. 
+﻿Look, you are beautiful, my love. Look, you are beautiful. Your eyes are like doves behind your veil. Your hair is as a flock of goats, that descend from Mount Gilead. 
 Your teeth are like a newly shorn flock, which have come up from the washing, where every one of them has twins. None is bereaved among them. 
 Your lips are like scarlet thread. Your mouth is lovely. Your temples are like a piece of a pomegranate behind your veil. 
 Your neck is like David's tower built for an armory, on which a thousand shields hang, all the shields of the mighty men. 

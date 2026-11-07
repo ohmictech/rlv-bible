@@ -21,7 +21,7 @@ You shall remember that you were a servant in the land of Egypt, and your God br
 "You shall not covet your neighbor's wife. Neither shall you desire your neighbor's house, his field, or his male servant, or his female servant, his ox, or his donkey, or anything that is your neighbor's." 
 God spoke these words to all your assembly on the mountain out of the middle of the fire, of the cloud, and of the thick darkness, with a great voice. He added no more. He wrote them on two stone tablets, and gave them to me. 
 When you heard the voice out of the middle of the darkness, while the mountain was burning with fire, you came near to me, even all the heads of your tribes, and your elders; 
-and you said, "Behold, our God has shown us his glory and his greatness, and we have heard his voice out of the middle of the fire. We have seen today that God does speak with man, and he lives. 
+and you said, "Look, our God has shown us his glory and his greatness, and we have heard his voice out of the middle of the fire. We have seen today that God does speak with man, and he lives. 
 Now, why should we die? This great fire will consume us. If we hear our God's voice any more, then we shall die. 
 Who is there of all flesh who has heard the voice of the living God speaking out of the middle of the fire, as we have, and lived? 
 Go near, and hear all that our God shall say, and tell us all that our God tells you; and we will hear it, and do it." 

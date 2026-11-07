@@ -20,7 +20,7 @@ Now Saul, and they, and all the men of Israel were in the valley of Elah, fighti
 David rose up early in the morning and left the sheep with a keeper, and took the provisions and went, as Jesse had commanded him. He came to the place of the wagons as the army which was going out to the fight shouted for the battle. 
 Israel and the Philistines put the battle in array, army against army. 
 David left his baggage in the hand of the keeper of the baggage and ran to the army, and came and greeted his brothers. 
-As he talked with them, behold, the champion, the Philistine of Gath, Goliath by name, came up out of the ranks of the Philistines, and said the same words; and David heard them. 
+As he talked with them, look, the champion, the Philistine of Gath, Goliath by name, came up out of the ranks of the Philistines, and said the same words; and David heard them. 
 All the men of Israel, when they saw the man, fled from him and were terrified. 
 The men of Israel said, "Have you seen this man who has come up? He has surely come up to defy Israel. The king will give great riches to the man who kills him, and will give him his daughter, and will make his father's house tax-free in Israel." 
 David spoke to the men who stood by him, saying, "What shall be done to the man who kills this Philistine and takes away the reproach from Israel? Who is this uncircumcised Philistine, that he should defy the armies of the living God?" 

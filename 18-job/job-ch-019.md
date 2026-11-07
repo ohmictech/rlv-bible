@@ -4,7 +4,7 @@ You have reproached me ten times. You aren't ashamed that you attack me.
 If it is true that I have erred, my error remains with myself. 
 If indeed you will magnify yourselves against me, and plead against me my reproach, 
 know now that God has subverted me, and has surrounded me with his net. 
-"Behold, I cry out of wrong, but I am not heard. I cry for help, but there is no justice. 
+"Look, I cry out of wrong, but I am not heard. I cry for help, but there is no justice. 
 He has walled up my way so that I can't pass, and has set darkness in my paths. 
 He has stripped me of my glory, and taken the crown from my head. 
 He has broken me down on every side, and I am gone. He has plucked my hope up like a tree. 

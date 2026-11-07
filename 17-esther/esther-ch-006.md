@@ -2,7 +2,7 @@
 It was found written that Mordecai had told of Bigthana and Teresh, two of the king's eunuchs, who were doorkeepers, who had tried to lay hands on the King Ahasuerus. 
 The king said, "What honor and dignity has been given to Mordecai for this?" Then the king's servants who attended him said, "Nothing has been done for him." 
 The king said, "Who is in the court?" Now Haman had come into the outer court of the king's house, to speak to the king about hanging Mordecai on the gallows that he had prepared for him. 
-The king's servants said to him, "Behold, Haman stands in the court." The king said, "Let him come in." 
+The king's servants said to him, "Look, Haman stands in the court." The king said, "Let him come in." 
 So Haman came in. The king said to him, "What shall be done to the man whom the king delights to honor?" Now Haman said in his heart, "Who would the king delight to honor more than myself?" 
 Haman said to the king, "For the man whom the king delights to honor, 
 let royal clothing be brought which the king uses to wear, and the horse that the king rides on, and on the head of which a royal crown is set. 

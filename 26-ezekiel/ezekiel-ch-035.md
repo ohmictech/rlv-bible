@@ -1,6 +1,6 @@
 ﻿Moreover God's word came to me, saying, 
 "Son of man, set your face against Mount Seir, and prophesy against it, 
-and tell it, 'The God says: "Behold, I am against you, Mount Seir, and I will stretch out my hand against you. I will make you a desolation and an astonishment. 
+and tell it, 'The God says: "Look, I am against you, Mount Seir, and I will stretch out my hand against you. I will make you a desolation and an astonishment. 
 I will lay your cities waste, and you will be desolate. Then you will know that I am God. 
 "'"Because you have had a perpetual hostility, and have given over the children of Israel to the power of the sword in the time of their calamity, in the time of the guilt of the end, 
 So, as I live," says God, "I will prepare you for blood, and blood will pursue you. Since you have not hated blood, blood will pursue you. 

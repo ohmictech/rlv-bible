@@ -1,4 +1,4 @@
-﻿Then all the tribes of Israel came to David at Hebron and spoke, saying, "Behold, we are your bone and your flesh. 
+﻿Then all the tribes of Israel came to David at Hebron and spoke, saying, "Look, we are your bone and your flesh. 
 In times past, when Saul was king over us, it was you who led Israel out and in. God said to you, 'You will be shepherd of my people Israel, and you will be prince over Israel.'" 
 So all the elders of Israel came to the king to Hebron, and King David made a covenant with them in Hebron before God; and they anointed David king over Israel. 
 David was thirty years old when he began to reign, and he reigned forty years. 

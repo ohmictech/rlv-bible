@@ -28,19 +28,19 @@ They went out into the field, harvested their vineyards, trod the grapes, celebr
 Gaal the son of Ebed said, "Who is Abimelech, and who is Shechem, that we should serve him? Isn't he the son of Jerubbaal? Isn't Zebul his officer? Serve the men of Hamor the father of Shechem, but why should we serve him? 
 I wish that this people were under my hand! Then I would remove Abimelech." He said to Abimelech, "Increase your army and come out!" 
 When Zebul the ruler of the city heard the words of Gaal the son of Ebed, his anger burned. 
-He sent messengers to Abimelech craftily, saying, "Behold, Gaal the son of Ebed and his brothers have come to Shechem; and behold, they incite the city against you. 
+He sent messengers to Abimelech craftily, saying, "Look, Gaal the son of Ebed and his brothers have come to Shechem; and look, they incite the city against you. 
 Now, go up by night, you and the people who are with you, and lie in wait in the field. 
-It shall be that in the morning, as soon as the sun is up, you shall rise early and rush on the city. Behold, when he and the people who are with him come out against you, then may you do to them as you shall find occasion." 
+It shall be that in the morning, as soon as the sun is up, you shall rise early and rush on the city. Look, when he and the people who are with him come out against you, then may you do to them as you shall find occasion." 
 Abimelech rose up, and everyone who was with him, by night, and they laid wait against Shechem in four companies. 
 Gaal the son of Ebed went out, and stood in the entrance of the gate of the city. Abimelech rose up, and the people who were with him, from the ambush. 
-When Gaal saw the people, he said to Zebul, "Behold, people are coming down from the tops of the mountains." Zebul said to him, "You see the shadows of the mountains as if they were men." 
-Gaal spoke again and said, "Behold, people are coming down by the middle of the land, and one company comes by the way of the oak of Meonenim." 
+When Gaal saw the people, he said to Zebul, "Look, people are coming down from the tops of the mountains." Zebul said to him, "You see the shadows of the mountains as if they were men." 
+Gaal spoke again and said, "Look, people are coming down by the middle of the land, and one company comes by the way of the oak of Meonenim." 
 Then Zebul said to him, "Now where is your mouth, that you said, 'Who is Abimelech, that we should serve him?' Isn't this the people that you have despised? Please go out now and fight with them." 
 Gaal went out before the men of Shechem, and fought with Abimelech. 
 Abimelech chased him, and he fled before him, and many fell wounded, even to the entrance of the gate. 
 Abimelech lived at Arumah; and Zebul drove out Gaal and his brothers, that they should not dwell in Shechem. 
 On the next day, the people went out into the field; and they told Abimelech. 
-He took the people and divided them into three companies, and laid wait in the field; and he looked, and behold, the people came out of the city. So, he rose up against them and struck them. 
+He took the people and divided them into three companies, and laid wait in the field; and he looked, and look, the people came out of the city. So, he rose up against them and struck them. 
 Abimelech and the companies that were with him rushed forward and stood in the entrance of the gate of the city; and the two companies rushed on everyone who was in the field and struck them. 
 Abimelech fought against the city all that day; and he took the city and killed the people in it. He beat down the city and sowed it with salt. 
 When all the men of the tower of Shechem heard of it, they entered into the stronghold of the house of Elberith. 

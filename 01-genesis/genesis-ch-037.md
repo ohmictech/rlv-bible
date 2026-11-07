@@ -4,19 +4,19 @@ Now Israel loved Joseph more than all his children, because he was the son of hi
 His brothers saw that their father loved him more than all his brothers, and they hated him, and couldn't speak peaceably to him. 
 Joseph dreamed a dream, and he told it to his brothers, and they hated him all the more. 
 He said to them, "Please hear this dream which I have dreamed: 
-for behold, we were binding sheaves in the field, and behold, my sheaf arose and also stood upright; and behold, your sheaves came around, and bowed down to my sheaf." 
+look, we were binding sheaves in the field, and look, my sheaf arose and also stood upright; and look, your sheaves came around, and bowed down to my sheaf." 
 His brothers asked him, "Will you indeed reign over us? Will you indeed have dominion over us?" They hated him all the more for his dreams and for his words. 
-He dreamed yet another dream, and told it to his brothers, and said, "Behold, I have dreamed yet another dream: and behold, the sun and the moon and eleven stars bowed down to me." 
+He dreamed yet another dream, and told it to his brothers, and said, "Look, I have dreamed yet another dream: and look, the sun and the moon and eleven stars bowed down to me." 
 He told it to his father and to his brothers. His father rebuked him, and said to him, "What is this dream that you have dreamed? Will I and your mother and your brothers indeed come to bow ourselves down to the earth before you?" 
 His brothers envied him, but his father kept this saying in mind. 
 His brothers went to feed their father's flock in Shechem. 
 Israel said to Joseph, "Aren't your brothers feeding the flock in Shechem? Come, and I will send you to them." He said to him, "Here I am." 
 He said to him, "Go now, see whether it is well with your brothers, and well with the flock; and bring me word again." So he sent him out of the valley of Hebron, and he came to Shechem. 
-A certain man found him, and behold, he was wandering in the field. The man asked him, "What are you looking for?" 
+A certain man found him, and look, he was wandering in the field. The man asked him, "What are you looking for?" 
 He said, "I am looking for my brothers. Tell me, please, where they are feeding the flock." 
 The man said, "They have left here, for I heard them say, 'Let's go to Dothan.'" Joseph went after his brothers, and found them in Dothan. 
 They saw him afar off, and before he came near to them, they conspired against him to kill him. 
-They said to one another, "Behold, this dreamer comes. 
+They said to one another, "Look, this dreamer comes. 
 Come now, and let's kill him, and cast him into one of the pits, and we will say, 'An bad animal has devoured him.' We will see what will become of his dreams." 
 Reuben heard it, and delivered him out of their hand, and said, "Let's not take his life." 
 Reuben said to them, "Shed no blood. Throw him into this pit that is in the wilderness, but lay no hand on him", that he might deliver him out of their hand, to restore him to his father. 

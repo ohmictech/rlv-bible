@@ -5,9 +5,9 @@ You shall lay them up in the Tent of Meeting before the covenant, where I meet w
 It shall happen that the rod of the man whom I shall choose shall bud. I will make the murmurings of the children of Israel, which they murmur against you, cease from me." 
 Moses spoke to the children of Israel; and all their princes gave him rods, for each prince one, according to their fathers' houses, a total of twelve rods. Aaron's rod was among their rods. 
 Moses laid up the rods before God in the Tent of the Testimony. 
-On the next day, Moses went into the Tent of the Testimony; and behold, Aaron's rod for the house of Levi had sprouted, budded, produced blossoms, and bore ripe almonds. 
+On the next day, Moses went into the Tent of the Testimony; and look, Aaron's rod for the house of Levi had sprouted, budded, produced blossoms, and bore ripe almonds. 
 Moses brought out all the rods from before God to all the children of Israel. They looked, and each man took his rod. 
 God said to Moses, "Put back the rod of Aaron before the covenant, to be kept for a token against the children of rebellion; that you may make an end of their complaining against me, that they not die." 
 Moses did so. As God commanded him, so he did. 
-The children of Israel spoke to Moses, saying, "Behold, we perish! We are undone! We are all undone! 
+The children of Israel spoke to Moses, saying, "Look, we perish! We are undone! We are all undone! 
 Everyone who keeps approaching God's tabernacle, dies! Will we all perish?" 

@@ -18,8 +18,8 @@ He brought near the family of Judah, and he selected the family of the Zerahites
 He brought near his household man by man, and Achan, the son of Carmi, the son of Zabdi, the son of Zerah, of the tribe of Judah, was selected. 
 Joshua said to Achan, "My son, please give glory to the God of Israel, and make confession to him. Tell me now what you have done! Don't hide it from me!" 
 Achan answered Joshua, and said, "I have truly wronged the God of Israel, and this is what I have done. 
-When I saw among the plunder a beautiful Babylonian robe, two hundred shekels of silver, and a wedge of gold weighing fifty shekels, then I coveted them and took them. Behold, they are hidden in the ground in the middle of my tent, with the silver under it." 
-So Joshua sent messengers, and they ran to the tent. Behold, it was hidden in his tent, with the silver under it. 
+When I saw among the plunder a beautiful Babylonian robe, two hundred shekels of silver, and a wedge of gold weighing fifty shekels, then I coveted them and took them. Look, they are hidden in the ground in the middle of my tent, with the silver under it." 
+So Joshua sent messengers, and they ran to the tent. Look, it was hidden in his tent, with the silver under it. 
 They took them from the middle of the tent, and brought them to Joshua and to all the children of Israel. They laid them down before God. 
 Joshua, and all Israel with him, took Achan the son of Zerah, the silver, the robe, the wedge of gold, his sons, his daughters, his cattle, his donkeys, his sheep, his tent, and all that he had; and they brought them up to the valley of Achor. 
 Joshua said, "Why have you troubled us? God will trouble you today." All Israel stoned him with stones, and they burned them with fire and stoned them with stones. 

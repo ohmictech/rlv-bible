@@ -5,7 +5,7 @@ As for your birth, in the day you were born your navel was not cut. You weren't 
 No eye pitied you, to do any of these things to you, to have compassion on you; but you were cast out in the open field, because you were abhorred in the day that you were born. 
 "'"When I passed by you, and saw you wallowing in your blood, I said to you, 'Though you are in your blood, live!' Yes, I said to you, 'Though you are in your blood, live!' 
 I caused you to multiply as that which grows in the field, and you increased and grew great, and you attained to excellent beauty. Your breasts were formed, and your hair grew; yet you were naked and bare. 
-"'"Now when I passed by you, and looked at you, behold, your time was the time of love; and I spread my garment over you and covered your nakedness. Yes, I pledged myself to you and entered into a covenant with you," says God, "and you became mine. 
+"'"Now when I passed by you, and looked at you, look, your time was the time of love; and I spread my garment over you and covered your nakedness. Yes, I pledged myself to you and entered into a covenant with you," says God, "and you became mine. 
 "'"Then I washed you with water. Yes, I thoroughly washed away your blood from you, and I anointed you with oil. 
 I clothed you also with embroidered work and put leather sandals on you. I dressed you with fine linen and covered you with silk. 
 I decked you with ornaments, put bracelets on your hands, and put a chain on your neck. 
@@ -40,13 +40,13 @@ I will also give you into their hand, and they will throw down your vaulted plac
 They will also bring up a company against you, and they will stone you with stones, and thrust you through with their swords. 
 They will burn your houses with fire, and execute judgments on you in the sight of many women. I will cause you to cease from playing the prostitute, and you will also give no hire any more. 
 So I will cause my wrath toward you to rest, and my jealousy will depart from you. I will be quiet, and will not be angry any more. 
-"'"Because you have not remembered the days of your youth, but have raged against me in all these things;, behold, I also will bring your way on your head," says God: "and you shall not commit this lewdness with all your abominations. 
-"'"Behold, everyone who uses proverbs will use this proverb against you, saying, 'As is the mother, so is her daughter.' 
+"'"Because you have not remembered the days of your youth, but have raged against me in all these things;, look, I also will bring your way on your head," says God: "and you shall not commit this lewdness with all your abominations. 
+"'"Look, everyone who uses proverbs will use this proverb against you, saying, 'As is the mother, so is her daughter.' 
 You are the daughter of your mother, who loathes her husband and her children; and you are the sister of your sisters, who loathed their husbands and their children. Your mother was a Hittite, and your father an Amorite. 
 Your elder sister is Samaria, who dwells at your left hand, she and her daughters; and your younger sister, who dwells at your right hand, is Sodom with her daughters. 
 Yet you have not walked in their ways, nor done their abominations; but soon you were more corrupt than they in all your ways. 
 As I live," says God, "Sodom your sister has not done, she nor her daughters, as you have done, you and your daughters. 
-"'"Behold, this was the guilt of your sister Sodom: pride, fullness of bread, and prosperous ease was in her and in her daughters. She also didn't strengthen the hand of the poor and needy. 
+"'"Look, this was the guilt of your sister Sodom: pride, fullness of bread, and prosperous ease was in her and in her daughters. She also didn't strengthen the hand of the poor and needy. 
 They were arrogant and committed abomination before me. So I took them away when I saw it. 
 Samaria hasn't committed half of your mistakes; but you have multiplied your abominations more than they, and have justified your sisters by all your abominations which you have done. 
 You also bear your own shame yourself, in that you have given judgment for your sisters; through your mistakes that you have committed more abominable than they, they are more righteous than you. Yes, be also confounded, and bear your shame, in that you have justified your sisters. 

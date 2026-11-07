@@ -1,12 +1,12 @@
 ﻿Now Ahab had seventy sons in Samaria. Jehu wrote letters and sent them to Samaria, to the rulers of Jezreel, even the elders, and to those who brought up Ahab's sons, saying, 
 "Now as soon as this letter comes to you, since your master's sons are with you, and you have chariots and horses, a fortified city also, and armor, 
 select the best and fittest of your master's sons, set him on his father's throne, and fight for your master's house." 
-But they were exceedingly afraid, and said, "Behold, the two kings didn't stand before him! How then shall we stand?" 
+But they were exceedingly afraid, and said, "Look, the two kings didn't stand before him! How then shall we stand?" 
 He who was over the household, and he who was over the city, the elders also, and those who raised the children, sent to Jehu, saying, "We are your servants, and will do all that you ask us. We will not make any man king. You do that which is good in your eyes." 
 Then he wrote a letter the second time to them, saying, "If you are on my side, and if you will listen to my voice, take the heads of the men who are your master's sons, and come to me to Jezreel by tomorrow this time." Now the king's sons, being seventy persons, were with the great men of the city, who brought them up. 
 When the letter came to them, they took the king's sons and killed them, even seventy people, and put their heads in baskets, and sent them to him to Jezreel. 
 A messenger came and told him, "They have brought the heads of the king's sons." He said, "Lay them in two heaps at the entrance of the gate until the morning." 
-In the morning, he went out and stood, and said to everyone, "You are righteous. Behold, I conspired against my master and killed him, but who killed all these? 
+In the morning, he went out and stood, and said to everyone, "You are righteous. Look, I conspired against my master and killed him, but who killed all these? 
 Know now that nothing will fall to the earth of God's word, which God spoke concerning Ahab's house. God has done that which he spoke by his servant Elijah." 
 So Jehu struck all that remained of Ahab's house in Jezreel, with all his great men, his familiar friends, and his priests, until he left him no one remaining. 
 He arose and departed, and went to Samaria. As he was at the shearing house of the shepherds on the way, 

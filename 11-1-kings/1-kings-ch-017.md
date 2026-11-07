@@ -6,10 +6,10 @@ So he went and did according to God's word, for he went and lived by the brook C
 The ravens brought him bread and meat in the morning, and bread and meat in the evening; and he drank from the brook. 
 After a while, the brook dried up, because there was no rain in the land. 
 God's word came to him, saying, 
-"Arise, go to Zarephath, which belongs to Sidon, and stay there. Behold, I have commanded a widow there to sustain you." 
-So he arose and went to Zarephath; and when he came to the gate of the city, behold, a widow was there gathering sticks. He called to her and said, "Please get me a little water in a jar, that I may drink." 
+"Arise, go to Zarephath, which belongs to Sidon, and stay there. Look, I have commanded a widow there to sustain you." 
+So he arose and went to Zarephath; and when he came to the gate of the city, look, a widow was there gathering sticks. He called to her and said, "Please get me a little water in a jar, that I may drink." 
 As she was going to get it, he called to her and said, "Please bring me a morsel of bread in your hand." 
-She said, "As your God lives, I don't have anything baked, but only a handful of meal in a jar and a little oil in a jar. Behold, I am gathering two sticks, that I may go in and bake it for me and my son, that we may eat it, and die." 
+She said, "As your God lives, I don't have anything baked, but only a handful of meal in a jar and a little oil in a jar. Look, I am gathering two sticks, that I may go in and bake it for me and my son, that we may eat it, and die." 
 Elijah said to her, "Don't be afraid. Go and do as you have said; but make me a little cake from it first, and bring it out to me, and afterward make some for you and for your son. 
 The God of Israel says, 'The jar of meal will not run out, and the jar of oil will not fail, until the day that God sends rain on the earth.'" 
 She went and did according to the saying of Elijah; and she, he, and her household ate many days. 
@@ -20,5 +20,5 @@ He said to her, "Give me your son." He took him out of her bosom, and carried hi
 He cried to God and said, "God my God, have you also brought bad on the widow with whom I am staying, by killing her son?" 
 He stretched himself on the child three times, and cried to God and said, "God my God, please let this child's soul come into him again." 
 God listened to the voice of Elijah; and the soul of the child came into him again, and he revived. 
-Elijah took the child and brought him down out of the room into the house, and delivered him to his mother; and Elijah said, "Behold, your son lives." 
+Elijah took the child and brought him down out of the room into the house, and delivered him to his mother; and Elijah said, "Look, your son lives." 
 The woman said to Elijah, "Now I know that you are a man of God, and that God's word in your mouth is truth." 

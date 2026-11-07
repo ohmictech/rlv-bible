@@ -12,7 +12,7 @@ This commandment which I command you today is not too hard for you or too distan
 It is not in the sky, that you should say, "Who will go up for us to the sky, bring it to us, and proclaim it to us, that we may do it?" 
 Neither is it beyond the sea, that you should say, "Who will go over the sea for us, bring it to us, and proclaim it to us, that we may do it?" 
 But the word is very near to you, in your mouth and in your heart, that you may do it. 
-Behold, I have set before you today life and prosperity, and death and bad. 
+Look, I have set before you today life and prosperity, and death and bad. 
 I command you today to love your God, to walk in his ways and to keep his commandments, his statutes, and his ordinances, that you may live and multiply, and that your God may bless you in the land where you go in to possess it. 
 But if your heart turns away, and you will not hear, but are drawn away and worship other gods, and serve them, 
 I declare to you today that you will surely perish. You will not prolong your days in the land where you pass over the Jordan to go in to possess it. 

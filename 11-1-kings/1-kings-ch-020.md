@@ -10,7 +10,7 @@ So he said to the messengers of Ben Hadad, "Tell my lord the king, 'All that you
 Ben Hadad sent to him, and said, "The gods do so to me, and more also, if the dust of Samaria will be enough for handfuls for everyone who follow me." 
 The king of Israel answered, "Tell him, 'Don't let him who puts on his armor brag like he who takes it off.'" 
 When Ben Hadad heard this message as he was drinking, he and the kings in the pavilions, he said to his servants, "Prepare to attack!" So they prepared to attack the city. 
-Behold, a spokesman came near to Ahab king of Israel, and said, "God says, 'Have you seen all this great multitude? Behold, I will deliver it into your hand today. Then you will know that I am God.'" 
+Look, a spokesman came near to Ahab king of Israel, and said, "God says, 'Have you seen all this great multitude? Look, I will deliver it into your hand today. Then you will know that I am God.'" 
 Ahab said, "By whom?" He said, "God says, 'By the young men of the princes of the provinces.'" Then he said, "Who shall begin the battle?" He answered, "You." 
 Then he mustered the young men of the princes of the provinces, and they were two hundred and thirty-two. After them, he mustered everyone, even all the children of Israel, being seven thousand. 
 They went out at noon. But Ben Hadad was drinking himself drunk in the pavilions, he and the kings, the thirty-two kings who helped him. 
@@ -33,10 +33,10 @@ So they put sackcloth on their bodies and ropes on their heads, and came to the 
 Now the men observed diligently and hurried to take this phrase; and they said, "Your brother Ben Hadad." Then he said, "Go, bring him." Then Ben Hadad came out to him; and he caused him to come up into the chariot. 
 Ben Hadad said to him, "The cities which my father took from your father I will restore. You shall make streets for yourself in Damascus, as my father made in Samaria." "I", said Ahab, "will let you go with this covenant." So he made a covenant with him and let him go. 
 A certain man of the sons of the spokesmen said to his fellow by God's word, "Please strike me!" The man refused to strike him. 
-Then he said to him, "Because you have not obeyed God's voice, behold, as soon as you have departed from me, a lion will kill you." As soon as he had departed from him, a lion found him and killed him. 
+Then he said to him, "Because you have not obeyed God's voice, look, as soon as you have departed from me, a lion will kill you." As soon as he had departed from him, a lion found him and killed him. 
 Then he found another man, and said, "Please strike me." The man struck him and wounded him. 
 So the spokesman departed and waited for the king by the way, and disguised himself with his headband over his eyes. 
-As the king passed by, he cried to the king, and he said, "Your servant went out into the middle of the battle; and behold, a man came over and brought a man to me, and said, 'Guard this man! If by any means he is missing, then your life shall be for his life, or else you shall pay a talent of silver.' 
+As the king passed by, he cried to the king, and he said, "Your servant went out into the middle of the battle; and look, a man came over and brought a man to me, and said, 'Guard this man! If by any means he is missing, then your life shall be for his life, or else you shall pay a talent of silver.' 
 As your servant was busy here and there, he was gone." The king of Israel said to him, "So shall your judgment be. You yourself have decided it." 
 He hurried, and took the headband away from his eyes; and the king of Israel recognized that he was one of the spokesmen. 
 He said to him, "God says, 'Because you have let go out of your hand the man whom I had devoted to destruction, your life will take the place of his life, and your people take the place of his people.'" 

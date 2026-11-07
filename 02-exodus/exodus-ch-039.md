@@ -40,4 +40,4 @@ the bronze altar, its grating of bronze, its poles, all of its vessels, the bami
 the hangings of the court, its pillars, its sockets, the screen for the gate of the court, its cords, its pins, and all the instruments of the service of the tabernacle, for the Tent of Meeting, 
 the finely worked garments for ministering in the holy place, the holy garments for Aaron the priest, and the garments of his sons, to minister in the priest's office. 
 According to all that God commanded Moses, so the children of Israel did all the work. 
-Moses saw all the work, and behold, they had done it as God had commanded. They had done so; and Moses blessed them. 
+Moses saw all the work, and look, they had done it as God had commanded. They had done so; and Moses blessed them. 

@@ -6,10 +6,10 @@ They said to him, "Please ask counsel of God, that we may know whether our way w
 The priest said to them, "Go in peace. Your way in which you go is before God." 
 Then the five men departed and came to Laish and saw the people who were there, how they lived in safety, in the way of the Sidonians, quiet and secure; for there was no one in the land possessing authority, that might put them to shame in anything, and they were far from the Sidonians, and had no dealings with anyone else. 
 They came to their brothers at Zorah and Eshtaol; and their brothers asked them, "What do you say?" 
-They said, "Arise, and let's go up against them; for we have seen the land, and behold, it is very good. Do you stand still? Don't be slothful to go and to enter in to possess the land. 
+They said, "Arise, and let's go up against them; for we have seen the land, and look, it is very good. Do you stand still? Don't be slothful to go and to enter in to possess the land. 
 When you go, you will come to an unsuspecting people, and the land is large; for God has given it into your hand, a place where there is no lack of anything that is on the earth." 
 The family of the Danites set out from Zorah and Eshtaol with six hundred men armed with weapons of war. 
-They went up and encamped in Kiriath Jearim in Judah. So they call that place Mahaneh Dan to this day. Behold, it is behind Kiriath Jearim. 
+They went up and encamped in Kiriath Jearim in Judah. So they call that place Mahaneh Dan to this day. Look, it is behind Kiriath Jearim. 
 They passed from there to the hill country of Ephraim, and came to the house of Micah. 
 Then the five men who went to spy out the country of Laish answered and said to their brothers, "Do you know that there is in these houses an ephod, and teraphim, and a carved image, and a molten image? Now consider what you have to do." 
 They went over there and came to the house of the young Levite man, even to the house of Micah, and asked him how he was doing. 

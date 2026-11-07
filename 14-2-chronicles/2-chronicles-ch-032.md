@@ -29,5 +29,5 @@ also storehouses for the increase of grain, new wine, and oil; and stalls for al
 Moreover he provided for himself cities, and possessions of flocks and herds in abundance; for God had given him abundant possessions. 
 This same Hezekiah also stopped the upper spring of the waters of Gihon, and brought them straight down on the west side of David's city. Hezekiah prospered in all his works. 
 However, concerning the ambassadors of the princes of Babylon, who sent to him to inquire of the wonder that was done in the land, God left him to test him, that he might know all that was in his heart. 
-Now the rest of the acts of Hezekiah and his good deeds, behold, they are written in the vision of Isaiah the spokesman, the son of Amoz, in the book of the kings of Judah and Israel. 
+Now the rest of the acts of Hezekiah and his good deeds, look, they are written in the vision of Isaiah the spokesman, the son of Amoz, in the book of the kings of Judah and Israel. 
 Hezekiah slept with his fathers, and they buried him in the ascent to the tombs of the sons of David. All Judah and the inhabitants of Jerusalem honored him at his death. Manasseh his son reigned in his place. 

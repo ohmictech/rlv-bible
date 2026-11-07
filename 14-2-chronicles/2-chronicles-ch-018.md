@@ -9,7 +9,7 @@ Then the king of Israel called an officer, and said, "Get Micaiah the son of Iml
 Now the king of Israel and Jehoshaphat the king of Judah each sat on his throne, arrayed in their robes, and they were sitting in an open place at the entrance of the gate of Samaria; and all the spokesmen were prophesying before them. 
 Zedekiah the son of Chenaanah made himself horns of iron and said, "God says, 'With these you shall push the Syrians, until they are consumed.'" 
 All the spokesmen prophesied so, saying, "Go up to Ramoth Gilead, and prosper; for God will deliver it into the hand of the king." 
-The messenger who went to call Micaiah spoke to him, saying, "Behold, the words of the spokesmen declare good to the king with one mouth. Let your word, please be like one of theirs, and speak good." 
+The messenger who went to call Micaiah spoke to him, saying, "Look, the words of the spokesmen declare good to the king with one mouth. Let your word, please be like one of theirs, and speak good." 
 Micaiah said, "As God lives, I will say what my God says." 
 When he had come to the king, the king said to him, "Micaiah, shall we go to Ramoth Gilead to battle, or shall I forbear?" He said, "Go up, and prosper. They shall be delivered into your hand." 
 The king said to him, "How many times shall I adjure you that you speak to me nothing but the truth in God's name?" 
@@ -19,9 +19,9 @@ Micaiah said, "Therefore hear God's word: I saw God sitting on his throne, and a
 God said, 'Who will entice Ahab king of Israel, that he may go up and fall at Ramoth Gilead?' One spoke saying in this way, and another saying in that way. 
 A spirit came out, stood before God, and said, 'I will entice him.' "God said to him, 'How?' 
 "He said, 'I will go, and will be a lying spirit in the mouth of all his spokesmen.' "He said, 'You will entice him, and will prevail also. Go and do so.' 
-"Now, behold, God has put a lying spirit in the mouth of these your spokesmen; and God has spoken bad concerning you." 
+"Now, look, God has put a lying spirit in the mouth of these your spokesmen; and God has spoken bad concerning you." 
 Then Zedekiah the son of Chenaanah came near, and struck Micaiah on the cheek, and said, "Which way did God's Spirit go from me to speak to you?" 
-Micaiah said, "Behold, you shall see on that day, when you go into an inner room to hide yourself." 
+Micaiah said, "Look, you shall see on that day, when you go into an inner room to hide yourself." 
 The king of Israel said, "Take Micaiah, and carry him back to Amon the governor of the city, and to Joash the king's son; 
 and say, 'The king says, "Put this fellow in the prison, and feed him with bread of affliction and with water of affliction, until I return in peace."'" 
 Micaiah said, "If you return at all in peace, God has not spoken by me." He said, "Listen, you people, all of you!" 

@@ -9,10 +9,10 @@ Who has heard of such a thing? Who has seen such things? Shall a land be born in
 Shall I bring to the birth, and not cause to be delivered?" says God. "Shall I who cause to give birth shut the womb?" says your God. 
 "Rejoice with Jerusalem, and be glad for her, all you who love her. Rejoice for joy with her, all you who mourn over her; 
 that you may nurse and be satisfied at the comforting breasts; that you may drink deeply, and be delighted with the abundance of her glory." 
-God says, "Behold, I will extend peace to her like a river, and the glory of the nations like an overflowing stream, and you will nurse. You will be carried on her side, and will be dandled on her knees. 
+God says, "Look, I will extend peace to her like a river, and the glory of the nations like an overflowing stream, and you will nurse. You will be carried on her side, and will be dandled on her knees. 
 As one whom his mother comforts, so I will comfort you. You will be comforted in Jerusalem." 
 You will see it, and your heart shall rejoice, and your bones will flourish like the tender grass. God's hand will be known among his servants; and he will have indignation against his enemies. 
-For, behold, God will come with fire, and his chariots will be like the whirlwind; to give his anger with fierceness, and his rebuke with flames of fire. 
+For, look, God will come with fire, and his chariots will be like the whirlwind; to give his anger with fierceness, and his rebuke with flames of fire. 
 God will execute judgment by fire and by his sword on all flesh; and those slain by God will be many. 
 "Those who sanctify themselves and purify themselves to go to the gardens, following one in the middle, eating pig's meat, abominable things, and the mouse, they shall come to an end together," says God. 
 "I know their works and their thoughts. The time comes that I will gather all nations and languages, and they will come, and will see my glory. 

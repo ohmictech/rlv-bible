@@ -1,7 +1,7 @@
 ﻿Moreover God answered Job, 
 "Shall he who argues contend with the Almighty? He who argues with God, let him answer it." 
 Then Job answered God, 
-"Behold, I am of small account. What will I answer you? I lay my hand on my mouth. 
+"Look, I am of small account. What will I answer you? I lay my hand on my mouth. 
 I have spoken once, and I will not answer; Yes, twice, but I will proceed no further." 
 Then God answered Job out of the whirlwind: 
 "Now brace yourself like a man. I will question you, and you will answer me. 
@@ -20,5 +20,5 @@ He is the chief of the ways of God. He who made him gives him his sword.
 Surely the mountains produce food for him, where all the animals of the field play. 
 He lies under the lotus trees, in the covert of the reed, and the marsh. 
 The lotuses cover him with their shade. The willows of the brook surround him. 
-Behold, if a river overflows, he doesn't tremble. He is confident, though the Jordan swells even to his mouth. 
+Look, if a river overflows, he doesn't tremble. He is confident, though the Jordan swells even to his mouth. 
 Shall any take him when he is on the watch, or pierce through his nose with a snare? 

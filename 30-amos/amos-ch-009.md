@@ -5,11 +5,11 @@ Though they go into captivity before their enemies, there I will command the swo
 The Lord, the GOD of Armies, is he who touches the land and it melts, and everyone who dwells in it will mourn; and it will rise up wholly like the River, and will sink again, like the River of Egypt. 
 It is he who builds his rooms in the sky, and has founded his vault on the earth; he who calls for the waters of the sea, and pours them out on the surface of the earth, God is his name. 
 Are you not like the children of the Ethiopians to me, children of Israel?" says God. "Haven't I brought up Israel out of the land of Egypt, and the Philistines from Caphtor, and the Syrians from Kir? 
-Behold, the eyes of God are on the sinful kingdom, and I will destroy it from off the surface of the earth, except that I will not utterly destroy the house of Jacob," says God. 
-"Behold, I will command, and I will sift the house of Israel among all the nations as grain is sifted in a sieve, yet not the least kernel will fall on the earth. 
+Look, the eyes of God are on the sinful kingdom, and I will destroy it from off the surface of the earth, except that I will not utterly destroy the house of Jacob," says God. 
+"Look, I will command, and I will sift the house of Israel among all the nations as grain is sifted in a sieve, yet not the least kernel will fall on the earth. 
 All the those who have drifted of my people will die by the sword, who say, 'Bad won't overtake nor meet us.' 
 In that day I will raise up the tent of David who is fallen and close up its breaches, and I will raise up its ruins, and I will build it as in the days of old, 
 that they may possess the remnant of Edom and all the nations who are called by my name," says God who does this. 
-"Behold, the days come," says God, "that the plowman shall overtake the reaper, and the one treading grapes him who sows seed; and sweet wine will drip from the mountains, and flow from the hills. 
+"Look, the days come," says God, "that the plowman shall overtake the reaper, and the one treading grapes him who sows seed; and sweet wine will drip from the mountains, and flow from the hills. 
 I will bring my people Israel back from captivity, and they will rebuild the ruined cities, and inhabit them; and they will plant vineyards, and drink wine from them. They shall also make gardens, and eat their fruit. 
 I will plant them on their land, and they will no more be plucked up out of their land which I have given them," says your God. 

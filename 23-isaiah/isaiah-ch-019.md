@@ -1,4 +1,4 @@
-﻿The burden of Egypt. "Behold, God rides on a swift cloud, and comes to Egypt. The idols of Egypt will tremble at his presence; and the heart of Egypt will melt within it. 
+﻿The burden of Egypt. "Look, God rides on a swift cloud, and comes to Egypt. The idols of Egypt will tremble at his presence; and the heart of Egypt will melt within it. 
 I will stir up the Egyptians against the Egyptians, and they will fight everyone against his brother, and everyone against his neighbor; city against city, and kingdom against kingdom. 
 The spirit of the Egyptians will fail within them. I will destroy their counsel. They will seek the idols, the charmers, those who have familiar spirits, and the wizards. 
 I will give over the Egyptians into the hand of a cruel lord. A fierce king will rule over them," says the Lord, GOD of Armies. 

@@ -2,8 +2,8 @@
 Wash me thoroughly from my guilt. Cleanse me from my wrongdoing. 
 I know my rebellion. My wrongdoing is constantly before me. 
 Against you, and you only, I have drifted, and done that which is bad in your sight, so you may be proved right when you speak, and justified when you judge. 
-Behold, I was born in guilt. My mother conceived me in wrongdoing. 
-Behold, you desire truth in the inward parts. You teach me wisdom in the inmost place. 
+Look, I was born in guilt. My mother conceived me in wrongdoing. 
+Look, you desire truth in the inward parts. You teach me wisdom in the inmost place. 
 Purify me with hyssop, and I will be clean. Wash me, and I will be whiter than snow. 
 Let me hear joy and gladness, that the bones which you have broken may rejoice. 
 Hide your face from my mistakes, and blot out all of my guilt. 

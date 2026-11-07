@@ -1,10 +1,10 @@
 ﻿In the eleventh year, in the first of the month, God's word came to me, saying, 
 "Son of man, because Tyre has said against Jerusalem, 'Aha! She is broken! She who was the gateway of the peoples has been returned to me. I will be replenished, now that she is laid waste;' 
-So God says, 'Behold, I am against you, Tyre, and will cause many nations to come up against you, as the sea causes its waves to come up. 
+So God says, 'Look, I am against you, Tyre, and will cause many nations to come up against you, as the sea causes its waves to come up. 
 They will destroy the walls of Tyre, and break down her towers. I will also scrape her dust from her, and make her a bare rock. 
 She will be a place for the spreading of nets in the middle of the sea; for I have spoken it,' says God. 'She will become plunder for the nations. 
 Her daughters who are in the field will be slain with the sword. Then they will know that I am God.' 
-"For God says: 'Behold, I will bring on Tyre Nebuchadnezzar king of Babylon, king of kings, from the north, with horses, with chariots, with horsemen, and an army with many people. 
+"For God says: 'Look, I will bring on Tyre Nebuchadnezzar king of Babylon, king of kings, from the north, with horses, with chariots, with horsemen, and an army with many people. 
 He will kill your daughters in the field with the sword. He will make forts against you, cast up a mound against you, and raise up the buckler against you. 
 He will set his battering engines against your walls, and with his axes he will break down your towers. 
 By reason of the abundance of his horses, their dust will cover you. Your walls will shake at the noise of the horsemen, of the wagons, and of the chariots, when he enters into your gates, as men enter into a city which is broken open. 

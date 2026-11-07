@@ -1,5 +1,5 @@
 ﻿The vision of Obadiah. This is what God says about Edom. We have heard news from God, and an ambassador is sent among the nations, saying, "Arise, and let's rise up against her in battle. 
-Behold, I have made you small among the nations. You are greatly despised. 
+Look, I have made you small among the nations. You are greatly despised. 
 The pride of your heart has deceived you, you who dwell in the clefts of the rock, whose habitation is high, who says in his heart, 'Who will bring me down to the ground?' 
 Though you mount on high as the eagle, and though your nest is set among the stars, I will bring you down from there," says God. 
 "If thieves came to you, if robbers by night, oh, what disaster awaits you, wouldn't they only steal until they had enough? If grape pickers came to you, wouldn't they leave some gleaning grapes? 

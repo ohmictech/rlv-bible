@@ -16,7 +16,7 @@ Blow the trumpet in Zion! Sanctify a fast. Call a solemn assembly.
 Gather the people. Sanctify the assembly. Assemble the elders. Gather the children, and those who nurse from breasts. Let the bridegroom go out of his room, and the bride out of her chamber. 
 Let the priests, the ministers of God, weep between the porch and the altar, and let them say, "Spare your people, God, and don't give your heritage to reproach, that the nations should rule over them. Why should they say among the peoples, 'Where is their God?'" 
 Then God was jealous for his land, and had pity on his people. 
-God answered his people, "Behold, I will send you grain, new wine, and oil, and you will be satisfied with them; and I will no more make you a reproach among the nations. 
+God answered his people, "Look, I will send you grain, new wine, and oil, and you will be satisfied with them; and I will no more make you a reproach among the nations. 
 But I will remove the northern army far away from you, and will drive it into a barren and desolate land, its front into the eastern sea, and its back into the western sea; and its stench will come up, and its bad smell will rise." Surely he has done great things. 
 Land, don't be afraid. Be glad and rejoice, for God has done great things. 
 Don't be afraid, you animals of the field; for the pastures of the wilderness spring up, for the tree bears its fruit. The fig tree and the vine yield their strength. 

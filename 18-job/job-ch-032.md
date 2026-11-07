@@ -8,7 +8,7 @@ I said, 'Days should speak, and multitude of years should teach wisdom.'
 But there is a spirit in man, and the Spirit of the Almighty gives them understanding. 
 It is not the great who are wise, nor the aged who understand justice. 
 So I said, 'Listen to me; I also will show my opinion.' 
-"Behold, I waited for your words, and I listened for your reasoning, while you searched out what to say. 
+"Look, I waited for your words, and I listened for your reasoning, while you searched out what to say. 
 Yes, I gave you my full attention, but there was no one who convinced Job, or who answered his words, among you. 
 Beware lest you say, 'We have found wisdom. God may refute him, not man;' 
 for he has not directed his words against me; neither will I answer him with your speeches. 
@@ -16,7 +16,7 @@ for he has not directed his words against me; neither will I answer him with you
 Shall I wait, because they don't speak, because they stand still, and answer no more? 
 I also will answer my part, and I also will show my opinion. 
 I am full of words. The spirit within me constrains me. 
-Behold, my breast is as wine which has no vent; like new wineskins it is ready to burst. 
+Look, my breast is as wine which has no vent; like new wineskins it is ready to burst. 
 I will speak, that I may be refreshed. I will open my lips and answer. 
 Please don't let me respect any man's person, neither will I give flattering titles to any man. 
 I don't know how to give flattering titles, or else my Maker would soon take me away. 

@@ -1,6 +1,6 @@
-﻿David was told, "Behold, the Philistines are fighting against Keilah, and are robbing the threshing floors." 
+﻿David was told, "Look, the Philistines are fighting against Keilah, and are robbing the threshing floors." 
 So David inquired of God, saying, "Shall I go and strike these Philistines?" God said to David, "Go strike the Philistines, and save Keilah." 
-David's men said to him, "Behold, we are afraid here in Judah. How much more then if we go to Keilah against the armies of the Philistines?" 
+David's men said to him, "Look, we are afraid here in Judah. How much more then if we go to Keilah against the armies of the Philistines?" 
 Then David inquired of God yet again. God answered him, and said, "Arise, go down to Keilah; for I will deliver the Philistines into your hand." 
 David and his men went to Keilah and fought with the Philistines, and brought away their livestock, and killed them with a great slaughter. So David saved the inhabitants of Keilah. 
 When Abiathar the son of Ahimelech fled to David to Keilah, he came down with an ephod in his hand. 

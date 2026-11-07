@@ -4,7 +4,7 @@ Saul encamped in the hill of Hachilah, which is before the desert, by the way. B
 David sent out spies, and understood that Saul had certainly come. 
 Then David arose and came to the place where Saul had encamped; and David saw the place where Saul lay, with Abner the son of Ner, the captain of his army. Saul lay within the place of the wagons, and the people were encamped around him. 
 Then David answered and said to Ahimelech the Hittite, and to Abishai the son of Zeruiah, brother of Joab, saying, "Who will go down with me to Saul to the camp?" Abishai said, "I will go down with you." 
-So David and Abishai came to the people by night; and, behold, Saul lay sleeping within the place of the wagons, with his spear stuck in the ground at his head; and Abner and the people lay around him. 
+So David and Abishai came to the people by night; and, look, Saul lay sleeping within the place of the wagons, with his spear stuck in the ground at his head; and Abner and the people lay around him. 
 Then Abishai said to David, "God has delivered up your enemy into your hand today. Now please let me strike him with the spear to the earth at one stroke, and I will not strike him the second time." 
 David said to Abishai, "Don't destroy him, for who can stretch out his hand against God's anointed, and be guiltless?" 
 David said, "As God lives, God will strike him; or his day shall come to die, or he shall go down into battle and perish. 
@@ -18,8 +18,8 @@ Saul recognized David's voice, and said, "Is this your voice, my son David?" Dav
 He said, "Why does my lord pursue his servant? What have I done? What bad is in my hand? 
 Now, please let my lord the king hear the words of his servant. If it is so that God has stirred you up against me, let him accept an offering. But if it is the children of men, they are cursed before God; for they have driven me out today that I shouldn't cling to God's inheritance, saying, 'Go, serve other gods!' 
 Now, don't let my blood fall to the earth away from the presence of God; for the king of Israel has come out to seek a flea, as when one hunts a partridge in the mountains." 
-Then Saul said, "I have drifted. Return, my son David; for I will no more do you harm, because my life was precious in your eyes today. Behold, I have played the fool, and have erred exceedingly." 
-David answered, "Behold the spear, O king! Let one of the young men come over and get it. 
+Then Saul said, "I have drifted. Return, my son David; for I will no more do you harm, because my life was precious in your eyes today. Look, I have played the fool, and have erred exceedingly." 
+David answered, "Look the spear, O king! Let one of the young men come over and get it. 
 God will give to every man his righteousness and his faithfulness; because God delivered you into my hand today, and I wouldn't stretch out my hand against God's anointed. 
-Behold, as your life was respected today in my eyes, so let my life be respected in God's eyes, and let him deliver me out of all oppression." 
+Look, as your life was respected today in my eyes, so let my life be respected in God's eyes, and let him deliver me out of all oppression." 
 Then Saul said to David, "You are blessed, my son David. You will both do mightily, and will surely prevail." So David went his way, and Saul returned to his place. 

@@ -21,11 +21,11 @@ The king commanded Hilkiah, Ahikam the son of Shaphan, Abdon the son of Micah, S
 "Go inquire of God for me, and for those who are left in Israel and in Judah, concerning the words of the book that is found; for great is God's wrath that is poured out on us, because our fathers have not kept God's word, to do according to all that is written in this book." 
 So Hilkiah and those whom the king had commanded went to Huldah the prophetess, the wife of Shallum the son of Tokhath, the son of Hasrah, keeper of the wardrobe (now she lived in Jerusalem in the second quarter), and they spoke to her to that effect. 
 She said to them, "The God of Israel says: 'Tell the man who sent you to me, 
-"God says, 'Behold, I will bring bad on this place and on its inhabitants, even all the curses that are written in the book which they have read before the king of Judah. 
+"God says, 'Look, I will bring bad on this place and on its inhabitants, even all the curses that are written in the book which they have read before the king of Judah. 
 Because they have forsaken me, and have burned incense to other gods, that they might provoke me to anger with all the works of their hands, my wrath is poured out on this place, and it will not be quenched.'"' 
 But to the king of Judah, who sent you to inquire of God, you shall tell him this, 'The God of Israel says: "About the words which you have heard, 
 because your heart was tender, and you humbled yourself before God when you heard his words against this place and against its inhabitants, and have humbled yourself before me, and have torn your clothes and wept before me, I also have heard you," says God. 
-"Behold, I will gather you to your fathers, and you will be gathered to your grave in peace. Your eyes won't see all the bad that I will bring on this place and on its inhabitants."'" They brought back this message to the king. 
+"Look, I will gather you to your fathers, and you will be gathered to your grave in peace. Your eyes won't see all the bad that I will bring on this place and on its inhabitants."'" They brought back this message to the king. 
 Then the king sent and gathered together all the elders of Judah and Jerusalem. 
 The king went up to God's house with all the men of Judah and the inhabitants of Jerusalem, the priests, the Levites, and everyone, both great and small, and he read in their hearing all the words of the book of the covenant that was found in God's house. 
 The king stood in his place and made a covenant before God, to walk after God, and to keep his commandments, his testimonies, and his statutes with all his heart and with all his soul, to perform the words of the covenant that were written in this book. 

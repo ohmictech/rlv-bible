@@ -19,6 +19,6 @@ Jael went out to meet Sisera, and said to him, "Turn in, my lord, turn in to me;
 He said to her, "Please give me a little water to drink; for I am thirsty." She opened a container of milk, and gave him a drink, and covered him. 
 He said to her, "Stand in the door of the tent, and if any man comes and inquires of you, and says, 'Is there any man here?' you shall say, 'No.'" 
 Then Jael, Heber's wife, took a tent peg, and took a hammer in her hand, and went softly to him, and struck the pin into his temples, and it pierced through into the ground, for he was in a deep sleep; so he fainted and died. 
-Behold, as Barak pursued Sisera, Jael came out to meet him, and said to him, "Come, and I will show you the man whom you seek." He came to her; and behold, Sisera lay dead, and the tent peg was in his temples. 
+Look, as Barak pursued Sisera, Jael came out to meet him, and said to him, "Come, and I will show you the man whom you seek." He came to her; and look, Sisera lay dead, and the tent peg was in his temples. 
 So God subdued Jabin the king of Canaan before the children of Israel on that day. 
 The hand of the children of Israel prevailed more and more against Jabin the king of Canaan, until they had destroyed Jabin king of Canaan. 

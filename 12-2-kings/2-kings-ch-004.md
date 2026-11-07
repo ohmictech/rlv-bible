@@ -10,7 +10,7 @@ She said to her husband, "See now, I perceive that this is a holy man of God who
 Please, let's make a little room on the roof. Let's set a bed, a table, a chair, and a lamp stand for him there. When he comes to us, he can stay there." 
 One day he came there, and he went to the room and lay there. 
 He said to Gehazi his servant, "Call this Shunammite." When he had called her, she stood before him. 
-He said to him, "Say now to her, 'Behold, you have cared for us with all this care. What is to be done for you? Would you like to be spoken for to the king, or to the captain of the army?'" She answered, "I dwell among my own people." 
+He said to him, "Say now to her, 'Look, you have cared for us with all this care. What is to be done for you? Would you like to be spoken for to the king, or to the captain of the army?'" She answered, "I dwell among my own people." 
 He said, "What then is to be done for her?" Gehazi answered, "Most certainly she has no son, and her husband is old." 
 He said, "Call her." When he had called her, she stood in the door. 
 He said, "At this season next year, you will embrace a son." She said, "No, my lord, you man of God, do not lie to your servant." 
@@ -22,14 +22,14 @@ She went up and laid him on the man of God's bed, and shut the door on him, and 
 She called to her husband and said, "Please send me one of the servants, and one of the donkeys, that I may run to the man of God and come again." 
 He said, "Why would you want to go to him today? It is not a new moon or a Sabbath." She said, "It's all right." 
 Then she saddled a donkey, and said to her servant, "Drive, and go forward! Don't slow down for me, unless I ask you to." 
-So she went, and came to the man of God to Mount Carmel. When the man of God saw her afar off, he said to Gehazi his servant, "Behold, there is the Shunammite. 
+So she went, and came to the man of God to Mount Carmel. When the man of God saw her afar off, he said to Gehazi his servant, "Look, there is the Shunammite. 
 Please run now to meet her, and ask her, 'Is it well with you? Is it well with your husband? Is it well with your child?'" She answered, "It is well." 
 When she came to the man of God to the hill, she caught hold of his feet. Gehazi came near to thrust her away; but the man of God said, "Leave her alone, for her soul is troubled within her; and God has hidden it from me, and has not told me." 
 Then she said, "Did I ask you for a son, my lord? Didn't I say, 'Do not deceive me'?" 
 Then he said to Gehazi, "Tuck your cloak into your belt, take my staff in your hand, and go your way. If you meet any man, don't greet him; and if anyone greets you, don't answer him again. Then lay my staff on the child's face." 
 The child's mother said, "As God lives, and as your soul lives, I will not leave you." So he arose, and followed her. 
 Gehazi went ahead of them, and laid the staff on the child's face; but there was no voice and no hearing. So he returned to meet him, and told him, "The child has not awakened." 
-When Elisha had come into the house, behold, the child was dead, and lying on his bed. 
+When Elisha had come into the house, look, the child was dead, and lying on his bed. 
 He went in, and shut the door on them both, and prayed to God. 
 He went up and lay on the child, and put his mouth on his mouth, and his eyes on his eyes, and his hands on his hands. He stretched himself on him; and the child's flesh grew warm. 
 Then he returned, and walked in the house once back and forth, then went up and stretched himself out on him. Then the child sneezed seven times, and the child opened his eyes. 

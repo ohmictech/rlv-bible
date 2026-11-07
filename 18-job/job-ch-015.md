@@ -12,7 +12,7 @@ Are the consolations of God too small for you, even the word that is gentle towa
 Why does your heart carry you away? Why do your eyes flash, 
 that you turn your spirit against God, and let such words go out of your mouth? 
 What is man, that he should be clean? What is he who is born of a woman, that he should be righteous? 
-Behold, he puts no trust in his holy ones. Yes, the sky are not clean in his sight; 
+Look, he puts no trust in his holy ones. Yes, the sky are not clean in his sight; 
 how much less one who is abominable and corrupt, a man who drinks guilt like water! 
 "I will show you, listen to me; that which I have seen I will declare 
 (which wise men have told by their fathers, and have not hidden it; 

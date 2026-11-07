@@ -8,7 +8,7 @@ Now Samuel didn't yet know God, neither was God's word yet revealed to him.
 God called Samuel again the third time. He arose and went to Eli and said, "Here I am; for you called me." Eli perceived that God had called the child. 
 So Eli said to Samuel, "Go, lie down. It shall be, if he calls you, that you shall say, 'Speak, God; for your servant hears.'" So Samuel went and lay down in his place. 
 God came, and stood, and called as at other times, "Samuel! Samuel!" Then Samuel said, "Speak; for your servant hears." 
-God said to Samuel, "Behold, I will do a thing in Israel at which both the ears of everyone who hears it will tingle. 
+God said to Samuel, "Look, I will do a thing in Israel at which both the ears of everyone who hears it will tingle. 
 In that day I will perform against Eli all that I have spoken concerning his house, from the beginning even to the end. 
 I have told him that I will judge his house for the eras for the guilt which he knew, because his sons brought a curse on themselves, and he didn't restrain them. 
 So I have sworn to the house of Eli that the guilt of Eli's house shall not be removed with sacrifice or offering for the eras." 

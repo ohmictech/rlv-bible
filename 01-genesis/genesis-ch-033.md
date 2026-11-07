@@ -1,4 +1,4 @@
-﻿Jacob lifted up his eyes, and looked, and, behold, Esau was coming, and with him four hundred men. He divided the children between Leah, Rachel, and the two servants. 
+﻿Jacob lifted up his eyes, and looked, and, look, Esau was coming, and with him four hundred men. He divided the children between Leah, Rachel, and the two servants. 
 He put the servants and their children in front, Leah and her children after, and Rachel and Joseph at the rear. 
 He himself passed over in front of them, and bowed himself to the ground seven times, until he came near to his brother. 
 Esau ran to meet him, embraced him, fell on his neck, kissed him, and they wept. 

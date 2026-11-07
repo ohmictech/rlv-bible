@@ -18,7 +18,7 @@ The king of Assyria sent Tartan, Rabsaris, and Rabshakeh from Lachish to King He
 When they had called to the king, Eliakim the son of Hilkiah, who was over the household, and Shebnah the secretary, and Joah the son of Asaph the recorder came out to them. 
 Rabshakeh said to them, "Say now to Hezekiah, 'The great king, the king of Assyria, says, "What confidence is this in which you trust? 
 You say (but they are but vain words), 'There is counsel and strength for war.' Now on whom do you trust, that you have rebelled against me? 
-Now, behold, you trust in the staff of this bruised reed, even in Egypt. If a man leans on it, it will go into his hand and pierce it. So is Pharaoh king of Egypt to everyone who trusts on him. 
+Now, look, you trust in the staff of this bruised reed, even in Egypt. If a man leans on it, it will go into his hand and pierce it. So is Pharaoh king of Egypt to everyone who trusts on him. 
 But if you tell me, 'We trust in our God,' isn't that he whose high places and whose altars Hezekiah has taken away, and has said to Judah and to Jerusalem, 'You shall worship before this altar in Jerusalem'? 
 Now, please give pledges to my master the king of Assyria, and I will give you two thousand horses if you are able on your part to set riders on them. 
 How then can you turn away the face of one captain of the least of my master's servants, and put your trust on Egypt for chariots and for horsemen? 

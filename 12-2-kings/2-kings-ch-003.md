@@ -17,7 +17,7 @@ He said, "God says, 'Make this valley full of trenches.'
 For God says, 'You will not see wind, neither will you see rain, yet that valley will be filled with water, and you will drink, both you and your livestock and your other animals. 
 This is an easy thing in God's sight. He will also deliver the Moabites into your hand. 
 You shall strike every fortified city and every choice city, and shall fell every good tree, and stop all springs of water, and mar every good piece of land with stones.'" 
-In the morning, about the time of offering the sacrifice, behold, water came by the way of Edom, and the country was filled with water. 
+In the morning, about the time of offering the sacrifice, look, water came by the way of Edom, and the country was filled with water. 
 Now when all the Moabites heard that the kings had come up to fight against them, they gathered themselves together, everyone who was able to put on armor, young and old, and stood on the border. 
 They rose up early in the morning, and the sun shone on the water, and the Moabites saw the water opposite them as red as blood. 
 They said, "This is blood. The kings are surely destroyed, and they have struck each other. Now, Moab, to the plunder!" 

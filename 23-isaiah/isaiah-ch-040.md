@@ -6,13 +6,13 @@ God's glory shall be revealed, and all flesh shall see it together; for the mout
 The voice of one saying, "Cry out!" One said, "What shall I cry?" "All flesh is like grass, and all its glory is like the flower of the field. 
 The grass withers, the flower fades, because God's breath blows on it. Surely the people are like grass. 
 The grass withers, the flower fades; but the word of our God stands for the eras." 
-You who tell good news to Zion, go up on a high mountain. You who tell good news to Jerusalem, lift up your voice with strength! Lift it up! Don't be afraid! Say to the cities of Judah, "Behold, your God!" 
-Behold, God will come as a mighty one, and his arm will rule for him. Behold, his reward is with him, and his recompense before him. 
+You who tell good news to Zion, go up on a high mountain. You who tell good news to Jerusalem, lift up your voice with strength! Lift it up! Don't be afraid! Say to the cities of Judah, "Look, your God!" 
+Look, God will come as a mighty one, and his arm will rule for him. Look, his reward is with him, and his recompense before him. 
 He will feed his flock like a shepherd. He will gather the lambs in his arm, and carry them in his bosom. He will gently lead those who have their young. 
 Who has measured the waters in the hollow of his hand, and marked off the sky with his span, and calculated the dust of the earth in a measuring basket, and weighed the mountains in scales, and the hills in a balance? 
 Who has directed God's Spirit, or has taught him as his counselor? 
 Who did he take counsel with, and who instructed him, and taught him in the path of justice, and taught him knowledge, and showed him the way of understanding? 
-Behold, the nations are like a drop in a bucket, and are regarded as a speck of dust on a balance. Behold, he lifts up the islands like a very little thing. 
+Look, the nations are like a drop in a bucket, and are regarded as a speck of dust on a balance. Look, he lifts up the islands like a very little thing. 
 Lebanon is not sufficient to burn, nor its animals sufficient for a burnt offering. 
 All the nations are like nothing before him. They are regarded by him as less than nothing, and vanity. 
 To whom then will you liken God? Or what likeness will you compare to him? 

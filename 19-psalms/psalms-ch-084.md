@@ -6,7 +6,7 @@ Blessed are those whose strength is in you, who have set their hearts on a pilgr
 Passing through the valley of Weeping, they make it a place of springs. Yes, the autumn rain covers it with blessings. 
 They go from strength to strength. Every one of them appears before God in Zion. 
 God, God of Armies, hear my prayer. Listen, God of Jacob. Selah. 
-Behold, God our shield, look at the face of your anointed. 
+Look, God our shield, look at the face of your anointed. 
 A day in your courts is better than a thousand. I would rather be a doorkeeper in the house of my God, than to dwell in the tents of guilt. 
 God is a sun and a shield. God will give grace and glory. He withholds no good thing from those who walk blamelessly. 
 God of Armies blessed is the man who trusts in you. 

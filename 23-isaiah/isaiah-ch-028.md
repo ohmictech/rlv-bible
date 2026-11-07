@@ -1,5 +1,5 @@
 ﻿Woe to the crown of pride of the drunkards of Ephraim, and to the fading flower of his glorious beauty, which is on the head of the fertile valley of those who are overcome with wine! 
-Behold, the Lord has one who is mighty and strong. Like a storm of hail, a destroying storm, and like a storm of mighty waters overflowing, he will cast them down to the earth with his hand. 
+Look, the Lord has one who is mighty and strong. Like a storm of hail, a destroying storm, and like a storm of mighty waters overflowing, he will cast them down to the earth with his hand. 
 The crown of pride of the drunkards of Ephraim will be trodden under foot. 
 The fading flower of his glorious beauty, which is on the head of the fertile valley, shall be like the first-ripe fig before the summer, which someone picks and eats as soon as he sees it. 
 In that day, the God of Armies will become a crown of glory and a diadem of beauty to the residue of his people, 
@@ -13,7 +13,7 @@ to whom he said, "This is the resting place. Give rest to the weary," and "This 
 So God's word will be to them precept on precept, precept on precept; line on line, line on line; here a little, there a little; that they may go, fall backward, be broken, be snared, and be taken. 
 So hear God's word, you scoffers, that rule this people in Jerusalem: 
 "Because you have said, 'We have made a covenant with death, and we are in agreement with Hades. When the overflowing scourge passes through, it won't come to us; for we have made lies our refuge, and we have hidden ourselves under falsehood.'" 
-So God says, "Behold, I lay in Zion for a foundation a stone, a tried stone, a precious cornerstone of a sure foundation. He who believes shall not act hastily. 
+So God says, "Look, I lay in Zion for a foundation a stone, a tried stone, a precious cornerstone of a sure foundation. He who believes shall not act hastily. 
 I will make justice the measuring line, and righteousness the plumb line. The hail will sweep away the refuge of lies, and the waters will overflow the hiding place. 
 Your covenant with death shall be annulled, and your agreement with Hades shall not stand. When the overflowing scourge passes through, then you will be trampled down by it. 
 As often as it passes through, it will seize you; for morning by morning it will pass through, by day and by night; and it will be nothing but terror to understand the message." 

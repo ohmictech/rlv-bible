@@ -7,7 +7,7 @@ When the men of Israel saw that they were in trouble (for the people were distre
 Now some of the Hebrews had gone over the Jordan to the land of Gad and Gilead; but as for Saul, he was yet in Gilgal, and everyone followed him trembling. 
 He stayed seven days, according to the time set by Samuel; but Samuel didn't come to Gilgal, and the people were scattering from him. 
 Saul said, "Bring the burnt offering to me here, and the offerings for wholeness." He offered the burnt offering. 
-It came to pass that as soon as he had finished offering the burnt offering, behold, Samuel came; and Saul went out to meet him, that he might greet him. 
+It came to pass that as soon as he had finished offering the burnt offering, look, Samuel came; and Saul went out to meet him, that he might greet him. 
 Samuel said, "What have you done?" Saul said, "Because I saw that the people were scattered from me, and that you didn't come within the days appointed, and that the Philistines assembled themselves together at Michmash, 
 So I said, 'Now the Philistines will come down on me to Gilgal, and I haven't entreated the favor of God.' I forced myself, and offered the burnt offering." 
 Samuel said to Saul, "You have done foolishly. You have not kept the commandment of your God, which he commanded you; for now God would have established your kingdom on Israel for the eras. 

@@ -15,7 +15,7 @@ Then he said, "the God of Israel, there is no God like you in the sky or on eart
 who have kept with your servant David my father that which you promised him. Yes, you spoke with your mouth, and have fulfilled it with your hand, as it is today. 
 "Now, the God of Israel, keep with your servant David my father that which you have promised him, saying, 'There shall not fail you a man in my sight to sit on the throne of Israel, if only your children take heed to their way, to walk in my law as you have walked before me.' 
 Now, the God of Israel, let your word be verified, which you spoke to your servant David. 
-"But will God indeed dwell with men on the earth? Behold, the sky and the sky above the skies can't contain you; how much less this house which I have built! 
+"But will God indeed dwell with men on the earth? Look, the sky and the sky above the skies can't contain you; how much less this house which I have built! 
 Yet have respect for the prayer of your servant and to his supplication, God my God, to listen to the cry and to the prayer which your servant prays before you; 
 that your eyes may be open toward this house day and night, even toward the place where you have said that you would put your name, to listen to the prayer which your servant will pray toward this place. 
 Listen to the petitions of your servant and of your people Israel, when they pray toward this place. Yes, hear from your dwelling place, even from the sky; and when you hear, forgive. 

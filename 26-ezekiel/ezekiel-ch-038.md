@@ -1,6 +1,6 @@
 ﻿God's word came to me, saying, 
 "Son of man, set your face toward Gog, of the land of Magog, the prince of Rosh, Meshech, and Tubal, and prophesy against him, 
-and say, 'The God says: "Behold, I am against you, Gog, prince of Rosh, Meshech, and Tubal. 
+and say, 'The God says: "Look, I am against you, Gog, prince of Rosh, Meshech, and Tubal. 
 I will turn you around, and put hooks into your jaws, and I will bring you out, with all your army, horses and horsemen, everyone clothed in full armor, a great company with buckler and shield, everyone handling swords; 
 Persia, Cush, and Put with them, everyone with shield and helmet; 
 Gomer, and all his hordes; the house of Togarmah in the uttermost parts of the north, and all his hordes, even many peoples with you. 

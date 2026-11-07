@@ -1,11 +1,11 @@
 ﻿The Chief Musician. A Psalm by David. God, you have searched me, and you know me. 
 You know my sitting down and my rising up. You perceive my thoughts from afar. 
 You search out my path and my lying down, and are acquainted with all my ways. 
-There is not a word on my tongue, but behold, God, you know it altogether. 
+There is not a word on my tongue, but look, God, you know it altogether. 
 You hem me in behind and before. You laid your hand on me. 
 This knowledge is beyond me. It's lofty. I can't attain it. 
 Where could I go from your Spirit? Or where could I flee from your presence? 
-If I ascend up into the sky, you are there. If I make my bed in Hades, behold, you are there! 
+If I ascend up into the sky, you are there. If I make my bed in Hades, look, you are there! 
 If I take the wings of the dawn, and settle in the uttermost parts of the sea, 
 even there your hand will lead me, and your right hand will hold me. 
 If I say, "Surely the darkness will overwhelm me. The light around me will be night," 

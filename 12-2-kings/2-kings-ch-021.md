@@ -9,7 +9,7 @@ I will not cause the feet of Israel to wander any more out of the land which I g
 But they didn't listen, and Manasseh seduced them to do that which is bad more than the nations did whom God destroyed before the children of Israel. 
 God spoke by his servants the spokesmen, saying, 
 "Because Manasseh king of Judah has done these abominations, and has done guiltily above all that the Amorites did, who were before him, and has also made Judah to drift with his idols; 
-So God the God of Israel says, 'Behold, I will bring such bad on Jerusalem and Judah that whoever hears of it, both his ears will tingle. 
+So God the God of Israel says, 'Look, I will bring such bad on Jerusalem and Judah that whoever hears of it, both his ears will tingle. 
 I will stretch over Jerusalem the line of Samaria, and the plumb line of Ahab's house; and I will wipe Jerusalem as a man wipes a dish, wiping it and turning it upside down. 
 I will cast off the remnant of my inheritance and deliver them into the hands of their enemies. They will become a prey and a plunder to all their enemies, 
 because they have done that which is bad in my sight, and have provoked me to anger since the day their fathers came out of Egypt, even to this day.'" 

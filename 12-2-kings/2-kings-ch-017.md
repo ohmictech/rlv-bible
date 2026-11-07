@@ -23,7 +23,7 @@ The children of Israel walked in all the drifts of Jeroboam which he did; they d
 until God removed Israel out of his sight, as he said by all his servants the spokesmen. So Israel was carried away out of their own land to Assyria to this day. 
 The king of Assyria brought people from Babylon, from Cuthah, from Avva, and from Hamath and Sepharvaim, and placed them in the cities of Samaria instead of the children of Israel; and they possessed Samaria and lived in its cities. 
 So it was, at the beginning of their dwelling there, that they didn't fear God. So God sent lions among them, which killed some of them. 
-So they spoke to the king of Assyria, saying, "The nations which you have carried away and placed in the cities of Samaria don't know the law of the god of the land. So he has sent lions among them; and behold, they kill them, because they don't know the law of the god of the land." 
+So they spoke to the king of Assyria, saying, "The nations which you have carried away and placed in the cities of Samaria don't know the law of the god of the land. So he has sent lions among them; and look, they kill them, because they don't know the law of the god of the land." 
 Then the king of Assyria commanded, saying, "Carry there one of the priests whom you brought from there; and let him go and dwell there, and let him teach them the law of the god of the land." 
 So one of the priests whom they had carried away from Samaria came and lived in Bethel, and taught them how they should fear God. 
 However every nation made gods of their own, and put them in the houses of the high places which the Samaritans had made, every nation in their cities in which they lived. 

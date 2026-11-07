@@ -9,7 +9,7 @@ One who plots to do bad things will be called a schemer.
 The schemes of folly are wrongdoing. The mocker is detested by men. 
 If you falter in the time of trouble, your strength is small. 
 Rescue those who are being led away to death! Indeed, hold back those who are staggering to the slaughter! 
-If you say, "Behold, we didn't know this," doesn't he who weighs the hearts consider it? He who keeps your soul, doesn't he know it? Shall he not give to every man according to his work? 
+If you say, "Look, we didn't know this," doesn't he who weighs the hearts consider it? He who keeps your soul, doesn't he know it? Shall he not give to every man according to his work? 
 My son, eat honey, for it is good, the droppings of the honeycomb, which are sweet to your taste; 
 so you shall know wisdom to be to your soul. If you have found it, then there will be a reward: Your hope will not be cut off. 
 Don't lay in wait, guilty man, against the habitation of the righteous. Don't destroy his resting place; 
@@ -28,7 +28,7 @@ Prepare your work outside, and get your fields ready. Afterwards, build your hou
 Don't be a witness against your neighbor without cause. Don't deceive with your lips. 
 Don't say, "I will do to him as he has done to me; I will repay the man according to his work." 
 I went by the field of the sluggard, by the vineyard of the man void of understanding. 
-Behold, it was all grown over with thorns. Its surface was covered with nettles, and its stone wall was broken down. 
+Look, it was all grown over with thorns. Its surface was covered with nettles, and its stone wall was broken down. 
 Then I saw, and considered well. I saw, and received instruction: 
 a little sleep, a little slumber, a little folding of the hands to sleep, 
 so your poverty will come as a robber and your want as an armed man. 

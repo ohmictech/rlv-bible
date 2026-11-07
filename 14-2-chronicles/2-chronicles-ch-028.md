@@ -6,7 +6,7 @@ So his God delivered him into the hand of the king of Syria. They struck him, an
 Pekah the son of Remaliah killed in Judah one hundred twenty thousand in one day, everyone valiant men, because they had forsaken the God of their fathers. 
 Zichri, a mighty man of Ephraim, killed Maaseiah the king's son, Azrikam the ruler of the house, and Elkanah who was next to the king. 
 The children of Israel carried away captive of their brothers two hundred thousand women, sons, and daughters, and also took away much plunder from them, and brought the plunder to Samaria. 
-But a spokesman of God was there, whose name was Oded; and he went out to meet the army that came to Samaria, and said to them, "Behold, because the God of your fathers was angry with Judah, he has delivered them into your hand, and you have slain them in a rage which has reached up to the sky. 
+But a spokesman of God was there, whose name was Oded; and he went out to meet the army that came to Samaria, and said to them, "Look, because the God of your fathers was angry with Judah, he has delivered them into your hand, and you have slain them in a rage which has reached up to the sky. 
 Now you intend to degrade the children of Judah and Jerusalem as male and female slaves for yourselves. Aren't there even with you trespasses of your own against your God? 
 Now hear me, and send back the captives that you have taken captive from your brothers, for the fierce wrath of God is on you." 
 Then some of the heads of the children of Ephraim, Azariah the son of Johanan, Berechiah the son of Meshillemoth, Jehizkiah the son of Shallum, and Amasa the son of Hadlai, stood up against those who came from the war, 
@@ -23,5 +23,5 @@ In the time of his distress, he trespassed yet more against God, this same King 
 He sacrificed to the gods of Damascus which had defeated him. He said, "Because the gods of the kings of Syria helped them, I will sacrifice to them, that they may help me." But they were the ruin of him and of all Israel. 
 Ahaz gathered together the vessels of God's house, cut the vessels of God's house in pieces, and shut up the doors of God's house; and he made himself altars in every corner of Jerusalem. 
 In every city of Judah he made high places to burn incense to other gods, and provoked the God of his fathers, to anger. 
-Now the rest of his acts, and all his ways, first and last, behold, they are written in the book of the kings of Judah and Israel. 
+Now the rest of his acts, and all his ways, first and last, look, they are written in the book of the kings of Judah and Israel. 
 Ahaz slept with his fathers, and they buried him in the city, even in Jerusalem, because they didn't bring him into the tombs of the kings of Israel; and Hezekiah his son reigned in his place. 

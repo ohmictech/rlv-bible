@@ -17,7 +17,7 @@ He brought streams also out of the rock, and caused waters to run down like rive
 Yet they still went on to wrong him, to rebel against the Most High in the desert. 
 They tempted God in their heart by asking food according to their desire. 
 Yes, they spoke against God. They said, "Can God prepare a table in the wilderness? 
-Behold, he struck the rock, so that waters gushed out, and streams overflowed. Can he give bread also? Will he provide meat for his people?" 
+Look, he struck the rock, so that waters gushed out, and streams overflowed. Can he give bread also? Will he provide meat for his people?" 
 So God heard, and was angry. A fire was kindled against Jacob, anger also went up against Israel, 
 because they didn't believe in God, and didn't trust in his salvation. 
 Yet he commanded the skies above, and opened the doors of the sky. 

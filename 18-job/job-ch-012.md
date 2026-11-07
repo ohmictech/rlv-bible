@@ -11,8 +11,8 @@ in whose hand is the life of every living thing, and the breath of all mankind?
 Doesn't the ear try words, even as the palate tastes its food? 
 With aged men is wisdom, in length of days understanding. 
 "With God is wisdom and might. He has counsel and understanding. 
-Behold, he breaks down, and it can't be built again. He imprisons a man, and there can be no release. 
-Behold, he withholds the waters, and they dry up. Again, he sends them out, and they overturn the earth. 
+Look, he breaks down, and it can't be built again. He imprisons a man, and there can be no release. 
+Look, he withholds the waters, and they dry up. Again, he sends them out, and they overturn the earth. 
 With him is strength and wisdom. The deceived and the deceiver are his. 
 He leads counselors away stripped. He makes judges fools. 
 He loosens the bond of kings. He binds their waist with a belt. 

@@ -7,7 +7,7 @@ Delilah said to Samson, "Please tell me where your great strength lies, and what
 Samson said to her, "If they bind me with seven green cords that were never dried, then shall I become weak, and be as another man." 
 Then the lords of the Philistines brought up to her seven green cords which had not been dried, and she bound him with them. 
 Now she had an ambush waiting in the inner room. She said to him, "The Philistines are on you, Samson!" He broke the cords as a flax thread is broken when it touches the fire. So his strength was not known. 
-Delilah said to Samson, "Behold, you have mocked me, and told me lies. Now please tell me how you might be bound." 
+Delilah said to Samson, "Look, you have mocked me, and told me lies. Now please tell me how you might be bound." 
 He said to her, "If they only bind me with new ropes with which no work has been done, then I will become weak, and be as another man." 
 So Delilah took new ropes and bound him with them, then said to him, "The Philistines are on you, Samson!" The ambush was waiting in the inner room. He broke them off his arms like a thread. 
 Delilah said to Samson, "Until now, you have mocked me and told me lies. Tell me with what you might be bound." He said to her, "If you weave the seven locks of my head with the fabric on the loom." 

@@ -1,6 +1,6 @@
 ﻿When David and his men had come to Ziklag on the third day, the Amalekites had made a raid on the South and on Ziklag, and had struck Ziklag and burned it with fire, 
 and had taken captive the women and everyone who was in it, both small and great. They didn't kill any, but carried them off and went their way. 
-When David and his men came to the city, behold, it was burned with fire; and their wives, their sons, and their daughters were taken captive. 
+When David and his men came to the city, look, it was burned with fire; and their wives, their sons, and their daughters were taken captive. 
 Then David and the people who were with him lifted up their voice and wept until they had no more power to weep. 
 David's two wives were taken captive, Ahinoam the Jezreelitess, and Abigail the wife of Nabal the Carmelite. 
 David was greatly distressed, for the people spoke of stoning him, because the souls of everyone was grieved, every man for his sons and for his daughters; but David strengthened himself in his God. 
@@ -13,7 +13,7 @@ They gave him a piece of a cake of figs and two clusters of raisins. When he had
 David asked him, "To whom do you belong? Where are you from?" He said, "I am a young man of Egypt, servant to an Amalekite; and my master left me, because three days ago I got sick. 
 We made a raid on the South of the Cherethites, and on that which belongs to Judah, and on the South of Caleb; and we burned Ziklag with fire." 
 David said to him, "Will you bring me down to this troop?" He said, "Swear to me by God that you will not kill me and not deliver me up into the hands of my master, and I will bring you down to this troop." 
-When he had brought him down, behold, they were spread around over all the ground, eating, drinking, and dancing, because of all the great plunder that they had taken out of the land of the Philistines, and out of the land of Judah. 
+When he had brought him down, look, they were spread around over all the ground, eating, drinking, and dancing, because of all the great plunder that they had taken out of the land of the Philistines, and out of the land of Judah. 
 David struck them from the twilight even to the evening of the next day. Not a man of them escaped from there, except four hundred young men who rode on camels and fled. 
 David recovered all that the Amalekites had taken, and David rescued his two wives. 
 There was nothing lacking to them, neither small nor great, neither sons nor daughters, neither plunder, nor anything that they had taken. David brought them all back. 
@@ -23,7 +23,7 @@ Then all the guilty men and worthless fellows of those who went with David answe
 Then David said, "Do not do so, my brothers, with that which God has given to us, who has preserved us, and delivered the troop that came against us into our hand. 
 Who will listen to you in this matter? As his share is who goes down to the battle, so shall his share be who stays with the baggage. They shall share alike." 
 It was so from that day forward that he made it a statute and an ordinance for Israel to this day. 
-When David came to Ziklag, he sent some of the plunder to the elders of Judah, even to his friends, saying, "Behold, a present for you from the plunder of God's enemies." 
+When David came to Ziklag, he sent some of the plunder to the elders of Judah, even to his friends, saying, "Look, a present for you from the plunder of God's enemies." 
 He sent it to those who were in Bethel, to those who were in Ramoth of the South, to those who were in Jattir, 
 to those who were in Aroer, to those who were in Siphmoth, to those who were in Eshtemoa, 
 to those who were in Racal, to those who were in the cities of the Jerahmeelites, to those who were in the cities of the Kenites, 

@@ -1,4 +1,4 @@
-﻿Behold, a king shall reign in righteousness, and princes shall rule in justice. 
+﻿Look, a king shall reign in righteousness, and princes shall rule in justice. 
 A man shall be as a hiding place from the wind, and a covert from the storm, as streams of water in a dry place, as the shade of a large rock in a weary land. 
 The eyes of those who see will not be dim, and the ears of those who hear will listen. 
 The heart of the rash will understand knowledge, and the tongue of the stammerers will be ready to speak plainly. 

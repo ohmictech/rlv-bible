@@ -26,5 +26,5 @@ God magnified Solomon exceedingly in the sight of all Israel, and gave to him su
 Now David the son of Jesse reigned over all Israel. 
 The time that he reigned over Israel was forty years; he reigned seven years in Hebron, and he reigned thirty-three years in Jerusalem. 
 He died at a good old age, full of days, riches, and honor; and Solomon his son reigned in his place. 
-Now the acts of David the king, first and last, behold, they are written in the history of Samuel the seer, and in the history of Nathan the spokesman, and in the history of Gad the seer, 
+Now the acts of David the king, first and last, look, they are written in the history of Samuel the seer, and in the history of Nathan the spokesman, and in the history of Gad the seer, 
 with all his reign and his might, and the events that involved him, Israel, and all the kingdoms of the lands. 

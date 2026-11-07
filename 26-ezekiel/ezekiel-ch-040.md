@@ -1,8 +1,8 @@
 ﻿In the twenty-fifth year of our captivity, in the beginning of the year, in the tenth day of the month, in the fourteenth year after the city was struck, in the same day, God's hand was on me, and he brought me there. 
 In the visions of God he brought me into the land of Israel, and set me down on a very high mountain, on which was something like the frame of a city to the south. 
-He brought me there; and, behold, there was a man whose appearance was like the appearance of bronze, with a line of flax in his hand and a measuring reed; and he stood in the gate. 
+He brought me there; and, look, there was a man whose appearance was like the appearance of bronze, with a line of flax in his hand and a measuring reed; and he stood in the gate. 
 The man said to me, "Son of man, see with your eyes, and hear with your ears, and set your heart on all that I will show you; for you have been brought here so that I may show them to you. Declare all that you see to the house of Israel." 
-Behold, there was a wall on the outside of the house all around, and in the man's hand a measuring reed six cubits long, of a cubit and a hand width each. So he measured the thickness of the building, one reed; and the height, one reed. 
+Look, there was a wall on the outside of the house all around, and in the man's hand a measuring reed six cubits long, of a cubit and a hand width each. So he measured the thickness of the building, one reed; and the height, one reed. 
 Then he came to the gate which looks toward the east, and went up its steps. He measured the threshold of the gate, one reed wide; and the other threshold, one reed wide. 
 Every lodge was one reed long and one reed wide. Between the lodges was five cubits. The threshold of the gate by the porch of the gate toward the house was one reed. 
 He measured also the porch of the gate toward the house, one reed. 
@@ -14,14 +14,14 @@ He measured the gate from the roof of the one side room to the roof of the other
 He also made posts, sixty cubits; and the court reached to the posts, around the gate. 
 From the forefront of the gate at the entrance to the forefront of the inner porch of the gate were fifty cubits. 
 There were closed windows to the side rooms, and to their posts within the gate all around, and likewise to the arches. Windows were around inward. Palm trees were on each post. 
-Then he brought me into the outer court. Behold, there were rooms and a pavement made for the court all around. Thirty rooms were on the pavement. 
+Then he brought me into the outer court. Look, there were rooms and a pavement made for the court all around. Thirty rooms were on the pavement. 
 The pavement was by the side of the gates, corresponding to the length of the gates, even the lower pavement. 
 Then he measured the width from the forefront of the lower gate to the forefront of the inner court outside, one hundred cubits, both on the east and on the north. 
 He measured the length and width of the gate of the outer court which faces toward the north. 
 The lodges of it were three on this side and three on that side. Its posts and its arches were the same as the measure of the first gate: its length was fifty cubits, and the width twenty-five cubits. 
 Its windows, its arches, and its palm trees were the same as the measure of the gate which faces toward the east. They went up to it by seven steps. Its arches were before them. 
 There was a gate to the inner court facing the other gate, on the north and on the east. He measured one hundred cubits from gate to gate. 
-He led me toward the south; and behold, there was a gate toward the south. He measured its posts and its arches according to these measurements. 
+He led me toward the south; and look, there was a gate toward the south. He measured its posts and its arches according to these measurements. 
 There were windows in it and in its arches all around, like the other windows: the length was fifty cubits, and the width twenty-five cubits. 
 There were seven steps to go up to it, and its arches were before them. It had palm trees, one on this side, and another on that side, on its posts. 
 There was a gate to the inner court toward the south. He measured one hundred cubits from gate to gate toward the south. 

@@ -31,9 +31,9 @@ While they were on the way, the news came to David, saying, "Absalom has slain a
 Then the king arose, and tore his garments, and lay on the earth; and all his servants stood by with their clothes torn. 
 Jonadab the son of Shimeah, David's brother, answered, "Don't let my lord suppose that they have killed all the young men, the king's sons, for Amnon only is dead; for by the appointment of Absalom this has been determined from the day that he forced his sister Tamar. 
 Now don't let my lord the king take the thing to his heart, to think that all the king's sons are dead; for only Amnon is dead." 
-But Absalom fled. The young man who kept the watch lifted up his eyes and looked, and behold, many people were coming by way of the hillside behind him. 
-Jonadab said to the king, "Behold, the king's sons are coming! It is as your servant said." 
-As soon as he had finished speaking, behold, the king's sons came, and lifted up their voices and wept. The king also and all his servants wept bitterly. 
+But Absalom fled. The young man who kept the watch lifted up his eyes and looked, and look, many people were coming by way of the hillside behind him. 
+Jonadab said to the king, "Look, the king's sons are coming! It is as your servant said." 
+As soon as he had finished speaking, look, the king's sons came, and lifted up their voices and wept. The king also and all his servants wept bitterly. 
 But Absalom fled and went to Talmai the son of Ammihur, king of Geshur. David mourned for his son every day. 
 So Absalom fled and went to Geshur, and was there three years. 
 King David longed to go out to Absalom, for he was comforted concerning Amnon, since he was dead. 

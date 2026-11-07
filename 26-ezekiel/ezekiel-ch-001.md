@@ -1,7 +1,7 @@
 ﻿Now in the thirtieth year, in the fourth month, in the fifth day of the month, as I was among the captives by the river Chebar, the sky were opened, and I saw visions of God. 
 In the fifth of the month, which was the fifth year of King Jehoiachin's captivity, 
 God's word came to Ezekiel the priest, the son of Buzi, in the land of the Chaldeans by the river Chebar; and God's hand was there on him. 
-I looked, and behold, a stormy wind came out of the north: a great cloud, with flashing lightning, and a brightness around it, and out of the middle of it as it were glowing metal, out of the middle of the fire. 
+I looked, and look, a stormy wind came out of the north: a great cloud, with flashing lightning, and a brightness around it, and out of the middle of it as it were glowing metal, out of the middle of the fire. 
 Out of its center came the likeness of four living creatures. This was their appearance: They had the likeness of a man. 
 Everyone had four faces, and each one of them had four wings. 
 Their feet were straight feet. The sole of their feet was like the sole of a calf's foot; and they sparkled like burnished bronze. 
@@ -12,7 +12,7 @@ Such were their faces. Their wings were spread out above. Two wings of each one 
 Each one went straight forward. Where the spirit was to go, they went. They didn't turn when they went. 
 As for the likeness of the living creatures, their appearance was like burning coals of fire, like the appearance of torches. The fire went up and down among the living creatures. The fire was bright, and lightning went out of the fire. 
 The living creatures ran and returned as the appearance of a flash of lightning. 
-Now as I saw the living creatures, behold, there was one wheel on the earth beside the living creatures, for each of the four faces of it. 
+Now as I saw the living creatures, look, there was one wheel on the earth beside the living creatures, for each of the four faces of it. 
 The appearance of the wheels and their work was like a beryl. The four of them had one likeness. Their appearance and their work was as it were a wheel within a wheel. 
 When they went, they went in their four directions. They didn't turn when they went. 
 As for their rims, they were high and dreadful; and the four of them had their rims full of eyes all around. 

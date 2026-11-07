@@ -8,7 +8,7 @@ Fifty men of the sons of the spokesmen went and stood opposite them at a distanc
 Elijah took his mantle, and rolled it up, and struck the waters; and they were divided here and there, so that they both went over on dry ground. 
 When they had gone over, Elijah said to Elisha, "Ask what I shall do for you, before I am taken from you." Elisha said, "Please let a double portion of your spirit be on me." 
 He said, "You have asked a hard thing. If you see me when I am taken from you, it will be so for you; but if not, it will not be so." 
-As they continued on and talked, behold, a chariot of fire and horses of fire separated them; and Elijah went up by a whirlwind into the sky. 
+As they continued on and talked, look, a chariot of fire and horses of fire separated them; and Elijah went up by a whirlwind into the sky. 
 Elisha saw it, and he cried, "My father, my father, the chariots of Israel and its horsemen!" He saw him no more. Then he took hold of his own clothes and tore them in two pieces. 
 He also took up Elijah's mantle that fell from him, and went back and stood by the bank of the Jordan. 
 He took Elijah's mantle that fell from him, and struck the waters, and said, "Where is the God of Elijah?" When he also had struck the waters, they were divided apart, and Elisha went over. 
@@ -16,7 +16,7 @@ When the sons of the spokesmen who were at Jericho facing him saw him, they said
 They said to him, "See now, there are with your servants fifty strong men. Please let them go and seek your master. Perhaps God's Spirit has taken him up, and put him on some mountain or into some valley." He said, "Don't send them." 
 When they urged him until he was ashamed, he said, "Send them." Therefore they sent fifty men; and they searched for three days, but didn't find him. 
 They came back to him while he stayed at Jericho; and he said to them, "Didn't I tell you, 'Don't go'?" 
-The men of the city said to Elisha, "Behold, please, the situation of this city is pleasant, as my lord sees; but the water is bad, and the land is barren." 
+The men of the city said to Elisha, "Look, please, the situation of this city is pleasant, as my lord sees; but the water is bad, and the land is barren." 
 He said, "Bring me a new jar, and put salt in it." Then they brought it to him. 
 He went out to the spring of the waters, and threw salt into it, and said, "God says, 'I have healed these waters. There shall not be from there any more death or barren wasteland.'" 
 So the waters were healed to this day, according to Elisha's word which he spoke. 

@@ -3,7 +3,7 @@ God said to Satan, "Where have you come from?" Satan answered God, and said, "Fr
 God said to Satan, "Have you considered my servant Job? There is no one like him on the earth, a blameless and an upright man, one who fears God, and turns away from what is bad. He still maintains his integrity, although you incited me against him, to ruin him without cause." 
 Satan answered God, and said, "Skin for skin. Yes, all that a man has he will give for his life. 
 But stretch out your hand now, and touch his bone and his flesh, and he will renounce you to your face." 
-God said to Satan, "Behold, he is in your hand. Only spare his life." 
+God said to Satan, "Look, he is in your hand. Only spare his life." 
 So Satan went out from the presence of God, and struck Job with painful sores from the sole of his foot to his head. 
 He took for himself a potsherd to scrape himself with, and he sat among the ashes. 
 Then his wife said to him, "Do you still maintain your integrity? Renounce God, and die." 

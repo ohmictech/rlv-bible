@@ -9,17 +9,17 @@ God says, "I have answered you in an acceptable time. I have helped you in a day
 saying to those who are bound, 'Come out!'; to those who are in darkness, 'Show yourselves!' "They shall feed along the paths, and their pasture shall be on all treeless heights. 
 They shall not hunger nor thirst; neither shall the heat nor sun strike them, for he who has mercy on them will lead them. He will guide them by springs of water. 
 I will make all my mountains a road, and my highways shall be exalted. 
-Behold, these shall come from afar, and behold, these from the north and from the west, and these from the land of Sinim." 
+Look, these shall come from afar, and look, these from the north and from the west, and these from the land of Sinim." 
 Sing, skies, and be joyful, earth! Break out into driftging, mountains! God has comforted his people, and will have compassion on his afflicted. 
 But Zion said, "God has forsaken me, and the Lord has forgotten me." 
 "Can a woman forget her nursing child, that she should not have compassion on the son of her womb? Yes, these may forget, yet I will not forget you! 
-Behold, I have engraved you on the palms of my hands. Your walls are continually before me. 
+Look, I have engraved you on the palms of my hands. Your walls are continually before me. 
 Your children hurry. Your destroyers and those who devastated you will leave you. 
 Lift up your eyes all around, and see: all these gather themselves together, and come to you. As I live," says God, "you shall surely clothe yourself with them all as with an ornament, and dress yourself with them, like a bride. 
 "For, as for your waste and your desolate places, and your land that has been destroyed, surely now that land will be too small for the inhabitants, and those who swallowed you up will be far away. 
 The children of your bereavement will say in your ears, 'This place is too small for me. Give me a place to live in.' 
-Then you will say in your heart, 'Who has conceived these for me, since I have been bereaved of my children and am alone, an exile, and wandering back and forth? Who has brought these up? Behold, I was left alone. Where were these?'" 
-The God says, "Behold, I will lift up my hand to the nations, and lift up my banner to the peoples. They shall bring your sons in their bosom, and your daughters shall be carried on their shoulders. 
+Then you will say in your heart, 'Who has conceived these for me, since I have been bereaved of my children and am alone, an exile, and wandering back and forth? Who has brought these up? Look, I was left alone. Where were these?'" 
+The God says, "Look, I will lift up my hand to the nations, and lift up my banner to the peoples. They shall bring your sons in their bosom, and your daughters shall be carried on their shoulders. 
 Kings shall be your foster fathers, and their queens your nursing mothers. They will bow down to you with their faces to the earth, and lick the dust of your feet. Then you will know that I am God; and those who wait for me won't be disappointed." 
 Shall the plunder be taken from the mighty, or the lawful captives be delivered? 
 But God says, "Even the captives of the mighty shall be taken away, and the plunder retrieved from the fierce, for I will contend with him who contends with you and I will save your children. 

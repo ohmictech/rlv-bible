@@ -6,12 +6,12 @@ David said, "Solomon my son is young and tender, and the house that is to be bui
 Then he called for Solomon his son, and commanded him to build a house for the God of Israel. 
 David said to Solomon his son, "As for me, it was in my heart to build a house to the name of my God. 
 But God's word came to me, saying, 'You have shed blood abundantly and have made great wars. You shall not build a house to my name, because you have shed much blood on the earth in my sight. 
-Behold, a son shall be born to you, who shall be a man of peace. I will give him rest from all his enemies all around; for his name shall be Solomon, and I will give peace and quietness to Israel in his days. 
+Look, a son shall be born to you, who shall be a man of peace. I will give him rest from all his enemies all around; for his name shall be Solomon, and I will give peace and quietness to Israel in his days. 
 He shall build a house for my name; and he will be my son, and I will be his father; and I will establish the throne of his kingdom over Israel for the eras.' 
 Now, my son, may God be with you and prosper you, and build the house of your God, as he has spoken concerning you. 
 May God give you discretion and understanding, and put you in charge of Israel, so that you may keep the law of your God. 
 Then you will prosper, if you observe to do the statutes and the ordinances which God gave Moses concerning Israel. Be strong and courageous. Don't be afraid and don't be dismayed. 
-Now, behold, in my affliction I have prepared for God's house one hundred thousand talents of gold, one million talents of silver, and bronze and iron without weight; for it is in abundance. I have also prepared timber and stone; and you may add to them. 
+Now, look, in my affliction I have prepared for God's house one hundred thousand talents of gold, one million talents of silver, and bronze and iron without weight; for it is in abundance. I have also prepared timber and stone; and you may add to them. 
 There are also workmen with you in abundance, cutters and workers of stone and timber, and all kinds of men who are skillful in every kind of work; 
 of the gold, the silver, the bronze, and the iron, there is no number. Arise and be doing, and may God be with you." 
 David also commanded all the princes of Israel to help Solomon his son, saying, 

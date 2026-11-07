@@ -1,7 +1,7 @@
 ﻿"Cry aloud! Don't spare! Lift up your voice like a trumpet! Declare to my people their disobedience, and to the house of Jacob their mistakes. 
 Yet they seek me daily, and delight to know my ways. As a nation that did righteousness, and didn't forsake the ordinance of their God, they ask of me righteous judgments. They delight to draw near to God. 
-'Why have we fasted,' they say, 'and you don't see? Why have we afflicted our soul, and you don't notice?' "Behold, in the day of your fast you find pleasure, and oppress all your laborers. 
-Behold, you fast for strife and contention, and to strike with the fist of guilt. You don't fast today so as to make your voice to be heard on high. 
+'Why have we fasted,' they say, 'and you don't see? Why have we afflicted our soul, and you don't notice?' "Look, in the day of your fast you find pleasure, and oppress all your laborers. 
+Look, you fast for strife and contention, and to strike with the fist of guilt. You don't fast today so as to make your voice to be heard on high. 
 Is this the fast that I have chosen? A day for a man to humble his soul? Is it to bow down his head like a reed, and to spread sackcloth and ashes under himself? Will you call this a fast, and an acceptable day to God? 
 "Isn't this the fast that I have chosen: to release the bonds of guilt, to undo the straps of the yoke, to let the oppressed go free, and that you break every yoke? 
 Isn't it to distribute your bread to the hungry, and that you bring the poor who are cast out to your house? When you see the naked, that you cover him; and that you not hide yourself from your own flesh? 

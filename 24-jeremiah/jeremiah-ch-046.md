@@ -22,7 +22,7 @@ Also her hired men in the middle of her are like calves of the stall, for they a
 Its sound will go like the serpent, for they will march with an army, and come against her with axes, as wood cutters. 
 They will cut down her forest," says God, "though it can't be searched; because they are more than the locusts, and are innumerable. 
 The daughter of Egypt will be disappointed; she will be delivered into the hand of the people of the north." 
-The God of Armies, the God of Israel says: "Behold, I will punish Amon of No, and Pharaoh, and Egypt, with her gods and her kings, even Pharaoh, and those who trust in him. 
+The God of Armies, the God of Israel says: "Look, I will punish Amon of No, and Pharaoh, and Egypt, with her gods and her kings, even Pharaoh, and those who trust in him. 
 I will deliver them into the hand of those who seek their lives, and into the hand of Nebuchadnezzar king of Babylon, and into the hand of his servants. Afterwards it will be inhabited, as in the days of old," says God. 
-"But don't you be afraid, Jacob my servant. Don't be dismayed, Israel; for, behold, I will save you from afar, and your offspring from the land of their captivity. Jacob will return, and will be quiet and at ease. No one will make him afraid. 
+"But don't you be afraid, Jacob my servant. Don't be dismayed, Israel; for, look, I will save you from afar, and your offspring from the land of their captivity. Jacob will return, and will be quiet and at ease. No one will make him afraid. 
 Don't be afraid, O Jacob my servant," says God, "for I am with you; for I will make a full end of all the nations where I have driven you, but I will not make a full end of you, but I will correct you in measure, and will in no way leave you unpunished." 

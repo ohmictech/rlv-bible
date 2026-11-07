@@ -14,7 +14,7 @@ If any man takes a wife, and goes in to her, hates her,
 accuses her of shameful things, gives her a bad name, and says, "I took this woman, and when I came near to her, I didn't find in her the tokens of virginity;" 
 then the young lady's father and mother shall take and bring the tokens of the young lady's virginity to the elders of the city in the gate. 
 The young lady's father shall tell the elders, "I gave my daughter to this man as his wife, and he hates her. 
-Behold, he has accused her of shameful things, saying, 'I didn't find in your daughter the tokens of virginity;' and yet these are the tokens of my daughter's virginity." They shall spread the cloth before the elders of the city. 
+Look, he has accused her of shameful things, saying, 'I didn't find in your daughter the tokens of virginity;' and yet these are the tokens of my daughter's virginity." They shall spread the cloth before the elders of the city. 
 The elders of that city shall take the man and chastise him. 
 They shall fine him one hundred shekels of silver, and give them to the father of the young lady, because he has given a bad name to a virgin of Israel. She shall be his wife. He may not put her away all his days. 
 But if this thing is true, that the tokens of virginity were not found in the young lady, 

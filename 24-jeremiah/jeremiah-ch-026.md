@@ -11,7 +11,7 @@ When the princes of Judah heard these things, they came up from the king's house
 Then the priests and the spokesmen spoke to the princes and to everyone, saying, "This man is worthy of death, for he has prophesied against this city, as you have heard with your ears." 
 Then Jeremiah spoke to all the princes and to everyone, saying, "God sent me to prophesy against this house and against this city all the words that you have heard. 
 Now amend your ways and your doings, and obey your God's voice; then God will relent from the bad that he has pronounced against you. 
-But as for me, behold, I am in your hand. Do with me what is good and right in your eyes. 
+But as for me, look, I am in your hand. Do with me what is good and right in your eyes. 
 Only know for certain that if you put me to death, you will bring innocent blood on yourselves, on this city, and on its inhabitants; for in truth God has sent me to you to speak all these words in your ears." 
 Then the princes and everyone said to the priests and to the spokesmen: "This man is not worthy of death; for he has spoken to us in the name of our God." 
 Then certain of the elders of the land rose up, and spoke to all the assembly of the people, saying, 

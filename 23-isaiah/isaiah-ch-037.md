@@ -4,17 +4,17 @@ They said to him, "Hezekiah says, 'Today is a day of trouble, and of rebuke, and
 It may be your God will hear the words of Rabshakeh, whom the king of Assyria his master has sent to defy the living God, and will rebuke the words which your God has heard. So lift up your prayer for the remnant that is left.'" 
 So the servants of King Hezekiah came to Isaiah. 
 Isaiah said to them, "Tell your master, 'God says, "Don't be afraid of the words that you have heard, with which the servants of the king of Assyria have blasphemed me. 
-Behold, I will put a spirit in him and he will hear news, and will return to his own land. I will cause him to fall by the sword in his own land."'" 
+Look, I will put a spirit in him and he will hear news, and will return to his own land. I will cause him to fall by the sword in his own land."'" 
 So Rabshakeh returned, and found the king of Assyria warring against Libnah, for he heard that he had departed from Lachish. 
 He heard news concerning Tirhakah king of Ethiopia, "He has come out to fight against you." When he heard it, he sent messengers to Hezekiah, saying, 
 "Thus you shall speak to Hezekiah king of Judah, saying, 'Don't let your God in whom you trust deceive you, saying, "Jerusalem won't be given into the hand of the king of Assyria." 
-Behold, you have heard what the kings of Assyria have done to all lands, by destroying them utterly. Shall you be delivered? 
+Look, you have heard what the kings of Assyria have done to all lands, by destroying them utterly. Shall you be delivered? 
 Have the gods of the nations delivered them, which my fathers have destroyed, Gozan, Haran, Rezeph, and the children of Eden who were in Telassar? 
 Where is the king of Hamath, and the king of Arpad, and the king of the city of Sepharvaim, of Hena, and Ivvah?'" 
 Hezekiah received the letter from the hand of the messengers and read it. Then Hezekiah went up to God's house, and spread it before God. 
 Hezekiah prayed to God, saying, 
 "God of Armies, the God of Israel, who is enthroned among the cherubim, you are the God, even you alone, of all the kingdoms of the earth. You have made the sky and the earth. 
-Turn your ear, God, and hear. Open your eyes, God, and behold. Hear all of the words of Sennacherib, who has sent to defy the living God. 
+Turn your ear, God, and hear. Open your eyes, God, and look. Hear all of the words of Sennacherib, who has sent to defy the living God. 
 Truly, God, the kings of Assyria have destroyed all the countries and their land, 
 and have cast their gods into the fire; for they were no gods, but the work of men's hands, wood and stone; they have destroyed them. 
 Now, God our God, save us from his hand, that all the kingdoms of the earth may know that you are God, even you only." 
@@ -33,6 +33,6 @@ Out of Jerusalem a remnant will go out, and survivors will escape from Mount Zio
 "Therefore God says concerning the king of Assyria, 'He will not come to this city, nor shoot an arrow there, neither will he come before it with shield, nor cast up a mound against it. 
 He will return the way that he came, and he won't come to this city,' says God. 
 'I will defend this city to save it, for my own sake, and for my servant David's sake.'" 
-Then God's messenger went out and struck one hundred and eighty-five thousand men in the camp of the Assyrians. When men arose early in the morning, behold, these were all dead bodies. 
+Then God's messenger went out and struck one hundred and eighty-five thousand men in the camp of the Assyrians. When men arose early in the morning, look, these were all dead bodies. 
 So Sennacherib king of Assyria departed, went away, returned to Nineveh, and stayed there. 
 As he was worshiping in the house of Nisroch his god, Adrammelech and Sharezer his sons struck him with the sword; and they escaped into the land of Ararat. Esar Haddon his son reigned in his place. 

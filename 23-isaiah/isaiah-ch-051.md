@@ -19,5 +19,5 @@ There is no one to guide her among all the sons to whom she has given birth; and
 These two things have happened to you, who will grieve with you?, desolation and destruction, and famine and the sword. How can I comfort you? 
 Your sons have fainted. They lie at the head of all the streets, like an antelope in a net. They are full of God's wrath, the rebuke of your God. 
 So now hear this, you afflicted, and drunken, but not with wine: 
-Your God, your God who pleads the cause of his people, says, "Behold, I have taken out of your hand the cup of staggering, even the bowl of the cup of my wrath. You will not drink it any more. 
+Your God, your God who pleads the cause of his people, says, "Look, I have taken out of your hand the cup of staggering, even the bowl of the cup of my wrath. You will not drink it any more. 
 I will put it into the hand of those who afflict you, who have said to your soul, 'Bow down, that we may walk over you;' and you have laid your back as the ground, like a street to those who walk over." 

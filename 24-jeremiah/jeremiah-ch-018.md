@@ -1,14 +1,14 @@
 ﻿The word which came to Jeremiah from God, saying, 
 "Arise, and go down to the potter's house, and there I will cause you to hear my words." 
-Then I went down to the potter's house, and behold, he was making something on the wheels. 
+Then I went down to the potter's house, and look, he was making something on the wheels. 
 When the vessel that he made of the clay was marred in the hand of the potter, he made it again another vessel, as seemed good to the potter to make it. 
 Then God's word came to me, saying, 
-"House of Israel, can't I do with you as this potter?" says God. "Behold, as the clay in the potter's hand, so are you in my hand, house of Israel. 
+"House of Israel, can't I do with you as this potter?" says God. "Look, as the clay in the potter's hand, so are you in my hand, house of Israel. 
 At the instant I speak concerning a nation, and concerning a kingdom, to pluck up and to break down and to destroy it, 
 if that nation, concerning which I have spoken, turns from their bad, I will repent of the bad that I thought to do to them. 
 At the instant I speak concerning a nation, and concerning a kingdom, to build and to plant it, 
 if they do that which is bad in my sight, that they don't obey my voice, then I will repent of the good with which I said I would benefit them. 
-"Now, speak to the men of Judah, and to the inhabitants of Jerusalem, saying, 'God says: "Behold, I frame bad against you, and devise a plan against you. Everyone return from his bad way now, and amend your ways and your doings."' 
+"Now, speak to the men of Judah, and to the inhabitants of Jerusalem, saying, 'God says: "Look, I frame bad against you, and devise a plan against you. Everyone return from his bad way now, and amend your ways and your doings."' 
 But they say, 'It is in vain; for we will walk after our own plans, and we will each follow the stubbornness of his bad heart.'" 
 So God says: "Ask now among the nations, 'Who has heard such things?' The virgin of Israel has done a very horrible thing. 
 Will the snow of Lebanon fail from the rock of the field? Will the cold waters that flow down from afar be dried up? 

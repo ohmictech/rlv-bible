@@ -39,7 +39,7 @@ even the censers of those who wronged their own lives. Let them be beaten into p
 Eleazar the priest took the bronze censers which those who were burned had offered; and they beat them out for a covering of the altar, 
 to be a memorial to the children of Israel, to the end that no stranger who isn't of the offspring of Aaron, would come near to burn incense before God, that he not be as Korah and as his company; as God spoke to him by Moses. 
 But on the next day all the congregation of the children of Israel complained against Moses and against Aaron, saying, "You have killed God's people!" 
-When the congregation was assembled against Moses and against Aaron, they looked toward the Tent of Meeting. Behold, the cloud covered it, and God's glory appeared. 
+When the congregation was assembled against Moses and against Aaron, they looked toward the Tent of Meeting. Look, the cloud covered it, and God's glory appeared. 
 Moses and Aaron came to the front of the Tent of Meeting. 
 God spoke to Moses, saying, 
 "Get away from among this congregation, that I may consume them in a moment!" They fell on their faces. 

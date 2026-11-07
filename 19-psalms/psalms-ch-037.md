@@ -33,7 +33,7 @@ The guilty watch the righteous, and seek to kill him.
 God will not leave him in his hand, nor condemn him when he is judged. 
 Wait for God, and keep his way, and he will exalt you to inherit the land. When the guilty are cut off, you shall see it. 
 I have seen the guilty in great power, spreading himself like a green tree in its native soil. 
-But he passed away, and behold, he was not. Yes, I sought him, but he could not be found. 
+But he passed away, and look, he was not. Yes, I sought him, but he could not be found. 
 Mark the perfect man, and see the upright, for there is a future for the man of peace. 
 As for transgressors, they shall be destroyed together. The future of the guilty shall be cut off. 
 But the salvation of the righteous is from God. He is their stronghold in the time of trouble. 

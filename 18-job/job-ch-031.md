@@ -32,7 +32,7 @@ if the men of my tent have not said, 'Who can find one who has not been filled w
 (the foreigner has not camped in the street, but I have opened my doors to the traveler); 
 if like Adam I have covered my rebellion, by hiding my guilt in my heart, 
 because I feared the great multitude, and the contempt of families terrified me, so that I kept silence, and didn't go out of the door 
-oh that I had one to hear me! Behold, here is my signature! Let the Almighty answer me! Let the accuser write my indictment! 
+oh that I had one to hear me! Look, here is my signature! Let the Almighty answer me! Let the accuser write my indictment! 
 Surely I would carry it on my shoulder, and I would bind it to me as a crown. 
 I would declare to him the number of my steps. I would go near to him like a prince. 
 If my land cries out against me, and its furrows weep together; 

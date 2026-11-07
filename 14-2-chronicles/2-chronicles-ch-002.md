@@ -1,13 +1,13 @@
 ﻿Now Solomon decided to build a house for God's name, and a house for his kingdom. 
 Solomon counted out seventy thousand men to bear burdens, eighty thousand men who were stone cutters in the mountains, and three thousand six hundred to oversee them. 
 Solomon sent to Huram the king of Tyre, saying, "As you dealt with David my father, and sent him cedars to build him a house in which to dwell, so deal with me. 
-Behold, I am about to build a house for the name of my God, to dedicate it to him, to burn before him incense of sweet spices, for the continual show bread, and for the burnt offerings morning and evening, on the Sabbaths, on the new moons, and on the set feasts of our God. This is an ordinance for the eras to Israel. 
+Look, I am about to build a house for the name of my God, to dedicate it to him, to burn before him incense of sweet spices, for the continual show bread, and for the burnt offerings morning and evening, on the Sabbaths, on the new moons, and on the set feasts of our God. This is an ordinance for the eras to Israel. 
 "The house which I am building will be great, for our God is greater than all gods. 
 But who is able to build him a house, since the sky and the sky above the skies can't contain him? Who am I then, that I should build him a house, except just to burn incense before him? 
 "Now send me a man skillful to work in gold, in silver, in bronze, in iron, and in purple, crimson, and blue, and who knows how to engrave engravings, to be with the skillful men who are with me in Judah and in Jerusalem, whom David my father provided. 
-"Send me also cedar trees, cypress trees, and algum trees out of Lebanon, for I know that your servants know how to cut timber in Lebanon. Behold, my servants will be with your servants, 
+"Send me also cedar trees, cypress trees, and algum trees out of Lebanon, for I know that your servants know how to cut timber in Lebanon. Look, my servants will be with your servants, 
 even to prepare timber in abundance for me; for the house which I am about to build will be great and wonderful. 
-Behold, I will give to your servants, the cutters who cut timber, twenty thousand cors of beaten wheat, twenty thousand baths of barley, twenty thousand baths of wine, and twenty thousand baths of oil." 
+Look, I will give to your servants, the cutters who cut timber, twenty thousand cors of beaten wheat, twenty thousand baths of barley, twenty thousand baths of wine, and twenty thousand baths of oil." 
 Then Huram the king of Tyre answered in writing, which he sent to Solomon, "Because God loves his people, he has made you king over them." 
 Huram continued, "Blessed be the God of Israel, who made the sky and the earth, who has given to David the king a wise son, endowed with discretion and understanding, who would build a house for God and a house for his kingdom. 
 Now I have sent a skillful man, endowed with understanding, Huram-abi, 

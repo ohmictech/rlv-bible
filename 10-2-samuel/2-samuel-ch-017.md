@@ -6,7 +6,7 @@ Then Absalom said, "Now call Hushai the Archite also, and let's hear likewise wh
 When Hushai had come to Absalom, Absalom spoke to him, saying, "Ahithophel has spoken like this. Shall we do what he says? If not, speak up." 
 Hushai said to Absalom, "The counsel that Ahithophel has given this time is not good." 
 Hushai said moreover, "You know your father and his men, that they are mighty men, and they are fierce in their minds, like a bear robbed of her cubs in the field. Your father is a man of war, and will not lodge with the people. 
-Behold, he is now hidden in some pit, or in some other place. It will happen, when some of them have fallen at the first, that whoever hears it will say, 'There is a slaughter among the people who follow Absalom!' 
+Look, he is now hidden in some pit, or in some other place. It will happen, when some of them have fallen at the first, that whoever hears it will say, 'There is a slaughter among the people who follow Absalom!' 
 Even he who is valiant, whose heart is as the heart of a lion, will utterly melt; for all Israel knows that your father is a mighty man, and those who are with him are valiant men. 
 But I counsel that all Israel be gathered together to you, from Dan even to Beersheba, as the sand that is by the sea for multitude; and that you go to battle in your own person. 
 So we will come on him in some place where he will be found, and we will light on him as the dew falls on the ground, then we will not leave so much as one of him and of all the men who are with him. 

@@ -1,7 +1,7 @@
 ﻿Now Pashhur, the son of Immer the priest, who was chief officer in God's house, heard Jeremiah prophesying these things. 
 Then Pashhur struck Jeremiah the spokesman and put him in the stocks that were in the upper gate of Benjamin, which was in God's house. 
 On the next day, Pashhur released Jeremiah out of the stocks. Then Jeremiah said to him, "God has not called your name Pashhur, but Magormissabib. 
-God says, 'Behold, I will make you a terror to yourself and to all your friends. They will fall by the sword of their enemies, and your eyes will see it. I will give all Judah into the hand of the king of Babylon, and he will carry them captive to Babylon, and will kill them with the sword. 
+God says, 'Look, I will make you a terror to yourself and to all your friends. They will fall by the sword of their enemies, and your eyes will see it. I will give all Judah into the hand of the king of Babylon, and he will carry them captive to Babylon, and will kill them with the sword. 
 Moreover I will give all the riches of this city, and all its gains, and all its precious things, yes, I will give all the treasures of the kings of Judah into the hand of their enemies. They will make them captives, take them, and carry them to Babylon. 
 You, Pashhur, and everyone who dwells in your house will go into captivity. You will come to Babylon, and there you will die, and there you will be buried, you, and all your friends, to whom you have prophesied falsely.'" 
 God, you have persuaded me, and I was persuaded. You are stronger than I, and have prevailed. I have become a laughingstock all day. Everyone mocks me. 

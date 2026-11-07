@@ -1,9 +1,9 @@
 ﻿After the death of Saul, when David had returned from the slaughter of the Amalekites, and David had stayed two days in Ziklag, 
-on the third day, behold, a man came out of the camp from Saul, with his clothes torn and earth on his head. When he came to David, he fell to the earth and showed respect. 
+on the third day, look, a man came out of the camp from Saul, with his clothes torn and earth on his head. When he came to David, he fell to the earth and showed respect. 
 David said to him, "Where do you come from?" He said to him, "I have escaped out of the camp of Israel." 
 David said to him, "How did it go? Please tell me." He answered, "The people have fled from the battle, and many of the people also have fallen and are dead. Saul and Jonathan his son are dead also." 
 David said to the young man who told him, "How do you know that Saul and Jonathan his son are dead?" 
-The young man who told him said, "As I happened by chance on Mount Gilboa, behold, Saul was leaning on his spear; and behold, the chariots and the horsemen followed close behind him. 
+The young man who told him said, "As I happened by chance on Mount Gilboa, look, Saul was leaning on his spear; and look, the chariots and the horsemen followed close behind him. 
 When he looked behind him, he saw me and called to me. I answered, 'Here I am.' 
 He said to me, 'Who are you?' I answered him, 'I am an Amalekite.' 
 He said to me, 'Please stand beside me, and kill me, for anguish has taken hold of me because my life lingers in me.' 
@@ -15,7 +15,7 @@ David said to him, "Why were you not afraid to stretch out your hand to destroy 
 David called one of the young men and said, "Go near, and cut him down!" He struck him so that he died. 
 David said to him, "Your blood be on your head, for your mouth has testified against you, saying, 'I have slain God's anointed.'" 
 David lamented with this lamentation over Saul and over Jonathan his son 
-(and he commanded them to teach the children of Judah the song of the bow; behold, it is written in the book of Jashar): 
+(and he commanded them to teach the children of Judah the song of the bow; look, it is written in the book of Jashar): 
 "Your glory, Israel, was slain on your high places! How the mighty have fallen! 
 Don't tell it in Gath. Don't publish it in the streets of Ashkelon, lest the daughters of the Philistines rejoice, lest the daughters of the uncircumcised triumph. 
 You mountains of Gilboa, let there be no dew or rain on you, and no fields of offerings; for there the shield of the mighty was defiled and cast away, the shield of Saul was not anointed with oil. 

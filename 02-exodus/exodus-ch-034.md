@@ -7,8 +7,8 @@ God passed by before him, and proclaimed, "God! God, a merciful and gracious God
 keeping loving kindness for thousands, forgiving guilt and disobedience and drifts; and who will by no means clear the guilty, visiting the guilt of the fathers on the children, and on the children's children, on the third and on the fourth generation." 
 Moses hurried and bowed his head toward the earth, and worshiped. 
 He said, "If now I have found favor in your sight, Lord, please let the Lord go among us, even though this is a stiff-necked people; pardon our guilt and our wrongdoing, and take us for your inheritance." 
-He said, "Behold, I make a covenant: before all your people I will do marvels, such as have not been worked in all the earth, nor in any nation; and everyone among whom you are shall see the work of God; for it is an awesome thing that I do with you. 
-Observe that which I command you today. Behold, I will drive out before you the Amorite, the Canaanite, the Hittite, the Perizzite, the Hivite, and the Jebusite. 
+He said, "Look, I make a covenant: before all your people I will do marvels, such as have not been worked in all the earth, nor in any nation; and everyone among whom you are shall see the work of God; for it is an awesome thing that I do with you. 
+Observe that which I command you today. Look, I will drive out before you the Amorite, the Canaanite, the Hittite, the Perizzite, the Hivite, and the Jebusite. 
 Be careful, lest you make a covenant with the inhabitants of the land where you are going, lest it be for a snare among you; 
 but you shall break down their altars, and dash in pieces their pillars, and you shall cut down their Asherah poles; 
 for you shall worship no other god; for God, whose name is Jealous, is a jealous God. 
@@ -27,7 +27,7 @@ I will drive out nations before you and enlarge your borders; neither shall any 
 God said to Moses, "Write these words; for in accordance with these words I have made a covenant with you and with Israel." 
 He was there with God forty days and forty nights; he neither ate bread, nor drank water. He wrote on the tablets the words of the covenant, the ten commandments. 
 When Moses came down from Mount Sinai with the two tablets of the covenant in Moses' hand, when he came down from the mountain, Moses didn't know that the skin of his face shone by reason of his speaking with him. 
-When Aaron and all the children of Israel saw Moses, behold, the skin of his face shone; and they were afraid to come near him. 
+When Aaron and all the children of Israel saw Moses, look, the skin of his face shone; and they were afraid to come near him. 
 Moses called to them, and Aaron and all the rulers of the congregation returned to him; and Moses spoke to them. 
 Afterward all the children of Israel came near, and he gave them all the commandments that God had spoken with him on Mount Sinai. 
 When Moses was done speaking with them, he put a veil on his face. 

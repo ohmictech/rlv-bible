@@ -5,7 +5,7 @@ Then God may establish his word which he spoke concerning me, saying, 'If your c
 "Moreover you know also what Joab the son of Zeruiah did to me, even what he did to the two captains of the armies of Israel, to Abner the son of Ner and to Amasa the son of Jether, whom he killed, and shed the blood of war in peace, and put the blood of war on his sash that was around his waist and in his sandals that were on his feet. 
 Do according to your wisdom, and don't let his gray head go down to Hades in peace. 
 But show kindness to the sons of Barzillai the Gileadite, and let them be among those who eat at your table; for so they came to me when I fled from Absalom your brother. 
-"Behold, there is with you Shimei the son of Gera, the Benjamite of Bahurim, who cursed me with a grievous curse in the day when I went to Mahanaim; but he came down to meet me at the Jordan, and I swore to him by God, saying, 'I will not put you to death with the sword.' 
+"Look, there is with you Shimei the son of Gera, the Benjamite of Bahurim, who cursed me with a grievous curse in the day when I went to Mahanaim; but he came down to meet me at the Jordan, and I swore to him by God, saying, 'I will not put you to death with the sword.' 
 Now don't hold him guiltless, for you are a wise man; and you will know what you ought to do to him, and you shall bring his gray head down to Hades with blood." 
 David slept with his fathers, and was buried in David's city. 
 The days that David reigned over Israel were forty years; he reigned seven years in Hebron, and he reigned thirty-three years in Jerusalem. 
@@ -26,7 +26,7 @@ King Solomon sent Benaiah the son of Jehoiada; and he fell on him, so that he di
 To Abiathar the priest the king said, "Go to Anathoth, to your own fields, for you are worthy of death. But I will not at this time put you to death, because you bore God's ark before David my father, and because you were afflicted in all in which my father was afflicted." 
 So Solomon thrust Abiathar out from being priest to God, that he might fulfill God's word which he spoke concerning the house of Eli in Shiloh. 
 This news came to Joab; for Joab had followed Adonijah, although he didn't follow Absalom. Joab fled to God's Tent, and held onto the horns of the altar. 
-King Solomon was told, "Joab has fled to God's Tent; and behold, he is by the altar." Then Solomon sent Benaiah the son of Jehoiada, saying, "Go, fall on him." 
+King Solomon was told, "Joab has fled to God's Tent; and look, he is by the altar." Then Solomon sent Benaiah the son of Jehoiada, saying, "Go, fall on him." 
 Benaiah came to God's Tent, and said to him, "The king says, 'Come out!'" He said, "No; but I will die here." Benaiah brought the king word again, saying, "This is what Joab said, and this is how he answered me." 
 The king said to him, "Do as he has said, and fall on him, and bury him, that you may take away the blood, which Joab shed without cause, from me and from my father's house. 
 God will return his blood on his own head, because he fell on two men more righteous and better than he, and killed them with the sword, and my father David didn't know it: Abner the son of Ner, captain of the army of Israel, and Amasa the son of Jether, captain of the army of Judah. 
@@ -36,7 +36,7 @@ The king put Benaiah the son of Jehoiada in his place over the army; and the kin
 The king sent and called for Shimei, and said to him, "Build yourself a house in Jerusalem, and live there, and don't go anywhere else. 
 On the day you go out and pass over the brook Kidron, know for certain that you will surely die. Your blood will be on your own head." 
 Shimei said to the king, "What you say is good. As my lord the king has said, so will your servant do." Shimei lived in Jerusalem many days. 
-At the end of three years, two of Shimei's slaves ran away to Achish, son of Maacah, king of Gath. They told Shimei, saying, "Behold, your slaves are in Gath." 
+At the end of three years, two of Shimei's slaves ran away to Achish, son of Maacah, king of Gath. They told Shimei, saying, "Look, your slaves are in Gath." 
 Shimei arose, saddled his donkey, and went to Gath to Achish to seek his slaves; and Shimei went and brought his slaves from Gath. 
 Solomon was told that Shimei had gone from Jerusalem to Gath, and had come again. 
 The king sent and called for Shimei, and said to him, "Didn't I adjure you by God and warn you, saying, 'Know for certain that on the day you go out and walk anywhere else, you shall surely die'? You said to me, 'The saying that I have heard is good.' 

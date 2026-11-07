@@ -1,4 +1,4 @@
-﻿When David was living in his house, David said to Nathan the spokesman, "Behold, I live in a cedar house, but the ark of God's covenant is in a tent." 
+﻿When David was living in his house, David said to Nathan the spokesman, "Look, I live in a cedar house, but the ark of God's covenant is in a tent." 
 Nathan said to David, "Do all that is in your heart; for God is with you." 
 That same night, the word of God came to Nathan, saying, 
 "Go and tell David my servant, 'God says, "You shall not build me a house to dwell in; 

@@ -3,6 +3,6 @@ Hezekiah was pleased with them, and showed them the house of his precious things
 Then Isaiah the spokesman came to King Hezekiah, and asked him, "What did these men say? From where did they come to you?" Hezekiah said, "They have come from a country far from me, even from Babylon." 
 Then he asked, "What have they seen in your house?" Hezekiah answered, "They have seen all that is in my house. There is nothing among my treasures that I have not shown them." 
 Then Isaiah said to Hezekiah, "Hear the word of the God of Armies: 
-'Behold, the days are coming when all that is in your house, and that which your fathers have stored up until today, will be carried to Babylon. Nothing will be left,' says God. 
+'Look, the days are coming when all that is in your house, and that which your fathers have stored up until today, will be carried to Babylon. Nothing will be left,' says God. 
 'They will take away your sons who will issue from you, whom you shall father, and they will be eunuchs in the king of Babylon's palace.'" 
 Then Hezekiah said to Isaiah, "God's word which you have spoken is good." He said moreover, "For there will be peace and truth in my days." 

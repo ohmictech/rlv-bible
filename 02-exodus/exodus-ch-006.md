@@ -9,7 +9,7 @@ I will bring you into the land which I swore to give to Abraham, to Isaac, and t
 Moses spoke so to the children of Israel, but they didn't listen to Moses for anguish of spirit, and for cruel bondage. 
 God spoke to Moses, saying, 
 "Go in, speak to Pharaoh king of Egypt, that he let the children of Israel go out of his land." 
-Moses spoke before God, saying, "Behold, the children of Israel haven't listened to me. How then shall Pharaoh listen to me, when I have uncircumcised lips?" 
+Moses spoke before God, saying, "Look, the children of Israel haven't listened to me. How then shall Pharaoh listen to me, when I have uncircumcised lips?" 
 God spoke to Moses and to Aaron, and gave them a command to the children of Israel, and to Pharaoh king of Egypt, to bring the children of Israel out of the land of Egypt. 
 These are the heads of their fathers' houses. The sons of Reuben the firstborn of Israel: Hanoch, and Pallu, Hezron, and Carmi; these are the families of Reuben. 
 The sons of Simeon: Jemuel, and Jamin, and Ohad, and Jachin, and Zohar, and Shaul the son of a Canaanite woman; these are the families of Simeon. 
@@ -27,4 +27,4 @@ These are that Aaron and Moses to whom God said, "Bring out the children of Isra
 These are those who spoke to Pharaoh king of Egypt, to bring out the children of Israel from Egypt. These are that Moses and Aaron. 
 On the day when God spoke to Moses in the land of Egypt, 
 God said to Moses, "I am God. Tell Pharaoh king of Egypt all that I tell you." 
-Moses said before God, "Behold, I am of uncircumcised lips, and how shall Pharaoh listen to me?" 
+Moses said before God, "Look, I am of uncircumcised lips, and how shall Pharaoh listen to me?" 

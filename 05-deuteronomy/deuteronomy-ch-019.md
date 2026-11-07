@@ -15,7 +15,7 @@ You shall not remove your neighbor's landmark, which they of old time have set, 
 One witness shall not rise up against a man for any guilt, or for any wrong that someone does. At the mouth of two witnesses, or at the mouth of three witnesses, shall a matter be established. 
 If an unrighteous witness rises up against any man to testify against him of wrongdoing, 
 then both the men, between whom the controversy is, shall stand before God, before the priests and the judges who shall be in those days; 
-and the judges shall make diligent inquisition; and behold, if the witness is a false witness, and has testified falsely against his brother, 
+and the judges shall make diligent inquisition; and look, if the witness is a false witness, and has testified falsely against his brother, 
 then you shall do to him as he had thought to do to his brother. So you shall remove the bad from among you. 
 Those who remain shall hear, and fear, and will never again commit any such bad among you. 
 Your eyes shall not pity: life for life, eye for eye, tooth for tooth, hand for hand, foot for foot. 

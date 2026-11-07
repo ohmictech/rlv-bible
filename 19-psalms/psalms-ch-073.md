@@ -9,10 +9,10 @@ They scoff and speak with malice. In arrogance, they threaten oppression.
 They have set their mouth in the sky. Their tongue walks through the earth. 
 So their people return to them, and they drink up waters of abundance. 
 They say, "How does God know? Is there knowledge in the Most High?" 
-Behold, these are the guilty. Being always at ease, they increase in riches. 
+Look, these are the guilty. Being always at ease, they increase in riches. 
 Surely I have cleansed my heart in vain, and washed my hands in innocence, 
 For all day long I have been plagued, and punished every morning. 
-If I had said, "I will speak thus", behold, I would have betrayed the generation of your children. 
+If I had said, "I will speak thus", look, I would have betrayed the generation of your children. 
 When I tried to understand this, it was too painful for me 
 until I entered God's sanctuary, and considered their latter end. 
 Surely you set them in slippery places. You throw them down to destruction. 
@@ -24,5 +24,5 @@ Nevertheless, I am continually with you. You have held my right hand.
 You will guide me with your counsel, and afterward receive me to glory. 
 Whom do I have in the sky? There is no one on earth whom I desire besides you. 
 My flesh and my heart fails, but God is the strength of my heart and my portion for the eras. 
-For, behold, those who are far from you shall perish. You have destroyed everyone who is unfaithful to you. 
+For, look, those who are far from you shall perish. You have destroyed everyone who is unfaithful to you. 
 But it is good for me to come close to God. I have made God my refuge, that I may tell of all your works. 

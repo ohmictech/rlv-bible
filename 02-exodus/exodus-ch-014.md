@@ -7,14 +7,14 @@ He prepared his chariot, and took his army with him;
 and he took six hundred chosen chariots, and all the chariots of Egypt, with captains over everyone. 
 God hardened the heart of Pharaoh king of Egypt, and he pursued the children of Israel; for the children of Israel went out with a high hand. 
 The Egyptians pursued them. All the horses and chariots of Pharaoh, his horsemen, and his army overtook them encamping by the sea, beside Pihahiroth, before Baal Zephon. 
-When Pharaoh came near, the children of Israel lifted up their eyes, and behold, the Egyptians were marching after them; and they were very afraid. The children of Israel cried out to God. 
+When Pharaoh came near, the children of Israel lifted up their eyes, and look, the Egyptians were marching after them; and they were very afraid. The children of Israel cried out to God. 
 They said to Moses, "Because there were no graves in Egypt, have you taken us away to die in the wilderness? Why have you treated us this way, to bring us out of Egypt? 
 Isn't this the word that we spoke to you in Egypt, saying, 'Leave us alone, that we may serve the Egyptians'? It would have been better for us to serve the Egyptians than to die in the wilderness." 
 Moses said to the people, "Don't be afraid. Stand still, and see the salvation of God, which he will work for you today; for you will never again see the Egyptians whom you have seen today. 
 God will fight for you, and you shall be still." 
 God said to Moses, "Why do you cry to me? Speak to the children of Israel, that they go forward. 
 Lift up your rod, and stretch out your hand over the sea and divide it. Then the children of Israel shall go into the middle of the sea on dry ground. 
-Behold, I myself will harden the hearts of the Egyptians, and they will go in after them. I will get myself honor over Pharaoh, and over all his armies, over his chariots, and over his horsemen. 
+Look, I myself will harden the hearts of the Egyptians, and they will go in after them. I will get myself honor over Pharaoh, and over all his armies, over his chariots, and over his horsemen. 
 The Egyptians shall know that I am God when I have gotten myself honor over Pharaoh, over his chariots, and over his horsemen." 
 The messenger of God, who went before the camp of Israel, moved and went behind them; and the pillar of cloud moved from before them, and stood behind them. 
 It came between the camp of Egypt and the camp of Israel. There was the cloud and the darkness, yet it gave light by night. One didn't come near the other all night. 

@@ -10,10 +10,10 @@ When I had gone up onto the mountain to receive the stone tablets, even the tabl
 God delivered to me the two stone tablets written with God's finger. On them were all the words which God spoke with you on the mountain out of the middle of the fire in the day of the assembly. 
 It came to pass at the end of forty days and forty nights that God gave me the two stone tablets, even the tablets of the covenant. 
 God said to me, "Arise, get down quickly from here; for your people whom you have brought out of Egypt have corrupted themselves. They have quickly turned away from the way which I commanded them. They have made a molten image for themselves!" 
-Furthermore God spoke to me, saying, "I have seen these people, and behold, they are a stiff-necked people. 
+Furthermore God spoke to me, saying, "I have seen these people, and look, they are a stiff-necked people. 
 Leave me alone, that I may destroy them, and blot out their name from under the sky; and I will make of you a nation mightier and greater than they." 
 So I turned and came down from the mountain, and the mountain was burning with fire. The two tablets of the covenant were in my two hands. 
-I looked, and behold, you had wronged your God. You had made yourselves a molded calf. You had quickly turned away from the way which God had commanded you. 
+I looked, and look, you had wronged your God. You had made yourselves a molded calf. You had quickly turned away from the way which God had commanded you. 
 I took hold of the two tablets, and threw them out of my two hands, and broke them before your eyes. 
 I fell down before God, as at the first, forty days and forty nights. I neither ate bread nor drank water, because of all your wrong you did, in doing that which was bad in God's sight, to provoke him to anger. 
 I was afraid of the anger and hot displeasure with which God was angry against you to destroy you. But God listened to me that time also. 

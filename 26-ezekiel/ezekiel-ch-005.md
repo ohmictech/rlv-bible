@@ -5,7 +5,7 @@ Of these again you shall take, and cast them into the middle of the fire, and bu
 "The God says: 'This is Jerusalem. I have set her in the middle of the nations, and countries are around her. 
 She has rebelled against my ordinances in doing guilt more than the nations, and against my statutes more than the countries that are around her; for they have rejected my ordinances, and as for my statutes, they have not walked in them.' 
 "Therefore God says: 'Because you are more turbulent than the nations that are around you, and have not walked in my statutes, neither have kept my ordinances, neither have followed the ordinances of the nations that are around you; 
-So God says: 'Behold, I, even I, am against you; and I will execute judgments among you in the sight of the nations. 
+So God says: 'Look, I, even I, am against you; and I will execute judgments among you in the sight of the nations. 
 I will do in you that which I have not done, and which I will not do anything like it any more, because of all your abominations. 
 So the fathers will eat the sons within you, and the sons will eat their fathers. I will execute judgments on you; and I will scatter the whole remnant of you to all the winds. 
 So as I live,' says God, 'surely, because you have defiled my sanctuary with all your detestable things, and with all your abominations, I will also diminish you. My eye won't spare, and I will have no pity. 

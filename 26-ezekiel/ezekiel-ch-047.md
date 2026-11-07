@@ -1,10 +1,10 @@
-﻿He brought me back to the door of the temple; and behold, waters flowed out from under the threshold of the temple eastward, for the front of the temple faced toward the east. The waters came down from underneath, from the right side of the temple, on the south of the altar. 
-Then he brought me out by the way of the gate northward, and led me around by the way outside to the outer gate, by the way of the gate that looks toward the east. Behold, waters ran out on the right side. 
+﻿He brought me back to the door of the temple; and look, waters flowed out from under the threshold of the temple eastward, for the front of the temple faced toward the east. The waters came down from underneath, from the right side of the temple, on the south of the altar. 
+Then he brought me out by the way of the gate northward, and led me around by the way outside to the outer gate, by the way of the gate that looks toward the east. Look, waters ran out on the right side. 
 When the man went out eastward with the line in his hand, he measured one thousand cubits, and he caused me to pass through the waters, waters that were to the ankles. 
 Again he measured one thousand, and caused me to pass through the waters, waters that were to the knees. Again he measured one thousand, and caused me to pass through waters that were to the waist. 
 Afterward he measured one thousand; and it was a river that I could not pass through, for the waters had risen, waters to swim in, a river that could not be walked through. 
 He said to me, "Son of man, have you seen this?" Then he brought me and caused me to return to the bank of the river. 
-Now when I had returned, behold, on the bank of the river were very many trees on the one side and on the other. 
+Now when I had returned, look, on the bank of the river were very many trees on the one side and on the other. 
 Then he said to me, "These waters flow out toward the eastern region and will go down into the Arabah. Then they will go toward the sea and flow into the sea which will be made to flow out; and the waters will be healed. 
 It will happen that every living creature which swarms, in every place where the rivers come, will live. Then there will be a very great multitude of fish; for these waters have come there, and the waters of the sea will be healed, and everything will live wherever the river comes. 
 It will happen that fishermen will stand by it. From En Gedi even to En Eglaim will be a place for the spreading of nets. Their fish will be after their kinds, as the fish of the great sea, exceedingly many. 

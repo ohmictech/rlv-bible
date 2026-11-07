@@ -1,10 +1,10 @@
 ﻿God's word came to me, saying, 
 "Son of man, set your face toward Jerusalem, and preach toward the sanctuaries, and prophesy against the land of Israel. 
-Tell the land of Israel, 'God says: "Behold, I am against you, and will draw my sword out of its sheath, and will cut off from you the righteous and the guilty. 
+Tell the land of Israel, 'God says: "Look, I am against you, and will draw my sword out of its sheath, and will cut off from you the righteous and the guilty. 
 Seeing then that I will cut off from you the righteous and the guilty, my sword will go out of its sheath against all flesh from the south to the north. 
 All flesh will know that I, God, have drawn my sword out of its sheath. It will not return any more."' 
 "Therefore sigh, you son of man. You shall sigh before their eyes with a broken heart and with bitterness. 
-It shall be, when they ask you, 'Why do you sigh?' that you shall say, 'Because of the news, for it comes! Every heart will melt, all hands will be feeble, every spirit will faint, and all knees will be weak as water. Behold, it comes, and it shall be done, says God.'" 
+It shall be, when they ask you, 'Why do you sigh?' that you shall say, 'Because of the news, for it comes! Every heart will melt, all hands will be feeble, every spirit will faint, and all knees will be weak as water. Look, it comes, and it shall be done, says God.'" 
 God's word came to me, saying, 
 "Son of man, prophesy, and say, 'God says: "A sword! A sword! It is sharpened, and also polished. 
 It is sharpened that it may make a slaughter. It is polished that it may be as lightning. Should we then make mirth? The rod of my son condemns every tree. 

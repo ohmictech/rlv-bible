@@ -7,10 +7,10 @@ So I made a decree to bring in all the wise men of Babylon before me, that they 
 Then the magicians, the enchanters, the Chaldeans, and the soothsayers came in; and I told them the dream, but they didn't make known to me its interpretation. 
 But at last, Daniel came in before me, whose name was Belteshazzar according to the name of my god, and in whom is the spirit of the holy gods. I told the dream before him, saying, 
 "Belteshazzar, master of the magicians, because I know that the spirit of the holy gods is in you and no secret troubles you, tell me the visions of my dream that I have seen, and its interpretation. 
-These were the visions of my head on my bed: I saw, and behold, a tree in the middle of the earth; and its height was great. 
+These were the visions of my head on my bed: I saw, and look, a tree in the middle of the earth; and its height was great. 
 The tree grew and was strong. Its height reached to the sky and its sight to the end of all the earth. 
 Its leaves were beautiful, and it had much fruit, and in it was food for all. The animals of the field had shade under it, and the birds of the sky lived in its branches, and all flesh was fed from it. 
-"I saw in the visions of my head on my bed, and behold, a holy watcher came down from the sky. 
+"I saw in the visions of my head on my bed, and look, a holy watcher came down from the sky. 
 He cried aloud and said this: 'Cut down the tree, and cut off its branches! Shake off its leaves and scatter its fruit! Let the animals get away from under it and the birds from its branches. 
 Nevertheless leave the stump of its roots in the earth, even with a band of iron and bronze, in the tender grass of the field; and let it be wet with the dew of the sky. Let his portion be with the animals in the grass of the earth. 
 Let his heart be changed from man's, and let an animal's heart be given to him. Then let seven times pass over him. 

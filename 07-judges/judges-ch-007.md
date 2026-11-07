@@ -10,11 +10,11 @@ That same night, God said to him, "Arise, go down into the camp, for I have deli
 But if you are afraid to go down, go with Purah your servant down to the camp. 
 You will hear what they say; and afterward your hands will be strengthened to go down into the camp." Then he went down with Purah his servant to the outermost part of the armed men who were in the camp. 
 The Midianites and the Amalekites and all the children of the east lay along in the valley like locusts for multitude; and their camels were without number, as the sand which is on the seashore for multitude. 
-When Gideon had come, behold, there was a man telling a dream to his fellow. He said, "Behold, I dreamed a dream; and behold, a cake of barley bread tumbled into the camp of Midian, came to the tent, and struck it so that it fell, and turned it upside down, so that the tent lay flat." 
+When Gideon had come, look, there was a man telling a dream to his fellow. He said, "Look, I dreamed a dream; and look, a cake of barley bread tumbled into the camp of Midian, came to the tent, and struck it so that it fell, and turned it upside down, so that the tent lay flat." 
 His fellow answered, "This is nothing other than the sword of Gideon the son of Joash, a man of Israel. God has delivered Midian into his hand, with all the army." 
 It was so, when Gideon heard the telling of the dream and its interpretation, that he worshiped. Then he returned into the camp of Israel and said, "Arise, for God has delivered the army of Midian into your hand!" 
 He divided the three hundred men into three companies, and he put into the hands of everyone trumpets and empty pitchers, with torches within the pitchers. 
-He said to them, "Watch me, and do likewise. Behold, when I come to the outermost part of the camp, it shall be that, as I do, so you shall do. 
+He said to them, "Watch me, and do likewise. Look, when I come to the outermost part of the camp, it shall be that, as I do, so you shall do. 
 When I blow the trumpet, I and everyone who is with me, then blow the trumpets also on every side of all the camp, and shout, 'For God and for Gideon!'" 
 So Gideon and the hundred men who were with him came to the outermost part of the camp in the beginning of the middle watch, when they had but newly set the watch. Then they blew the trumpets and broke in pieces the pitchers that were in their hands. 
 The three companies blew the trumpets, broke the pitchers, and held the torches in their left hands and the trumpets in their right hands with which to blow; and they shouted, "The sword of God and of Gideon!" 

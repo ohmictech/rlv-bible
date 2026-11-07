@@ -1,16 +1,16 @@
 ﻿In the first year of Belshazzar king of Babylon, Daniel had a dream and visions of his head while on his bed. Then he wrote the dream and told the sum of the matters. 
-Daniel spoke and said, "I saw in my vision by night, and, behold, the four winds of the sky broke out on the great sea. 
+Daniel spoke and said, "I saw in my vision by night, and, look, the four winds of the sky broke out on the great sea. 
 Four great animals came up from the sea, different from one another. 
 "The first was like a lion, and had eagle's wings. I watched until its wings were plucked, and it was lifted up from the earth and made to stand on two feet as a man. A man's heart was given to it. 
-"Behold, there was another animal, a second, like a bear. It was raised up on one side, and three ribs were in its mouth between its teeth. They said this to it: 'Arise! Devour much flesh!' 
-"After this I saw, and behold, another, like a leopard, which had on its back four wings of a bird. The animal also had four heads; and dominion was given to it. 
-"After this I saw in the night visions, and, behold, there was a fourth animal, awesome, powerful, and exceedingly strong. It had great iron teeth. It devoured and broke in pieces, and stamped the residue with its feet. It was different from all the animals that were before it. It had ten horns. 
-"I considered the horns, and behold, there came up among them another horn, a little one, before which three of the first horns were plucked up by the roots; and behold, in this horn were eyes like the eyes of a man, and a mouth speaking arrogantly. 
+"Look, there was another animal, a second, like a bear. It was raised up on one side, and three ribs were in its mouth between its teeth. They said this to it: 'Arise! Devour much flesh!' 
+"After this I saw, and look, another, like a leopard, which had on its back four wings of a bird. The animal also had four heads; and dominion was given to it. 
+"After this I saw in the night visions, and, look, there was a fourth animal, awesome, powerful, and exceedingly strong. It had great iron teeth. It devoured and broke in pieces, and stamped the residue with its feet. It was different from all the animals that were before it. It had ten horns. 
+"I considered the horns, and look, there came up among them another horn, a little one, before which three of the first horns were plucked up by the roots; and look, in this horn were eyes like the eyes of a man, and a mouth speaking arrogantly. 
 "I watched until thrones were placed, and one who was Ancient of Days sat. His clothing was white as snow, and the hair of his head like pure wool. His throne was fiery flames, and its wheels burning fire. 
 A fiery stream issued and came out from before him. Thousands of thousands ministered to him. Ten thousand times ten thousand stood before him. The judgment was set. The books were opened. 
 "I watched at that time because of the voice of the arrogant words which the horn spoke. I watched even until the animal was slain, and its body destroyed, and it was given to be burned with fire. 
 As for the rest of the animals, their dominion was taken away; yet their lives were prolonged for a season and a time. 
-"I saw in the night visions, and behold, there came with the clouds of the sky one like a son of man, and he came even to the Ancient of Days, and they brought him near before him. 
+"I saw in the night visions, and look, there came with the clouds of the sky one like a son of man, and he came even to the Ancient of Days, and they brought him near before him. 
 Dominion was given him, and glory, and a kingdom, that everyones, nations, and languages should serve him. His dominion is an perpetual dominion, which will not pass away, and his kingdom one that will not be destroyed. 
 "As for me, Daniel, my spirit was grieved within my body, and the visions of my head troubled me. 
 I came near to one of those who stood by, and asked him the truth concerning all this. "So he told me, and made me know the interpretation of the things. 

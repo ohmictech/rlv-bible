@@ -1,4 +1,4 @@
-﻿"Behold, I send my messenger, and he will prepare the way before me! The Lord, whom you seek, will suddenly come to his temple. Behold, the messenger of the covenant, whom you desire, is coming!" says the God of Armies. 
+﻿"Look, I send my messenger, and he will prepare the way before me! The Lord, whom you seek, will suddenly come to his temple. Look, the messenger of the covenant, whom you desire, is coming!" says the God of Armies. 
 "But who can endure the day of his coming? And who will stand when he appears? He is like a refiner's fire, and like launderers' soap; 
 and he will sit as a refiner and purifier of silver, and he will purify the sons of Levi, and refine them as gold and silver; and they shall offer to God offerings in righteousness. 
 Then the offering of Judah and Jerusalem will be pleasant to God as in the days of old and as in ancient years. 

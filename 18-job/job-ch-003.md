@@ -4,7 +4,7 @@ Job answered:
 Let that day be darkness. Don't let God from above seek for it, neither let the light shine on it. 
 Let darkness and the shadow of death claim it for their own. Let a cloud dwell on it. Let all that makes the day black terrify it. 
 As for that night, let thick darkness seize on it. Let it not rejoice among the days of the year. Let it not come into the number of the months. 
-Behold, let that night be barren. Let no joyful voice come therein. 
+Look, let that night be barren. Let no joyful voice come therein. 
 Let them curse it who curse the day, who are ready to rouse up leviathan. 
 Let the stars of its twilight be dark. Let it look for light, but have none, neither let it see the eyelids of the morning, 
 because it didn't shut up the doors of my mother's womb, nor did it hide trouble from my eyes. 

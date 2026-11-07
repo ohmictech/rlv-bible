@@ -37,7 +37,7 @@ Turn my heart toward your statutes, not toward selfish gain.
 Turn my eyes away from looking at worthless things. Revive me in your ways. 
 Fulfill your promise to your servant, that you may be feared. 
 Take away my disgrace that I dread, for your ordinances are good. 
-Behold, I long for your precepts! Revive me in your righteousness. VAV 
+Look, I long for your precepts! Revive me in your righteousness. VAV 
 Let your loving kindness also come to me, God, your salvation, according to your word. 
 So I will have an answer for him who reproaches me, for I trust in your word. 
 Don't snatch the word of truth out of my mouth, for I put my hope in your ordinances. 

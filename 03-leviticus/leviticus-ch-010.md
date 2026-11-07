@@ -13,8 +13,8 @@ Moses spoke to Aaron, and to Eleazar and to Ithamar, his sons who were left, "Ta
 and you shall eat it in a holy place, because it is your portion, and your sons' portion, of the offerings of God made by fire; for so I am commanded. 
 The waved breast and the heaved thigh you shall eat in a clean place, you, and your sons, and your daughters with you: for they are given as your portion, and your sons' portion, out of the sacrifices of the offerings for wholeness of the children of Israel. 
 They shall bring the heaved thigh and the waved breast with the offerings made by fire of the fat, to wave it for a wave offering before God. It shall be yours, and your sons' with you, as a portion for the eras, as God has commanded." 
-Moses diligently inquired about the goat of the offering for wrongdoing, and, behold, it was burned. He was angry with Eleazar and with Ithamar, the sons of Aaron who were left, saying, 
+Moses diligently inquired about the goat of the offering for wrongdoing, and, look, it was burned. He was angry with Eleazar and with Ithamar, the sons of Aaron who were left, saying, 
 "Why haven't you eaten the offering for wrongdoing in the place of the sanctuary, since it is most holy, and he has given it to you to bear the guilt of the congregation, to make things right for them before God? 
-Behold, its blood was not brought into the inner part of the sanctuary. You certainly should have eaten it in the sanctuary, as I commanded." 
-Aaron spoke to Moses, "Behold, today they have offered their offering for wrongdoing and their burnt offering before God; and such things as these have happened to me. If I had eaten the offering for wrongdoing today, would it have been pleasing in God's sight?" 
+Look, its blood was not brought into the inner part of the sanctuary. You certainly should have eaten it in the sanctuary, as I commanded." 
+Aaron spoke to Moses, "Look, today they have offered their offering for wrongdoing and their burnt offering before God; and such things as these have happened to me. If I had eaten the offering for wrongdoing today, would it have been pleasing in God's sight?" 
 When Moses heard that, it was pleasing in his sight. 

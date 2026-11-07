@@ -20,7 +20,7 @@ So are the ways of everyone who is greedy for gain. It takes away the life of it
 Wisdom calls aloud in the street. She utters her voice in the public squares. 
 She calls at the head of noisy places. At the entrance of the city gates, she utters her words: 
 "How long, you simple ones, will you love simplicity? How long will mockers delight themselves in mockery, and fools hate knowledge? 
-Turn at my reproof. Behold, I will pour out my spirit on you. I will make known my words to you. 
+Turn at my reproof. Look, I will pour out my spirit on you. I will make known my words to you. 
 Because I have called, and you have refused; I have stretched out my hand, and no one has paid attention; 
 but you have ignored all my counsel, and wanted none of my reproof; 
 I also will laugh at your disaster. I will mock when calamity overtakes you, 

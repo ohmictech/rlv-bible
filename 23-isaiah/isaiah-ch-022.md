@@ -10,11 +10,11 @@ You saw the breaches of David's city, that they were many; and you gathered toge
 You counted the houses of Jerusalem, and you broke down the houses to fortify the wall. 
 You also made a reservoir between the two walls for the water of the old pool. But you didn't look to him who had done this, neither did you have respect for him who planned it long ago. 
 In that day, the Lord, GOD of Armies, called to weeping, to mourning, to baldness, and to dressing in sackcloth; 
-and behold, there is joy and gladness, killing cattle and killing sheep, eating meat and drinking wine: "Let's eat and drink, for tomorrow we will die." 
+and look, there is joy and gladness, killing cattle and killing sheep, eating meat and drinking wine: "Let's eat and drink, for tomorrow we will die." 
 The God of Armies revealed himself in my ears, "Surely this guilt will not be forgiven you until you die," says the Lord, GOD of Armies. 
 The Lord, GOD of Armies says, "Go, get yourself to this treasurer, even to Shebna, who is over the house, and say, 
 'What are you doing here? Who has you here, that you have dug out a tomb here?' Cutting himself out a tomb on high, chiseling a habitation for himself in the rock!" 
-Behold, God will overcome you and hurl you away violently. Yes, he will grasp you firmly. 
+Look, God will overcome you and hurl you away violently. Yes, he will grasp you firmly. 
 He will surely wind you around and around, and throw you like a ball into a large country. There you will die, and there the chariots of your glory will be, you disgrace of your lord's house. 
 I will thrust you from your office. You will be pulled down from your station. 
 It will happen in that day that I will call my servant Eliakim the son of Hilkiah, 

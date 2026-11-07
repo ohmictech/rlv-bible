@@ -8,7 +8,7 @@ Who is like me? Who will call, and will declare it, and set it in order for me, 
 Don't fear, neither be afraid. Haven't I declared it to you long ago, and shown it? You are my witnesses. Is there a God besides me? Indeed, there is not. I don't know any other Rock." 
 Everyone who makes a carved image is vain. The things that they delight in will not profit. Their own witnesses don't see, nor know, that they may be disappointed. 
 Who has fashioned a god, or molds an image that is profitable for nothing? 
-Behold, all his fellows will be disappointed; and the workmen are mere men. Let them all be gathered together. Let them stand up. They will fear. They will be put to shame together. 
+Look, all his fellows will be disappointed; and the workmen are mere men. Let them all be gathered together. Let them stand up. They will fear. They will be put to shame together. 
 The blacksmith takes an ax, works in the coals, fashions it with hammers, and works it with his strong arm. He is hungry, and his strength fails; he drinks no water, and is faint. 
 The carpenter stretches out a line. He marks it out with a pencil. He shapes it with planes. He marks it out with compasses, and shapes it like the figure of a man, with the beauty of a man, to reside in a house. 
 He cuts down cedars for himself, and takes the cypress and the oak, and strengthens for himself one among the trees of the forest. He plants a cypress tree, and the rain nourishes it. 

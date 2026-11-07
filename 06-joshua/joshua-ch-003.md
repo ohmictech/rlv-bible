@@ -8,7 +8,7 @@ God said to Joshua, "Today I will begin to magnify you in the sight of all Israe
 You shall command the priests who bear the ark of the covenant, saying, 'When you come to the brink of the waters of the Jordan, you shall stand still in the Jordan.'" 
 Joshua said to the children of Israel, "Come here, and hear the words of your God." 
 Joshua said, "By this you shall know that the living God is among you, and that he will without fail drive the Canaanite, the Hittite, the Hivite, the Perizzite, the Girgashite, the Amorite, and the Jebusite out from before you. 
-Behold, the ark of the covenant of the Lord of all the earth passes over before you into the Jordan. 
+Look, the ark of the covenant of the Lord of all the earth passes over before you into the Jordan. 
 Now take twelve men out of the tribes of Israel, for every tribe a man. 
 It shall be that when the soles of the feet of the priests who bear the ark of GOD, the Lord of all the earth, rest in the waters of the Jordan, that the waters of the Jordan will be cut off. The waters that come down from above shall stand in one heap." 
 When the people moved from their tents to pass over the Jordan, the priests who bore the ark of the covenant being before the people, 

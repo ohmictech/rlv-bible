@@ -12,7 +12,7 @@ Naomi said, "Go back, my daughters. Why do you want to go with me? Do I still ha
 Go back, my daughters, go your way; for I am too old to have a husband. If I should say, 'I have hope,' if I should even have a husband tonight, and should also bear sons, 
 would you then wait until they were grown? Would you then refrain from having husbands? No, my daughters, for it grieves me seriously for your sakes, for God's hand has gone out against me." 
 They lifted up their voices and wept again; then Orpah kissed her mother-in-law, but Ruth stayed with her. 
-She said, "Behold, your sister-in-law has gone back to her people and to her god. Follow your sister-in-law." 
+She said, "Look, your sister-in-law has gone back to her people and to her god. Follow your sister-in-law." 
 Ruth said, "Don't urge me to leave you, and to return from following you, for where you go, I will go; and where you stay, I will stay. Your people will be my people, and your God my God. 
 Where you die, I will die, and there I will be buried. May God do so to me, and more also, if anything but death parts you and me." 
 When Naomi saw that she was determined to go with her, she stopped urging her. 

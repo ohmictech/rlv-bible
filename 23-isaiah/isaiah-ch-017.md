@@ -1,4 +1,4 @@
-﻿The burden of Damascus. "Behold, Damascus is taken away from being a city, and it will be a ruinous heap. 
+﻿The burden of Damascus. "Look, Damascus is taken away from being a city, and it will be a ruinous heap. 
 The cities of Aroer are forsaken. They will be for flocks, which shall lie down, and no one shall make them afraid. 
 The fortress shall cease from Ephraim, and the kingdom from Damascus, and the remnant of Syria. They will be as the glory of the children of Israel," says the God of Armies. 
 "It will happen in that day that the glory of Jacob will be made thin, and the fatness of his flesh will become lean. 
@@ -11,4 +11,4 @@ You have forgotten the God of your salvation, and have not remembered the rock o
 In the day of your planting, you hedge it in. In the morning, you make your seed blossom, but the harvest flees away in the day of grief and of desperate sorrow. 
 Ah, the uproar of many peoples who roar like the roaring of the seas; and the rushing of nations that rush like the rushing of mighty waters! 
 The nations will rush like the rushing of many waters, but he will rebuke them, and they will flee far off, and will be chased like the chaff of the mountains before the wind, and like the whirling dust before the storm. 
-At evening, behold, terror! Before the morning, they are no more. This is the portion of those who plunder us, and the lot of those who rob us. 
+At evening, look, terror! Before the morning, they are no more. This is the portion of those who plunder us, and the lot of those who rob us. 

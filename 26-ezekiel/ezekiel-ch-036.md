@@ -3,10 +3,10 @@ The God says: 'Because the enemy has said against you, "Aha!" and, "The ancient 
 So prophesy, and say, 'The God says: "Because, even because they have made you desolate, and swallowed you up on every side, that you might be a possession to the residue of the nations, and you are taken up in the lips of talkers, and the bad report of the people;" 
 So, you mountains of Israel, hear the word of God: The God says to the mountains and to the hills, to the watercourses and to the valleys, to the desolate wastes and to the cities that are forsaken, which have become a prey and derision to the residue of the nations that are all around; 
 So God says: "Surely in the fire of my jealousy I have spoken against the residue of the nations, and against all Edom, that have appointed my land to themselves for a possession with the joy of all their heart, with despite of soul, to cast it out for a prey."' 
-Therefore prophesy concerning the land of Israel, and tell the mountains, the hills, the watercourses and the valleys, 'The God says: "Behold, I have spoken in my jealousy and in my wrath, because you have borne the shame of the nations." 
+Therefore prophesy concerning the land of Israel, and tell the mountains, the hills, the watercourses and the valleys, 'The God says: "Look, I have spoken in my jealousy and in my wrath, because you have borne the shame of the nations." 
 So God says: "I have sworn, 'Surely the nations that are around you will bear their shame.' 
 "'"But you, mountains of Israel, you shall shoot out your branches and yield your fruit to my people Israel; for they are at hand to come. 
-For, behold, I am for you, and I will come to you, and you will be tilled and sown. 
+For, look, I am for you, and I will come to you, and you will be tilled and sown. 
 I will multiply men on you, all the house of Israel, even all of it. The cities will be inhabited and the waste places will be built. 
 I will multiply man and animal on you. They will increase and be fruitful. I will cause you to be inhabited as you were before, and you will do better than at your beginnings. Then you will know that I am God. 
 Yes, I will cause men to walk on you, even my people Israel. They will possess you, and you will be their inheritance, and you will never again bereave them of their children." 

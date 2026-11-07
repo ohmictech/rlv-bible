@@ -18,7 +18,7 @@ The man did as Joseph commanded, and the man brought the men to Joseph's house.
 The men were afraid, because they were brought to Joseph's house; and they said, "Because of the money that was returned in our sacks the first time, we're brought in; that he may seek occasion against us, attack us, and seize us as slaves, along with our donkeys." 
 They came near to the steward of Joseph's house, and they spoke to him at the door of the house, 
 and said, "Oh, my lord, we indeed came down the first time to buy food. 
-When we came to the lodging place, we opened our sacks, and behold, each man's money was in the mouth of his sack, our money in full weight. We have brought it back in our hand. 
+When we came to the lodging place, we opened our sacks, and look, each man's money was in the mouth of his sack, our money in full weight. We have brought it back in our hand. 
 We have brought down other money in our hand to buy food. We don't know who put our money in our sacks." 
 He said, "Peace be to you. Don't be afraid. Your God, and the God of your father, has given you treasure in your sacks. I received your money." He brought Simeon out to them. 
 The man brought the men into Joseph's house, and gave them water, and they washed their feet. He gave their donkeys fodder. 

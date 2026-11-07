@@ -9,7 +9,7 @@ What is the hope of the godless, when he is cut off, when God takes away his lif
 Will God hear his cry when trouble comes on him? 
 Will he delight himself in the Almighty, and call on God at all times? 
 I will teach you about the hand of God. I will not conceal that which is with the Almighty. 
-Behold, all of you have seen it yourselves; why then have you become altogether vain? 
+Look, all of you have seen it yourselves; why then have you become altogether vain? 
 "This is the portion of a guilty man with God, the heritage of oppressors, which they receive from the Almighty. 
 If his children are multiplied, it is for the sword. His offspring will not be satisfied with bread. 
 Those who remain of him will be buried in death. His widows will make no lamentation. 

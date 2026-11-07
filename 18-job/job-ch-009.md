@@ -8,15 +8,15 @@ He commands the sun and it doesn't rise, and seals up the stars.
 He alone stretches out the sky, and treads on the waves of the sea. 
 He makes the Bear, Orion, and the Pleiades, and the rooms of the south. 
 He does great things past finding out; yes, marvelous things without number. 
-Behold, he goes by me, and I don't see him. He passes on also, but I don't perceive him. 
-Behold, he snatches away. Who can hinder him? Who will ask him, 'What are you doing?' 
+Look, he goes by me, and I don't see him. He passes on also, but I don't perceive him. 
+Look, he snatches away. Who can hinder him? Who will ask him, 'What are you doing?' 
 "God will not withdraw his anger. The helpers of Rahab stoop under him. 
 How much less will I answer him, and choose my words to argue with him? 
 Though I were righteous, yet I wouldn't answer him. I would make supplication to my judge. 
 If I had called, and he had answered me, yet I wouldn't believe that he listened to my voice. 
 He breaks me with a storm, and multiplies my wounds without cause. 
 He will not allow me to catch my breath, but fills me with bitterness. 
-If it is a matter of strength, behold, he is mighty! If of justice, 'Who,' says he, 'will summon me?' 
+If it is a matter of strength, look, he is mighty! If of justice, 'Who,' says he, 'will summon me?' 
 Though I am righteous, my own mouth will condemn me. Though I am blameless, it will prove me perverse. 
 I am blameless. I don't respect myself. I despise my life. 
 "It is all the same. So I say he destroys the blameless and the guilty. 

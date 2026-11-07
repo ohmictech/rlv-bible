@@ -7,12 +7,12 @@ The wind goes toward the south, and turns around to the north. It turns around c
 All the rivers run into the sea, yet the sea is not full. To the place where the rivers flow, there they flow again. 
 All things are full of weariness beyond uttering. The eye is not satisfied with seeing, nor the ear filled with hearing. 
 That which has been is that which shall be, and that which has been done is that which shall be done; and there is no new thing under the sun. 
-Is there a thing of which it may be said, "Behold, this is new"? It has been long ago, in the ages which were before us. 
+Is there a thing of which it may be said, "Look, this is new"? It has been long ago, in the ages which were before us. 
 There is no memory of the former; neither shall there be any memory of the latter that are to come, among those that shall come after. 
 I, the Preacher, was king over Israel in Jerusalem. 
 I applied my heart to seek and to search out by wisdom concerning all that is done under the sky. It is a heavy burden that God has given to the sons of men to be afflicted with. 
-I have seen all the works that are done under the sun; and behold, all is vanity and a chasing after wind. 
+I have seen all the works that are done under the sun; and look, all is vanity and a chasing after wind. 
 That which is crooked can't be made straight; and that which is lacking can't be counted. 
-I said to myself, "Behold, I have obtained for myself great wisdom above everyone who was before me in Jerusalem. Yes, my heart has had great experience of wisdom and knowledge." 
+I said to myself, "Look, I have obtained for myself great wisdom above everyone who was before me in Jerusalem. Yes, my heart has had great experience of wisdom and knowledge." 
 I applied my heart to know wisdom, and to know madness and folly. I perceived that this also was a chasing after wind. 
 In much wisdom is much grief; and he who increases knowledge increases sorrow. 

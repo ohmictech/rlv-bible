@@ -1,6 +1,6 @@
 ﻿In the seventh year, Jehoiada strengthened himself, and took the captains of hundreds, Azariah the son of Jeroham, Ishmael the son of Jehohanan, Azariah the son of Obed, Maaseiah the son of Adaiah, and Elishaphat the son of Zichri, into a covenant with him. 
 They went around in Judah and gathered the Levites out of all the cities of Judah, and the heads of fathers' households of Israel, and they came to Jerusalem. 
-All the assembly made a covenant with the king in God's house. Jehoiada said to them, "Behold, the king's son must reign, as God has spoken concerning the sons of David. 
+All the assembly made a covenant with the king in God's house. Jehoiada said to them, "Look, the king's son must reign, as God has spoken concerning the sons of David. 
 This is the thing that you must do: a third part of you, who come in on the Sabbath, of the priests and of the Levites, shall be gatekeepers of the thresholds. 
 A third part shall be at the king's house; and a third part at the gate of the foundation. Everyone will be in the courts of God's house. 
 But let no one come into God's house except the priests and those who minister of the Levites. They shall come in, for they are holy, but everyone shall follow God's instructions. 
@@ -10,7 +10,7 @@ Jehoiada the priest delivered to the captains of hundreds the spears, bucklers, 
 He set everyone, every man with his weapon in his hand, from the right side of the house to the left side of the house, near the altar and the house, around the king. 
 Then they brought out the king's son, put the crown on him, gave him the covenant, and made him king. Jehoiada and his sons anointed him, and they said, "Long live the king!" 
 When Athaliah heard the noise of the people running and praising the king, she came to the people into God's house. 
-Then she looked, and behold, the king stood by his pillar at the entrance, with the captains and the trumpeters by the king. Everyone in the land rejoiced and blew trumpets. The singers also played musical instruments, and led the singing of praise. Then Athaliah tore her clothes, and said, "Treason! treason!" 
+Then she looked, and look, the king stood by his pillar at the entrance, with the captains and the trumpeters by the king. Everyone in the land rejoiced and blew trumpets. The singers also played musical instruments, and led the singing of praise. Then Athaliah tore her clothes, and said, "Treason! treason!" 
 Jehoiada the priest brought out the captains of hundreds who were set over the army, and said to them, "Bring her out between the ranks; and whoever follows her, let him be slain with the sword." For the priest said, "Don't kill her in God's house." 
 So they made way for her. She went to the entrance of the horse gate to the king's house; and they killed her there. 
 Jehoiada made a covenant between himself, everyone, and the king, that they should be God's people. 

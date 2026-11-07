@@ -12,7 +12,7 @@ As the partridge that sits on eggs which she has not laid, so is he who gets ric
 A glorious throne, set on high from the beginning, is the place of our sanctuary. 
 God, the hope of Israel, everyone who forsakes you will be disappointed. Those who depart from me will be written in the earth, because they have forsaken God, the spring of living waters. 
 Heal me, O God, and I will be healed. Save me, and I will be saved; for you are my praise. 
-Behold, they ask me, "Where is God's word? Let it be fulfilled now." 
+Look, they ask me, "Where is God's word? Let it be fulfilled now." 
 As for me, I have not hurried from being a shepherd after you. I haven't desired the woeful day. You know. That which came out of my lips was before your face. 
 Don't be a terror to me. You are my refuge in the day of bad. 
 Let them be disappointed who persecute me, but don't let me be disappointed. Let them be dismayed, but don't let me be dismayed. Bring on them the day of bad, and destroy them with double destruction. 

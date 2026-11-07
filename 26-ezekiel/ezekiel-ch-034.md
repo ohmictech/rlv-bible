@@ -7,17 +7,17 @@ My sheep wandered through all the mountains and on every high hill. Yes, my shee
 "'Therefore, you shepherds, hear God's word: 
 "As I live," says God, "surely because my sheep became a prey, and my sheep became food to all the animals of the field, because there was no shepherd, and my shepherds didn't search for my sheep, but the shepherds fed themselves, and didn't feed my sheep, 
 So, you shepherds, hear God's word!" 
-The God says: "Behold, I am against the shepherds. I will require my sheep at their hand, and cause them to cease from feeding the sheep. The shepherds won't feed themselves any more. I will deliver my sheep from their mouth, that they may not be food for them." 
-"'For God says: "Behold, I myself, even I, will search for my sheep, and will seek them out. 
+The God says: "Look, I am against the shepherds. I will require my sheep at their hand, and cause them to cease from feeding the sheep. The shepherds won't feed themselves any more. I will deliver my sheep from their mouth, that they may not be food for them." 
+"'For God says: "Look, I myself, even I, will search for my sheep, and will seek them out. 
 As a shepherd seeks out his flock in the day that he is among his sheep that are scattered abroad, so I will seek out my sheep. I will deliver them out of all places where they have been scattered in the cloudy and dark day. 
 I will bring them out from the peoples, and gather them from the countries, and will bring them into their own land. I will feed them on the mountains of Israel, by the watercourses, and in all the inhabited places of the country. 
 I will feed them with good pasture, and their fold will be on the mountains of the height of Israel. There they will lie down in a good fold. They will feed on rich pasture on the mountains of Israel. 
 I myself will be the shepherd of my sheep, and I will cause them to lie down," says God. 
 "I will seek that which was lost, and will bring back that which was driven away, and will bind up that which was broken, and will strengthen that which was sick; but I will destroy the fat and the strong. I will feed them in justice."' 
-"As for you, O my flock, God says: 'Behold, I judge between sheep and sheep, the rams and the male goats. 
+"As for you, O my flock, God says: 'Look, I judge between sheep and sheep, the rams and the male goats. 
 Does it seem a small thing to you to have fed on the good pasture, but you must tread down with your feet the residue of your pasture? And to have drunk of the clear waters, but must you foul the residue with your feet? 
 As for my sheep, they eat that which you have trodden with your feet, and they drink that which you have fouled with your feet.' 
-"Therefore God says to them: 'Behold, I, even I, will judge between the fat sheep and the lean sheep. 
+"Therefore God says to them: 'Look, I, even I, will judge between the fat sheep and the lean sheep. 
 Because you thrust with side and with shoulder, and push all the diseased with your horns, until you have scattered them abroad, 
 So I will save my flock, and they will no more be a prey. I will judge between sheep and sheep. 
 I will set up one shepherd over them, and he will feed them, even my servant David. He will feed them, and he will be their shepherd. 

@@ -8,10 +8,10 @@ God has called you as a wife forsaken and grieved in spirit, even a wife of yout
 In overflowing wrath I hid my face from you for a moment, but with perpetual loving kindness I will have mercy on you," says God the one who buys you back. 
 "This is like the waters of Noah to me; for as I have sworn that the waters of Noah will no more go over the earth, so I have sworn that I will not be angry with you, nor rebuke you. 
 The mountains may depart, and the hills be removed, but my loving kindness will not depart from you, and my covenant of peace will not be removed," says God who has mercy on you. 
-"You afflicted, tossed with storms, and not comforted, behold, I will set your stones in beautiful colors, and lay your foundations with sapphires. 
+"You afflicted, tossed with storms, and not comforted, look, I will set your stones in beautiful colors, and lay your foundations with sapphires. 
 I will make your pinnacles of rubies, your gates of sparkling jewels, and all your walls of precious stones. 
 All your children will be taught by God, and your children's peace will be great. 
 You will be established in righteousness. You will be far from oppression, for you will not be afraid, and far from terror, for it shall not come near you. 
-Behold, they may gather together, but not by me. Whoever gathers together against you will fall because of you. 
-"Behold, I have created the blacksmith who fans the coals into flame, and forges a weapon for his work; and I have created the destroyer to destroy. 
+Look, they may gather together, but not by me. Whoever gathers together against you will fall because of you. 
+"Look, I have created the blacksmith who fans the coals into flame, and forges a weapon for his work; and I have created the destroyer to destroy. 
 No weapon that is formed against you will prevail; and you will condemn every tongue that rises against you in judgment. This is the heritage of God's servants, and their righteousness is of me," says God. 

@@ -4,7 +4,7 @@ The chiefs of everyone, even of all the tribes of Israel, presented themselves i
 The Levite, the husband of the woman who was murdered, answered, "I came into Gibeah that belongs to Benjamin, I and my concubine, to spend the night. 
 The men of Gibeah rose against me, and surrounded the house by night. They intended to kill me and they raped my concubine, and she is dead. 
 I took my concubine and cut her in pieces, and sent her throughout all the country of the inheritance of Israel; for they have committed lewdness and folly in Israel. 
-Behold, you children of Israel, all of you, give here your advice and counsel." 
+Look, you children of Israel, all of you, give here your advice and counsel." 
 Everyone arose as one man, saying, "None of us will go to his tent, neither will any of us turn to his house. 
 But now this is the thing which we will do to Gibeah: we will go up against it by lot; 
 and we will take ten men of one hundred throughout all the tribes of Israel, and one hundred of one thousand, and a thousand out of ten thousand to get food for the people, that they may do, when they come to Gibeah of Benjamin, according to all the folly that the men of Gibeah have done in Israel." 
@@ -37,7 +37,7 @@ So the children of Benjamin saw that they were struck, for the men of Israel yie
 The ambushers hurried, and rushed on Gibeah; then the ambushers spread out, and struck all the city with the edge of the sword. 
 Now the appointed sign between the men of Israel and the ambushers was that they should make a great cloud of smoke rise up out of the city. 
 The men of Israel turned in the battle, and Benjamin began to strike and kill of the men of Israel about thirty persons; for they said, "Surely they are struck down before us, as in the first battle." 
-But when the cloud began to arise up out of the city in a pillar of smoke, the Benjamites looked behind them; and behold, the whole city went up in smoke to the sky. 
+But when the cloud began to arise up out of the city in a pillar of smoke, the Benjamites looked behind them; and look, the whole city went up in smoke to the sky. 
 The men of Israel turned, and the men of Benjamin were dismayed; for they saw that disaster had come on them. 
 So they turned their backs before the men of Israel to the way of the wilderness, but the battle followed hard after them; and those who came out of the cities destroyed them in the middle of it. 
 They surrounded the Benjamites, chased them, and trod them down at their resting place, as far as near Gibeah toward the sunrise. 

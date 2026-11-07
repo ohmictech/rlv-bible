@@ -6,7 +6,7 @@ The sound of the wings of the cherubim was heard even to the outer court, as the
 It came to pass, when he commanded the man clothed in linen, saying, "Take fire from between the whirling wheels, from between the cherubim," that he went in and stood beside a wheel. 
 The cherub stretched out his hand from between the cherubim to the fire that was between the cherubim, and took some of it, and put it into the hands of him who was clothed in linen, who took it and went out. 
 The form of a man's hand appeared here in the cherubim under their wings. 
-I looked, and behold, there were four wheels beside the cherubim, one wheel beside one cherub, and another wheel beside another cherub. The appearance of the wheels was like a beryl stone. 
+I looked, and look, there were four wheels beside the cherubim, one wheel beside one cherub, and another wheel beside another cherub. The appearance of the wheels was like a beryl stone. 
 As for their appearance, the four of them had one likeness, like a wheel within a wheel. 
 When they went, they went in their four directions. They didn't turn as they went, but to the place where the head looked they followed it. They didn't turn as they went. 
 Their whole body, including their backs, their hands, their wings, and the wheels, were full of eyes all around, even the wheels that the four of them had. 

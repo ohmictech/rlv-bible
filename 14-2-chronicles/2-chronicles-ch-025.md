@@ -23,6 +23,6 @@ Judah was defeated by Israel; so every man fled to his tent.
 Joash king of Israel took Amaziah king of Judah, the son of Joash the son of Jehoahaz, at Beth Shemesh and brought him to Jerusalem, and broke down the wall of Jerusalem from the gate of Ephraim to the corner gate, four hundred cubits. 
 He took all the gold and silver, and all the vessels that were found in God's house with Obed-Edom, and the treasures of the king's house, and the hostages, and returned to Samaria. 
 Amaziah the son of Joash, king of Judah, lived for fifteen years after the death of Joash, son of Jehoahaz, king of Israel. 
-Now the rest of the acts of Amaziah, first and last, behold, aren't they written in the book of the kings of Judah and Israel? 
+Now the rest of the acts of Amaziah, first and last, look, aren't they written in the book of the kings of Judah and Israel? 
 Now from the time that Amaziah turned away from following God, they made a conspiracy against him in Jerusalem. He fled to Lachish, but they sent after him to Lachish and killed him there. 
 They brought him on horses and buried him with his fathers in the City of Judah. 

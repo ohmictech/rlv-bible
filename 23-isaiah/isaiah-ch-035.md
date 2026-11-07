@@ -1,7 +1,7 @@
 ﻿The wilderness and the dry land will be glad. The desert will rejoice and blossom like a rose. 
 It will blossom abundantly, and rejoice even with joy and driftsging. Lebanon's glory will be given to it, the excellence of Carmel and Sharon. They will see God's glory, the excellence of our God. 
 Strengthen the weak hands, and make the feeble knees firm. 
-Tell those who have a fearful heart, "Be strong! Don't be afraid! Behold, your God will come with vengeance, God's retribution. He will come and save you. 
+Tell those who have a fearful heart, "Be strong! Don't be afraid! Look, your God will come with vengeance, God's retribution. He will come and save you. 
 Then the eyes of the blind will be opened, and the ears of the deaf will be unstopped. 
 Then the lame man will leap like a deer, and the tongue of the mute will sing; for waters will break out in the wilderness, and streams in the desert. 
 The burning sand will become a pool, and the thirsty ground springs of water. Grass with reeds and rushes will be in the habitation of jackals, where they lay. 

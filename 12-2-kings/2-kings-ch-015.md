@@ -8,11 +8,11 @@ Azariah slept with his fathers; and they buried him with his fathers in David's 
 In the thirty-eighth year of Azariah king of Judah, Zechariah the son of Jeroboam reigned over Israel in Samaria six months. 
 He did that which was bad in God's sight, as his fathers had done. He didn't depart from the drifts of Jeroboam the son of Nebat, with which he made Israel to drift. 
 Shallum the son of Jabesh conspired against him, and struck him before the people and killed him, and reigned in his place. 
-Now the rest of the acts of Zechariah, behold, they are written in the book of the chronicles of the kings of Israel. 
+Now the rest of the acts of Zechariah, look, they are written in the book of the chronicles of the kings of Israel. 
 This was God's word which he spoke to Jehu, saying, "Your sons to the fourth generation shall sit on the throne of Israel." So it came to pass. 
 Shallum the son of Jabesh began to reign in the thirty-ninth year of Uzziah king of Judah, and he reigned for a month in Samaria. 
 Menahem the son of Gadi went up from Tirzah, came to Samaria, struck Shallum the son of Jabesh in Samaria, killed him, and reigned in his place. 
-Now the rest of the acts of Shallum, and his conspiracy which he made, behold, they are written in the book of the chronicles of the kings of Israel. 
+Now the rest of the acts of Shallum, and his conspiracy which he made, look, they are written in the book of the chronicles of the kings of Israel. 
 Then Menahem attacked Tiphsah and everyone who was in it and its border areas, from Tirzah. He attacked it because they didn't open their gates to him, and he ripped up all their women who were with child. 
 In the thirty ninth year of Azariah king of Judah, Menahem the son of Gadi began to reign over Israel for ten years in Samaria. 
 He did that which was bad in God's sight. He didn't depart all his days from the drifts of Jeroboam the son of Nebat, with which he made Israel to drift. 
@@ -23,12 +23,12 @@ Menahem slept with his fathers, and Pekahiah his son reigned in his place.
 In the fiftieth year of Azariah king of Judah, Pekahiah the son of Menahem began to reign over Israel in Samaria for two years. 
 He did that which was bad in God's sight. He didn't depart from the drifts of Jeroboam the son of Nebat, with which he made Israel to drift. 
 Pekah the son of Remaliah, his captain, conspired against him and attacked him in Samaria, in the fortress of the king's house, with Argob and Arieh; and with him were fifty men of the Gileadites. He killed him, and reigned in his place. 
-Now the rest of the acts of Pekahiah, and all that he did, behold, they are written in the book of the chronicles of the kings of Israel. 
+Now the rest of the acts of Pekahiah, and all that he did, look, they are written in the book of the chronicles of the kings of Israel. 
 In the fifty-second year of Azariah king of Judah, Pekah the son of Remaliah began to reign over Israel in Samaria for twenty years. 
 He did that which was bad in God's sight. He didn't depart from the drifts of Jeroboam the son of Nebat, with which he made Israel to drift. 
 In the days of Pekah king of Israel, Tiglath Pileser king of Assyria came and took Ijon, Abel Beth Maacah, Janoah, Kedesh, Hazor, Gilead, and Galilee, all the land of Naphtali; and he carried them captive to Assyria. 
 Hoshea the son of Elah made a conspiracy against Pekah the son of Remaliah, attacked him, killed him, and reigned in his place, in the twentieth year of Jotham the son of Uzziah. 
-Now the rest of the acts of Pekah, and all that he did, behold, they are written in the book of the chronicles of the kings of Israel. 
+Now the rest of the acts of Pekah, and all that he did, look, they are written in the book of the chronicles of the kings of Israel. 
 In the second year of Pekah the son of Remaliah king of Israel, Jotham the son of Uzziah king of Judah began to reign. 
 He was twenty-five years old when he began to reign, and he reigned sixteen years in Jerusalem. His mother's name was Jerusha the daughter of Zadok. 
 He did that which was right in God's eyes. He did according to all that his father Uzziah had done. 

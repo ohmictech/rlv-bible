@@ -1,5 +1,5 @@
 ﻿There was a man of the hill country of Ephraim, whose name was Micah. 
-He said to his mother, "The eleven hundred pieces of silver that were taken from you, about which you uttered a curse, and also spoke it in my ears, behold, the silver is with me. I took it." His mother said, "May God bless my son!" 
+He said to his mother, "The eleven hundred pieces of silver that were taken from you, about which you uttered a curse, and also spoke it in my ears, look, the silver is with me. I took it." His mother said, "May God bless my son!" 
 He restored the eleven hundred pieces of silver to his mother, then his mother said, "I most certainly dedicate the silver to God from my hand for my son, to make a carved image and a molten image. Now I will restore it to you." 
 When he restored the money to his mother, his mother took two hundred pieces of silver, and gave them to a silversmith, who made a carved image and a molten image out of it. It was in the house of Micah. 
 The man Micah had a house of gods, and he made an ephod, and teraphim, and consecrated one of his sons, who became his priest. 

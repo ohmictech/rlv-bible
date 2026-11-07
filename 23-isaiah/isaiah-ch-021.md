@@ -6,7 +6,7 @@ They prepare the table. They set the watch. They eat. They drink. Rise up, you p
 The Lord said to me, "Go, set a watchman. Let him declare what he sees. 
 When he sees a troop, horsemen in pairs, a troop of donkeys, a troop of camels, he shall listen diligently with great attentiveness." 
 He cried like a lion: "Lord, I stand continually on the watchtower in the daytime, and every night I stay at my post. 
-Behold, here comes a troop of men, horsemen in pairs." He answered, "Fallen, fallen is Babylon; and all the engraved images of her gods are broken to the ground. 
+Look, here comes a troop of men, horsemen in pairs." He answered, "Fallen, fallen is Babylon; and all the engraved images of her gods are broken to the ground. 
 You are my threshing, and the grain of my floor!" That which I have heard from the God of Armies, the God of Israel, I have declared to you. 
 The burden of Dumah. One calls to me out of Seir, "Watchman, what of the night? Watchman, what of the night?" 
 The watchman said, "The morning comes, and also the night. If you will inquire, inquire. Come back again." 

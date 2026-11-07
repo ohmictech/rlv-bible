@@ -15,9 +15,9 @@ two hundred female goats and twenty male goats, two hundred ewes and twenty rams
 thirty milk camels and their colts, forty cows, ten bulls, twenty female donkeys and ten foals. 
 He delivered them into the hands of his servants, every herd by itself, and said to his servants, "Pass over before me, and put a space between herd and herd." 
 He commanded the foremost, saying, "When Esau, my brother, meets you, and asks you, saying, 'Whose are you? Where are you going? Whose are these before you?' 
-Then you shall say, 'They are your servant, Jacob's. It is a present sent to my lord, Esau. Behold, he also is behind us.'" 
+Then you shall say, 'They are your servant, Jacob's. It is a present sent to my lord, Esau. Look, he also is behind us.'" 
 He commanded also the second, and the third, and all that followed the herds, saying, "This is how you shall speak to Esau, when you find him. 
-You shall say, 'Not only that, but behold, your servant, Jacob, is behind us.'" For, he said, "I will appease him with the present that goes before me, and afterward I will see his face. Perhaps he will accept me." 
+You shall say, 'Not only that, but look, your servant, Jacob, is behind us.'" For, he said, "I will appease him with the present that goes before me, and afterward I will see his face. Perhaps he will accept me." 
 So the present passed over before him, and he himself stayed that night in the camp. 
 He rose up that night, and took his two wives, and his two servants, and his eleven sons, and crossed over the ford of the Jabbok. 
 He took them, and sent them over the stream, and sent over that which he had. 

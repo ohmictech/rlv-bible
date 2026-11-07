@@ -7,7 +7,7 @@ Then the children of Judah came near to Joshua in Gilgal. Caleb the son of Jephu
 I was forty years old when Moses the servant of God sent me from Kadesh Barnea to spy out the land. I brought him word again as it was in my heart. 
 Nevertheless, my brothers who went up with me made the heart of the people melt; but I wholly followed my God. 
 Moses swore on that day, saying, 'Surely the land where you walked shall be an inheritance to you and to your children for the eras, because you have wholly followed my God.' 
-"Now, behold, God has kept me alive, as he spoke, these forty-five years, from the time that God spoke this word to Moses, while Israel walked in the wilderness. Now, behold, I am eighty-five years old, today. 
+"Now, look, God has kept me alive, as he spoke, these forty-five years, from the time that God spoke this word to Moses, while Israel walked in the wilderness. Now, look, I am eighty-five years old, today. 
 As yet I am as strong today as I was in the day that Moses sent me. As my strength was then, even so is my strength now for war, to go out and to come in. 
 Now give me this hill country, of which God spoke in that day; for you heard in that day how the Anakim were there, and great and fortified cities. It may be that God will be with me, and I shall drive them out, as God said." 
 Joshua blessed him; and he gave Hebron to Caleb the son of Jephunneh for an inheritance. 

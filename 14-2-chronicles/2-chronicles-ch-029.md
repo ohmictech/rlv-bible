@@ -6,7 +6,7 @@ and said to them, "Listen to me, you Levites! Now sanctify yourselves, and sanct
 Our fathers were unfaithful, and have done that which was bad in our God's sight, and have forsaken him, and have turned away their faces from the habitation of God, and turned their backs. 
 Also they have shut up the doors of the porch, and put out the lamps, and have not burned incense nor offered burnt offerings in the holy place to the God of Israel. 
 So God's wrath was on Judah and Jerusalem, and he has delivered them to be tossed back and forth, to be an astonishment and a hissing, as you see with your eyes. 
-Behold, our fathers have fallen by the sword, and our sons and our daughters and our wives are in captivity for this. 
+Look, our fathers have fallen by the sword, and our sons and our daughters and our wives are in captivity for this. 
 Now it is in my heart to make a covenant with the God of Israel, that his fierce anger may turn away from us. 
 My sons, don't be negligent now; for God has chosen you to stand before him, to minister to him, and that you should be his ministers and burn incense." 
 Then the Levites arose: Mahath, the son of Amasai, and Joel the son of Azariah, of the sons of the Kohathites; and of the sons of Merari, Kish the son of Abdi, and Azariah the son of Jehallelel; and of the Gershonites, Joah the son of Zimmah, and Eden the son of Joah; 
@@ -16,7 +16,7 @@ They gathered their brothers, sanctified themselves, and went in, according to t
 The priests went into the inner part of God's house to cleanse it, and brought out all the uncleanness that they found in God's temple into the court of God's house. The Levites took it from there to carry it out to the brook Kidron. 
 Now they began on the first day of the first month to sanctify, and on the eighth day of the month they came to God's porch. They sanctified God's house in eight days, and on the sixteenth day of the first month they finished. 
 Then they went in to Hezekiah the king within the palace and said, "We have cleansed all God's house, including the altar of burnt offering with all its vessels, and the table of show bread with all its vessels. 
-Moreover, we have prepared and sanctified all the vessels which King Ahaz threw away in his reign when he was unfaithful. Behold, they are before God's altar." 
+Moreover, we have prepared and sanctified all the vessels which King Ahaz threw away in his reign when he was unfaithful. Look, they are before God's altar." 
 Then Hezekiah the king arose early, gathered the princes of the city, and went up to God's house. 
 They brought seven bulls, seven rams, seven lambs, and seven male goats, for an offering for wrongdoing for the kingdom, for the sanctuary, and for Judah. He commanded the priests the sons of Aaron to offer them on God's altar. 
 So they killed the bulls, and the priests received the blood and sprinkled it on the altar. They killed the rams and sprinkled the blood on the altar. They also killed the lambs and sprinkled the blood on the altar. 

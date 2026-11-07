@@ -3,7 +3,7 @@ The king of Assyria sent Rabshakeh from Lachish to Jerusalem to King Hezekiah wi
 Then Eliakim the son of Hilkiah, who was over the household, and Shebna the secretary, and Joah, the son of Asaph the recorder came out to him. 
 Rabshakeh said to them, "Now tell Hezekiah, 'The great king, the king of Assyria, says, "What confidence is this in which you trust? 
 I say that your counsel and strength for the war are only vain words. Now in whom do you trust, that you have rebelled against me? 
-Behold, you trust in the staff of this bruised reed, even in Egypt, which if a man leans on it, it will go into his hand and pierce it. So is Pharaoh king of Egypt to everyone who trusts in him. 
+Look, you trust in the staff of this bruised reed, even in Egypt, which if a man leans on it, it will go into his hand and pierce it. So is Pharaoh king of Egypt to everyone who trusts in him. 
 But if you tell me, 'We trust in our God,' isn't that he whose high places and whose altars Hezekiah has taken away, and has said to Judah and to Jerusalem, 'You shall worship before this altar'?" 
 Now, please make a pledge to my master the king of Assyria, and I will give you two thousand horses, if you are able on your part to set riders on them. 
 How then can you turn away the face of one captain of the least of my master's servants, and put your trust in Egypt for chariots and for horsemen? 

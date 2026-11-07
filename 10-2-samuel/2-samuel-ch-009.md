@@ -1,9 +1,9 @@
 ﻿David said, "Is there yet any who is left of Saul's house, that I may show him kindness for Jonathan's sake?" 
 There was of Saul's house a servant whose name was Ziba, and they called him to David; and the king said to him, "Are you Ziba?" He said, "I am your servant." 
 The king said, "Is there not yet any of Saul's house, that I may show the kindness of God to him?" Ziba said to the king, "Jonathan still has a son, who is lame in his feet." 
-The king said to him, "Where is he?" Ziba said to the king, "Behold, he is in the house of Machir the son of Ammiel, in Lo Debar." 
+The king said to him, "Where is he?" Ziba said to the king, "Look, he is in the house of Machir the son of Ammiel, in Lo Debar." 
 Then King David sent and brought him out of the house of Machir the son of Ammiel, from Lo Debar. 
-Mephibosheth, the son of Jonathan, the son of Saul, came to David, fell on his face, and showed respect. David said, "Mephibosheth?" He answered, "Behold, your servant!" 
+Mephibosheth, the son of Jonathan, the son of Saul, came to David, fell on his face, and showed respect. David said, "Mephibosheth?" He answered, "Look, your servant!" 
 David said to him, "Don't be afraid, for I will surely show you kindness for Jonathan your father's sake, and will restore to you all the land of Saul your father. You will eat bread at my table continually." 
 He bowed down, and said, "What is your servant, that you should look at such a dead dog as I am?" 
 Then the king called to Ziba, Saul's servant, and said to him, "All that belonged to Saul and to all his house I have given to your master's son. 

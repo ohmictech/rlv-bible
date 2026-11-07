@@ -25,7 +25,7 @@ But the word of God came to Shemaiah the man of God, saying,
 Then Jeroboam built Shechem in the hill country of Ephraim, and lived in it; and he went out from there and built Penuel. 
 Jeroboam said in his heart, "Now the kingdom will return to David's house. 
 If this people goes up to offer sacrifices in God's house at Jerusalem, then the heart of this people will turn again to their lord, even to Rehoboam king of Judah; and they will kill me, and return to Rehoboam king of Judah." 
-So the king took counsel, and made two calves of gold; and he said to them, "It is too much for you to go up to Jerusalem. Look and behold your gods, Israel, which brought you up out of the land of Egypt!" 
+So the king took counsel, and made two calves of gold; and he said to them, "It is too much for you to go up to Jerusalem. Look and look your gods, Israel, which brought you up out of the land of Egypt!" 
 He set the one in Bethel, and the other he put in Dan. 
 This thing became a cause of drift, for the people went even as far as Dan to worship before the one there. 
 He made houses of high places, and made priests from among everyone, who were not of the sons of Levi. 

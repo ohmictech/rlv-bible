@@ -4,7 +4,7 @@ The watchmen who go about the city found me; "Have you seen him whom my soul lov
 I had scarcely passed from them, when I found him whom my soul loves. I held him, and would not let him go, until I had brought him into my mother's house, into the room of her who conceived me. 
 I adjure you, daughters of Jerusalem, by the roes, or by the hinds of the field, that you not stir up nor awaken love, until it so desires. 
 Who is this who comes up from the wilderness like pillars of smoke, perfumed with myrrh and frankincense, with all spices of the merchant? 
-Behold, it is Solomon's carriage! Sixty mighty men are around it, of the mighty men of Israel. 
+Look, it is Solomon's carriage! Sixty mighty men are around it, of the mighty men of Israel. 
 They all handle the sword, and are expert in war. Every man has his sword on his thigh, because of fear in the night. 
 King Solomon made himself a carriage of the wood of Lebanon. 
 He made its pillars of silver, its bottom of gold, its seat of purple, the middle of it being paved with love, from the daughters of Jerusalem. 

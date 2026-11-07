@@ -2,7 +2,7 @@
 There are people who remove the landmarks. They violently take away flocks, and feed them. 
 They drive away the donkey of the fatherless, and they take the widow's ox for a pledge. 
 They turn the needy out of the way. The poor of the earth all hide themselves. 
-Behold, as wild donkeys in the desert, they go out to their work, seeking diligently for food. The wilderness yields them bread for their children. 
+Look, as wild donkeys in the desert, they go out to their work, seeking diligently for food. The wilderness yields them bread for their children. 
 They cut their food in the field. They glean the vineyard of the guilty. 
 They lie all night naked without clothing, and have no covering in the cold. 
 They are wet with the showers of the mountains, and embrace the rock for lack of a shelter. 

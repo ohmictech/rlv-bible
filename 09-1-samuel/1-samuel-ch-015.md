@@ -9,7 +9,7 @@ He took Agag the king of the Amalekites alive, and utterly destroyed everyone wi
 But Saul and the people spared Agag and the best of the sheep, of the cattle, of the fat calves, of the lambs, and all that was good, and were not willing to utterly destroy them; but everything that was vile and refuse, that they destroyed utterly. 
 Then God's word came to Samuel, saying, 
 "It grieves me that I have set up Saul to be king, for he has turned back from following me, and has not performed my commandments." Samuel was angry; and he cried to God all night. 
-Samuel rose early to meet Saul in the morning; and Samuel was told, saying, "Saul came to Carmel, and behold, he set up a monument for himself, turned, passed on, and went down to Gilgal." 
+Samuel rose early to meet Saul in the morning; and Samuel was told, saying, "Saul came to Carmel, and look, he set up a monument for himself, turned, passed on, and went down to Gilgal." 
 Samuel came to Saul; and Saul said to him, "You are blessed by God! I have performed the commandment of God." 
 Samuel said, "Then what does this bleating of the sheep in my ears and the lowing of the cattle which I hear mean?" 
 Saul said, "They have brought them from the Amalekites; for the people spared the best of the sheep and of the cattle, to sacrifice to your God. We have utterly destroyed the rest." 
@@ -19,7 +19,7 @@ and God sent you on a journey, and said, 'Go, and utterly destroy the those who 
 Why then didn't you obey God's voice, but took the plunder, and did that which was bad in God's sight?" 
 Saul said to Samuel, "But I have obeyed God's voice, and have gone the way which God sent me, and have brought Agag the king of Amalek, and have utterly destroyed the Amalekites. 
 But the people took of the plunder, sheep and cattle, the best of the devoted things, to sacrifice to your God in Gilgal." 
-Samuel said, "Has God as great delight in burnt offerings and sacrifices, as in obeying God's voice? Behold, to obey is better than sacrifice, and to listen than the fat of rams. 
+Samuel said, "Has God as great delight in burnt offerings and sacrifices, as in obeying God's voice? Look, to obey is better than sacrifice, and to listen than the fat of rams. 
 Rebellion is as the wrongdoing of witchcraft, and stubbornness is as idolatry and teraphim. Because you have rejected God's word, he has also rejected you from being king." 
 Saul said to Samuel, "I have drifted; for I have transgressed the commandment of God and your words, because I feared the people and obeyed their voice. 
 Now, please pardon my wrongdoing, and turn again with me, that I may worship God." 

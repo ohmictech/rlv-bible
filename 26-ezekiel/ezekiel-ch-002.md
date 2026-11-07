@@ -6,5 +6,5 @@ They, whether they will hear, or whether they will refuse, for they are a rebell
 You, son of man, don't be afraid of them, neither be afraid of their words, though briers and thorns are with you, and you dwell among scorpions. Don't be afraid of their words, nor be dismayed at their looks, though they are a rebellious house. 
 You shall speak my words to them, whether they will hear or whether they will refuse; for they are most rebellious. 
 But you, son of man, hear what I tell you. Don't be rebellious like that rebellious house. Open your mouth, and eat that which I give you." 
-When I looked, behold, a hand was stretched out to me; and behold, a scroll of a book was in it. 
+When I looked, look, a hand was stretched out to me; and look, a scroll of a book was in it. 
 He spread it before me. It was written within and without; and lamentations, mourning, and woe were written in it. 

@@ -2,7 +2,7 @@
 I was mute with silence. I held my peace, even from good. My sorrow was stirred. 
 My heart was hot within me. While I meditated, the fire burned. I spoke with my tongue: 
 "God, show me my end, what is the measure of my days. Let me know how frail I am. 
-Behold, you have made my days hand widths. My lifetime is as nothing before you. Surely every man stands as a breath." Selah. 
+Look, you have made my days hand widths. My lifetime is as nothing before you. Surely every man stands as a breath." Selah. 
 "Surely every man walks like a shadow. Surely they busy themselves in vain. He heaps up, and doesn't know who shall gather. 
 Now, Lord, what do I wait for? My hope is in you. 
 Deliver me from all my rebellion. Don't make me the reproach of the foolish. 

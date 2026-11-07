@@ -2,7 +2,7 @@
 "God says, 'He who remains in this city will die by the sword, by the famine, and by the pestilence, but he who goes out to the Chaldeans will live. He will escape with his life and he will live.' 
 God says, 'This city will surely be given into the hand of the army of the king of Babylon, and he will take it.'" 
 Then the princes said to the king, "Please let this man be put to death, because he weakens the hands of the men of war who remain in this city, and the hands of everyone, in speaking such words to them; for this man doesn't seek the welfare of this people, but harm." 
-Zedekiah the king said, "Behold, he is in your hand; for the king can't do anything to oppose you." 
+Zedekiah the king said, "Look, he is in your hand; for the king can't do anything to oppose you." 
 Then they took Jeremiah and threw him into the dungeon of Malchijah the king's son, that was in the court of the guard. They let down Jeremiah with cords. In the dungeon there was no water, but mire; and Jeremiah sank in the mire. 
 Now when Ebedmelech the Ethiopian, a eunuch, who was in the king's house, heard that they had put Jeremiah in the dungeon (the king was then sitting in Benjamin's gate), 
 Ebedmelech went out of the king's house, and spoke to the king, saying, 
@@ -19,7 +19,7 @@ But if you will not go out to the king of Babylon's princes, then this city will
 Zedekiah the king said to Jeremiah, "I am afraid of the Jews who have defected to the Chaldeans, lest they deliver me into their hand, and they mock me." 
 But Jeremiah said, "They won't deliver you. Obey, I beg you, God's voice, in that which I speak to you; so it will be well with you, and your soul will live. 
 But if you refuse to go out, this is the word that God has shown me: 
-'Behold, all the women who are left in the king of Judah's house will be brought out to the king of Babylon's princes, and those women will say, "Your familiar friends have turned on you, and have prevailed over you. Your feet are sunk in the mire, they have turned away from you." 
+'Look, all the women who are left in the king of Judah's house will be brought out to the king of Babylon's princes, and those women will say, "Your familiar friends have turned on you, and have prevailed over you. Your feet are sunk in the mire, they have turned away from you." 
 They will bring out all your wives and your children to the Chaldeans. You won't escape out of their hand, but will be taken by the hand of the king of Babylon. You will cause this city to be burned with fire.'" 
 Then Zedekiah said to Jeremiah, "Let no man know of these words, and you won't die. 
 But if the princes hear that I have talked with you, and they come to you, and tell you, 'Declare to us now what you have said to the king; don't hide it from us, and we will not put you to death; also tell us what the king said to you;' 

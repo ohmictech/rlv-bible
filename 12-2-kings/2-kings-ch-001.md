@@ -6,12 +6,12 @@ The messengers returned to him, and he said to them, "Why is it that you have re
 They said to him, "A man came up to meet us, and said to us, 'Go, return to the king who sent you, and tell him, "God says, 'Is it because there is no God in Israel that you send to inquire of Baal Zebub, the god of Ekron? So you will not come down from the bed where you have gone up, but you will surely die.'"'" 
 He said to them, "What kind of man was he who came up to meet you and told you these words?" 
 They answered him, "He was a hairy man, and wearing a leather belt around his waist." He said, "It's Elijah the Tishbite." 
-Then the king sent a captain of fifty with his fifty to him. He went up to him; and behold, he was sitting on the top of the hill. He said to him, "Man of God, the king has said, 'Come down!'" 
+Then the king sent a captain of fifty with his fifty to him. He went up to him; and look, he was sitting on the top of the hill. He said to him, "Man of God, the king has said, 'Come down!'" 
 Elijah answered to the captain of fifty, "If I am a man of God, then let fire come down from the sky and consume you and your fifty!" Then fire came down from the sky, and consumed him and his fifty. 
 Again he sent to him another captain of fifty with his fifty. He answered him, "Man of God, the king has said, 'Come down quickly!'" 
 Elijah answered them, "If I am a man of God, then let fire come down from the sky and consume you and your fifty!" Then God's fire came down from the sky, and consumed him and his fifty. 
 Again he sent the captain of a third fifty with his fifty. The third captain of fifty went up, and came and fell on his knees before Elijah, and begged him, and said to him, "Man of God, please let my life and the life of these fifty of your servants be precious in your sight. 
-Behold, fire came down from the sky and consumed the last two captains of fifty with their fifties. But now let my life be precious in your sight." 
+Look, fire came down from the sky and consumed the last two captains of fifty with their fifties. But now let my life be precious in your sight." 
 God's messenger said to Elijah, "Go down with him. Don't be afraid of him." Then he arose and went down with him to the king. 
 He said to him, "God says, 'Because you have sent messengers to inquire of Baal Zebub, the god of Ekron, is it because there is no God in Israel to inquire of his word? So you will not come down from the bed where you have gone up, but you will surely die.'" 
 So he died according to God's word which Elijah had spoken. Jehoram began to reign in his place in the second year of Jehoram the son of Jehoshaphat king of Judah, because he had no son. 

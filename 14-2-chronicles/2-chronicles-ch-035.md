@@ -22,6 +22,6 @@ But he sent ambassadors to him, saying, "What have I to do with you, you king of
 Nevertheless Josiah would not turn his face from him, but disguised himself, that he might fight with him, and didn't listen to the words of Neco from the mouth of God, and came to fight in the valley of Megiddo. 
 The archers shot at King Josiah; and the king said to his servants, "Take me away, because I am seriously wounded!" 
 So his servants took him out of the chariot, and put him in the second chariot that he had, and brought him to Jerusalem; and he died, and was buried in the tombs of his fathers. All Judah and Jerusalem mourned for Josiah. 
-Jeremiah lamented for Josiah, and all the singing men and driftsging women spoke of Josiah in their lamentations to this day; and they made them an ordinance in Israel. Behold, they are written in the lamentations. 
+Jeremiah lamented for Josiah, and all the singing men and driftsging women spoke of Josiah in their lamentations to this day; and they made them an ordinance in Israel. Look, they are written in the lamentations. 
 Now the rest of the acts of Josiah and his good deeds, according to that which is written in God's law, 
-and his acts, first and last, behold, they are written in the book of the kings of Israel and Judah. 
+and his acts, first and last, look, they are written in the book of the kings of Israel and Judah. 

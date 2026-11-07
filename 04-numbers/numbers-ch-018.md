@@ -3,9 +3,9 @@ Bring your brothers also, the tribe of Levi, the tribe of your father, near with
 They shall keep your commands and the duty of the whole Tent; only they shall not come near to the vessels of the sanctuary and to the altar, that they not die, neither they nor you. 
 They shall be joined to you and keep the responsibility of the Tent of Meeting, for all the service of the Tent. A stranger shall not come near to you. 
 "You shall perform the duty of the sanctuary and the duty of the altar, that there be no more wrath on the children of Israel. 
-Behold, I myself have taken your brothers the Levites from among the children of Israel. They are a gift to you, dedicated to God, to do the service of the Tent of Meeting. 
+Look, I myself have taken your brothers the Levites from among the children of Israel. They are a gift to you, dedicated to God, to do the service of the Tent of Meeting. 
 You and your sons with you shall keep your priesthood for everything of the altar, and for that within the veil. You shall serve. I give you the service of the priesthood as a gift. The stranger who comes near shall be put to death." 
-God spoke to Aaron, "Behold, I myself have given you the command of my wave offerings, even all the holy things of the children of Israel. I have given them to you by reason of the anointing, and to your sons, as a portion for the eras. 
+God spoke to Aaron, "Look, I myself have given you the command of my wave offerings, even all the holy things of the children of Israel. I have given them to you by reason of the anointing, and to your sons, as a portion for the eras. 
 This shall be yours of the most holy things from the fire: every offering of theirs, even every meal offering of theirs, and every offering for wrongdoing of theirs, and every trespass offering of theirs, which they shall give to me, shall be most holy for you and for your sons. 
 You shall eat of it like the most holy things. Every male shall eat of it. It shall be holy to you. 
 "This is yours, too: the wave offering of their gift, even all the wave offerings of the children of Israel. I have given them to you, and to your sons and to your daughters with you, as a portion for the eras. Everyone who is clean in your house shall eat of it. 
@@ -18,7 +18,7 @@ You shall buy back those who are to be bought back of them from a month old, acc
 Their meat shall be yours, as the wave offering breast and as the right thigh, it shall be yours. 
 All the wave offerings of the holy things which the children of Israel offer to God, I have given you and your sons and your daughters with you, as a portion for the eras. It is a covenant of salt for the eras before God to you and to your offspring with you." 
 God said to Aaron, "You shall have no inheritance in their land, neither shall you have any portion among them. I am your portion and your inheritance among the children of Israel. 
-"To the children of Levi, behold, I have given all the tithe in Israel for an inheritance, in return for their service which they serve, even the service of the Tent of Meeting. 
+"To the children of Levi, look, I have given all the tithe in Israel for an inheritance, in return for their service which they serve, even the service of the Tent of Meeting. 
 Henceforth the children of Israel shall not come near the Tent of Meeting, lest they incur guilt and die. 
 But the Levites shall do the service of the Tent of Meeting, and they shall bear their guilt. It shall be a statute for the eras throughout your generations. Among the children of Israel, they shall have no inheritance. 
 The tithe of the children of Israel, which they offer as a wave offering to God, I have given to the Levites for an inheritance. So I have said to them, 'Among the children of Israel they shall have no inheritance.'" 

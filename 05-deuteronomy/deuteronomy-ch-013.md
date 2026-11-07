@@ -11,7 +11,7 @@ You shall stone him to death with stones, because he has sought to draw you away
 All Israel shall hear, and fear, and shall not do any more guilt like this among you. 
 If you hear about one of your cities, which your God gives you to dwell there, that 
 certain guilty fellows have gone out from among you and have drawn away the inhabitants of their city, saying, "Let's go and serve other gods," which you have not known, 
-then you shall inquire, investigate, and ask diligently. Behold, if it is true, and the thing certain, that such abomination was done among you, 
+then you shall inquire, investigate, and ask diligently. Look, if it is true, and the thing certain, that such abomination was done among you, 
 you shall surely strike the inhabitants of that city with the edge of the sword, destroying it utterly, with all that is therein and its livestock, with the edge of the sword. 
 You shall gather all its plunder into the middle of its street, and shall burn with fire the city, with all of its plunder, to your God. It shall be a heap for the eras. It shall not be built again. 
 Nothing of the devoted thing shall cling to your hand, that God may turn from the fierceness of his anger and show you mercy, and have compassion on you and multiply you, as he has sworn to your fathers, 

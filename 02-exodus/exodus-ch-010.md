@@ -1,7 +1,7 @@
 ﻿God said to Moses, "Go in to Pharaoh, for I have hardened his heart and the heart of his servants, that I may show these my signs among them; 
 and that you may tell in the hearing of your son, and of your son's son, what things I have done to Egypt, and my signs which I have done among them; that you may know that I am God." 
 Moses and Aaron went in to Pharaoh, and said to him, "This is what the God of the Hebrews, says: 'How long will you refuse to humble yourself before me? Let my people go, that they may serve me. 
-Or else, if you refuse to let my people go, behold, tomorrow I will bring locusts into your country, 
+Or else, if you refuse to let my people go, look, tomorrow I will bring locusts into your country, 
 and they shall cover the surface of the earth, so that one won't be able to see the earth. They shall eat the residue of that which has escaped, which remains to you from the hail, and shall eat every tree which grows for you out of the field. 
 Your houses shall be filled, and the houses of all your servants, and the houses of all the Egyptians, as neither your fathers nor your fathers' fathers have seen, since the day that they were on the earth to this day.'" He turned, and went out from Pharaoh. 
 Pharaoh's servants said to him, "How long will this man be a snare to us? Let the men go, that they may serve God, their God. Don't you yet know that Egypt is destroyed?" 

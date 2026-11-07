@@ -11,7 +11,7 @@ They saw the God of Israel. Under his feet was like a paved work of sapphire sto
 He didn't lay his hand on the nobles of the children of Israel. They saw God, and ate and drank. 
 God said to Moses, "Come up to me on the mountain, and stay here, and I will give you the stone tablets with the law and the commands that I have written, that you may teach them." 
 Moses rose up with Joshua, his servant, and Moses went up onto God's Mountain. 
-He said to the elders, "Wait here for us, until we come again to you. Behold, Aaron and Hur are with you. Whoever is involved in a dispute can go to them." 
+He said to the elders, "Wait here for us, until we come again to you. Look, Aaron and Hur are with you. Whoever is involved in a dispute can go to them." 
 Moses went up on the mountain, and the cloud covered the mountain. 
 God's glory settled on Mount Sinai, and the cloud covered it six days. The seventh day he called to Moses out of the middle of the cloud. 
 The appearance of God's glory was like devouring fire on the top of the mountain in the eyes of the children of Israel. 

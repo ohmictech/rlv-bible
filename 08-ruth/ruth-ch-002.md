@@ -1,7 +1,7 @@
 ﻿Naomi had a relative of her husband's, a mighty man of wealth, of the family of Elimelech, and his name was Boaz. 
 Ruth the Moabitess said to Naomi, "Let me now go to the field, and glean among the ears of grain after him in whose sight I find favor." She said to her, "Go, my daughter." 
 She went, and came and gleaned in the field after the reapers; and she happened to come to the portion of the field belonging to Boaz, who was of the family of Elimelech. 
-Behold, Boaz came from Bethlehem, and said to the reapers, "May God be with you." They answered him, "May God bless you." 
+Look, Boaz came from Bethlehem, and said to the reapers, "May God be with you." They answered him, "May God bless you." 
 Then Boaz said to his servant who was set over the reapers, "Whose young lady is this?" 
 The servant who was set over the reapers answered, "It is the Moabite lady who came back with Naomi out of the country of Moab. 
 She said, 'Please let me glean and gather after the reapers among the sheaves.' So she came, and has continued even from the morning until now, except that she rested a little in the house." 

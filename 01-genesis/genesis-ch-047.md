@@ -1,4 +1,4 @@
-﻿Then Joseph went in and told Pharaoh, and said, "My father and my brothers, with their flocks, their herds, and all that they own, have come out of the land of Canaan; and behold, they are in the land of Goshen." 
+﻿Then Joseph went in and told Pharaoh, and said, "My father and my brothers, with their flocks, their herds, and all that they own, have come out of the land of Canaan; and look, they are in the land of Goshen." 
 From among his brothers he took five men, and presented them to Pharaoh. 
 Pharaoh said to his brothers, "What is your occupation?" They said to Pharaoh, "Your servants are shepherds, both we, and our fathers." 
 They also said to Pharaoh, "We have come to live as foreigners in the land, for there is no pasture for your servants' flocks. The famine is severe in the land of Canaan. Now, please let your servants dwell in the land of Goshen." 
@@ -20,7 +20,7 @@ Why should we die before your eyes, both we and our land? Buy us and our land fo
 So Joseph bought all the land of Egypt for Pharaoh, for every man of the Egyptians sold his field, because the famine was severe on them, and the land became Pharaoh's. 
 As for the people, he moved them to the cities from one end of the border of Egypt even to the other end of it. 
 Only he didn't buy the land of the priests, for the priests had a portion from Pharaoh, and ate their portion which Pharaoh gave them. That is why they didn't sell their land. 
-Then Joseph said to the people, "Behold, I have bought you and your land today for Pharaoh. Behold, here is seed for you, and you shall sow the land. 
+Then Joseph said to the people, "Look, I have bought you and your land today for Pharaoh. Look, here is seed for you, and you shall sow the land. 
 It will happen at the harvests, that you shall give a fifth to Pharaoh, and four parts will be your own, for seed of the field, for your food, for them of your households, and for food for your little ones." 
 They said, "You have saved our lives! Let us find favor in the sight of my lord, and we will be Pharaoh's servants." 
 Joseph made it a statute concerning the land of Egypt to this day, that Pharaoh should have the fifth. Only the land of the priests alone didn't become Pharaoh's. 

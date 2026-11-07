@@ -2,7 +2,7 @@
 You shall not add to the word which I command you, neither shall you take away from it, that you may keep the commandments of your God which I command you. 
 Your eyes have seen what God did because of Baal Peor; for your God has destroyed all the men who followed Baal Peor from among you. 
 But you who were faithful to your God are all alive today. 
-Behold, I have taught you statutes and ordinances, even as my God commanded me, that you should do so in the middle of the land where you go in to possess it. 
+Look, I have taught you statutes and ordinances, even as my God commanded me, that you should do so in the middle of the land where you go in to possess it. 
 Keep and do them; for this is your wisdom and your understanding in the sight of the peoples who shall hear all these statutes and say, "Surely this great nation is a wise and understanding people." 
 What great nation is there that has a god so near to them as our God is whenever we call on him? 
 What great nation is there that has statutes and ordinances so righteous as all this law which I set before you today? 

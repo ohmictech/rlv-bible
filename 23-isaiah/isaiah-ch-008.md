@@ -4,7 +4,7 @@ I went to the prophetess, and she conceived, and bore a son. Then God said to me
 For before the child knows how to say, 'My father' and 'My mother,' the riches of Damascus and the plunder of Samaria will be carried away by the king of Assyria." 
 God spoke to me yet again, saying, 
 "Because this people has refused the waters of Shiloah that go softly, and rejoice in Rezin and Remaliah's son; 
-now, behold, the Lord brings upon them the mighty flood waters of the River: the king of Assyria and all his glory. It will come up over all its channels, and go over all its banks. 
+now, look, the Lord brings upon them the mighty flood waters of the River: the king of Assyria and all his glory. It will come up over all its channels, and go over all its banks. 
 It will sweep onward into Judah. It will overflow and pass through. It will reach even to the neck. The stretching out of its wings will fill the width of your land, O Immanuel. 
 Make an uproar, you peoples, and be broken in pieces! Listen, all you from far countries: dress for battle, and be shattered! Dress for battle, and be shattered! 
 Take counsel together, and it will be brought to nothing; speak the word, and it will not stand, for God is with us." 
@@ -15,7 +15,7 @@ He will be a sanctuary, but for both houses of Israel, he will be a stumbling st
 Many will stumble over it, fall, be broken, be snared, and be captured." 
 Wrap up the covenant. Seal the law among my disciples. 
 I will wait for God, who hides his face from the house of Jacob, and I will look for him. 
-Behold, I and the children whom God has given me are for signs and for wonders in Israel from the God of Armies, who dwells in Mount Zion. 
+Look, I and the children whom God has given me are for signs and for wonders in Israel from the God of Armies, who dwells in Mount Zion. 
 When they tell you, "Consult with those who have familiar spirits and with the wizards, who chirp and who mutter," shouldn't a people consult with their God? Should they consult the dead on behalf of the living? 
 Turn to the law and to the covenant! If they don't speak according to this word, surely there is no morning for them. 
 They will pass through it, very distressed and hungry. It will happen that when they are hungry, they will worry, and curse their king and their God. They will turn their faces upward, 

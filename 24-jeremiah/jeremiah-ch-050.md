@@ -6,16 +6,16 @@ They will inquire concerning Zion with their faces turned toward it, saying, 'Co
 My people have been lost sheep. Their shepherds have caused them to go astray. They have turned them away on the mountains. They have gone from mountain to hill. They have forgotten their resting place. 
 Everyone who found them have devoured them. Their adversaries said, 'We are not guilty, because they have wronged God, the habitation of righteousness, even God, the hope of their fathers.' 
 "Flee out of the middle of Babylon! Go out of the land of the Chaldeans, and be as the male goats before the flocks. 
-For, behold, I will stir up and cause to come up against Babylon a company of great nations from the north country; and they will set themselves in array against her. She will be taken from there. Their arrows will be as of an expert mighty man. None of them will return in vain. 
+For, look, I will stir up and cause to come up against Babylon a company of great nations from the north country; and they will set themselves in array against her. She will be taken from there. Their arrows will be as of an expert mighty man. None of them will return in vain. 
 Chaldea will be a prey. Everyone who preys on her will be satisfied," says God. 
 "Because you are glad, because you rejoice, O you who plunder my heritage, because you are wanton as a heifer that treads out the grain, and neigh as strong horses, 
-your mother will be utterly disappointed. She who bore you will be confounded. Behold, she will be the least of the nations, a wilderness, a dry land, and a desert. 
+your mother will be utterly disappointed. She who bore you will be confounded. Look, she will be the least of the nations, a wilderness, a dry land, and a desert. 
 Because of God's wrath she won't be inhabited, but she will be wholly desolate. Everyone who goes by Babylon will be astonished, and hiss at all her plagues. 
 Set yourselves in array against Babylon all around, all you who bend the bow; shoot at her. Spare no arrows, for she has wronged God. 
 Shout against her all around. She has submitted herself. Her bulwarks have fallen. Her walls have been thrown down, for it is the vengeance of God. Take vengeance on her. As she has done, do to her. 
 Cut off the sower from Babylon, and him who handles the sickle in the time of harvest. Fear of the oppressing sword, they will each return to their own people, and they will each flee to their own land. 
 "Israel is a hunted sheep. The lions have driven him away. First, the king of Assyria devoured him, and now at last Nebuchadnezzar king of Babylon has broken his bones." 
-So the God of Armies, the God of Israel says: "Behold, I will punish the king of Babylon and his land, as I have punished the king of Assyria. 
+So the God of Armies, the God of Israel says: "Look, I will punish the king of Babylon and his land, as I have punished the king of Assyria. 
 I will bring Israel again to his pasture, and he will feed on Carmel and Bashan. His soul will be satisfied on the hills of Ephraim and in Gilead. 
 In those days, and in that time," says God, "the guilt of Israel will be sought for, and there will be none, also the drifts of Judah, and they won't be found; for I will pardon them whom I leave as a remnant. 
 "Go up against the land of Merathaim, even against it, and against the inhabitants of Pekod. Kill and utterly destroy after them," says God, "and do according to all that I have commanded you. 
@@ -28,7 +28,7 @@ Kill all her bulls. Let them go down to the slaughter. Woe to them! Their day ha
 Listen to those who flee and escape out of the land of Babylon, to declare in Zion the vengeance of our God, the vengeance of his temple. 
 "Call together the archers against Babylon, everyone who bends the bow. Encamp against her all around. Let none of it escape. Pay her back according to her work. According to all that she has done, do to her; for she has been proud against God, against the Holy One of Israel. 
 So her young men will fall in her streets. All her men of war will be brought to silence in that day," says God. 
-"Behold, I am against you, you proud one," says the Lord, GOD of Armies; "for your day has come, the time that I will visit you. 
+"Look, I am against you, you proud one," says the Lord, GOD of Armies; "for your day has come, the time that I will visit you. 
 The proud one will stumble and fall, and no one will raise him up. I will kindle a fire in his cities, and it will devour everyone who is around him." 
 The God of Armies says: "The children of Israel and the children of Judah are oppressed together. Everyone who took them captive hold them fast. They refuse to let them go. 
 the one who buys them back is strong. The God of Armies is his name. He will thoroughly plead their cause, that he may give rest to the earth, and disquiet the inhabitants of Babylon. 
@@ -38,9 +38,9 @@ A sword is on their horses, on their chariots, and on all the mixed people who a
 A drought is on her waters, and they will be dried up; for it is a land of engraved images, and they are mad over idols. 
 So the wild animals of the desert with the wolves will dwell there. The ostriches will dwell therein. It will be inhabited no more for the eras, neither will it be lived in from generation to generation. 
 As when God overthrew Sodom and Gomorrah and its neighbor cities," says God, "so no man will dwell there, neither will any son of man live therein. 
-"Behold, a people comes from the north. A great nation and many kings will be stirred up from the uttermost parts of the earth. 
+"Look, a people comes from the north. A great nation and many kings will be stirred up from the uttermost parts of the earth. 
 They take up bow and spear. They are cruel, and have no mercy. Their voice roars like the sea. They ride on horses, everyone set in array, as a man to the battle, against you, daughter of Babylon. 
 The king of Babylon has heard the news of them, and his hands become feeble. Anguish has taken hold of him, pains as of a woman in labor. 
-Behold, the enemy will come up like a lion from the thickets of the Jordan against the strong habitation; for I will suddenly make them run away from it. Whoever is chosen, I will appoint him over it, for who is like me? Who will appoint me a time? Who is the shepherd who can stand before me?" 
+Look, the enemy will come up like a lion from the thickets of the Jordan against the strong habitation; for I will suddenly make them run away from it. Whoever is chosen, I will appoint him over it, for who is like me? Who will appoint me a time? Who is the shepherd who can stand before me?" 
 So hear the counsel of God that he has taken against Babylon; and his purposes that he has purposed against the land of the Chaldeans: Surely they will drag them away, even the little ones of the flock. Surely he will make their habitation desolate over them. 
 The earth trembles at the noise of the taking of Babylon. The cry is heard among the nations. 

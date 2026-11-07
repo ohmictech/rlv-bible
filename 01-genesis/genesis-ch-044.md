@@ -5,7 +5,7 @@ When they had gone out of the city, and were not yet far off, Joseph said to his
 Isn't this that from which my lord drinks, and by which he indeed divines? You have done bad in so doing.'" 
 He overtook them, and he spoke these words to them. 
 They said to him, "Why does my lord speak such words as these? Far be it from your servants that they should do such a thing! 
-Behold, the money, which we found in our sacks' mouths, we brought again to you out of the land of Canaan. How then should we steal silver or gold out of your lord's house? 
+Look, the money, which we found in our sacks' mouths, we brought again to you out of the land of Canaan. How then should we steal silver or gold out of your lord's house? 
 With whomever of your servants it is found, let him die, and we also will be my lord's slaves." 
 He said, "Now also let it be according to your words. He with whom it is found will be my slave; and you will be blameless." 
 Then they hurried, and each man took his sack down to the ground, and each man opened his sack. 
@@ -13,7 +13,7 @@ He searched, beginning with the oldest, and ending at the youngest. The cup was 
 Then they tore their clothes, and each man loaded his donkey, and returned to the city. 
 Judah and his brothers came to Joseph's house, and he was still there. They fell on the ground before him. 
 Joseph said to them, "What deed is this that you have done? Don't you know that such a man as I can indeed do divination?" 
-Judah said, "What will we tell my lord? What will we speak? How will we clear ourselves? God has found out the guilt of your servants. Behold, we are my lord's slaves, both we and he also in whose hand the cup is found." 
+Judah said, "What will we tell my lord? What will we speak? How will we clear ourselves? God has found out the guilt of your servants. Look, we are my lord's slaves, both we and he also in whose hand the cup is found." 
 He said, "Far be it from me that I should do so. The man in whose hand the cup is found, he will be my slave; but as for you, go up in peace to your father." 
 Then Judah came near to him, and said, "Oh, my lord, please let your servant speak a word in my lord's ears, and don't let your anger burn against your servant; for you are even as Pharaoh. 
 My lord asked his servants, saying, 'Have you a father, or a brother?' 

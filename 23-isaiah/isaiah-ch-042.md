@@ -1,4 +1,4 @@
-﻿"Behold, my servant, whom I uphold, my chosen, in whom my soul delights: I have put my Spirit on him. He will bring justice to the nations. 
+﻿"Look, my servant, whom I uphold, my chosen, in whom my soul delights: I have put my Spirit on him. He will bring justice to the nations. 
 He will not shout, nor raise his voice, nor cause it to be heard in the street. 
 He won't break a bruised reed. He won't quench a dimly burning wick. He will faithfully bring justice. 
 He will not fail nor be discouraged, until he has set justice on the earth, and the islands wait for his law." 
@@ -6,7 +6,7 @@ God, he who created the sky and stretched them out, he who spread out the earth 
 "I, God, have called you in righteousness. I will hold your hand. I will keep you, and make you a covenant for the people, as a light for the nations, 
 to open the blind eyes, to bring the prisoners out of the dungeon, and those who sit in darkness out of the prison. 
 "I am God. That is my name. I will not give my glory to another, nor my praise to engraved images. 
-Behold, the former things have happened and I declare new things. I tell you about them before they come up." 
+Look, the former things have happened and I declare new things. I tell you about them before they come up." 
 Sing to God a new song, and his praise from the end of the earth, you who go down to the sea, and all that is therein, the islands and their inhabitants. 
 Let the wilderness and its cities raise their voices, with the villages that Kedar inhabits. Let the inhabitants of Sela sing. Let them shout from the top of the mountains! 
 Let them give glory to God, and declare his praise in the islands. 

@@ -1,23 +1,23 @@
-﻿Joseph was brought down to Egypt. Potiphar, an officer of Pharaoh's, the captain of the guard, an Egyptian, bought him from the hand of the Ishmaelites that had brought him down there. 
-God was with Joseph, and he was a prosperous man. He was in the house of his master the Egyptian. 
-His master saw that God was with him, and that God made all that he did prosper in his hand. 
-Joseph found favor in his sight. He ministered to him, and Potiphar made him overseer over his house, and all that he had he put into his hand. 
-From the time that he made him overseer in his house, and over all that he had, God blessed the Egyptian's house for Joseph's sake. God's blessing was on all that he had, in the house and in the field. 
-He left all that he had in Joseph's hand. He didn't concern himself with anything, except for the food which he ate. Joseph was well-built and handsome. 
-After these things, his master's wife set her eyes on Joseph; and she said, "Lie with me." 
-But he refused, and said to his master's wife, "Look, my master doesn't know what's with me in the house, and he has put all that he has into my hand. 
-No one is greater in this house than I'm, and he hasn't kept back anything from me but you, because you're his wife. How then can I do this great guilt, and wrong God?" 
-As she spoke to Joseph day by day, he didn't listen to her, to lie by her, or to be with her. 
-About this time, he went into the house to do his work, and there were none of the men of the house inside. 
-She caught him by his garment, saying, "Lie with me!" He left his garment in her hand, and ran outside. 
-When she saw that he had left his garment in her hand, and had run outside, 
-she called to the men of her house, and spoke to them, saying, "Look, he has brought a Hebrew in to us to mock us. He came in to me to lie with me, and I cried with a loud voice. 
-When he heard that I lifted up my voice and cried, he left his garment by me, and ran outside." 
-She laid up his garment by her, until his master came home. 
-She spoke to him according to these words, saying, "The Hebrew servant, whom you have brought to us, came in to me to mock me, 
-and as I lifted up my voice and cried, he left his garment by me, and ran outside." 
-When his master heard the words of his wife, which she spoke to him, saying, "This is what your servant did to me," his wrath was kindled. 
-Joseph's master took him, and put him into the prison, the place where the king's prisoners were bound, and he was there in custody. 
-But God was with Joseph, and showed kindness to him, and gave him favor in the sight of the keeper of the prison. 
-The keeper of the prison committed to Joseph's hand all the prisoners who were in the prison. Whatever they did there, he was responsible for it. 
-The keeper of the prison didn't look after anything that was under his hand, because God was with him; and that which he did, God made it prosper. 
+﻿Joseph had been taken down to Egypt, and Potiphar, an Egyptian officer of Pharaoh and captain of the guard, bought him from the Ishmaelites who had brought him there. 
+God was with Joseph, and he prospered. He lived in the house of his Egyptian master. 
+His master saw that God was with him and made everything he did succeed. 
+Joseph found favor with him and served him personally, and Potiphar put him in charge of his household and handed everything he owned over to him. 
+From the time he put Joseph in charge of his household and everything he owned, God blessed the Egyptian's house because of Joseph. God's blessing rested on everything he had, both in the house and in the fields. 
+So he left everything he owned in Joseph's hands and stopped worrying about anything except what he was going to eat. Now Joseph was well built and good-looking. 
+Some time later his master's wife took notice of Joseph and said, "Sleep with me." 
+But he refused. He said to her, "Look, my master doesn't have to worry about anything in this house. He's put everything he owns in my hands. 
+No one in this house has more authority than I do. He hasn't kept anything back from me except you, because you're his wife. So how could I do such a terrible thing and wrong God?" 
+She kept at Joseph day after day, but he wouldn't listen to her or even be near her. 
+One day he went into the house to do his work, and none of the household servants were inside. 
+She grabbed him by his cloak and said, "Sleep with me!" But he left the cloak in her hand and ran outside. 
+When she saw that he had left his cloak in her hand and run outside, 
+she called the household servants and said, "Look what he's done! That Hebrew your master brought in has come to make a fool of us. He came in here to sleep with me, and I screamed as loud as I could. 
+When he heard me scream, he left his cloak beside me and ran outside." 
+She kept the cloak beside her until his master came home. 
+Then she told him the same story: "That Hebrew servant you brought us came in here to make a fool of me. 
+When I screamed, he left his cloak beside me and ran outside." 
+When his master heard what his wife told him, that his servant had done this to her, he burned with anger. 
+So Joseph's master had him arrested and put in the prison where the king's prisoners were held, and he stayed there in custody. 
+But God was with Joseph and was kind to him, and gave him favor with the prison warden. 
+The warden put all the prisoners in the prison under Joseph's charge, and Joseph was responsible for everything that was done there. 
+The warden didn't bother checking on anything under Joseph's care, because God was with Joseph and made everything he did succeed. 

@@ -8,7 +8,7 @@ But when he saw many of the strict religious ones and the religious elite coming
 So bear fruit that shows your change of heart is real! 
 Don't think to yourselves, 'We have Abraham for our father,' for I tell you that God is able to raise up children to Abraham from these stones. 
 The ax is already lying at the root of the trees. Every tree that doesn't produce good fruit will be cut down and thrown into the fire. 
-I immerse you in water for a change of heart, but the one coming after me is mightier than I'm, and I'm not worthy to carry his sandals. He'll immerse you in the Holy Spirit. 
+I immerse you in water for a change of heart, but the one coming after me is mightier than I am, and I'm not worthy to carry his sandals. He'll immerse you in the Holy Spirit. 
 His shovel is in his hand, and he'll clean out his threshing floor. He'll gather his wheat into the barn, but the husks he'll burn with fire that never goes out." 
 Then Jesus came from Galilee to the Jordan to John, to be immersed by him. 
 But John tried to stop him, saying, "I need you to immerse me, and you come to me?" 

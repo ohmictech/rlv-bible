@@ -8,7 +8,7 @@ When there had been much discussion, Peter rose up and said to them, "Brothers, 
 God, who knows the heart, testified about them, giving them the Holy Spirit, just like he did to us. 
 He made no distinction between us and them, cleansing their hearts by trust. 
 Now why do you tempt God, that you should put a yoke on the neck of the students which neither our fathers nor we were able to bear? 
-But we trust that we're made whole through the gift of the Lord Jesus, just as they're." 
+But we trust that we're made whole through the gift of the Lord Jesus, just as they are." 
 All the crowd kept silence, and they listened to Barnabas and Paul reporting what signs and wonders God had done among the nations through them. 
 After they were silent, James answered, "Brothers, listen to me. 
 Simeon has reported how God first visited the nations to take out of them a people for his name. 

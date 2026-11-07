@@ -3,7 +3,7 @@ See now, I have opened my mouth. My tongue has spoken in my mouth.
 My words will utter the uprightness of my heart. That which my lips know they'll speak sincerely. 
 The Spirit of God has made me, and the breath of the Almighty gives me life. 
 If you can, answer me. Set your words in order before me, and stand up. 
-Look, I'm toward God even as you're. I'm also formed out of the clay. 
+Look, I'm toward God even as you are. I'm also formed out of the clay. 
 Look, my terror won't make you afraid, neither will my pressure be heavy on you. 
 "Surely you have spoken in my hearing, I have heard the voice of your words, saying, 
 'I'm clean, without disobedience. I'm innocent, neither is there guilt in me. 

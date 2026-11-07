@@ -11,7 +11,7 @@ Lot looked up and saw that the whole plain of the Jordan was well watered everyw
 So Lot chose the whole plain of the Jordan for himself and traveled east, and they separated from each other. 
 Abram lived in the land of Canaan, and Lot lived in the cities of the plain, and moved his tent as far as Sodom. 
 Now the men of Sodom were deeply guilty and did great wrong against God. 
-God said to Abram, after Lot had separated from him, "Now look up from where you're, and look north, south, east, and west, 
+God said to Abram, after Lot had separated from him, "Now look up from where you are, and look north, south, east, and west, 
 for I'll give all the land which you see to you and to your offspring for the eras. 
 I'll make your offspring as the dust of the earth, so that if a man can count the dust of the earth, then your offspring can also be counted. 
 Get up and walk through the land, its length and its width, because I'll give it to you." 

@@ -10,7 +10,7 @@ The man of God sent to the king of Israel, saying, "Beware that you not pass thi
 The king of Israel sent to the place which the man of God told him and warned him of; and he saved himself there, not once or twice. 
 The king of Syria's heart was very troubled about this. He called his servants, and said to them, "Won't you show me which of us is for the king of Israel?" 
 One of his servants said, "No, my lord, O king; but Elisha, the spokesman who's in Israel, tells the king of Israel the words that you speak in your bedroom." 
-He said, "Go and see where he's, that I can send and get him." He was told, "Look, he's in Dothan." 
+He said, "Go and see where he is, that I can send and get him." He was told, "Look, he's in Dothan." 
 So he sent horses, chariots, and a great army there. They came by night and surrounded the city. 
 When the servant of the man of God had risen early and gone out, look, an army with horses and chariots was around the city. His servant said to him, "Alas, my master! What will we do?" 
 He answered, "Don't be afraid, for those who are with us are more than those who are with them." 

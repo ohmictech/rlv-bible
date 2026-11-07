@@ -22,7 +22,7 @@ The king of Israel went out and struck the horses and chariots, and killed the S
 The spokesman came near to the king of Israel and said to him, "Go, strengthen yourself, and plan what you must do, for at the return of the year, the king of Syria will come up against you." 
 The servants of the king of Syria said to him, "Their god is a god of the hills; they were stronger than we. But let's fight against them in the plain, and surely we'll be stronger than they. 
 Do this thing: take the kings away, every man out of his place, and put captains in their place. 
-Muster an army like the army that you have lost, horse for horse and chariot for chariot. We'll fight against them in the plain, and surely we'll be stronger than they're." He listened to their voice and did so. 
+Muster an army like the army that you have lost, horse for horse and chariot for chariot. We'll fight against them in the plain, and surely we'll be stronger than they are." He listened to their voice and did so. 
 At the return of the year, Ben Hadad mustered the Syrians and went up to Aphek to fight against Israel. 
 The children of Israel were mustered and given provisions, and went against them. The children of Israel encamped before them like two little flocks of young goats, but the Syrians filled the country. 
 A man of God came near and spoke to the king of Israel, and said, "God says, 'Because the Syrians have said, "God is a god of the hills, but he isn't a god of the valleys," I'll deliver all this great multitude into your hand, and you will know that I'm God.'" 

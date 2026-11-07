@@ -12,7 +12,7 @@ The bodies of those animals, whose blood is brought into the Holy Place by the h
 That's why Jesus also, so that he might set the people apart through his own blood, suffered outside of the gate. 
 So let's go out to him, outside of the camp, carrying the shame he carried. 
 We don't have here a lasting city, but we're looking for the one that's coming. 
-Through him, then, let's always offer God a sacrifice of praise, that's, the fruit of lips that openly declare his name. 
+Through him, then, let's always offer God a sacrifice of praise, that is, the fruit of lips that openly declare his name. 
 But don't forget to do good and to share, because God is pleased with sacrifices like that. 
 Do what your leaders tell you and follow them, because they keep watch over your life, as those who will have to give an account, so that they can do this with joy and not with groaning, because that would be no help to you. 
 Pray for us, for we're persuaded that we have a clean conscience, and we want to live honorably in all things. 

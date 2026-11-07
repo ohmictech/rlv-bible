@@ -2,7 +2,7 @@
 I urge Euodia and I urge Syntyche to think the same way in the Lord. 
 Yes, and I ask you too, my true partner, help these women, because they worked alongside me in the Good News, together with Clement and the rest of my fellow workers, whose names are in the book of life. 
 Celebrate in the Lord always. I'll say it again: celebrate! 
-Let everyone see how gentle you're. The Lord is near. 
+Let everyone see how gentle you are. The Lord is near. 
 Don't worry about anything. Instead, in every situation, tell God what you need, with prayer and requests and thanksgiving. 
 And God's wholeness, which goes far beyond anything we can understand, will guard your hearts and your minds in Christ Jesus. 
 Finally, brothers and sisters, whatever is true, whatever is honorable, whatever is right, whatever is pure, whatever is lovely, whatever is worth talking about, if there's anything excellent, if there's anything worth praising, think about these things. 

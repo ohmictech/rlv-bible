@@ -1,6 +1,6 @@
 ﻿Now Jehoshaphat had riches and honor in abundance; and he allied himself with Ahab. 
 After some years, he went down to Ahab to Samaria. Ahab killed sheep and cattle for him in abundance, and for the people who were with him, and moved him to go up with him to Ramoth Gilead. 
-Ahab king of Israel said to Jehoshaphat king of Judah, "Will you go with me to Ramoth Gilead?" He answered him, "I'm as you're, and my people as your people. We'll be with you in the war." 
+Ahab king of Israel said to Jehoshaphat king of Judah, "Will you go with me to Ramoth Gilead?" He answered him, "I'm as you are, and my people as your people. We'll be with you in the war." 
 Jehoshaphat said to the king of Israel, "Please inquire first for God's word." 
 Then the king of Israel gathered the spokesmen together, four hundred men, and said to them, "Will we go to Ramoth Gilead to battle, or will I forbear?" They said, "Go up, for God will deliver it into the hand of the king." 
 But Jehoshaphat said, "Isn't there here a spokesman of God besides, that we can inquire of him?" 

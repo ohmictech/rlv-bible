@@ -15,7 +15,7 @@ He went after the man of God, and found him sitting under an oak. He said to him
 Then he said to him, "Come home with me and eat bread." 
 He said, "I can't return with you, nor go in with you. I won't eat bread or drink water with you in this place. 
 It was said to me by God's word, 'You will eat no bread or drink water there, and don't turn again to go by the way that you came.'" 
-He said to him, "I also am a spokesman as you're; and an messenger spoke to me by God's word, saying, 'Bring him back with you into your house, that he can eat bread and drink water.'" He lied to him. 
+He said to him, "I also am a spokesman as you are; and an messenger spoke to me by God's word, saying, 'Bring him back with you into your house, that he can eat bread and drink water.'" He lied to him. 
 So he went back with him, ate bread in his house, and drank water. 
 As they sat at the table, God's word came to the spokesman who brought him back; 
 and he cried out to the man of God who came from Judah, saying, "God says, 'Because you have been disobedient to God's word, and haven't kept the commandment which your God commanded you, 

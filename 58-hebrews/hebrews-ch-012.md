@@ -24,6 +24,6 @@ to the joyful celebration and gathering of the firstborn whose names are written
 to Jesus, the mediator of a new binding arrangement, and to the sprinkled blood that speaks better than Abel's. 
 See that you don't refuse the one who's speaking. If they didn't escape when they refused the one who warned them on earth, how much less will we escape if we turn away from the one who warns from the sky? 
 whose voice shook the earth then, but now he has promised, saying, "Once more I'll shake not only the earth, but the skies as well." 
-The words "Once more" mean that what can be shaken, that's, what has been made, will be removed, so that what can't be shaken will remain. 
+The words "Once more" mean that what can be shaken, that is, what has been made, will be removed, so that what can't be shaken will remain. 
 So, since we're receiving a reign that can't be shaken, let's hold on to the favor, and through it serve God in a way that pleases him, with reverence and awe, 
 because our God is a fire that consumes. 

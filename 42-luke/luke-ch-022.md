@@ -67,5 +67,5 @@ As soon as it was day, the elders of the people came together, both chief priest
 "If you're the Christ, tell us." But he said to them, "If I tell you, you won't trust, 
 and if I ask, you'll in no way answer me or let me go. 
 From now on, the Human One will be seated at the right hand of the power of God." 
-They all said, "Are you then the Son of God?" He said to them, "You say it, because I'm." 
+They all said, "Are you then the Son of God?" He said to them, "You say it, because I am." 
 They said, "Why do we need any more witness? We ourselves have heard from his own mouth!" 

@@ -24,9 +24,9 @@ He took the blind man by the hand and led him out of the village. When he had sp
 He looked up and said, "I see people, but they look like walking trees." 
 Then he laid his hands on his eyes again. He looked intently, and was restored, and saw everything clearly. 
 He sent him home, saying, "Don't go into the village, and don't tell anyone there." 
-Jesus went out with his students into the villages of Caesarea Philippi. On the way he asked his students, "Who do people say that I'm?" 
+Jesus went out with his students into the villages of Caesarea Philippi. On the way he asked his students, "Who do people say that I am?" 
 They told him, "John the Baptist, and others say Elijah, and others say one of the spokesmen." 
-He said to them, "But who do you say that I'm?" Peter answered, "You're the Christ." 
+He said to them, "But who do you say that I am?" Peter answered, "You're the Christ." 
 He commanded them to tell no one about him. 
 He began to teach them that the Human One must suffer many things, and be rejected by the elders, the chief priests, and the Bible teachers, and be killed, and rise again after three days. 
 He spoke about this openly. Peter took him aside and began to rebuke him. 

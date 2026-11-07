@@ -29,7 +29,7 @@ I'm afraid of all my sorrows. I know that you won't hold me innocent.
 I'll be condemned. Why then do I labor in vain? 
 If I wash myself with snow, and cleanse my hands with lye, 
 yet you'll plunge me in the ditch. My own clothes will abhor me. 
-He isn't a man, as I'm, that I should answer him, that we should come together in judgment. 
+He isn't a man, as I am, that I should answer him, that we should come together in judgment. 
 There's no umpire between us, that might lay his hand on us both. 
 Let him take his rod away from me. Let his terror not make me afraid; 
 then I'd speak, and not fear him, for I'm not so in myself. 

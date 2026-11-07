@@ -19,7 +19,7 @@ I'll open rivers on the bare heights, and springs in the middle of the valleys. 
 I'll put cedar, acacia, myrtle, and oil trees in the wilderness. I'll set cypress trees, pine, and box trees together in the desert; 
 that they can see, know, consider, and understand together, that God's hand has done this, and the Holy One of Israel has created it. 
 Produce your cause," says God. "Bring out your strong reasons!" says the King of Jacob. 
-"Let them announce and declare to us what will happen! Declare the former things, what they're, that we can consider them, and know the latter end of them; or show us things to come. 
+"Let them announce and declare to us what will happen! Declare the former things, what they are, that we can consider them, and know the latter end of them; or show us things to come. 
 Declare the things that are to come hereafter, that we can know that you're gods. Yes, do good, or do bad things, that we can be dismayed, and see it together. 
 Look, you're nothing, and your work is nothing. He who chooses you is an abomination. 
 "I have raised up one from the north, and he has come, from the rising of the sun, one who calls on my name, and he will come on rulers as on mortar, and as the potter treads clay. 

@@ -7,7 +7,7 @@ In their sight you will bear it on your shoulder, and carry it out in the dark. 
 I did so as I was commanded. I brought out my baggage by day, as baggage for moving, and in the evening I dug through the wall with my hand. I brought it out in the dark, and bore it on my shoulder in their sight. 
 In the morning, God's word came to me, saying, 
 "Son of man, hasn't the house of Israel, the rebellious house, said to you, 'What are you doing?' 
-"Say to them, 'The God says: "This burden concerns the prince in Jerusalem, and all the house of Israel among whom they're."' 
+"Say to them, 'The God says: "This burden concerns the prince in Jerusalem, and all the house of Israel among whom they are."' 
 "Say, 'I'm your sign. As I have done, so will it be done to them. They'll go into exile, into captivity. 
 "'The prince who's among them will bear his baggage on his shoulder in the dark, and will go out. They'll dig through the wall to carry things out that way. He'll cover his face, because he won't see the land with his eyes. 
 I'll also spread my net on him, and he'll be taken in my snare. I'll bring him to Babylon to the land of the Chaldeans; yet he won't see it, though he'll die there. 

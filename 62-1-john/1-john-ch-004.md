@@ -14,7 +14,7 @@ This is how we know that we make our home in him and he in us: he has given us h
 We have seen and we bear witness that the Father has sent the Son to be the Restorer of the world. 
 Whoever openly declares that Jesus is the Son of God, God makes his home in them, and they in God. 
 We know the love God has for us, and we have put our trust in it. God is love, and whoever makes their home in love makes their home in God, and God makes his home in them. 
-This is how love has been made complete among us, so that we can have boldness on the day of the verdict: in this world we're just as he's. 
+This is how love has been made complete among us, so that we can have boldness on the day of the verdict: in this world we're just as he is. 
 There's no fear in love. Complete love drives out fear, because fear has to do with correction. Whoever is afraid hasn't been made complete in love. 
 We love, because he loved us first. 
 If anyone says, "I love God," and hates a brother or sister, they're a liar. Anyone who doesn't love the brother or sister they have seen can't love God, whom they haven't seen. 

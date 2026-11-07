@@ -15,7 +15,7 @@ This is why I get down on my knees before the Father,
 from whom every family in the sky and on the land takes its name, 
 asking him to give you, out of the riches of his weight, to be made strong with power through his Spirit in your inner being, 
 so that Christ can make his home in your hearts through trust, and so that you, rooted and founded in love, 
-may have the strength to grasp, along with all the set-apart ones, how wide and long and high and deep it's, 
+may have the strength to grasp, along with all the set-apart ones, how wide and long and high and deep it is, 
 and to know the love of Christ that goes beyond all knowing, so that you can be filled with all the fullness of God. 
 Now to the one who's able to do far beyond all that we ask or imagine, measured by the power at work in us, 
 to him be the weight in the gathering and in Christ Jesus through all generations, for all the eras. Amen. 

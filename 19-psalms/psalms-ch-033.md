@@ -9,7 +9,7 @@ Let all the earth fear God. Let all the inhabitants of the world stand in awe of
 He spoke, and it was done. He commanded, and it stood firm. 
 God brings the counsel of the nations to nothing. He makes the thoughts of the peoples to be of no effect. 
 The counsel of God stands fast for the eras, the thoughts of his heart to all generations. 
-Blessed is the nation whose God he's, the people whom he has chosen for his own inheritance. 
+Blessed is the nation whose God he is, the people whom he has chosen for his own inheritance. 
 God looks from the sky. He sees all the sons of men. 
 From the place of his habitation he looks out on all the inhabitants of the earth, 
 he who fashions all of their hearts; and he considers all of their works. 

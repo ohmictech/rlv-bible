@@ -10,7 +10,7 @@ God do so to Abner, and more also, if, as God has sworn to David, I don't do eve
 to transfer the kingdom from Saul's house, and to set up David's throne over Israel and over Judah, from Dan even to Beersheba." 
 He couldn't answer Abner another word, because he was afraid of him. 
 Abner sent messengers to David on his behalf, saying, "Whose is the land?" and saying, "Make your alliance with me, and look, my hand will be with you to bring all Israel around to you." 
-David said, "Good. I'll make a treaty with you, but one thing I require of you. That's, you won't see my face unless you first bring Michal, Saul's daughter, when you come to see my face." 
+David said, "Good. I'll make a treaty with you, but one thing I require of you. That is, you won't see my face unless you first bring Michal, Saul's daughter, when you come to see my face." 
 David sent messengers to Ishbosheth, Saul's son, saying, "Deliver me my wife Michal, whom I was given to marry for one hundred foreskins of the Philistines." 
 Ishbosheth sent and took her from her husband, Paltiel the son of Laish. 
 Her husband went with her, weeping as he went, and followed her to Bahurim. Then Abner said to him, "Go! Return!" and he returned. 

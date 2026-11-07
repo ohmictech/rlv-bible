@@ -10,5 +10,5 @@ When you offer the blind for sacrifice, isn't that bad? And when you offer the l
 "Oh that there were one among you who would shut the doors, that you might not kindle fire on my altar in vain! I have no pleasure in you," says the God of Armies, "neither will I accept an offering at your hand. 
 From the rising of the sun even to its going down, my name is great among the nations, and in every place incense will be offered to my name, and a pure offering; for my name is great among the nations," says the God of Armies. 
 "But you profane it when you say, 'God's table is polluted, and its fruit, even its food, is contemptible.' 
-You say also, 'Look, what a weariness it's!' And you have sniffed at it", says the God of Armies; "and you have brought that which was taken by violence, the lame, and the sick; thus you bring the offering. Should I accept this at your hand?" says God. 
+You say also, 'Look, what a weariness it is!' And you have sniffed at it", says the God of Armies; "and you have brought that which was taken by violence, the lame, and the sick; thus you bring the offering. Should I accept this at your hand?" says God. 
 "But the deceiver is cursed who has in his flock a male, and vows and sacrifices to the Lord a defective thing; for I'm a great King," says the God of Armies, "and my name is awesome among the nations." 

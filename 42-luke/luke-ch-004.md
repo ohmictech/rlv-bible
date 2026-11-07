@@ -31,7 +31,7 @@ But he walked right through the middle of them and went on his way.
 He came down to Capernaum, a city of Galilee. He was teaching them on the Sabbath day, 
 and they were astonished at his teaching, for his word was with authority. 
 In the gathering place there was a man who had an unclean spirit; and he cried out with a loud voice, 
-saying, "Ah! what have we to do with you, Jesus of Nazareth? Have you come to kill us? I know who you're: the Holy One of God!" 
+saying, "Ah! what have we to do with you, Jesus of Nazareth? Have you come to kill us? I know who you are: the Holy One of God!" 
 Jesus rebuked him, saying, "Be quiet and come out of him!" When the unclean spirit had thrown him down in the middle of them, it came out of him without harming him. 
 Amazement came on everyone, and they said to one another, "What's this message? With authority and power he commands the unclean spirits, and they come out!" 
 News about him went out into every place of the surrounding region. 

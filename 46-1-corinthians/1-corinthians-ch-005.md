@@ -8,6 +8,6 @@ Clean out the old yeast, so that you can be a new lump, just as you really are b
 So let's keep the feast, not with old yeast, nor with the yeast of ill will and malice, but with the bread without yeast of sincerity and truth. 
 I wrote to you in my letter to have nothing to do with those who sleep around; 
 yet not at all meaning the people of this world who sleep around, or the greedy and swindlers, or idol worshipers, because then you'd have to leave the world. 
-But as it's, I wrote to you not to keep company with anyone who's called a brother but is someone who sleeps around, or is greedy, or an idol worshiper, or a slanderer, or a drunkard, or a swindler. Don't even eat with such a person. 
+But as it is, I wrote to you not to keep company with anyone who's called a brother but is someone who sleeps around, or is greedy, or an idol worshiper, or a slanderer, or a drunkard, or a swindler. Don't even eat with such a person. 
 What do I have to do with passing a verdict on those outside? Don't you pass a verdict on those inside? 
 But God passes a verdict on those outside. "Put the malicious man out from among yourselves." 

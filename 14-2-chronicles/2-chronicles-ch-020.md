@@ -1,5 +1,5 @@
 ﻿After this, the children of Moab, the children of Ammon, and with them some of the Meunites, came against Jehoshaphat to battle. 
-Then some came who told Jehoshaphat, saying, "A great multitude is coming against you from beyond the sea from Syria. Look, they're in Hazazon Tamar" (that's, En Gedi). 
+Then some came who told Jehoshaphat, saying, "A great multitude is coming against you from beyond the sea from Syria. Look, they're in Hazazon Tamar" (that is, En Gedi). 
 Jehoshaphat was alarmed, and set himself to seek God. He proclaimed a fast throughout all Judah. 
 Judah gathered themselves together to seek help from God. They came out of all the cities of Judah to seek God. 
 Jehoshaphat stood in the assembly of Judah and Jerusalem, in God's house, before the new court; 

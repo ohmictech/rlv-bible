@@ -18,7 +18,7 @@ I'll come down and talk with you there. I'll take of the Spirit which is on you,
 "Say to the people, 'Sanctify yourselves in preparation for tomorrow, and you'll eat meat; for you have wept in the ears of God, saying, "Who will give us meat to eat? It was well with us in Egypt." So God will give you meat, and you'll eat. 
 Don't eat just one day, or two days, or five days, or ten days, or twenty days, 
 but a whole month, until it comes out at your nostrils, and it's loathsome to you; because you have rejected God who's among you, and have wept before him, saying, "Why did we come out of Egypt?"'" 
-Moses said, "The people, among whom I'm, are six hundred thousand men on foot; and you have said, 'I'll give them meat, that they can eat a whole month.' 
+Moses said, "The people, among whom I am, are six hundred thousand men on foot; and you have said, 'I'll give them meat, that they can eat a whole month.' 
 Will flocks and herds be slaughtered for them, to be sufficient for them? Will all the fish of the sea be gathered together for them, to be sufficient for them?" 
 God said to Moses, "Has God's hand grown short? Now you'll see whether my word will happen to you or not." 
 Moses went out, and told the people God's words; and he gathered seventy men of the elders of the people, and set them around the Tent. 

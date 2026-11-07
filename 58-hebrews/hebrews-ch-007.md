@@ -2,7 +2,7 @@
 and Abraham gave him a tenth of everything. His name first means "king of rightness", and then "king of Salem", which means "king of wholeness", 
 He has no father or mother, no family line, no beginning to his days and no end to his life. He's made like the Son of God, and he remains a priest without end. 
 Now think about how great this man was: even Abraham the patriarch gave him a tenth of the best of the plunder. 
-The sons of Levi who become priests are commanded by the law to collect a tenth from the people, that's, from their own brothers and sisters, even though they too came out of Abraham's body. 
+The sons of Levi who become priests are commanded by the law to collect a tenth from the people, that is, from their own brothers and sisters, even though they too came out of Abraham's body. 
 But this man, whose family line isn't counted among them, collected a tenth from Abraham and blessed the one who had the promises. 
 There's no argument about this: the lesser is blessed by the greater. 
 In the one case, people who die collect the tenth; in the other, someone collects it who's said to be alive. 

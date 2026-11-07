@@ -14,7 +14,7 @@ When he was in Benjamin's gate, a captain of the guard was there, whose name was
 Then Jeremiah said, "That's false! I'm not defecting to the Chaldeans." But he didn't listen to him; so Irijah seized Jeremiah, and brought him to the princes. 
 The princes were angry with Jeremiah, and struck him, and put him in prison in the house of Jonathan the secretary; for they had made that the prison. 
 When Jeremiah had come into the dungeon house and into the cells, and Jeremiah had remained there many days, 
-then Zedekiah the king sent and had him brought out. The king asked him secretly in his house, "Is there any word from God?" Jeremiah said, "There's." He also said, "You'll be delivered into the hand of the king of Babylon." 
+then Zedekiah the king sent and had him brought out. The king asked him secretly in his house, "Is there any word from God?" Jeremiah said, "There is." He also said, "You'll be delivered into the hand of the king of Babylon." 
 Moreover Jeremiah said to King Zedekiah, "How have I wronged you, against your servants, or against this people, that you have put me in prison? 
 Now where are your spokesmen who prophesied to you, saying, 'The king of Babylon won't come against you, nor against this land'? 
 Now please hear, my lord the king: please let my supplication be presented before you, that you not cause me to return to the house of Jonathan the secretary, lest I die there." 

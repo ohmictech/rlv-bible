@@ -2,13 +2,13 @@
 Live in love, just as Christ also truly loved us and gave himself up for us, an offering and a sacrifice to God with a sweet smell. 
 But sleeping around, and every kind of uncleanness or greed, must not even be mentioned among you, as is fitting for set-apart ones; 
 nor shameful talk, nor silly talk, nor coarse joking, none of which is fitting, but rather thanksgiving. 
-Know this for certain: no one who sleeps around, no one who's unclean, and no greedy person (that's, an idol worshiper) has any share in what's handed down in the reign of Christ and God. 
+Know this for certain: no one who sleeps around, no one who's unclean, and no greedy person (that is, an idol worshiper) has any share in what's handed down in the reign of Christ and God. 
 Let no one lead you astray with empty words, because it's for these things that the heat of God comes on those who refuse to listen. 
 So don't take part with them. 
 You were once darkness, but now you're light in the Lord. Live as children of light, 
 for the fruit of the Spirit is in all goodness and rightness and truth, 
 testing out what pleases the Lord. 
-Have no part in the barren deeds of darkness; instead, show them up for what they're. 
+Have no part in the barren deeds of darkness; instead, show them up for what they are. 
 It's shameful even to talk about what they do in secret. 
 But everything that's shown up is made visible by the light, for whatever is made visible is light. 
 That's why it says, "Wake up, you who are asleep, and rise from the dead, and Christ will shine on you." 

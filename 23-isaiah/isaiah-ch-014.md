@@ -7,7 +7,7 @@ who struck the peoples in wrath with a continual stroke, who ruled the nations i
 The whole earth is at rest, and is quiet. They break out in song. 
 Yes, the cypress trees rejoice with you, with the cedars of Lebanon, saying, "Since you're humbled, no lumberjack has come up against us." 
 Hades from beneath has moved for you to meet you at your coming. It stirs up the departed spirits for you, even all the rulers of the earth. It has raised up from their thrones all the kings of the nations. 
-They all will answer and ask you, "Have you also become as weak as we're? Have you become like us?" 
+They all will answer and ask you, "Have you also become as weak as we are? Have you become like us?" 
 Your pomp is brought down to Hades, with the sound of your stringed instruments. Maggots are spread out under you, and worms cover you. 
 How you have fallen from the sky, shining one, son of the dawn! How you're cut down to the ground, who laid the nations low! 
 You said in your heart, "I'll ascend into the sky! I'll exalt my throne above the stars of God! I'll sit on the mountain of assembly, in the far north! 

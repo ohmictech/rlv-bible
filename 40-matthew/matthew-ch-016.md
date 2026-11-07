@@ -12,7 +12,7 @@ How is it that you don't perceive that I didn't speak to you about bread? But be
 Then they understood that he didn't tell them to be on guard against the yeast of bread, but against the teaching of the strict religious ones and the religious elite. 
 Now when Jesus came into the parts of Caesarea Philippi, he asked his students, saying, "Who do people say that I, the Human One, am?" 
 They said, "Some say John the Baptist, some, Elijah, and others, Jeremiah or one of the spokesmen." 
-He said to them, "But who do you say that I'm?" 
+He said to them, "But who do you say that I am?" 
 Simon Peter answered, "You're the Christ, the Son of the living God." 
 Jesus answered him, "Flourishing are you, Simon Bar Jonah, for flesh and blood hasn't unveiled this to you, but my Father in the sky. 
 I also tell you that you're Peter, and on this rock I'll build my gathering, and the gates of Hades won't prevail against it. 

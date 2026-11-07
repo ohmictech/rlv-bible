@@ -9,7 +9,7 @@ However at that time, not knowing God, you were in bondage to those who by natur
 But now that you know God, or rather are known by God, why do you turn back to the weak and pitiful basic principles, wanting to be slaves to them all over again? 
 You observe days, months, seasons, and years. 
 I'm afraid for you, that I might have wasted my labor for you. 
-I beg you, brothers, become as I'm, for I also have become as you're. You did me no wrong, 
+I beg you, brothers, become as I am, for I also have become as you are. You did me no wrong, 
 but you know that it was because of weakness in the flesh that I announced the Good News to you the first time. 
 What was a test to you in my flesh, you didn't look down on or reject; you welcomed me as a messenger of God, as Christ Jesus himself. 
 Where is the good you spoke of, then? I testify to you that, if possible, you'd have plucked out your eyes and given them to me. 

@@ -9,7 +9,7 @@ The servant answered Saul again and said, "Look, I have in my hand the fourth pa
 (In earlier times in Israel, when a man went to inquire of God, he said, "Come! Let's go to the seer;" for he who's now called a spokesman was before called a seer.) 
 Then Saul said to his servant, "Well said. Come! Let's go." So they went to the city where the man of God was. 
 As they went up the ascent to the city, they found young maidens going out to draw water, and said to them, "Is the seer here?" 
-They answered them and said, "He's. Look, he's before you. Hurry now, for he has come today into the city; for the people have a sacrifice today in the high place. 
+They answered them and said, "He is. Look, he's before you. Hurry now, for he has come today into the city; for the people have a sacrifice today in the high place. 
 As soon as you have come into the city, you'll immediately find him before he goes up to the high place to eat; for the people won't eat until he comes, because he blesses the sacrifice. Afterwards those who are invited eat. Now go up; for at this time you'll find him." 
 They went up to the city. As they came within the city, look, Samuel came out toward them to go up to the high place. 
 Now God had revealed to Samuel a day before Saul came, saying, 

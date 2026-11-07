@@ -55,5 +55,5 @@ then the priest will command that they wash the thing that the plague is in, and
 Then the priest will examine it, after the plague is washed; and look, if the plague hasn't changed its color, and the plague hasn't spread, it's unclean; you will burn it in the fire. It's a mildewed spot, whether the bareness is inside or outside. 
 If the priest looks, and look, the plague has faded after it's washed, then he will tear it out of the garment, or out of the skin, or out of the warp, or out of the woof; 
 and if it appears again in the garment, either in the warp, or in the woof, or in anything of skin, it's spreading. You will burn what the plague is in with fire. 
-The garment, either the warp, or the woof, or whatever thing of skin it's, which you will wash, if the plague has departed from them, then it will be washed the second time, and it'll be clean." 
+The garment, either the warp, or the woof, or whatever thing of skin it is, which you will wash, if the plague has departed from them, then it will be washed the second time, and it'll be clean." 
 This is the law of the plague of mildew in a garment of wool or linen, either in the warp, or the woof, or in anything of skin, to pronounce it clean, or to pronounce it unclean. 

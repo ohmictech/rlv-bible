@@ -9,7 +9,7 @@ So although I have plenty of boldness in Christ to tell you what you should do,
 still, for love's sake I'd rather ask you (I, Paul, an old man, and now a prisoner of Jesus Christ as well). 
 I'm asking you on behalf of my child Onesimus, whose father I became while I was in chains. 
 Once he was useless to you, but now he's useful to you and to me. 
-I'm sending him back to you (him, that's, my own heart). 
+I'm sending him back to you (him, that is, my own heart). 
 I'd have liked to keep him with me, so that he could serve me in your place while I'm in chains for the Good News. 
 But I didn't want to do anything without your consent, so that your kindness wouldn't be a matter of necessity, but of your own free choice. 
 Maybe this is why he was separated from you for a while, so that you could have him back for good, 

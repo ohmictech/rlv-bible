@@ -12,4 +12,4 @@ God will be awesome to them, for he'll famish all the gods of the land. Men will
 You Cushites also, you'll be killed by my sword. 
 He'll stretch out his hand against the north, destroy Assyria, and will make Nineveh a desolation, as dry as the wilderness. 
 Herds will lie down in the middle of her, all kinds of animals. Both the pelican and the porcupine will lodge in its capitals. Their calls will echo through the windows. Desolation will be in the thresholds, for he has laid bare the cedar beams. 
-This is the joyous city that lived carelessly, that said in her heart, "I'm, and there's no one besides me." How she has become a desolation, a place for animals to lie down in! Everyone who passes by her will hiss and shake their fists. 
+This is the joyous city that lived carelessly, that said in her heart, "I am, and there's no one besides me." How she has become a desolation, a place for animals to lie down in! Everyone who passes by her will hiss and shake their fists. 

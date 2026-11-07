@@ -1,6 +1,6 @@
 ﻿Satan stood up against Israel, and moved David to take a census of Israel. 
 David said to Joab and to the princes of the people, "Go, count Israel from Beersheba even to Dan; and bring me word, that I can know how many there are." 
-Joab said, "May God make his people a hundred times as many as they're. But, my lord the king, aren't they all my lord's servants? Why does my lord require this thing? Why will he be a cause of guilt to Israel?" 
+Joab said, "May God make his people a hundred times as many as they are. But, my lord the king, aren't they all my lord's servants? Why does my lord require this thing? Why will he be a cause of guilt to Israel?" 
 Nevertheless the king's word prevailed against Joab. So Joab departed and went throughout all Israel, then came to Jerusalem. 
 Joab gave the sum of the census of the people to David. All those of Israel were one million one hundred thousand men who drew a sword; and in Judah were four hundred seventy thousand men who drew a sword. 
 But he didn't count Levi and Benjamin among them, for the king's word was abominable to Joab. 

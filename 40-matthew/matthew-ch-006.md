@@ -23,7 +23,7 @@ The lamp of the body is the eye. So if your eye is healthy, your whole body will
 But if your eye is sick, your whole body will be full of darkness. If the light in you is darkness, how great that darkness is. 
 No one can serve two masters. He'll either hate the one and love the other, or stand by the one and look down on the other. You can't serve God and Money. 
 So I tell you: don't worry about your life, what you'll eat or what you'll drink, or about your body, what you'll wear. Isn't life more than food, and the body more than clothing? 
-Look at the birds of the sky. They don't sow or reap or gather into barns, and your Father in the sky feeds them. Are you not worth more than they're? 
+Look at the birds of the sky. They don't sow or reap or gather into barns, and your Father in the sky feeds them. Are you not worth more than they are? 
 Who among you, by worrying, can add one hour to his life? 
 Why do you worry about clothing? Learn from the wildflowers of the field, how they grow. They don't work or spin thread. 
 But I tell you: not even Solomon in all his splendor was dressed like one of these. 

@@ -5,7 +5,7 @@ The wife doesn't have authority over her own body, but the husband does. Likewis
 Don't hold back from one another, unless you both agree for a time, so that you can give yourselves to going without food and prayer, and then be together again, so that the Adversary doesn't test you because of your lack of self-control. 
 But this I say by way of concession, not of commandment. 
 Yet I wish that everyone was like me. But each person has his own gift from God, one of one kind, and another of another. 
-But I say to the unmarried and to widows, it's good for them if they remain even as I'm. 
+But I say to the unmarried and to widows, it's good for them if they remain even as I am. 
 But if they don't have self-control, let them marry. It's better to marry than to burn with passion. 
 But to the married I command, not I but the Lord, that the wife not leave her husband 
 (but if she does leave, let her stay unmarried, or else come back together with her husband), and that the husband not leave his wife. 
@@ -23,7 +23,7 @@ The one who was called in the Lord as a slave is the Lord's free person. Likewis
 You were bought with a price. Don't become slaves of people. 
 Brothers, let each person stay with God in whatever condition he was called. 
 Now about virgins, I have no command from the Lord, but I give my opinion as one who has been shown mercy by the Lord and can be trusted. 
-So I think that because of the distress that's on us, it's good for a man to remain as he's. 
+So I think that because of the distress that's on us, it's good for a man to remain as he is. 
 Are you bound to a wife? Don't seek to be freed. Are you free from a wife? Don't seek a wife. 
 But if you do marry, you haven't drifted. And if a virgin marries, she hasn't drifted. Yet those who marry will have pressure in the flesh, and I want to spare you. 
 But I say this, brothers: the time is short. From now on, both those who have wives may be as though they had none; 
@@ -37,4 +37,4 @@ But if anyone thinks he's behaving improperly toward the woman he's pledged to, 
 But the one who stands firm in his heart, under no pressure, but has control over his own will, and has decided in his own heart to keep the woman he's pledged to, does well. 
 So then the one who gives her in marriage does well, and the one who doesn't give her in marriage does better. 
 A wife is bound as long as her husband lives; but if her husband dies, she's free to marry anyone she wishes, only in the Lord. 
-But she's more flourishing if she stays as she's, in my opinion, and I think that I also have God's Spirit. 
+But she's more flourishing if she stays as she is, in my opinion, and I think that I also have God's Spirit. 

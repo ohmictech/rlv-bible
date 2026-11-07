@@ -24,7 +24,7 @@ It'll be to them as a false divination in their sight, who have sworn oaths to t
 "So God says: 'Because you have caused your guilt to be remembered, in that your rebellion are uncovered, so that in all your doings your mistakes appear; because you have come to memory, you'll be taken with the hand. 
 "'You, deadly wounded guilty one, the prince of Israel, whose day has come, in the time of the guilt of the end, 
 God says: "Remove the turban, and take off the crown. This won't be as it was. Exalt that which is low, and humble that which is high. 
-I'll overturn, overturn, overturn it. This also will be no more, until he comes whose right it's; and I'll give it."' 
+I'll overturn, overturn, overturn it. This also will be no more, until he comes whose right it is; and I'll give it."' 
 "You, son of man, prophesy and say, 'The God says this concerning the children of Ammon, and concerning their reproach: "A sword! A sword is drawn! It's polished for the slaughter, to cause it to devour, that it might be as lightning; 
 while they see for you false visions, while they divine lies to you, to lay you on the necks of the guilty who are deadly wounded, whose day has come in the time of the guilt of the end. 
 Cause it to return into its sheath. In the place where you were created, in the land of your birth, I'll judge you. 

@@ -15,7 +15,7 @@ Of the tribe of Naphtali, Nahbi the son of Vophsi.
 Of the tribe of Gad, Geuel the son of Machi. 
 These are the names of the men who Moses sent to spy out the land. Moses called Hoshea the son of Nun Joshua. 
 Moses sent them to spy out the land of Canaan, and said to them, "Go up this way by the South, and go up into the hill country. 
-See the land, what it's; and the people who dwell therein, whether they're strong or weak, whether they're few or many; 
+See the land, what it is; and the people who dwell therein, whether they're strong or weak, whether they're few or many; 
 and what the land is that they dwell in, whether it's good or bad; and what cities they're that they dwell in, whether in camps, or in strongholds; 
 and what the land is, whether it's fertile or poor, whether there's wood therein, or not. Be courageous, and bring some of the fruit of the land." Now the time was the time of the first-ripe grapes. 
 So they went up, and spied out the land from the wilderness of Zin to Rehob, to the entrance of Hamath. 

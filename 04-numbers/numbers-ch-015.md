@@ -12,7 +12,7 @@ Thus it will be done for each bull, for each ram, for each of the male lambs, or
 According to the number that you will prepare, so you will do to everyone according to their number. 
 "'Everyone who's native-born will do these things in this way, in offering an offering made by fire, of a pleasant aroma to God. 
 If a stranger lives as a foreigner with you, or whoever may be among you throughout your generations, and will offer an offering made by fire, of a pleasant aroma to God, as you do, so he will do. 
-The assembly, there will be one statute for you and for the stranger who lives as a foreigner, a statute for the eras throughout your generations. As you're, so the foreigner will be before God. 
+The assembly, there will be one statute for you and for the stranger who lives as a foreigner, a statute for the eras throughout your generations. As you are, so the foreigner will be before God. 
 One law and one ordinance will be for you and for the stranger who lives as a foreigner with you.'" 
 God spoke to Moses, saying, 
 "Speak to the children of Israel, and tell them, 'When you come into the land where I bring you, 

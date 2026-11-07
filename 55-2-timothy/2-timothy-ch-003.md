@@ -6,7 +6,7 @@ they'll keep up the outward form of devotion to God while denying its power. Tur
 Some of them slip into houses and take captive foolish women who are loaded down with mistakes and pulled this way and that by all kinds of cravings, 
 always learning but never able to come to know the truth. 
 Just as Jannes and Jambres opposed Moses, these men oppose the truth too. Their minds are rotted, and as far as the trust goes, they have failed the test. 
-But they won't get far, because everyone will see how foolish they're, just as it happened with those two. 
+But they won't get far, because everyone will see how foolish they are, just as it happened with those two. 
 But you have followed my teaching, my way of life, my purpose, my trust, my patience, my love, and my staying power, 
 and the persecutions and hard times that happened to me at Antioch, Iconium, and Lystra. I put up with those persecutions, and the Lord rescued me out of them all. 
 And in fact, everyone who wants to live with devotion to God in Christ Jesus will be hunted down. 

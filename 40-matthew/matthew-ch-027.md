@@ -43,7 +43,7 @@ In the same way the chief priests also mocked him, along with the Bible teachers
 He trusts in God. Let God rescue him now, if he wants him, for he said, 'I'm the Son of God.'" 
 The robbers who were crucified with him also threw the same insults at him. 
 Now from noon there was darkness over all the land until mid-afternoon. 
-About mid-afternoon Jesus cried with a loud voice, saying, "Eli, Eli, lima sabachthani?" That's, "My God, my God, why have you abandoned me?" 
+About mid-afternoon Jesus cried with a loud voice, saying, "Eli, Eli, lima sabachthani?" That is, "My God, my God, why have you abandoned me?" 
 Some of them who stood there, when they heard it, said, "This man is calling Elijah." 
 Immediately one of them ran and took a sponge, soaked it in sour wine, put it on a reed, and gave him a drink. 
 The rest said, "Leave him alone. Let's see whether Elijah comes to rescue him." 

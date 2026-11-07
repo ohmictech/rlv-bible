@@ -26,7 +26,7 @@ But he said, "I'm not out of my mind, most excellent Festus, but boldly declare 
 The king knows of these things, to whom also I speak freely. I'm persuaded that none of these things is hidden from him, for this hasn't been done in a corner. 
 King Agrippa, do you trust the spokesmen? I know that you trust." 
 Agrippa said to Paul, "With a little persuasion are you trying to make me a Christian?" 
-Paul said, "I pray to God, that whether with little or with much, not only you, but also all that hear me today, would become such as I'm, except for these bonds." 
+Paul said, "I pray to God, that whether with little or with much, not only you, but also all that hear me today, would become such as I am, except for these bonds." 
 The king rose up with the governor and Bernice, and those who sat with them. 
 When they had withdrawn, they spoke to one another, saying, "This man does nothing worthy of death or of bonds." 
 Agrippa said to Festus, "This man could have been set free if he hadn't appealed to Caesar." 

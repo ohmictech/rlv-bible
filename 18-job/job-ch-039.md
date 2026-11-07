@@ -27,4 +27,4 @@ As often as the trumpet sounds he snorts, 'Aha!' He smells the battle afar off, 
 Is it at your command that the eagle mounts up, and makes his nest on high? 
 On the cliff he dwells and makes his home, on the point of the cliff and the stronghold. 
 From there he spies out the prey. His eyes see it afar off. 
-His young ones also suck up blood. Where the slain are, there he's." 
+His young ones also suck up blood. Where the slain are, there he is." 

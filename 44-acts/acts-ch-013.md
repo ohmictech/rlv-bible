@@ -22,7 +22,7 @@ Afterward they asked for a king, and God gave to them Saul the son of Kish, a ma
 When he had removed him, he raised up David to be their king, to whom he also testified, 'I have found David the son of Jesse, a man after my heart, who will do all my will.' 
 From this man's offspring, God has brought rescue to Israel according to his promise, 
 before his coming, when John had first announced the immersion of a change of heart to Israel. 
-As John was fulfilling his course, he said, 'What do you suppose that I'm? I'm not he. But look, one comes after me, the sandals of whose feet I'm not worthy to untie.' 
+As John was fulfilling his course, he said, 'What do you suppose that I am? I'm not he. But look, one comes after me, the sandals of whose feet I'm not worthy to untie.' 
 "Brothers, children of the stock of Abraham, and those among you who are in awe of God, the word of this rescue is sent out to you. 
 Those who dwell in Jerusalem, and their rulers, because they didn't know him, nor the voices of the spokesmen which are read every Sabbath, fulfilled them by condemning him. 
 Though they found no cause for death, they still asked Pilate to have him killed. 

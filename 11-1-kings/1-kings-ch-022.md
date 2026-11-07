@@ -1,7 +1,7 @@
 ﻿They continued three years without war between Syria and Israel. 
 In the third year, Jehoshaphat the king of Judah came down to the king of Israel. 
 The king of Israel said to his servants, "You know that Ramoth Gilead is ours, and we do nothing, and don't take it out of the hand of the king of Syria?" 
-He said to Jehoshaphat, "Will you go with me to battle to Ramoth Gilead?" Jehoshaphat said to the king of Israel, "I'm as you're, my people as your people, my horses as your horses." 
+He said to Jehoshaphat, "Will you go with me to battle to Ramoth Gilead?" Jehoshaphat said to the king of Israel, "I'm as you are, my people as your people, my horses as your horses." 
 Jehoshaphat said to the king of Israel, "Please inquire first for God's word." 
 Then the king of Israel gathered the spokesmen together, about four hundred men, and said to them, "Should I go against Ramoth Gilead to battle, or should I refrain?" They said, "Go up; for the Lord will deliver it into the hand of the king." 
 But Jehoshaphat said, "Isn't there here a spokesman of God, that we can inquire of him?" 

@@ -39,7 +39,7 @@ The curtain of the temple was torn in two from top to bottom.
 When the centurion, who stood facing him, saw that he cried out like this and breathed his last, he said, "Truly this man was the Son of God!" 
 There were also women watching from a distance, among them Mary Magdalene, Mary the mother of James the younger and of Joses, and Salome, 
 who, when he was in Galilee, had followed him and served him, and many other women who had come up with him to Jerusalem. 
-When evening had come, since it was the Preparation Day, that's, the day before the Sabbath, 
+When evening had come, since it was the Preparation Day, that is, the day before the Sabbath, 
 Joseph of Arimathaea, a prominent council member who was himself looking for God's reign, came. He boldly went in to Pilate and asked for Jesus' body. 
 Pilate was surprised to hear that he was already dead, and summoning the centurion, he asked him whether he had been dead for long. 
 When he found out from the centurion, he gave the body to Joseph. 

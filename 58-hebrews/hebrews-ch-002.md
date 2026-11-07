@@ -5,13 +5,13 @@ while God also testified with them by signs and wonders, by many kinds of powerf
 He didn't put the world to come, the one we're talking about, under the authority of messengers. 
 But someone has testified somewhere, saying, "What are people, that you think about them? Or a human being, that you care for him? 
 You made him a little lower than the messengers. You crowned him with weight and honor. 
-"You put everything under his feet." In putting everything under him, he left nothing that isn't under him. But as it's, we don't yet see everything under him. 
+"You put everything under his feet." In putting everything under him, he left nothing that isn't under him. But as it is, we don't yet see everything under him. 
 But we do see Jesus, who was made a little lower than the messengers for a while, now crowned with weight and honor because he suffered death, so that by God's favor he should taste death for everyone. 
 It was fitting that God, for whom everything exists and through whom everything exists, in bringing many children to weight, should make the one who leads them to rescue complete through suffering. 
 The one who sets apart and those who are set apart all come from one Father. That's why he isn't ashamed to call them brothers and sisters, 
 when he says, "I'll tell my brothers and sisters your name. In the middle of the gathering I'll sing your praise." 
 And again, "I'll put my trust in him." And again, "Here I am, with the children God has given me." 
-Since the children share in flesh and blood, he also shared in the same things himself, so that through his death he might put out of work the one who holds the power of death, that's, the Slanderer, 
+Since the children share in flesh and blood, he also shared in the same things himself, so that through his death he might put out of work the one who holds the power of death, that is, the Slanderer, 
 and set free everyone who was held in slavery their whole lives by the fear of death. 
 Surely he doesn't come to the aid of messengers, but he comes to the aid of the offspring of Abraham. 
 That's why he had to become like his brothers and sisters in every way, so that he could be a merciful and trustworthy high priest in God's service, to make things right for the mistakes of the people. 

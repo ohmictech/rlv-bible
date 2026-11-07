@@ -17,7 +17,7 @@ They each caught his opponent by the head and thrust his sword in his fellow's s
 The battle was very severe that day; and Abner was beaten, and the men of Israel, before David's servants. 
 The three sons of Zeruiah were there: Joab, Abishai, and Asahel. Asahel was as light of foot as a wild gazelle. 
 Asahel pursued Abner. He didn't turn to the right hand or to the left from following Abner. 
-Then Abner looked behind him and said, "Is that you, Asahel?" He answered, "It's." 
+Then Abner looked behind him and said, "Is that you, Asahel?" He answered, "It is." 
 Abner said to him, "Turn away to your right hand or to your left, and grab one of the young men, and take his armor." But Asahel wouldn't turn away from following him. 
 Abner said again to Asahel, "Turn away from following me. Why should I strike you to the ground? How then could I look Joab your brother in the face?" 
 However, he refused to turn away. So Abner with the back end of the spear struck him in the body, so that the spear came out behind him; and he fell down there and died in the same place. As many as came to the place where Asahel fell down and died stood still. 

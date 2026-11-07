@@ -8,7 +8,7 @@ but only the high priest goes into the second room, and only once a year, and ne
 The Holy Spirit was showing by this that the way into the Holy Place hadn't yet been opened up while the first tent was still standing. 
 This is a picture for the present era. The gifts and sacrifices offered there can't make the worshiper complete in their conscience, 
 being only (with foods and drinks and various immersions) outward rules, put in place until the time when things would be set right. 
-But Christ came as high priest of the good things that have come, and he went through the greater and more complete tent that isn't made by hands, that's, not part of this creation. 
+But Christ came as high priest of the good things that have come, and he went through the greater and more complete tent that isn't made by hands, that is, not part of this creation. 
 He didn't enter by the blood of goats and calves, but by his own blood, and he entered the Holy Place once and for all, having won release of the era. 
 If the blood of goats and bulls, and the ashes of a young cow sprinkled on those who have become unclean, set them apart so that their bodies are clean, 
 how much more will the blood of Christ, who offered himself without any fault to God through the Spirit of the eras, make your conscience clean from dead deeds, so that you can serve the living God? 
@@ -23,6 +23,6 @@ Under the law, almost everything is made clean with blood, and without blood bei
 So the copies of what's in the sky had to be made clean with these things, but the things in the sky themselves need better sacrifices than these. 
 Christ didn't enter a place set apart that was made by hands, which is only a picture of the real one. He entered the sky itself, and now he stands before God on our behalf. 
 And he didn't go in to offer himself over and over, the way the high priest enters the Holy Place year after year with blood that isn't his own. 
-If he had, he'd have had to suffer many times since the world was founded. But as it's, he has appeared once, at the end of the eras, to do away with the drift by sacrificing himself. 
+If he had, he'd have had to suffer many times since the world was founded. But as it is, he has appeared once, at the end of the eras, to do away with the drift by sacrificing himself. 
 Just as people are appointed to die once, and after that comes the verdict, 
 so Christ also, having been offered once to carry the mistakes of everyone, will appear a second time, not to deal with the drift, but to rescue those who are waiting for him with eager expectation. 

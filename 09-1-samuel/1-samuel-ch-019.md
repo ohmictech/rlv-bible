@@ -1,6 +1,6 @@
 ﻿Saul spoke to Jonathan his son and to all his servants, that they should kill David. But Jonathan, Saul's son, greatly delighted in David. 
 Jonathan told David, saying, "Saul my father seeks to kill you. Now, please take care of yourself in the morning, live in a secret place, and hide yourself. 
-I'll go out and stand beside my father in the field where you're, and I'll talk with my father about you; and if I see anything, I'll tell you." 
+I'll go out and stand beside my father in the field where you are, and I'll talk with my father about you; and if I see anything, I'll tell you." 
 Jonathan spoke good of David to Saul his father, and said to him, "Don't let the king wrong his servant, against David; because he hasn't wronged you, and because his works have been very good toward you; 
 for he put his life in his hand and struck the Philistine, and God worked a great victory for all Israel. You saw it and rejoiced. Why then will you wrong innocent blood, to kill David without a cause?" 
 Saul listened to the voice of Jonathan; and Saul swore, "As God lives, he won't be put to death." 

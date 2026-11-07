@@ -6,7 +6,7 @@ Zedekiah the king said, "Look, he's in your hand; for the king can't do anything
 Then they took Jeremiah and threw him into the dungeon of Malchijah the king's son, that was in the court of the guard. They let down Jeremiah with cords. In the dungeon there was no water, but mire; and Jeremiah sank in the mire. 
 Now when Ebedmelech the Ethiopian, a eunuch, who was in the king's house, heard that they had put Jeremiah in the dungeon (the king was then sitting in Benjamin's gate), 
 Ebedmelech went out of the king's house, and spoke to the king, saying, 
-"My lord the king, these men have done bad in all that they have done to Jeremiah the spokesman, whom they have cast into the dungeon. He's likely to die in the place where he's, because of the famine; for there's no more bread in the city." 
+"My lord the king, these men have done bad in all that they have done to Jeremiah the spokesman, whom they have cast into the dungeon. He's likely to die in the place where he is, because of the famine; for there's no more bread in the city." 
 Then the king commanded Ebedmelech the Ethiopian, saying, "Take from here thirty men with you, and take up Jeremiah the spokesman out of the dungeon, before he dies." 
 So Ebedmelech took the men with him, and went into the house of the king under the treasury, and took from there rags and worn-out garments, and let them down by cords into the dungeon to Jeremiah. 
 Ebedmelech the Ethiopian said to Jeremiah, "Now put these rags and worn-out garments under your armpits under the cords." Jeremiah did so. 

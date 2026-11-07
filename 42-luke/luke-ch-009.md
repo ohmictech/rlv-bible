@@ -15,9 +15,9 @@ They were about five thousand men. He said to his students, "Make them sit down 
 They did so, and made them all sit down. 
 He took the five loaves and the two fish, and looking up to the sky, he blessed them, broke them, and gave them to the students to set before the crowd. 
 They ate and were all filled. They gathered up twelve baskets of broken pieces that were left over. 
-As he was praying alone, the students were near him, and he asked them, "Who do the crowds say that I'm?" 
+As he was praying alone, the students were near him, and he asked them, "Who do the crowds say that I am?" 
 They answered, "'John the Baptist,' but others say, 'Elijah,' and others, that one of the old spokesmen has risen again." 
-He said to them, "But who do you say that I'm?" Peter answered, "The Christ of God." 
+He said to them, "But who do you say that I am?" Peter answered, "The Christ of God." 
 But he warned them and commanded them to tell this to no one, 
 saying, "The Human One must suffer many things, and be rejected by the elders, chief priests, and Bible teachers, and be killed, and the third day be raised up." 
 He said to all, "If anyone desires to come after me, let him disown himself, take up his cross, and follow me. 
@@ -52,7 +52,7 @@ When the days were near for him to be taken up, he set his face firmly to go to 
 and sent messengers ahead of him. They went and entered into a village of the Samaritans, so as to prepare for him. 
 They didn't receive him, because he was traveling with his face set toward Jerusalem. 
 When his students, James and John, saw this, they said, "Lord, do you want us to command fire to come down from the sky and burn them up, just as Elijah did?" 
-But he turned and rebuked them, "You don't know of what kind of spirit you're. 
+But he turned and rebuked them, "You don't know of what kind of spirit you are. 
 The Human One didn't come to break up people's lives, but to rescue them." They went to another village. 
 As they went on the way, a certain man said to him, "I want to follow you wherever you go, Lord." 
 Jesus said to him, "The foxes have holes and the birds of the sky have nests, but the Human One has no place to lay his head." 

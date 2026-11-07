@@ -4,7 +4,7 @@ Don't be desirous of his dainties, since they're deceitful food.
 Don't weary yourself to be rich. In your wisdom, show restraint. 
 Why do you set your eyes on that which isn't? It certainly sprouts wings like an eagle and flies in the sky. 
 Don't eat the food of him who has a stingy eye, and don't crave his delicacies, 
-for as he thinks about the cost, so he's. "Eat and drink!" he says to you, but his heart isn't with you. 
+for as he thinks about the cost, so he is. "Eat and drink!" he says to you, but his heart isn't with you. 
 You'll vomit up the morsel which you have eaten and waste your pleasant words. 
 Don't speak in the ears of a fool, for he'll despise the wisdom of your words. 
 Don't move the ancient boundary stone. Don't encroach on the fields of the fatherless, 

@@ -1,7 +1,7 @@
 ﻿God blessed Noah and his sons, and said to them, "Be fruitful, multiply, and fill the earth. 
 Every animal of the earth and every bird of the sky will be afraid of you and dread you. Everything that moves along the ground and all the fish of the sea are given into your hand. 
 Every moving thing that lives will be food for you. As I gave you the green plants, I now give you everything. 
-But you must not eat flesh with its life in it, that's, its blood. 
+But you must not eat flesh with its life in it, that is, its blood. 
 I'll demand an accounting for your lifeblood. I'll demand it from every animal. And from every human being, each one for the life of his brother, I'll demand the life of a human being. 
 Whoever sheds human blood, his own blood will be shed by human beings, because God made human beings in his own image. 
 Be fruitful and multiply. Spread out over the earth and increase on it." 

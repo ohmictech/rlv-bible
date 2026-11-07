@@ -8,7 +8,7 @@ Now they have known that all things whatever you have given me are from you,
 for the words which you have given me I have given to them; and they received them, and knew for sure that I came from you. They have trusted that you sent me. 
 I pray for them. I don't pray for the world, but for those whom you have given me, for they're yours. 
 All things that are mine are yours, and yours are mine, and I'm honored in them. 
-I'm no more in the world, but these are in the world, and I'm coming to you. Holy Father, keep them through your name which you have given me, that they can be one, even as we're. 
+I'm no more in the world, but these are in the world, and I'm coming to you. Holy Father, keep them through your name which you have given me, that they can be one, even as we are. 
 While I was with them in the world, I kept them in your name. I have kept those whom you have given me. None of them is lost except the one headed for ruin, so that the Scripture would be fulfilled. 
 But now I come to you, and I say these things in the world, that they can have my joy made complete in themselves. 
 I have given them your word. The world hated them because they aren't of the world, even as I'm not of the world. 

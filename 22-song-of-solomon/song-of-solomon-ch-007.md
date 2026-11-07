@@ -3,7 +3,7 @@ Your body is like a round goblet, no mixed wine is wanting. Your waist is like a
 Your two breasts are like two fawns, that are twins of a roe. 
 Your neck is like an ivory tower. Your eyes are like the pools in Heshbon by the gate of Bathrabbim. Your nose is like the tower of Lebanon which looks toward Damascus. 
 Your head on you is like Carmel. The hair of your head like purple. The king is held captive in its tresses. 
-How beautiful and how pleasant you're, love, for delights! 
+How beautiful and how pleasant you are, love, for delights! 
 This, your stature, is like a palm tree, your breasts like its fruit. 
 I said, "I'll climb up into the palm tree. I'll take hold of its fruit." Let your breasts be like clusters of the vine, the smell of your breath like apples. 
 Your mouth is like the best wine, that goes down smoothly for my beloved, gliding through the lips of those who are asleep. 

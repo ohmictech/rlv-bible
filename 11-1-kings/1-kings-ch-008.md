@@ -34,7 +34,7 @@ then hear in the sky, and act, and judge your servants, condemning the guilty, t
 then hear in the sky, and forgive the wrongdoing of your people Israel, and bring them again to the land which you gave to their fathers. 
 "When the sky is shut up and there's no rain because they have wronged you, if they pray toward this place and confess your name, and turn from their wrongdoing when you afflict them, 
 then hear in the sky, and forgive the wrongdoing of your servants, and of your people Israel, when you teach them the good way in which they should walk; and send rain on your land which you have given to your people for an inheritance. 
-"If there's famine in the land, if there's pestilence, if there's blight, mildew, locust or caterpillar; if their enemy besieges them in the land of their cities, whatever plague, whatever sickness there's, 
+"If there's famine in the land, if there's pestilence, if there's blight, mildew, locust or caterpillar; if their enemy besieges them in the land of their cities, whatever plague, whatever sickness there is, 
 whatever prayer and supplication is made by any man, or by all your people Israel, who will each know the plague of his own heart, and spread out his hands toward this house, 
 then hear in the sky, your dwelling place, and forgive, and act, and give to every man according to all his ways, whose heart you know (for you, even you only, know the hearts of all the children of men); 
 that they can fear you all the days that they live in the land which you gave to our fathers. 

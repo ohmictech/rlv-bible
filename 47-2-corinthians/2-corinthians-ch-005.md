@@ -16,6 +16,6 @@ He died for all, that those who live should no longer live for themselves, but f
 So we know no one according to the flesh from now on. Even though we have known Christ according to the flesh, yet now we know him so no more. 
 So if anyone is in Christ, they're a new creation. The old things have passed away. Look, all things have become new. 
 But all things are from God, who made friends with us through Jesus Christ, and gave us the service of making friends; 
-that's, God was in Christ making friends with the world, not counting their false steps against them, and he has handed us the message of making friends. 
+that is, God was in Christ making friends with the world, not counting their false steps against them, and he has handed us the message of making friends. 
 So we're ambassadors for Christ, as though God were appealing through us. We beg you for Christ's sake: make friends with God. 
 God made the one who hadn't drifted to be the drift on our behalf, so that in him we might become the rightness of God. 

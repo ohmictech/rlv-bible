@@ -4,7 +4,7 @@ Nevertheless he held to the drifts of Jeroboam the son of Nebat, with which he m
 Now Mesha king of Moab was a sheep breeder; and he supplied the king of Israel with one hundred thousand lambs and the wool of one hundred thousand rams. 
 But when Ahab was dead, the king of Moab rebelled against the king of Israel. 
 King Jehoram went out of Samaria at that time, and mustered all Israel. 
-He went and sent to Jehoshaphat the king of Judah, saying, "The king of Moab has rebelled against me. Will you go with me against Moab to battle?" He said, "I'll go up. I'm as you're, my people as your people, my horses as your horses." 
+He went and sent to Jehoshaphat the king of Judah, saying, "The king of Moab has rebelled against me. Will you go with me against Moab to battle?" He said, "I'll go up. I'm as you are, my people as your people, my horses as your horses." 
 Then he said, "Which way will we go up?" Jehoram answered, "The way of the wilderness of Edom." 
 So the king of Israel went with the king of Judah and the king of Edom, and they marched for seven days along a circuitous route. There was no water for the army or for the animals that followed them. 
 The king of Israel said, "Alas! God has called these three kings together to deliver them into the hand of Moab." 

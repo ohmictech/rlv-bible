@@ -7,7 +7,7 @@ Then he appeared to over five hundred brothers at once, most of whom remain unti
 Then he appeared to James, then to all the sent ones, 
 and last of all, as to the child born at the wrong time, he appeared to me also. 
 I'm the least of the sent ones, and I'm not fit to be called a sent one, because I hunted down the gathering of God. 
-But by the favor of God I'm what I'm. His favor to me wasn't wasted, but I worked harder than everyone; yet not I, but the favor of God that was with me. 
+But by the favor of God I'm what I am. His favor to me wasn't wasted, but I worked harder than everyone; yet not I, but the favor of God that was with me. 
 Whether then it's I or they, so we announce, and so you trusted. 
 Now if Christ is announced as raised from the dead, how can some of you say that there's no rising again of the dead? 
 But if there's no rising again of the dead, then Christ hasn't been raised either. 

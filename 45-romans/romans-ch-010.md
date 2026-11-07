@@ -3,9 +3,9 @@ I testify about them that they have a passion for God, but not according to know
 Being ignorant of God's rightness, and seeking to establish their own rightness, they didn't subject themselves to the rightness of God. 
 Christ is the fulfillment of the law for rightness to everyone who trusts. 
 Moses writes about the rightness of the law, "The one who does them will live by them." 
-But the rightness which is of trust says this, "Don't say in your heart, 'Who will go up into the sky?' (that's, to bring Christ down); 
-or, 'Who will descend into the deep?' (that's, to bring Christ up from the dead.)" 
-But what does it say? "The word is near you, in your mouth and in your heart;" that's, the word of trust which we announce: 
+But the rightness which is of trust says this, "Don't say in your heart, 'Who will go up into the sky?' (that is, to bring Christ down); 
+or, 'Who will descend into the deep?' (that is, to bring Christ up from the dead.)" 
+But what does it say? "The word is near you, in your mouth and in your heart;" that is, the word of trust which we announce: 
 that if you'll agree with your mouth that Jesus is Lord and trust in your heart that God raised him from the dead, you'll be made whole. 
 With the heart one trusts, resulting in rightness; and with the mouth confession is made resulting in rescue. 
 The Scripture says, "Whoever trusts in him won't be disappointed." 

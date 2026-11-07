@@ -16,7 +16,7 @@ They said to him, "Sit down now, and read it in our hearing." So Baruch read it 
 Now when they had heard all the words, they turned in fear one toward another, and said to Baruch, "We'll surely tell the king of all these words." 
 They asked Baruch, saying, "Tell us now, how did you write all these words at his mouth?" 
 Then Baruch answered them, "He dictated all these words to me with his mouth, and I wrote them with ink in the book." 
-Then the princes said to Baruch, "You and Jeremiah go hide. Don't let anyone know where you're." 
+Then the princes said to Baruch, "You and Jeremiah go hide. Don't let anyone know where you are." 
 They went in to the king into the court, but they had laid up the scroll in the room of Elishama the secretary. Then they told all the words in the hearing of the king. 
 So the king sent Jehudi to get the scroll, and he took it out of the room of Elishama the secretary. Jehudi read it in the hearing of the king, and in the hearing of all the princes who stood beside the king. 
 Now the king was sitting in the winter house in the ninth month, and there was a fire in the brazier burning before him. 

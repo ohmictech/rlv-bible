@@ -5,7 +5,7 @@ who are Israelites; whose is the adoption, the weight, the binding arrangements,
 of whom are the ancestors, and from whom Christ came according to the flesh, who's over all, God, praised for all the eras. Amen. 
 But it isn't as though the word of God has come to nothing. They aren't all Israel that are of Israel. 
 Neither, because they're Abraham's offspring, are they all children. But, "your offspring will be accounted as from Isaac." 
-That's, it isn't the children of the flesh who are children of God, but the children of the promise are counted as heirs. 
+That is, it isn't the children of the flesh who are children of God, but the children of the promise are counted as heirs. 
 This is a word of promise: "At the appointed time I'll come, and Sarah will have a son." 
 Not only so, but Rebekah also conceived by one, by our father Isaac. 
 Being not yet born, neither having done anything good or bad, so that the purpose of God in choosing would stand, not of deeds, but of him who calls, 

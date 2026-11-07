@@ -13,5 +13,5 @@ There's only one lawgiver, the one who's able to rescue and to destroy. But who 
 Now listen, you who say, "Today or tomorrow we'll go to this city, spend a year there, do business, and make money." 
 You don't even know what will happen tomorrow. What's your life? You're a mist that appears for a little time and then disappears. 
 Instead, you ought to say, "If the Lord wills it, we'll live, and do this or that." 
-But as it's, you brag and take pride in it. All such bragging is evil. 
+But as it is, you brag and take pride in it. All such bragging is evil. 
 So anyone who knows the good they ought to do, and doesn't do it, that's their wrongdoing. 

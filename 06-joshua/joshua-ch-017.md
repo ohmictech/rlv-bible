@@ -14,5 +14,5 @@ When the children of Israel had grown strong, they put the Canaanites to forced 
 The children of Joseph spoke to Joshua, saying, "Why have you given me just one lot and one part for an inheritance, since we're a numerous people, because God has blessed us so far?" 
 Joshua said to them, "If you're a numerous people, go up to the forest, and clear land for yourself there in the land of the Perizzites and of the Rephaim, since the hill country of Ephraim is too narrow for you." 
 The children of Joseph said, "The hill country isn't enough for us. All the Canaanites who dwell in the land of the valley have chariots of iron, both those who are in Beth Shean and its towns, and those who are in the valley of Jezreel." 
-Joshua spoke to the house of Joseph, that's, to Ephraim and to Manasseh, saying, "You're a numerous people, and have great power. You won't have one lot only; 
+Joshua spoke to the house of Joseph, that is, to Ephraim and to Manasseh, saying, "You're a numerous people, and have great power. You won't have one lot only; 
 but the hill country will be yours. Although it's a forest, you will cut it down, and it's farthest extent will be yours; for you will drive out the Canaanites, though they have chariots of iron, and though they're strong." 

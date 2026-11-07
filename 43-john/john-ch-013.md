@@ -10,7 +10,7 @@ Simon Peter said to him, "Lord, not my feet only, but also my hands and my head!
 Jesus said to him, "Someone who has bathed only needs to have his feet washed, but is completely clean. You're clean, but not all of you." 
 He knew him who would hand him over; he said, "You aren't all clean." 
 So when he had washed their feet, put his outer garment back on, and sat down again, he said to them, "Do you know what I have done to you? 
-You call me, 'Teacher' and 'Lord.' You say so correctly, for so I'm. 
+You call me, 'Teacher' and 'Lord.' You say so correctly, for so I am. 
 If I then, the Lord and the Teacher, have washed your feet, you also ought to wash one another's feet. 
 I have given you an example, that you should also do as I have done to you. 
 Truly I tell you, a servant isn't greater than his lord, neither is one who's sent greater than he who sent him. 

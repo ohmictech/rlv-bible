@@ -32,4 +32,4 @@ His concubine who was in Shechem also bore him a son, and he named him Abimelech
 Gideon the son of Joash died in a good old age, and was buried in the tomb of Joash his father, in Ophrah of the Abiezrites. 
 As soon as Gideon was dead, the children of Israel turned again and played the prostitute following the Baals, and made Baal Berith their god. 
 The children of Israel didn't remember their God, who had delivered them out of the hand of all their enemies on every side; 
-neither did they show kindness to the house of Jerubbaal, that's, Gideon, according to all the goodness which he had shown to Israel. 
+neither did they show kindness to the house of Jerubbaal, that is, Gideon, according to all the goodness which he had shown to Israel. 

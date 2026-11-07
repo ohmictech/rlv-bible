@@ -21,7 +21,7 @@ Immediately he called them, and they left their father Zebedee in the boat with 
 They went into Capernaum, and immediately on the Sabbath he went into the gathering place and taught. 
 They were astonished at his teaching, for he taught them as one who had authority, and not like the Bible teachers. 
 Immediately there was in their gathering place a man with an unclean spirit, and he cried out, 
-saying, "Ha! What do we have to do with you, Jesus of Nazareth? Have you come to kill us? I know who you're: the Holy One of God!" 
+saying, "Ha! What do we have to do with you, Jesus of Nazareth? Have you come to kill us? I know who you are: the Holy One of God!" 
 Jesus rebuked him, saying, "Be quiet, and come out of him!" 
 The unclean spirit, throwing him into convulsions and crying out with a loud voice, came out of him. 
 They were all amazed, so that they questioned among themselves, saying, "What's this? A new teaching with authority! He even commands the unclean spirits, and they obey him!" 

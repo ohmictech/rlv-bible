@@ -17,7 +17,7 @@ The Holy Spirit also bears witness to us. First he says,
 "I'll remember their mistakes and their living as if there were no law no more." 
 And where these have been released, there's no longer any offering for wrongdoing. 
 So then, brothers and sisters, we have boldness to enter the Holy Place by the blood of Jesus, 
-by a new and living way he opened for us through the curtain, that's, through his flesh. 
+by a new and living way he opened for us through the curtain, that is, through his flesh. 
 And we have a great priest over God's house. 
 So let's come near with a sincere heart, in the full assurance that comes from trust, with our hearts sprinkled clean from a guilty conscience and our bodies washed with pure water. 
 Let's hold tightly to the expectation we declare, without wavering, because the one who promised is trustworthy. 

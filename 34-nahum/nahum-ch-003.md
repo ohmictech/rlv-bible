@@ -14,6 +14,6 @@ Look, your troops among you're women. The gates of your land are set wide open t
 Draw water for the siege. Strengthen your fortresses. Go into the clay, and tread the mortar. Make the brick kiln strong. 
 There the fire will devour you. The sword will cut you off. It'll devour you like the grasshopper. Multiply like grasshoppers. Multiply like the locust. 
 You have increased your merchants more than the stars of the skies. The grasshopper strips and flees away. 
-Your guards are like the locusts, and your officials like the swarms of locusts, which settle on the walls on a cold day, but when the sun appears, they flee away, and their place isn't known where they're. 
+Your guards are like the locusts, and your officials like the swarms of locusts, which settle on the walls on a cold day, but when the sun appears, they flee away, and their place isn't known where they are. 
 Your shepherds slumber, king of Assyria. Your nobles lie down. Your people are scattered on the mountains, and there's no one to gather them. 
 There's no healing your wound, for your injury is fatal. Everyone who hear the report of you clap their hands over you, for who hasn't felt your endless cruelty? 

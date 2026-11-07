@@ -29,7 +29,7 @@ He who carries their carcass will wash his clothes, and be unclean until the eve
 "'These are they which are unclean to you among the creeping things that creep on the earth: the weasel, the rat, any kind of great lizard, 
 the gecko, and the monitor lizard, the wall lizard, the skink, and the chameleon. 
 These are they which are unclean to you among all that creep. Whoever touches them when they're dead will be unclean until the evening. 
-Anything they fall on when they're dead will be unclean; whether it's any vessel of wood, or clothing, or skin, or sack, whatever vessel it's, with which any work is done, it must be put into water, and it will be unclean until the evening. Then it'll be clean. 
+Anything they fall on when they're dead will be unclean; whether it's any vessel of wood, or clothing, or skin, or sack, whatever vessel it is, with which any work is done, it must be put into water, and it will be unclean until the evening. Then it'll be clean. 
 Every earthen vessel into which any of them falls and all that's in it will be unclean. You will break it. 
 All food which may be eaten which is soaked in water will be unclean. All drink that may be drunk in every such vessel will be unclean. 
 Everything whereupon part of their carcass falls will be unclean; whether oven, or range for pots, it will be broken in pieces. They're unclean, and will be unclean to you. 

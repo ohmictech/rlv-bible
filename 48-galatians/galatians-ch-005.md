@@ -7,7 +7,7 @@ In Christ Jesus neither being circumcised nor not being circumcised counts for a
 You were running well! Who interfered with you that you shouldn't obey the truth? 
 This persuasion isn't from him who calls you. 
 A little yeast grows through the whole lump. 
-I have confidence toward you in the Lord that you'll think no other way. But whoever is troubling you'll carry his verdict, whoever he's. 
+I have confidence toward you in the Lord that you'll think no other way. But whoever is troubling you'll carry his verdict, whoever he is. 
 But I, brothers, if I still announce circumcision, why am I still hunted down? Then the trap of the cross would be gone. 
 I wish that those who disturb you'd cut themselves off. 
 You, brothers, were called for freedom. Only don't use your freedom as an opportunity for the flesh, but through love serve one another. 

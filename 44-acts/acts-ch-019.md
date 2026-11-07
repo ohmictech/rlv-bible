@@ -1,7 +1,7 @@
 ﻿While Apollos was at Corinth, Paul, having passed through the upper country, came to Ephesus and found certain students. 
 He said to them, "Did you receive the Holy Spirit when you trusted?" They said to him, "No, we haven't even heard that there's a Holy Spirit." 
 He said, "Into what then were you immersed?" They said, "Into John's immersion." 
-Paul said, "John indeed immersed with the immersion of a change of heart, saying to the people that they should trust in the one who would come after him, that's, in Christ Jesus." 
+Paul said, "John indeed immersed with the immersion of a change of heart, saying to the people that they should trust in the one who would come after him, that is, in Christ Jesus." 
 When they heard this, they were immersed in the name of the Lord Jesus. 
 When Paul had laid his hands on them, the Holy Spirit came on them and they spoke with other languages and spoke for God. 
 They were about twelve men in all. 

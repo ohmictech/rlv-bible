@@ -5,7 +5,7 @@ I'll answer you, and your companions with you.
 Look to the skies, and see. See the skies, which are higher than you. 
 If you have drifted, what effect do you have against him? If your rebellion are multiplied, what do you do to him? 
 If you're righteous, what do you give him? Or what does he receive from your hand? 
-Your guilt may hurt a man as you're, and your righteousness may profit a son of man. 
+Your guilt may hurt a man as you are, and your righteousness may profit a son of man. 
 "By reason of the multitude of oppressions they cry out. They cry for help by reason of the arm of the mighty. 
 But no one says, 'Where is God my Maker, who gives songs in the night, 
 who teaches us more than the animals of the earth, and makes us wiser than the birds of the sky?' 

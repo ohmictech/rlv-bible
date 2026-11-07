@@ -10,7 +10,7 @@ Don't eat it raw, nor boiled at all with water, but roasted with fire; with its 
 You will let nothing of it remain until the morning; but that which remains of it until the morning you will burn with fire. 
 This is how you will eat it: with your belt on your waist, your sandals on your feet, and your staff in your hand; and you will eat it in haste: it's God's Passover. 
 I'll go through the land of Egypt in that night, and will strike all the firstborn in the land of Egypt, both man and animal. I'll execute judgments against all the gods of Egypt. I'm God. 
-The blood will be to you for a token on the houses where you're. When I see the blood, I'll pass over you, and no plague will be on you to destroy you when I strike the land of Egypt. 
+The blood will be to you for a token on the houses where you are. When I see the blood, I'll pass over you, and no plague will be on you to destroy you when I strike the land of Egypt. 
 This day will be a memorial for you. You will keep it as a feast to God. You will keep it as a feast throughout your generations by an ordinance for the eras. 
 "'Seven days you will eat unleavened bread; even the first day you will put away yeast out of your houses, for whoever eats leavened bread from the first day until the seventh day, that soul will be cut off from Israel. 
 In the first day there will be to you a holy convocation, and in the seventh day a holy convocation; no kind of work will be done in them, except that which every man must eat, only that may be done by you. 

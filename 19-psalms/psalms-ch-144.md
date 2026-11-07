@@ -12,4 +12,4 @@ Rescue me, and deliver me out of the hands of foreigners, whose mouths speak dec
 Then our sons will be like well-nurtured plants, our daughters like pillars carved to adorn a palace. 
 Our barns are full, filled with all kinds of provision. Our sheep produce thousands and ten thousands in our fields. 
 Our oxen will pull heavy loads. There's no breaking in, and no going away, and no outcry in our streets. 
-Happy are the people who are in such a situation. Happy are the people whose God he's. 
+Happy are the people who are in such a situation. Happy are the people whose God he is. 

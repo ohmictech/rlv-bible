@@ -9,7 +9,7 @@ But as for the mighty man, he had the earth. The honorable man, he lived in it.
 You have sent widows away empty, and the arms of the fatherless have been broken. 
 So snares are around you. Sudden fear troubles you, 
 or darkness, so that you can't see, and floods of waters cover you. 
-"Isn't God in the heights of the sky? See the height of the stars, how high they're! 
+"Isn't God in the heights of the sky? See the height of the stars, how high they are! 
 You say, 'What does God know? Can he judge through the thick darkness? 
 Thick clouds are a covering to him, so that he doesn't see. He walks on the vault of the sky.' 
 Will you keep the old way, which guilty men have trodden, 

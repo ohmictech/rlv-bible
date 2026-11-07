@@ -10,7 +10,7 @@ Much more then, being now made right by his blood, we will be rescued from God's
 For if while we were enemies, we were brought back to God through the death of his Son, much more, being brought back, we will be rescued by his life. 
 Not only so, but we also take pride in God through our Lord Jesus Christ, through whom we have now received the bringing back together. 
 Therefore, as the mistake entered into the world through one man, and death through the mistake, so death passed to everyone because all missed the mark. 
-For until the law, the mistake was in the world; but the mistake is not charged when there is no law. 
+For until the law came, the mistake was in the world; but the mistake is not charged when there is no law. 
 Nevertheless death reigned from Adam until Moses, even over those whose missing the mark wasn't like Adam's disobedience, who is a foreshadowing of him who was to come. 
 But the free gift isn't like the false step. For if by the false step of the one everyone died, much more did the gift of God and the free gift through the one man, Jesus Christ, overflow to everyone. 
 The gift is not as through one who missed the mark; for the verdict came by one to a sentence, but the free gift followed many false steps to being made right. 

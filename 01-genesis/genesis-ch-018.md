@@ -1,33 +1,33 @@
-﻿God appeared to him by the oaks of Mamre, as he sat in the tent door in the heat of the day. 
-He lifted up his eyes and looked, and saw that three men stood near him. When he saw them, he ran to meet them from the tent door, and bowed himself to the earth, 
-and said, "My lord, if now I have found favor in your sight, please don't go away from your servant. 
-Now let a little water be fetched, wash your feet, and rest yourselves under the tree. 
-I will get a piece of bread so you can refresh your heart. After that you may go your way, now that you have come to your servant." They said, "Very well, do as you have said." 
+﻿God appeared to him by the great trees of Mamre, as he sat at the entrance of his tent in the heat of the day. 
+He looked up and saw three men standing near him. When he saw them, he ran from the tent entrance to meet them and bowed low to the ground, 
+and said, "My lord, if I have found favor with you, please don't pass by your servant. 
+Let a little water be brought so you can wash your feet, and rest under the tree. 
+Let me bring a piece of bread so you can refresh yourselves. After that you may go your way, now that you have come to your servant." They said, "Very well, do as you have said." 
 Abraham hurried into the tent to Sarah, and said, "Quickly prepare three seahs of fine meal, knead it, and make cakes." 
-Abraham ran to the herd, and fetched a tender and good calf, and gave it to the servant. He hurried to dress it. 
-He took butter, milk, and the calf which he had dressed, and set it before them. He stood by them under the tree, and they ate. 
+Abraham ran to the herd, took a tender choice calf, and gave it to the servant, who hurried to prepare it. 
+He took curds, milk, and the calf he had prepared, and set it before them. He stood by them under the tree, and they ate. 
 They asked him, "Where is Sarah, your wife?" He said, "There, in the tent." 
-He said, "I will certainly return to you at about this time next year; and behold, Sarah your wife will have a son." Sarah heard in the tent door, which was behind him. 
+He said, "I will certainly come back to you at this time next year, and look, Sarah your wife will have a son." Sarah was listening at the tent entrance behind him. 
 Now Abraham and Sarah were old, well advanced in age. Sarah had passed the age of childbearing. 
-Sarah laughed within herself, saying, "After I have grown old will I have pleasure, my lord being old also?" 
+Sarah laughed to herself, saying, "After I have grown old, will I still have this pleasure, my lord being old too?" 
 God said to Abraham, "Why did Sarah laugh, saying, 'Will I really bear a child when I am old?' 
 Is anything too hard for God? At the set time I will return to you, when the season comes around, and Sarah will have a son." 
 Then Sarah denied it, saying, "I didn't laugh," for she was afraid. He said, "No, but you did laugh." 
 The men rose up from there, and looked toward Sodom. Abraham went with them to see them on their way. 
 God said, "Will I hide from Abraham what I do, 
 since Abraham will surely become a great and mighty nation, and all the nations of the earth will be blessed in him? 
-For I have known him, to the end that he may command his children and his household after him, that they may keep the way of God, to do righteousness and justice; to the end that God may bring on Abraham that which he has spoken of him." 
-God said, "Because the cry of Sodom and Gomorrah is great, and because their mistake is very grievous, 
+For I have chosen him, so that he will command his children and his household after him to keep the way of God by doing what is right and just, so that God may bring about for Abraham what he has promised him." 
+God said, "Because the outcry against Sodom and Gomorrah is great, and because their wrongdoing is very serious, 
 I will go down now, and see whether their deeds are as bad as the reports which have come to me. If not, I will know." 
-The men turned from there, and went toward Sodom, but Abraham stood yet before God. 
-Abraham came near, and said, "Will you consume the righteous with the guilty? 
-What if there are fifty righteous within the city? Will you consume and not spare the place for the fifty righteous who are in it? 
-May it be far from you to do things like that, to kill the righteous with the guilty, so that the righteous should be like the guilty. May that be far from you. Shouldn't the Judge of all the earth do right?" 
-God said, "If I find in Sodom fifty righteous within the city, then I will spare the whole place for their sake." 
-Abraham answered, "See now, I have taken it on myself to speak to the Lord, although I am dust and ashes. 
-What if there will lack five of the fifty righteous? Will you destroy all the city for lack of five?" He said, "I will not destroy it if I find forty-five there." 
+The men turned from there and went toward Sodom, but Abraham still stood before God. 
+Abraham came near and said, "Will you sweep away those who are in the right along with the guilty? 
+What if there are fifty people who are in the right in the city? Will you sweep it away and not spare the place for the sake of the fifty who are in it? 
+Far be it from you to do such a thing, to kill those who are in the right along with the guilty, so that those in the right end up like the guilty. Far be it from you! Shouldn't the Judge of all the earth do what is right?" 
+God said, "If I find fifty people in the right in Sodom, then I will spare the whole place for their sake." 
+Abraham answered, "Look, I have been bold enough to speak to the Lord, though I am only dust and ashes. 
+What if there are five fewer than fifty who are in the right? Will you destroy the whole city because of those five?" He said, "I will not destroy it if I find forty-five there." 
 He spoke to him yet again, and said, "What if there are forty found there?" He said, "I will not do it for the forty's sake." 
 He said, "Oh don't let the Lord be angry, and I will speak. What if there are thirty found there?" He said, "I will not do it if I find thirty there." 
-He said, "See now, I have taken it on myself to speak to the Lord. What if there are twenty found there?" He said, "I will not destroy it for the twenty's sake." 
+He said, "Look, I have been bold enough to speak to the Lord. What if there are twenty found there?" He said, "I will not destroy it for the twenty's sake." 
 He said, "Oh don't let the Lord be angry, and I will speak just once more. What if ten are found there?" He said, "I will not destroy it for the ten's sake." 
-God went his way as soon as he had finished communing with Abraham, and Abraham returned to his place. 
+God went on his way when he had finished speaking with Abraham, and Abraham returned to his place. 

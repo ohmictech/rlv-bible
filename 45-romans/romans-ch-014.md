@@ -20,7 +20,7 @@ So then, let's pursue what makes for wholeness, and what builds one another up.
 Don't overthrow God's work for food's sake. All things indeed are clean, however it is bad for that person who creates a stumbling block by eating. 
 It is good to not eat meat, drink wine, nor do anything by which your brother stumbles, is trapped, or is made weak. 
 Do you have trust? Have it to yourself before God. Flourishing is the one who doesn't judge themselves in that which they approve. 
-But the one who doubts is sentenced if they eat, because it isn't of trust; and whatever is not of trust is a miss. 
+But the one who doubts is sentenced if they eat, because it isn't of trust; and whatever is not of trust is the drift. 
 Now to him who is able to establish you according to my Good News and the announcing of Jesus Christ, according to the unveiling of the secret which has been kept secret through long ages, 
 but now is revealed, and by the Scriptures of the spokesmen, according to the commandment of the God of the eras, is made known for obedience of trust to all the nations; 
 to the only wise God, through Jesus Christ, to whom be the weight for all the eras! Amen. 

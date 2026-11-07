@@ -18,7 +18,7 @@ The way of wholeness, they haven't known."
 "There is no fear of God before their eyes." 
 Now we know that whatever things the law says, it speaks to those who are under the law, that every mouth may be closed, and all the world may be brought under the verdict of God. 
 Because by the deeds of the law, no flesh will be made right in his sight; for through the law comes the knowledge of the drift. 
-But now apart from the law, a rightness of God has been revealed, being testified by the law and the prophets; 
+But now apart from the law, the rightness of God has been revealed, being testified by the law and the prophets; 
 even the rightness of God through trust in Jesus Christ to all and on everyone who trusts. For there is no distinction, 
 for all have drifted, and fall short of the weight of God; 
 being made right freely by his favor through the setting free that is in Christ Jesus, 

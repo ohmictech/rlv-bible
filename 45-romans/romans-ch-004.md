@@ -1,14 +1,14 @@
 ﻿What then will we say that Abraham, our forefather, has found according to the flesh? 
 If Abraham was made right by deeds, he has something to boast about, but not toward God. 
-What does the Scripture say? "Abraham trusted God, and it was credited to him as rightness." 
+What does the Scripture say? "Abraham trusted God, and it was counted to him as rightness." 
 Now to him who works, the earned result isn't counted as a gift, but as something owed. 
-But to him who doesn't work, but trusts in him who makes the one with no regard for God right, his trust is credited as rightness. 
-Even as David also pronounces flourishing on the one to whom God credits rightness apart from deeds: 
+But to him who doesn't work, but trusts in him who makes the one with no regard for God right, his trust is counted as rightness. 
+Even as David also pronounces flourishing on the one who God counts rightness to apart from deeds: 
 "Flourishing are they whose wrongs are released, whose mistakes are covered. 
 Flourishing is the one whom the Lord will by no means charge with the drift." 
-Is this flourishing then pronounced only on the circumcised, or on the uncircumcised also? We say that trust was credited to Abraham as rightness. 
+Is this flourishing then pronounced only on the circumcised, or on the uncircumcised also? We say that trust was counted to Abraham as rightness. 
 How then was it counted? When he was circumcised, or when he wasn't? Not when he was circumcised, but when he wasn't. 
-He received the sign of circumcision, a seal of the rightness of the trust he had while he wasn't yet circumcised, so that he'd be the father of everyone who trusts, though they aren't circumcised, so that rightness would also be credited to them. 
+He received the sign of circumcision, a seal of the rightness of the trust he had while he wasn't yet circumcised, so that he'd be the father of everyone who trusts, even though they aren't circumcised, so that rightness would also be counted to them. 
 and he's the father of the circumcised, for those who aren't only circumcised, but who also walk in the steps of that trust of our father Abraham, which he had while he wasn't yet circumcised. 
 The promise to Abraham and to his offspring that he'd be heir of the world wasn't through the law, but through the rightness of trust. 
 If those who are of the law are heirs, trust is made void, and the promise is made of no effect. 

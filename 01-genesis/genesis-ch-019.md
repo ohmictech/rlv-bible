@@ -1,38 +1,38 @@
-﻿The two messengers came to Sodom at evening. Lot sat in the gate of Sodom. Lot saw them, and rose up to meet them. He bowed himself with his face to the earth, 
-and he said, "See now, my lords, please come into your servant's house, stay all night, wash your feet, and you can rise up early, and go on your way." They said, "No, but we'll stay in the street all night." 
-He urged them greatly, and they came in with him, and entered into his house. He made them a feast, and baked unleavened bread, and they ate. 
-But before they lay down, the men of the city, the men of Sodom, surrounded the house, both young and old, everyone from every quarter. 
-They called to Lot, and said to him, "Where are the men who came in to you this night? Bring them out to us, that we can have sex with them." 
-Lot went out to them through the door, and shut the door after himself. 
-He said, "Please, my brothers, don't act so guiltily. 
-See now, I have two virgin daughters. Please let me bring them out to you, and you can do to them what seems good to you. Only don't do anything to these men, because they have come under the shadow of my roof." 
-They said, "Stand back!" Then they said, "This one fellow came in to live as a foreigner, and he appoints himself a judge. Now we'll deal worse with you than with them!" They pressed hard on the man Lot, and came near to break the door. 
-But the men reached out their hand, and brought Lot into the house to them, and shut the door. 
-They struck the men who were at the door of the house with blindness, both small and great, so that they wearied themselves to find the door. 
-The men said to Lot, "Do you have anybody else here? Sons-in-law, your sons, your daughters, and whomever you have in the city, bring them out of the place: 
-for we'll destroy this place, because the outcry against them has grown so great before God that God has sent us to destroy it." 
-Lot went out, and spoke to his sons-in-law, who were pledged to marry his daughters, and said, "Get up! Get out of this place, for God will destroy the city!" But he seemed to his sons-in-law to be joking. 
-When the morning came, then the messengers hurried Lot, saying, "Get up! Take your wife and your two daughters who are here, lest you be consumed in the guilt of the city." 
-But he lingered; and the men grabbed his hand, his wife's hand, and his two daughters' hands, God being merciful to him; and they took him out, and set him outside of the city. 
-It came to pass, when they had taken them out, that he said, "Escape for your life! Don't look behind you, and don't stay anywhere in the plain. Escape to the mountains, lest you be consumed!" 
-Lot said to them, "Oh, not so, my lord. 
-See now, your servant has found favor in your sight, and you have magnified your loving kindness, which you have shown to me in saving my life. I can't escape to the mountain, lest bad overtake me, and I die. 
-See now, this city is near to flee to, and it's a little one. Oh let me escape there (isn't it a little one?), and my soul will live." 
-He said to him, "Look, I have granted your request concerning this thing also, that I won't overthrow the city of which you have spoken. 
-Hurry, escape there, for I can't do anything until you get there." So the name of the city was called Zoar. 
-The sun had risen on the earth when Lot came to Zoar. 
-Then God rained on Sodom and on Gomorrah sulfur and fire from God out of the sky. 
-He overthrew those cities, all the plain, all the inhabitants of the cities, and that which grew on the ground. 
-But Lot's wife looked back from behind him, and she became a pillar of salt. 
-Abraham went up early in the morning to the place where he had stood before God. 
-He looked toward Sodom and Gomorrah, and toward all the land of the plain, and saw that the smoke of the land went up as the smoke of a furnace. 
-When God destroyed the cities of the plain, God remembered Abraham, and sent Lot out of the middle of the overthrow, when he overthrew the cities in which Lot lived. 
-Lot went up out of Zoar, and lived in the mountain, and his two daughters with him; for he was afraid to live in Zoar. He lived in a cave with his two daughters. 
-The firstborn said to the younger, "Our father is old, and there isn't a man on the earth to come in to us in the way of all the earth. 
-Come, let's make our father drink wine, and we'll lie with him, that we can preserve our father's family line." 
-They made their father drink wine that night: and the firstborn went in, and lay with her father. He didn't know when she lay down, nor when she arose. 
-It came to pass on the next day, that the firstborn said to the younger, "Look, I lay last night with my father. Let's make him drink wine again tonight. You go in, and lie with him, that we can preserve our father's family line." 
-They made their father drink wine that night also. The younger went and lay with him. He didn't know when she lay down, nor when she got up. 
-Thus both of Lot's daughters were with child by their father. 
-The firstborn bore a son, and named him Moab. He's the father of the Moabites to this day. 
-The younger also bore a son, and called his name Ben Ammi. He's the father of the children of Ammon to this day. 
+﻿The two messengers came to Sodom in the evening. Lot was sitting in the city gate. When Lot saw them, he got up to meet them and bowed low with his face to the ground, 
+and he said, "Please, my lords, come to your servant's house and stay the night. Wash your feet, and you can get up early and go on your way." They said, "No. We'll spend the night in the street." 
+He kept urging them, so they went with him and came into his house. He made them a meal and baked bread without yeast, and they ate. 
+But before they lay down, the men of the city, the men of Sodom, surrounded the house, young and old, everyone from every part of the city. 
+They called out to Lot, "Where are the men who came to you tonight? Bring them out so we can have sex with them." 
+Lot went out to them through the doorway and shut the door behind him. 
+He said, "Please, my brothers, don't do this bad thing. 
+Look, I have two daughters who have never been with a man. Let me bring them out to you, and you can do whatever seems good to you. Only don't do anything to these men, because they've come under my roof for protection." 
+They said, "Get out of the way!" Then they said, "This outsider came here to live among us, and now he's telling us what to do. We'll treat you worse than them!" They pushed hard against Lot and moved in to break the door down. 
+But the men reached out, pulled Lot back into the house with them, and shut the door. 
+They struck the men at the doorway with blindness, young and old alike, so that they wore themselves out trying to find the door. 
+The men said to Lot, "Is there anyone else of yours here? Sons-in-law, sons, daughters, anyone you have in the city, get them out of this place, 
+because we're going to destroy it. The outcry against these people has grown so loud before God that God sent us to destroy it." 
+So Lot went out and spoke to his sons-in-law, who were engaged to his daughters. He said, "Get up! Get out of this place, because God is going to destroy the city!" But to his sons-in-law he sounded like he was joking. 
+When morning came, the messengers hurried Lot along. They said, "Get up! Take your wife and your two daughters who are here, or you'll be swept away with the city's wrongdoing." 
+But he kept delaying, so the men grabbed his hand, his wife's hand, and the hands of his two daughters, because God was being merciful to him, and they brought him out and set him outside the city. 
+When they had brought them outside, one of them said, "Run for your life! Don't look behind you, and don't stop anywhere on the plain. Run for the mountains, or you'll be swept away!" 
+Lot said to them, "No, please, my lord. 
+Look, your servant has found favor with you, and you've shown me such loving kindness by saving my life. But I can't make it to the mountains; something bad will catch me and I'll die. 
+Look, that town over there is close enough to run to, and it's a small one. Please let me escape there. It's small, isn't it? And I'll live." 
+He said to him, "All right, I've granted this request too. I won't destroy the town you're talking about. 
+Hurry, get there, because I can't do anything until you arrive." That's why the town is called Zoar. 
+The sun had risen over the land by the time Lot reached Zoar. 
+Then God rained sulfur and fire on Sodom and Gomorrah from the sky. 
+He destroyed those cities and the whole plain, everyone living in the cities, and everything that grew in the ground. 
+But Lot's wife looked back, and she became a pillar of salt. 
+Abraham got up early in the morning and went to the place where he had stood before God. 
+He looked down toward Sodom and Gomorrah and across the whole plain, and saw smoke rising from the land like smoke from a furnace. 
+When God destroyed the cities of the plain, he remembered Abraham and brought Lot out of the destruction, out of the cities where Lot had lived. 
+Lot left Zoar and settled in the mountains with his two daughters, because he was afraid to stay in Zoar. He lived in a cave with his two daughters. 
+The older one said to the younger, "Our father is old, and there's no man anywhere around here to sleep with us, the way people do everywhere. 
+Come on, let's get our father drunk and sleep with him, so we can keep our family line going." 
+That night they got their father drunk, and the older daughter went in and slept with him. He never knew when she lay down or when she got up. 
+The next day the older one said to the younger, "Look, I slept with my father last night. Let's get him drunk again tonight, and you go in and sleep with him, so we can keep our family line going." 
+They got their father drunk again that night, and the younger daughter went in and slept with him. He never knew when she lay down or when she got up. 
+So both of Lot's daughters became pregnant by their father. 
+The older one gave birth to a son and named him Moab. He's the father of the Moabites, who are still here today. 
+The younger one also gave birth to a son and named him Ben Ammi. He's the father of the Ammonites, who are still here today. 

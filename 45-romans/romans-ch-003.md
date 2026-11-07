@@ -7,10 +7,10 @@ Not a chance! Then how will God judge the world?
 If God's truth through my lie overflowed to his weight, why am I also still judged as one who drifts? 
 Why not (as we're slanderously reported, and as some affirm that we say), "Let's do bad, that good may come?" Their sentence is just. 
 What then? Are we better than they? No, in no way. We previously warned both Jewish people and Greeks that they're all under the drift. 
-As it's written, "There's no one right; no, not one. 
+As it's written, "There's no one in the right; no, not one. 
 There's no one who understands. There's no one who seeks after God. 
 They have all turned away. They have together become unprofitable. There's no one who does good, no, not so much as one." 
-"Their throat is an open tomb. With their tongues they have used deceit." "The poison of vipers is under their lips." 
+"Their throat is an open tomb. Their tongues are deceitful." "The poison of vipers is under their lips." 
 "Their mouth is full of cursing and bitterness." 
 "Their feet are swift to shed blood. 
 Ruin and misery are in their ways. 
@@ -22,10 +22,10 @@ But now apart from the law, the rightness of God has been revealed, being testif
 even the rightness of God through trust in Jesus Christ to all and on everyone who trusts. There's no distinction, 
 for all have drifted, and fall short of the weight of God; 
 being made right freely by his favor through the setting free that's in Christ Jesus, 
-whom God sent to be a mercy seat through trust in his blood, for a demonstration of his rightness through the overlooking of prior mistakes, in God's forbearance; 
+who God sent to be a sacrifice that makes things right through trust in his blood, for a demonstration of his rightness through the overlooking of prior mistakes, while he held back; 
 to demonstrate his rightness at this present time, so that he'd himself be right and the one who makes right the person who has trust in Jesus. 
 Where then is the boasting? It's excluded. By what kind of law? Of deeds? No, but by a law of trust. 
 We maintain that a man is made right by trust apart from the deeds of the law. 
 Or is God the God of Jewish people only? Isn't he the God of the nations also? Yes, of the nations also, 
-since indeed there's one God who will make right the circumcised by trust and the uncircumcised through trust. 
+since indeed there's one God who will make right both the circumcised and uncircumcised through trust. 
 Do we then nullify the law through trust? Not a chance! No, we establish the law. 

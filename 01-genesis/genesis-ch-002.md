@@ -1,25 +1,25 @@
-﻿The sky, the earth, and all their vast array were finished. 
-On the seventh day God finished his work which he had done; and he rested on the seventh day from all his work which he had done. 
-God blessed the seventh day, and made it holy, because he rested in it from all his work of creation which he had done. 
-This is the history of the generations of the sky and of the earth when they were created, in the day that God made the earth and the sky. 
-No plant of the field was yet on the earth, and no herb of the field had yet sprung up; for God had not caused it to rain on the earth. There was not a man to till the ground, 
-but a mist went up from the earth, and watered the whole surface of the ground. 
-God formed man from the dust of the ground, and breathed into his nostrils the breath of life; and man became a living soul. 
+﻿The sky, the earth, and everything in them were finished. 
+By the seventh day God had finished his work, and on the seventh day he rested from all of it. 
+God blessed the seventh day and made it holy, because he rested in it from all his work of creating. 
+This is the account of the sky and the earth when they were created, in the day that God made the earth and the sky. 
+No plant of the field was yet on the earth, and no wild plant had sprung up, because God had not sent rain on the earth, and there was no one to work the ground, 
+but a mist rose from the earth and watered the whole surface of the ground. 
+God formed the man from the dust of the ground and breathed into his nostrils the breath of life, and the man became a living being. 
 God planted a garden eastward, in Eden, and there he put the man whom he had formed. 
-Out of the ground God made every tree to grow that is pleasant to the sight, and good for food, including the tree of life in the middle of the garden and the tree of the knowledge of good and bad. 
-A river went out of Eden to water the garden; and from there it was parted, and became the source of four rivers. 
+Out of the ground God made every tree grow that is pleasant to look at and good for food, including the tree of life in the middle of the garden and the tree of the knowledge of good and bad. 
+A river flowed out of Eden to water the garden, and from there it divided and became four rivers. 
 The name of the first is Pishon: it flows through the whole land of Havilah, where there is gold; 
-and the gold of that land is good. Bdellium and onyx stone are also there. 
-The name of the second river is Gihon. It is the same river that flows through the whole land of Cush. 
-The name of the third river is Hiddekel. This is the one which flows in front of Assyria. The fourth river is the Euphrates. 
-God took the man, and put him into the garden of Eden to cultivate and keep it. 
-God commanded the man, saying, "You may freely eat of every tree of the garden; 
-but you shall not eat of the tree of the knowledge of good and bad; for in the day that you eat of it, you will surely die." 
-God said, "It is not good for the man to be alone. I will make him a helper comparable to him." 
-Out of the ground God formed every animal of the field, and every bird of the sky, and brought them to the man to see what he would call them. Whatever the man called every living creature became its name. 
-The man gave names to all livestock, and to the birds of the sky, and to every animal of the field; but for man there was not found a helper comparable to him. 
+and the gold of that land is good. Aromatic resin and onyx stone are also there. 
+The name of the second river is Gihon. It winds through the whole land of Cush. 
+The name of the third river is Tigris. It flows east of Assyria. The fourth river is the Euphrates. 
+God took the man and settled him in the garden of Eden to work it and guard it. 
+God commanded the man, "You may eat from any tree in the garden; 
+but you must not eat from the tree of the knowledge of good and bad, because on the day you eat from it, you will surely die." 
+God said, "It is not good for the man to be alone. I will make him a helper who is right for him." 
+God formed every animal of the field and every bird of the sky out of the ground, and brought them to the man to see what he would call them; and whatever the man called each living creature, that was its name. 
+The man gave names to all the livestock, to the birds of the sky, and to every animal of the field; but for the man no helper was found who was right for him. 
 God caused the man to fall into a deep sleep. As the man slept, he took one of his ribs, and closed up the flesh in its place. 
-God made a woman from the rib which he had taken from the man, and brought her to the man. 
-The man said, "This is now bone of my bones, and flesh of my flesh. She will be called 'woman,' because she was taken out of Man." 
+God made a woman from the rib he had taken out of the man, and brought her to him. 
+The man said, "At last! This is bone of my bones and flesh of my flesh. She will be called 'woman,' because she was taken out of man." 
 Therefore a man will leave his father and his mother, and will join with his wife, and they will be one flesh. 
 The man and his wife were both naked, and they were not ashamed. 

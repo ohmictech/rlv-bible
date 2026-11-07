@@ -26,7 +26,7 @@ God came down in the cloud, and spoke to him, and took of the Spirit that was on
 But two men remained in the camp. The name of one was Eldad, and the name of the other Medad; and the Spirit rested on them. They were of those who were written, but had not gone out to the Tent; and they prophesied in the camp. 
 A young man ran, and told Moses, and said, "Eldad and Medad are prophesying in the camp!" 
 Joshua the son of Nun, the servant of Moses, one of his chosen men, answered, "My lord Moses, forbid them!" 
-Moses said to him, "Are you jealous for my sake? I wish that all God's people were prophets, that God would put his Spirit on them!" 
+Moses said to him, "Are you jealous for my sake? I wish that all God's people were spokesmen, that God would put his Spirit on them!" 
 Moses went into the camp, he and the elders of Israel. 
 A wind from God went out and brought quails from the sea, and let them fall by the camp, about a day's journey on this side, and a day's journey on the other side, around the camp, and about two cubits above the surface of the earth. 
 The people rose up all that day, and all of that night, and all the next day, and gathered the quails. He who gathered least gathered ten homers; and they spread them all out for themselves around the camp. 

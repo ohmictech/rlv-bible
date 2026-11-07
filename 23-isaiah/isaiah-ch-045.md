@@ -13,13 +13,13 @@ I have made the earth, and created man on it. I, even my hands, have stretched o
 I have raised him up in righteousness, and I will make all his ways straight. He shall build my city, and he shall let my exiles go free, not for price nor reward," says the God of Armies. 
 God says: "The labor of Egypt, and the merchandise of Ethiopia, and the Sabeans, men of stature, will come over to you, and they will be yours. They will go after you. They shall come over in chains. They will bow down to you. They will make supplication to you: 'Surely God is in you; and there is no one else. There is no other god. 
 Most certainly you are a God who has hidden yourself, God of Israel, the Savior.'" 
-They will be disappointed, yes, confounded, all of them. Those who are makers of idols will go into confusion together. 
-Israel will be saved by God with an everlasting salvation. You will not be disappointed nor confounded to ages everlasting. 
+They will be disappointed, yes, confounded, everyone. Those who are makers of idols will go into confusion together. 
+Israel will be saved by God with an perpetual salvation. You will not be disappointed nor confounded to ages perpetual. 
 For God who created the heavens, the God who formed the earth and made it, who established it and didn't create it a waste, who formed it to be inhabited says: "I am God. There is no other. 
 I have not spoken in secret, in a place of the land of darkness. I didn't say to the offspring of Jacob, 'Seek me in vain.' I, God, speak righteousness. I declare things that are right. 
 "Assemble yourselves and come. Draw near together, you who have escaped from the nations. Those have no knowledge who carry the wood of their engraved image, and pray to a god that can't save. 
 Declare and present it. Yes, let them take counsel together. Who has shown this from ancient time? Who has declared it of old? Haven't I, God? There is no other God besides me, a just God and a Savior. There is no one besides me. 
 "Look to me, and be saved, all the ends of the earth; for I am God, and there is no other. 
 I have sworn by myself. The word has gone out of my mouth in righteousness, and will not be revoked, that to me every knee shall bow, every tongue shall take an oath. 
-They will say of me, 'There is righteousness and strength only in God.'" Even to him will men come. All those who raged against him will be disappointed. 
+They will say of me, 'There is righteousness and strength only in God.'" Even to him will men come. Everyone who raged against him will be disappointed. 
 All the offspring of Israel will be justified in God, and will rejoice! 

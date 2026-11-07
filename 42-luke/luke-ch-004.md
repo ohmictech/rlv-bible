@@ -33,11 +33,11 @@ and they were astonished at his teaching, for his word was with authority.
 In the gathering place there was a man who had an unclean spirit; and he cried out with a loud voice, 
 saying, "Ah! what have we to do with you, Jesus of Nazareth? Have you come to kill us? I know who you are: the Holy One of God!" 
 Jesus rebuked him, saying, "Be quiet and come out of him!" When the unclean spirit had thrown him down in the middle of them, it came out of him without harming him. 
-Amazement came on all of them, and they said to one another, "What is this message? For with authority and power he commands the unclean spirits, and they come out!" 
+Amazement came on everyone, and they said to one another, "What is this message? For with authority and power he commands the unclean spirits, and they come out!" 
 News about him went out into every place of the surrounding region. 
 He rose up from the gathering place and entered into Simon's house. Simon's mother-in-law was suffering from a high fever, and they begged him to help her. 
 He stood over her and rebuked the fever, and it left her. Immediately she rose up and served them. 
-When the sun was setting, all those who had any sick with various diseases brought them to him; and he laid his hands on every one of them, and healed them. 
+When the sun was setting, everyone who had any sick with various diseases brought them to him; and he laid his hands on every one of them, and healed them. 
 Unclean spirits also came out of many, crying out and saying, "You are the Christ, the Son of God!" He rebuked them and didn't let them speak, because they knew he was the Christ. 
 When it was day, he departed and went into an uninhabited place and the crowds looked for him, and came to him, and held on to him, so that he wouldn't go away from them. 
 But he said to them, "I must preach the good news of God's reign to the other cities also, because that is why I was sent." 

@@ -13,7 +13,7 @@ The time has come! The day draws near. Don't let the buyer rejoice, nor the sell
 For the seller won't return to that which is sold, although they are still alive; for the vision concerns the whole multitude of it. None will return. None will strengthen himself in the iniquity of his life. 
 They have blown the trumpet, and have made all ready; but no one goes to the battle, for my wrath is on all its multitude. 
 "'The sword is outside, and the pestilence and the famine within. He who is in the field will die by the sword. He who is in the city will be devoured by famine and pestilence. 
-But of those who escape, they will escape and will be on the mountains like doves of the valleys, all of them moaning, everyone in his iniquity. 
+But of those who escape, they will escape and will be on the mountains like doves of the valleys, everyone moaning, everyone in his iniquity. 
 All hands will be feeble, and all knees will be weak as water. 
 They will also clothe themselves with sackcloth, and horror will cover them. Shame will be on all faces, and baldness on all their heads. 
 They will cast their silver in the streets, and their gold will be as an unclean thing. Their silver and their gold won't be able to deliver them in the day of God's wrath. They won't satisfy their souls or fill their bellies; because it has been the stumbling block of their iniquity. 
@@ -23,5 +23,5 @@ I will also turn my face from them, and they will profane my secret place. Robbe
 "'Make chains, for the land is full of bloody crimes, and the city is full of violence. 
 Therefore I will bring the worst of the nations, and they will possess their houses. I will also make the pride of the strong to cease. Their holy places will be profaned. 
 Destruction comes! They will seek peace, and there will be none. 
-Mischief will come on mischief, and rumor will be on rumor. They will seek a vision of the prophet; but the law will perish from the priest, and counsel from the elders. 
+Mischief will come on mischief, and rumor will be on rumor. They will seek a vision of the spokesman; but the law will perish from the priest, and counsel from the elders. 
 The king will mourn, and the prince will be clothed with desolation. The hands of the people of the land will be troubled. I will do to them after their way, and according to their own judgments I will judge them. Then they will know that I am God.'" 

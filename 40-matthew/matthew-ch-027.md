@@ -22,7 +22,7 @@ But the governor answered them, "Which of the two do you want me to release to y
 Pilate said to them, "What then should I do with Jesus who is called Christ?" They all said to him, "Let him be crucified!" 
 But the governor said, "Why? What bad thing has he done?" But they shouted all the louder, saying, "Let him be crucified!" 
 So when Pilate saw that nothing was being gained and that a riot was starting, he took water and washed his hands in front of the crowd, saying, "I am innocent of the blood of this upright man. You see to it." 
-All the people answered, "May his blood be on us and on our children!" 
+Everyone answered, "May his blood be on us and on our children!" 
 Then he released Barabbas to them, but he had Jesus flogged and handed him over to be crucified. 
 Then the governor's soldiers took Jesus into the governor's headquarters and gathered the whole garrison together against him. 
 They stripped him and put a scarlet robe on him. 

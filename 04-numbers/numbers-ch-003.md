@@ -36,7 +36,7 @@ The prince of the fathers' house of the families of Merari was Zuriel the son of
 The appointed duty of the sons of Merari shall be the tabernacle's boards, its bars, its pillars, its sockets, all its instruments, all its service, 
 the pillars of the court around it, their sockets, their pins, and their cords. 
 Those who encamp before the tabernacle eastward, in front of the Tent of Meeting toward the sunrise, shall be Moses, with Aaron and his sons, keeping the requirements of the sanctuary for the duty of the children of Israel. The outsider who comes near shall be put to death. 
-All who were counted of the Levites, whom Moses and Aaron counted at the commandment of God, by their families, all the males from a month old and upward, were twenty-two thousand. 
+Everyone who was counted of the Levites, whom Moses and Aaron counted at the commandment of God, by their families, all the males from a month old and upward, were twenty-two thousand. 
 God said to Moses, "Count all the firstborn males of the children of Israel from a month old and upward, and take the number of their names. 
 You shall take the Levites for me, I am God, instead of all the firstborn among the children of Israel; and the livestock of the Levites instead of all the firstborn among the livestock of the children of Israel." 
 Moses counted, as God commanded him, all the firstborn among the children of Israel. 

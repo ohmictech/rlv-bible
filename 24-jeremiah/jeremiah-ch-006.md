@@ -10,7 +10,7 @@ The God of Armies says, "They will thoroughly glean the remnant of Israel like a
 To whom should I speak and testify, that they may hear? Behold, their ear is uncircumcised, and they can't listen. Behold, God's word has become a reproach to them. They have no delight in it. 
 Therefore I am full of God's wrath. I am weary with holding it in. "Pour it out on the children in the street, and on the assembly of young men together; for even the husband with the wife will be taken, the aged with him who is full of days. 
 Their houses will be turned to others, their fields and their wives together; for I will stretch out my hand on the inhabitants of the land, says God." 
-"For from their least even to their greatest, everyone is given to covetousness. From the prophet even to the priest, everyone deals falsely. 
+"For from their least even to their greatest, everyone is given to covetousness. From the spokesman even to the priest, everyone deals falsely. 
 They have healed also the hurt of my people superficially, saying, 'Peace, peace!' when there is no peace. 
 Were they ashamed when they had committed abomination? No, they were not at all ashamed, neither could they blush. Therefore they will fall among those who fall. When I visit them, they will be cast down," says God. 
 God says, "Stand in the ways and see, and ask for the old paths, 'Where is the good way?' and walk in it, and you will find rest for your souls. But they said, 'We will not walk in it.' 

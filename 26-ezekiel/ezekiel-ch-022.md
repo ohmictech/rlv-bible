@@ -22,10 +22,10 @@ Yes, I will gather you, and blow on you with the fire of my wrath, and you will 
 As silver is melted in the middle of the furnace, so you will be melted in the middle of it; and you will know that I, God, have poured out my wrath on you.'" 
 God's word came to me, saying, 
 "Son of man, tell her, 'You are a land that is not cleansed nor rained on in the day of indignation.' 
-There is a conspiracy of her prophets within it, like a roaring lion ravening the prey. They have devoured souls. They take treasure and precious things. They have made many widows within it. 
+There is a conspiracy of her spokesmen within it, like a roaring lion ravening the prey. They have devoured souls. They take treasure and precious things. They have made many widows within it. 
 Her priests have done violence to my law and have profaned my holy things. They have made no distinction between the holy and the common, neither have they caused men to discern between the unclean and the clean, and have hidden their eyes from my Sabbaths. So I am profaned among them. 
 Her princes within it are like wolves ravening the prey, to shed blood and to destroy souls, that they may get dishonest gain. 
-Her prophets have plastered for them with whitewash, seeing false visions, and divining lies to them, saying, 'The God says,' when God has not spoken. 
+Her spokesmen have plastered for them with whitewash, seeing false visions, and divining lies to them, saying, 'The God says,' when God has not spoken. 
 The people of the land have used oppression and exercised robbery. Yes, they have troubled the poor and needy, and have oppressed the foreigner wrongfully. 
 "I sought for a man among them who would build up the wall and stand in the gap before me for the land, that I would not destroy it; but I found no one. 
 Therefore I have poured out my indignation on them. I have consumed them with the fire of my wrath. I have brought their own way on their heads," says God. 

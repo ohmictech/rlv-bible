@@ -1,5 +1,5 @@
 ﻿For the Chief Musician. A Psalm by David. A song. Praise waits for you, God, in Zion. Vows shall be performed to you. 
-You who hear prayer, all men will come to you. 
+You who hear prayer, everyone will come to you. 
 Sins overwhelmed me, but you atoned for our transgressions. 
 Blessed is the one whom you choose and cause to come near, that he may live in your courts. We will be filled with the goodness of your house, your holy temple. 
 By awesome deeds of righteousness, you answer us, God of our salvation. You who are the hope of all the ends of the earth, of those who are far away on the sea. 

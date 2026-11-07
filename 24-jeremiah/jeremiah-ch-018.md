@@ -15,7 +15,7 @@ Will the snow of Lebanon fail from the rock of the field? Will the cold waters t
 For my people have forgotten me. They have burned incense to false gods. They have been made to stumble in their ways in the ancient paths, to walk in byways, in a way not built up, 
 to make their land an astonishment, and a perpetual hissing. Everyone who passes by it will be astonished, and shake his head. 
 I will scatter them as with an east wind before the enemy. I will show them the back, and not the face, in the day of their calamity. 
-Then they said, "Come! Let's devise plans against Jeremiah; for the law won't perish from the priest, nor counsel from the wise, nor the word from the prophet. Come, and let's strike him with the tongue, and let's not give heed to any of his words." 
+Then they said, "Come! Let's devise plans against Jeremiah; for the law won't perish from the priest, nor counsel from the wise, nor the word from the spokesman. Come, and let's strike him with the tongue, and let's not give heed to any of his words." 
 Give heed to me, God, and listen to the voice of those who contend with me. 
 Should evil be recompensed for good? For they have dug a pit for my soul. Remember how I stood before you to speak good for them, to turn away your wrath from them. 
 Therefore deliver up their children to the famine, and give them over to the power of the sword. Let their wives become childless and widows. Let their men be killed and their young men struck by the sword in battle. 

@@ -1,7 +1,7 @@
-﻿The two angels came to Sodom at evening. Lot sat in the gate of Sodom. Lot saw them, and rose up to meet them. He bowed himself with his face to the earth, 
+﻿The two messengers came to Sodom at evening. Lot sat in the gate of Sodom. Lot saw them, and rose up to meet them. He bowed himself with his face to the earth, 
 and he said, "See now, my lords, please come into your servant's house, stay all night, wash your feet, and you can rise up early, and go on your way." They said, "No, but we will stay in the street all night." 
 He urged them greatly, and they came in with him, and entered into his house. He made them a feast, and baked unleavened bread, and they ate. 
-But before they lay down, the men of the city, the men of Sodom, surrounded the house, both young and old, all the people from every quarter. 
+But before they lay down, the men of the city, the men of Sodom, surrounded the house, both young and old, everyone from every quarter. 
 They called to Lot, and said to him, "Where are the men who came in to you this night? Bring them out to us, that we may have sex with them." 
 Lot went out to them through the door, and shut the door after himself. 
 He said, "Please, my brothers, don't act so wickedly. 
@@ -12,7 +12,7 @@ They struck the men who were at the door of the house with blindness, both small
 The men said to Lot, "Do you have anybody else here? Sons-in-law, your sons, your daughters, and whomever you have in the city, bring them out of the place: 
 for we will destroy this place, because the outcry against them has grown so great before God that God has sent us to destroy it." 
 Lot went out, and spoke to his sons-in-law, who were pledged to marry his daughters, and said, "Get up! Get out of this place, for God will destroy the city!" But he seemed to his sons-in-law to be joking. 
-When the morning came, then the angels hurried Lot, saying, "Get up! Take your wife and your two daughters who are here, lest you be consumed in the iniquity of the city." 
+When the morning came, then the messengers hurried Lot, saying, "Get up! Take your wife and your two daughters who are here, lest you be consumed in the iniquity of the city." 
 But he lingered; and the men grabbed his hand, his wife's hand, and his two daughters' hands, God being merciful to him; and they took him out, and set him outside of the city. 
 It came to pass, when they had taken them out, that he said, "Escape for your life! Don't look behind you, and don't stay anywhere in the plain. Escape to the mountains, lest you be consumed!" 
 Lot said to them, "Oh, not so, my lord. 

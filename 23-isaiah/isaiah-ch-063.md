@@ -6,14 +6,14 @@ I looked, and there was no one to help; and I wondered that there was no one to 
 I trod down the peoples in my anger and made them drunk in my wrath. I poured their lifeblood out on the earth." 
 I will tell of the loving kindnesses of God and the praises of God, according to all that God has given to us, and the great goodness toward the house of Israel, which he has given to them according to his mercies, and according to the multitude of his loving kindnesses. 
 For he said, "Surely, they are my people, children who will not deal falsely;" so he became their Savior. 
-In all their affliction he was afflicted, and the angel of his presence saved them. In his love and in his pity he redeemed them. He bore them, and carried them all the days of old. 
+In all their affliction he was afflicted, and the messenger of his presence saved them. In his love and in his pity he redeemed them. He bore them, and carried them all the days of old. 
 But they rebelled and grieved his Holy Spirit. Therefore he turned and became their enemy, and he himself fought against them. 
 Then he remembered the days of old, Moses and his people, saying, "Where is he who brought them up out of the sea with the shepherds of his flock? Where is he who put his Holy Spirit among them?" 
-Who caused his glorious arm to be at Moses' right hand? Who divided the waters before them, to make himself an everlasting name? 
+Who caused his glorious arm to be at Moses' right hand? Who divided the waters before them, to make himself an perpetual name? 
 Who led them through the depths, like a horse in the wilderness, so that they didn't stumble? 
 As the livestock that go down into the valley, God's Spirit caused them to rest. So you led your people to make yourself a glorious name. 
 Look down from heaven, and see from the habitation of your holiness and of your glory. Where are your zeal and your mighty acts? The yearning of your heart and your compassion is restrained toward me. 
-For you are our Father, though Abraham doesn't know us, and Israel does not acknowledge us. You, God, are our Father. Our Redeemer from everlasting is your name. 
+For you are our Father, though Abraham doesn't know us, and Israel does not acknowledge us. You, God, are our Father. Our Redeemer from perpetual is your name. 
 O God, why do you make us wander from your ways, and harden our heart from your fear? Return for your servants' sake, the tribes of your inheritance. 
 Your holy people possessed it but a little while. Our adversaries have trodden down your sanctuary. 
 We have become like those over whom you never ruled, like those who were not called by your name. 

@@ -1,12 +1,12 @@
-﻿If a prophet or a dreamer of dreams arises among you, and he gives you a sign or a wonder, 
+﻿If a spokesman or a dreamer of dreams arises among you, and he gives you a sign or a wonder, 
 and the sign or the wonder comes to pass, of which he spoke to you, saying, "Let's go after other gods" (which you have not known) "and let's serve them," 
-you shall not listen to the words of that prophet, or to that dreamer of dreams; for your God is testing you, to know whether you love your God with all your heart and with all your soul. 
+you shall not listen to the words of that spokesman, or to that dreamer of dreams; for your God is testing you, to know whether you love your God with all your heart and with all your soul. 
 You shall walk after your God, fear him, keep his commandments, and obey his voice. You shall serve him, and cling to him. 
-That prophet, or that dreamer of dreams, shall be put to death, because he has spoken rebellion against your God, who brought you out of the land of Egypt and redeemed you out of the house of bondage, to draw you aside out of the way which your God commanded you to walk in. So you shall remove the evil from among you. 
+That spokesman, or that dreamer of dreams, shall be put to death, because he has spoken rebellion against your God, who brought you out of the land of Egypt and redeemed you out of the house of bondage, to draw you aside out of the way which your God commanded you to walk in. So you shall remove the evil from among you. 
 If your brother, the son of your mother, or your son, or your daughter, or the wife of your bosom, or your friend who is as your own soul, entices you secretly, saying, "Let's go and serve other gods", which you have not known, you, nor your fathers; 
 of the gods of the peoples who are around you, near to you, or far off from you, from the one end of the earth even to the other end of the earth 
 you shall not consent to him nor listen to him; neither shall your eye pity him, neither shall you spare, neither shall you conceal him; 
-but you shall surely kill him. Your hand shall be first on him to put him to death, and afterwards the hands of all the people. 
+but you shall surely kill him. Your hand shall be first on him to put him to death, and afterwards the hands of everyone. 
 You shall stone him to death with stones, because he has sought to draw you away from your God, who brought you out of the land of Egypt, out of the house of bondage. 
 All Israel shall hear, and fear, and shall not do any more wickedness like this among you. 
 If you hear about one of your cities, which your God gives you to dwell there, that 

@@ -18,7 +18,7 @@ Joshua was told, saying, "The five kings have been found, hidden in the cave at 
 Joshua said, "Roll large stones to cover the cave's entrance, and set men by it to guard them; 
 but don't stay there. Pursue your enemies, and attack them from the rear. Don't allow them to enter into their cities; for your God has delivered them into your hand." 
 When Joshua and the children of Israel had finished killing them with a very great slaughter until they were consumed, and the remnant which remained of them had entered into the fortified cities, 
-all the people returned to the camp to Joshua at Makkedah in peace. None moved his tongue against any of the children of Israel. 
+everyone returned to the camp to Joshua at Makkedah in peace. None moved his tongue against any of the children of Israel. 
 Then Joshua said, "Open the cave entrance, and bring those five kings out of the cave to me." 
 They did so, and brought those five kings out of the cave to him: the king of Jerusalem, the king of Hebron, the king of Jarmuth, the king of Lachish, and the king of Eglon. 
 When they brought those kings out to Joshua, Joshua called for all the men of Israel, and said to the chiefs of the men of war who went with him, "Come near. Put your feet on the necks of these kings." They came near, and put their feet on their necks. 

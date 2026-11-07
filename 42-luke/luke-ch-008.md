@@ -34,7 +34,7 @@ The unclean spirits came out of the man and entered the pigs, and the herd rushe
 When those who fed them saw what had happened, they fled and told it in the city and in the country. 
 People went out to see what had happened. They came to Jesus and found the man from whom the unclean spirits had gone out, sitting at Jesus' feet, clothed and in his right mind; and they were afraid. 
 Those who saw it told them how he who had been possessed by unclean spirits was healed. 
-All the people of the surrounding region of the Gadarenes asked him to leave them, for they were very much afraid. Then he entered into the boat and returned. 
+Everyone in the surrounding region of the Gadarenes asked him to leave them, for they were very much afraid. Then he entered into the boat and returned. 
 But the man from whom the unclean spirits had gone out begged him that he might go with him, but Jesus sent him away, saying, 
 "Return to your house, and declare what great things God has done for you." He went his way, proclaiming throughout the whole city what great things Jesus had done for him. 
 When Jesus returned, the crowd welcomed him, for they were all waiting for him. 
@@ -44,7 +44,7 @@ A woman who had a flow of blood for twelve years, who had spent all her living o
 came behind him and touched the fringe of his cloak. Immediately the flow of her blood stopped. 
 Jesus said, "Who touched me?" When all denied it, Peter and those with him said, "Master, the crowds press and jostle you, and you say, 'Who touched me?'" 
 But Jesus said, "Someone did touch me, for I perceived that power has gone out of me." 
-When the woman saw that she was not hidden, she came trembling; and falling down before him declared to him in the presence of all the people the reason why she had touched him, and how she was healed immediately. 
+When the woman saw that she was not hidden, she came trembling; and falling down before him declared to him in the presence of everyone the reason why she had touched him, and how she was healed immediately. 
 He said to her, "Daughter, cheer up. Your trust has healed you and made you whole. Go in wholeness." 
 While he still spoke, one from the gathering place leader's house came, saying to him, "Your daughter is dead. Don't trouble the Teacher." 
 But Jesus hearing it, answered him, "Don't be afraid. Just trust, and she will be healed." 

@@ -54,10 +54,10 @@ You also bear your own shame yourself, in that you have given judgment for your 
 that you may bear your own shame, and may be ashamed because of all that you have done, in that you are a comfort to them. 
 Your sisters, Sodom and her daughters, will return to their former estate; and Samaria and her daughters will return to their former estate; and you and your daughters will return to your former estate. 
 For your sister Sodom was not mentioned by your mouth in the day of your pride, 
-before your wickedness was uncovered, as at the time of the reproach of the daughters of Syria, and of all who are around her, the daughters of the Philistines, who despise you all around. 
+before your wickedness was uncovered, as at the time of the reproach of the daughters of Syria, and of everyone who is around her, the daughters of the Philistines, who despise you all around. 
 You have borne your lewdness and your abominations," says God. 
 "'For God says: "I will also deal with you as you have done, who have despised the oath in breaking the covenant. 
-Nevertheless I will remember my covenant with you in the days of your youth, and I will establish an everlasting covenant with you. 
+Nevertheless I will remember my covenant with you in the days of your youth, and I will establish an perpetual covenant with you. 
 Then you will remember your ways and be ashamed when you receive your sisters, your elder sisters and your younger; and I will give them to you for daughters, but not by your covenant. 
 I will establish my covenant with you. Then you will know that I am God; 
 that you may remember, and be confounded, and never open your mouth any more because of your shame, when I have forgiven you all that you have done," says God.'" 

@@ -1,7 +1,7 @@
 ﻿In that day, this song will be sung in the land of Judah: "We have a strong city. God appoints salvation for walls and bulwarks. 
 Open the gates, that the righteous nation may enter: the one which keeps faith. 
 You will keep whoever's mind is steadfast in perfect peace, because he trusts in you. 
-Trust in God for the eras; for in God, God, is an everlasting Rock. 
+Trust in God for the eras; for in God, God, is an perpetual Rock. 
 For he has brought down those who dwell on high, the lofty city. He lays it low. He lays it low even to the ground. He brings it even to the dust. 
 The foot shall tread it down, even the feet of the poor and the steps of the needy." 
 The way of the just is uprightness. You who are upright make the path of the righteous level. 

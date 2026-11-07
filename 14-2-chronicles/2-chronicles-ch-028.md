@@ -3,16 +3,16 @@ but he walked in the ways of the kings of Israel, and also made molten images fo
 Moreover he burned incense in the valley of the son of Hinnom, and burned his children in the fire, according to the abominations of the nations whom God cast out before the children of Israel. 
 He sacrificed and burned incense in the high places, and on the hills, and under every green tree. 
 Therefore his God delivered him into the hand of the king of Syria. They struck him, and carried away from him a great multitude of captives, and brought them to Damascus. He was also delivered into the hand of the king of Israel, who struck him with a great slaughter. 
-For Pekah the son of Remaliah killed in Judah one hundred twenty thousand in one day, all of them valiant men, because they had forsaken the God of their fathers. 
+For Pekah the son of Remaliah killed in Judah one hundred twenty thousand in one day, everyone valiant men, because they had forsaken the God of their fathers. 
 Zichri, a mighty man of Ephraim, killed Maaseiah the king's son, Azrikam the ruler of the house, and Elkanah who was next to the king. 
 The children of Israel carried away captive of their brothers two hundred thousand women, sons, and daughters, and also took away much plunder from them, and brought the plunder to Samaria. 
-But a prophet of God was there, whose name was Oded; and he went out to meet the army that came to Samaria, and said to them, "Behold, because the God of your fathers, was angry with Judah, he has delivered them into your hand, and you have slain them in a rage which has reached up to heaven. 
+But a spokesman of God was there, whose name was Oded; and he went out to meet the army that came to Samaria, and said to them, "Behold, because the God of your fathers, was angry with Judah, he has delivered them into your hand, and you have slain them in a rage which has reached up to heaven. 
 Now you intend to degrade the children of Judah and Jerusalem as male and female slaves for yourselves. Aren't there even with you trespasses of your own against your God? 
 Now hear me therefore, and send back the captives that you have taken captive from your brothers, for the fierce wrath of God is on you." 
 Then some of the heads of the children of Ephraim, Azariah the son of Johanan, Berechiah the son of Meshillemoth, Jehizkiah the son of Shallum, and Amasa the son of Hadlai, stood up against those who came from the war, 
 and said to them, "You must not bring in the captives here, for you intend that which will bring on us a trespass against God, to add to our sins and to our guilt; for our guilt is great, and there is fierce wrath against Israel." 
 So the armed men left the captives and the plunder before the princes and all the assembly. 
-The men who have been mentioned by name rose up and took the captives, and with the plunder clothed all who were naked among them, dressed them, gave them sandals, gave them something to eat and to drink, anointed them, carried all the feeble of them on donkeys, and brought them to Jericho, the city of palm trees, to their brothers. Then they returned to Samaria. 
+The men who have been mentioned by name rose up and took the captives, and with the plunder clothed everyone who was naked among them, dressed them, gave them sandals, gave them something to eat and to drink, anointed them, carried all the feeble of them on donkeys, and brought them to Jericho, the city of palm trees, to their brothers. Then they returned to Samaria. 
 At that time King Ahaz sent to the kings of Assyria to help him. 
 For again the Edomites had come and struck Judah, and carried away captives. 
 The Philistines also had invaded the cities of the lowland and of the South of Judah, and had taken Beth Shemesh, Aijalon, Gederoth, Soco with its villages, Timnah with its villages, and also Gimzo and its villages; and they lived there. 

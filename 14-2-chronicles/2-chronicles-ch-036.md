@@ -9,11 +9,11 @@ Now the rest of the acts of Jehoiakim, and his abominations which he did, and th
 Jehoiachin was eight years old when he began to reign, and he reigned three months and ten days in Jerusalem. He did that which was evil in God's sight. 
 At the return of the year, King Nebuchadnezzar sent and brought him to Babylon, with the valuable vessels of God's house, and made Zedekiah his brother king over Judah and Jerusalem. 
 Zedekiah was twenty-one years old when he began to reign, and he reigned eleven years in Jerusalem. 
-He did that which was evil in his God's sight. He didn't humble himself before Jeremiah the prophet speaking from God's mouth. 
+He did that which was evil in his God's sight. He didn't humble himself before Jeremiah the spokesman speaking from God's mouth. 
 He also rebelled against King Nebuchadnezzar, who had made him swear by God; but he stiffened his neck, and hardened his heart against turning to the God of Israel. 
 Moreover all the chiefs of the priests and the people trespassed very greatly after all the abominations of the nations; and they polluted God's house which he had made holy in Jerusalem. 
 The God of their fathers, sent to them by his messengers, rising up early and sending, because he had compassion on his people and on his dwelling place; 
-but they mocked the messengers of God, despised his words, and scoffed at his prophets, until God's wrath arose against his people, until there was no remedy. 
+but they mocked the messengers of God, despised his words, and scoffed at his spokesmen, until God's wrath arose against his people, until there was no remedy. 
 Therefore he brought on them the king of the Chaldeans, who killed their young men with the sword in the house of their sanctuary, and had no compassion on young man or virgin, old man or infirm. He gave them all into his hand. 
 All the vessels of God's house, great and small, and the treasures of God's house, and the treasures of the king and of his princes, all these he brought to Babylon. 
 They burned God's house, broke down the wall of Jerusalem, burned all its palaces with fire, and destroyed all of its valuable vessels. 

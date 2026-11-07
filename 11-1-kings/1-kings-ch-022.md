@@ -3,14 +3,14 @@ In the third year, Jehoshaphat the king of Judah came down to the king of Israel
 The king of Israel said to his servants, "You know that Ramoth Gilead is ours, and we do nothing, and don't take it out of the hand of the king of Syria?" 
 He said to Jehoshaphat, "Will you go with me to battle to Ramoth Gilead?" Jehoshaphat said to the king of Israel, "I am as you are, my people as your people, my horses as your horses." 
 Jehoshaphat said to the king of Israel, "Please inquire first for God's word." 
-Then the king of Israel gathered the prophets together, about four hundred men, and said to them, "Should I go against Ramoth Gilead to battle, or should I refrain?" They said, "Go up; for the Lord will deliver it into the hand of the king." 
-But Jehoshaphat said, "Isn't there here a prophet of God, that we may inquire of him?" 
+Then the king of Israel gathered the spokesmen together, about four hundred men, and said to them, "Should I go against Ramoth Gilead to battle, or should I refrain?" They said, "Go up; for the Lord will deliver it into the hand of the king." 
+But Jehoshaphat said, "Isn't there here a spokesman of God, that we may inquire of him?" 
 The king of Israel said to Jehoshaphat, "There is yet one man by whom we may inquire of God, Micaiah the son of Imlah; but I hate him, for he does not prophesy good concerning me, but evil." Jehoshaphat said, "Don't let the king say so." 
 Then the king of Israel called an officer, and said, "Quickly get Micaiah the son of Imlah." 
-Now the king of Israel and Jehoshaphat the king of Judah were sitting each on his throne, arrayed in their robes, in an open place at the entrance of the gate of Samaria; and all the prophets were prophesying before them. 
+Now the king of Israel and Jehoshaphat the king of Judah were sitting each on his throne, arrayed in their robes, in an open place at the entrance of the gate of Samaria; and all the spokesmen were prophesying before them. 
 Zedekiah the son of Chenaanah made himself horns of iron, and said, "God says, 'With these you will push the Syrians, until they are consumed.'" 
-All the prophets prophesied so, saying, "Go up to Ramoth Gilead and prosper; for God will deliver it into the hand of the king." 
-The messenger who went to call Micaiah spoke to him, saying, "See now, the prophets declare good to the king with one mouth. Please let your word be like the word of one of them, and speak good." 
+All the spokesmen prophesied so, saying, "Go up to Ramoth Gilead and prosper; for God will deliver it into the hand of the king." 
+The messenger who went to call Micaiah spoke to him, saying, "See now, the spokesmen declare good to the king with one mouth. Please let your word be like the word of one of them, and speak good." 
 Micaiah said, "As God lives, what God says to me, that I will speak." 
 When he had come to the king, the king said to him, "Micaiah, shall we go to Ramoth Gilead to battle, or shall we forbear?" He answered him, "Go up and prosper; and God will deliver it into the hand of the king." 
 The king said to him, "How many times do I have to adjure you that you speak to me nothing but the truth in God's name?" 
@@ -19,8 +19,8 @@ The king of Israel said to Jehoshaphat, "Didn't I tell you that he would not pro
 Micaiah said, "Therefore hear God's word. I saw God sitting on his throne, and all the army of heaven standing by him on his right hand and on his left. 
 God said, 'Who will entice Ahab, that he may go up and fall at Ramoth Gilead?' One said one thing, and another said another. 
 A spirit came out and stood before God, and said, 'I will entice him.' 
-God said to him, 'How?' He said, 'I will go out and will be a lying spirit in the mouth of all his prophets.' He said, 'You will entice him, and will also prevail. Go out and do so.' 
-Now therefore, behold, God has put a lying spirit in the mouth of all these your prophets; and God has spoken evil concerning you." 
+God said to him, 'How?' He said, 'I will go out and will be a lying spirit in the mouth of all his spokesmen.' He said, 'You will entice him, and will also prevail. Go out and do so.' 
+Now therefore, behold, God has put a lying spirit in the mouth of all these your spokesmen; and God has spoken evil concerning you." 
 Then Zedekiah the son of Chenaanah came near and struck Micaiah on the cheek, and said, "Which way did God's Spirit go from me to speak to you?" 
 Micaiah said, "Behold, you will see on that day when you go into an inner room to hide yourself." 
 The king of Israel said, "Take Micaiah, and carry him back to Amon the governor of the city and to Joash the king's son. 

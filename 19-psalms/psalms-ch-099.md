@@ -1,5 +1,5 @@
 ﻿God reigns! Let the peoples tremble. He sits enthroned among the cherubim. Let the earth be moved. 
-God is great in Zion. He is high above all the peoples. 
+God is great in Zion. He is high above everyones. 
 Let them praise your great and awesome name. He is Holy! 
 The King's strength also loves justice. You establish equity. You execute justice and righteousness in Jacob. 
 Exalt our God. Worship at his footstool. He is Holy! 

@@ -2,7 +2,7 @@
 Before the sun, the light, the moon, and the stars are darkened, and the clouds return after the rain; 
 in the day when the keepers of the house shall tremble, and the strong men shall bow themselves, and the grinders cease because they are few, and those who look out of the windows are darkened, 
 and the doors shall be shut in the street; when the sound of the grinding is low, and one shall rise up at the voice of a bird, and all the daughters of music shall be brought low; 
-yes, they shall be afraid of heights, and terrors will be on the way; and the almond tree shall blossom, and the grasshopper shall be a burden, and desire shall fail; because man goes to his everlasting home, and the mourners go about the streets; 
+yes, they shall be afraid of heights, and terrors will be on the way; and the almond tree shall blossom, and the grasshopper shall be a burden, and desire shall fail; because man goes to his perpetual home, and the mourners go about the streets; 
 before the silver cord is severed, or the golden bowl is broken, or the pitcher is broken at the spring, or the wheel broken at the cistern, 
 and the dust returns to the earth as it was, and the spirit returns to God who gave it. 
 "Vanity of vanities," says the Preacher. "All is vanity!" 

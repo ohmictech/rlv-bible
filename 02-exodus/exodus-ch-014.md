@@ -4,7 +4,7 @@ Pharaoh will say of the children of Israel, 'They are entangled in the land. The
 I will harden Pharaoh's heart, and he will follow after them; and I will get honor over Pharaoh, and over all his armies; and the Egyptians shall know that I am God." They did so. 
 The king of Egypt was told that the people had fled; and the heart of Pharaoh and of his servants was changed toward the people, and they said, "What is this we have done, that we have let Israel go from serving us?" 
 He prepared his chariot, and took his army with him; 
-and he took six hundred chosen chariots, and all the chariots of Egypt, with captains over all of them. 
+and he took six hundred chosen chariots, and all the chariots of Egypt, with captains over everyone. 
 God hardened the heart of Pharaoh king of Egypt, and he pursued the children of Israel; for the children of Israel went out with a high hand. 
 The Egyptians pursued them. All the horses and chariots of Pharaoh, his horsemen, and his army overtook them encamping by the sea, beside Pihahiroth, before Baal Zephon. 
 When Pharaoh came near, the children of Israel lifted up their eyes, and behold, the Egyptians were marching after them; and they were very afraid. The children of Israel cried out to God. 
@@ -16,7 +16,7 @@ God said to Moses, "Why do you cry to me? Speak to the children of Israel, that 
 Lift up your rod, and stretch out your hand over the sea and divide it. Then the children of Israel shall go into the middle of the sea on dry ground. 
 Behold, I myself will harden the hearts of the Egyptians, and they will go in after them. I will get myself honor over Pharaoh, and over all his armies, over his chariots, and over his horsemen. 
 The Egyptians shall know that I am God when I have gotten myself honor over Pharaoh, over his chariots, and over his horsemen." 
-The angel of God, who went before the camp of Israel, moved and went behind them; and the pillar of cloud moved from before them, and stood behind them. 
+The messenger of God, who went before the camp of Israel, moved and went behind them; and the pillar of cloud moved from before them, and stood behind them. 
 It came between the camp of Egypt and the camp of Israel. There was the cloud and the darkness, yet it gave light by night. One didn't come near the other all night. 
 Moses stretched out his hand over the sea, and God caused the sea to go back by a strong east wind all night, and made the sea dry land, and the waters were divided. 
 The children of Israel went into the middle of the sea on the dry ground; and the waters were a wall to them on their right hand and on their left. 

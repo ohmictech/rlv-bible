@@ -31,7 +31,7 @@ I will multiply the fruit of the tree and the increase of the field, that you ma
 "'"Then you will remember your evil ways, and your deeds that were not good; and you will loathe yourselves in your own sight for your iniquities and for your abominations. 
 I don't do this for your sake," says God. "Let it be known to you. Be ashamed and confounded for your ways, house of Israel." 
 "'The God says: "In the day that I cleanse you from all your iniquities, I will cause the cities to be inhabited and the waste places will be built. 
-The land that was desolate will be tilled instead of being a desolation in the sight of all who passed by. 
+The land that was desolate will be tilled instead of being a desolation in the sight of everyone who passed by. 
 They will say, 'This land that was desolate has become like the garden of Eden. The waste, desolate, and ruined cities are fortified and inhabited.' 
 Then the nations that are left around you will know that I, God, have built the ruined places and planted that which was desolate. I, God, have spoken it, and I will do it." 
 "'The God says: "For this, moreover, I will be inquired of by the house of Israel, to do it for them: I will increase them with men like a flock. 

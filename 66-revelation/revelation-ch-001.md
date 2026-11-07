@@ -4,7 +4,7 @@ Flourishing is the one who reads this aloud, and those who hear these words spok
 From John, to the seven gatherings that are in Asia: Favor and wholeness to you from the one who is and who was and who is coming, and from the seven Spirits who are in front of his throne, 
 and from Jesus Christ, the trustworthy witness, the firstborn from the dead, and the ruler of the kings of the land. To the one who loves us and washed us from our mistakes with his blood, 
 and he has made us a kingdom of priests to serve his God and Father, to him be the weight and the power for all the eras. Amen. 
-Look, he is coming with the clouds, and every eye will see him, including those who pierced him, and all the peoples of the land will mourn over him. Yes. Amen. 
+Look, he is coming with the clouds, and every eye will see him, including those who pierced him, and everyones of the land will mourn over him. Yes. Amen. 
 "I am the Alpha and the Omega," says the Lord God, "the one who is and who was and who is coming, the one who holds sway over all." 
 I, John, your brother and your partner in the hard times, in the reign, and in staying power in Christ Jesus, was on the island called Patmos because of God's message and the witness Jesus gave. 
 On the Lord's day I was in the Spirit, and I heard behind me a loud voice, like a trumpet, 

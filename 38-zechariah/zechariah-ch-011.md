@@ -7,7 +7,7 @@ For I will no more pity the inhabitants of the land," says God; "but, behold, I 
 So I fed the flock to be slaughtered, especially the oppressed of the flock. I took for myself two staffs. The one I called "Favor" and the other I called "Union", and I fed the flock. 
 I cut off the three shepherds in one month; for my soul was weary of them, and their soul also loathed me. 
 Then I said, "I will not feed you. That which dies, let it die; and that which is to be cut off, let it be cut off; and let those who are left eat each other's flesh." 
-I took my staff Favor and cut it apart, that I might break my covenant that I had made with all the peoples. 
+I took my staff Favor and cut it apart, that I might break my covenant that I had made with everyones. 
 It was broken in that day; and thus the poor of the flock that listened to me knew that it was God's word. 
 I said to them, "If you think it best, give me my wages; and if not, keep them." So they weighed for my wages thirty pieces of silver. 
 God said to me, "Throw it to the potter, the handsome price that I was valued at by them!" I took the thirty pieces of silver and threw them to the potter in God's house. 

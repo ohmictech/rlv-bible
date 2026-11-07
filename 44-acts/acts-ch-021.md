@@ -25,7 +25,7 @@ Take them and purify yourself with them, and pay their expenses for them, that t
 But concerning the nations who trust, we have written our decision that they should observe no such thing, except that they should keep themselves from food offered to idols, from blood, from strangled things, and from sleeping around." 
 Then Paul took the men, and the next day purified himself and went with them into the temple courts, declaring the fulfillment of the days of washing, until the offering was offered for every one of them. 
 When the seven days were almost completed, the Jewish leaders from Asia, when they saw him in the temple courts, stirred up all the crowd and laid hands on him, 
-crying out, "Men of Israel, help! This is the man who teaches all people everywhere against the people, and the law, and this place. Moreover, he also brought Greeks into the temple courts and has made this set-apart place unclean!" 
+crying out, "Men of Israel, help! This is the man who teaches everyone everywhere against the people, and the law, and this place. Moreover, he also brought Greeks into the temple courts and has made this set-apart place unclean!" 
 For they had seen Trophimus the Ephesian with him in the city, and they supposed that Paul had brought him into the temple. 
 All the city was moved and the people ran together. They seized Paul and dragged him out of the temple courts. Immediately the doors were shut. 
 As they were trying to kill him, news came up to the commanding officer of the regiment that all Jerusalem was in an uproar. 

@@ -1,5 +1,5 @@
 ﻿When King Hezekiah heard it, he tore his clothes, covered himself with sackcloth, and went into God's house. 
-He sent Eliakim, who was over the household, and Shebna the scribe, and the elders of the priests, covered with sackcloth, to Isaiah the prophet, the son of Amoz. 
+He sent Eliakim, who was over the household, and Shebna the scribe, and the elders of the priests, covered with sackcloth, to Isaiah the spokesman, the son of Amoz. 
 They said to him, "Hezekiah says, 'Today is a day of trouble, and of rebuke, and of rejection; for the children have come to the birth, and there is no strength to give birth. 
 It may be your God will hear the words of Rabshakeh, whom the king of Assyria his master has sent to defy the living God, and will rebuke the words which your God has heard. Therefore lift up your prayer for the remnant that is left.'" 
 So the servants of King Hezekiah came to Isaiah. 
@@ -33,6 +33,6 @@ For out of Jerusalem a remnant will go out, and survivors will escape from Mount
 "Therefore God says concerning the king of Assyria, 'He will not come to this city, nor shoot an arrow there, neither will he come before it with shield, nor cast up a mound against it. 
 He will return the way that he came, and he won't come to this city,' says God. 
 'For I will defend this city to save it, for my own sake, and for my servant David's sake.'" 
-Then God's angel went out and struck one hundred and eighty-five thousand men in the camp of the Assyrians. When men arose early in the morning, behold, these were all dead bodies. 
+Then God's messenger went out and struck one hundred and eighty-five thousand men in the camp of the Assyrians. When men arose early in the morning, behold, these were all dead bodies. 
 So Sennacherib king of Assyria departed, went away, returned to Nineveh, and stayed there. 
 As he was worshiping in the house of Nisroch his god, Adrammelech and Sharezer his sons struck him with the sword; and they escaped into the land of Ararat. Esar Haddon his son reigned in his place. 

@@ -1,4 +1,4 @@
-﻿God's word which came to Jeremiah the prophet concerning the nations. 
+﻿God's word which came to Jeremiah the spokesman concerning the nations. 
 Of Egypt: concerning the army of Pharaoh Necoh king of Egypt, which was by the river Euphrates in Carchemish, which Nebuchadnezzar king of Babylon struck in the fourth year of Jehoiakim the son of Josiah, king of Judah. 
 "Prepare the buckler and shield, and draw near to battle! 
 Harness the horses, and get up, you horsemen, and stand up with your helmets. Polish the spears, put on the coats of mail. 
@@ -10,7 +10,7 @@ Go up, you horses! Rage, you chariots! Let the mighty men go out: Cush and Put, 
 For that day is of the Lord, GOD of Armies, a day of vengeance, that he may avenge himself of his adversaries. The sword will devour and be satiated, and will drink its fill of their blood; for the Lord, GOD of Armies, has a sacrifice in the north country by the river Euphrates. 
 Go up into Gilead, and take balm, virgin daughter of Egypt. You use many medicines in vain. There is no healing for you. 
 The nations have heard of your shame, and the earth is full of your cry; for the mighty man has stumbled against the mighty, they both fall together." 
-The word that God spoke to Jeremiah the prophet, how that Nebuchadnezzar king of Babylon should come and strike the land of Egypt: 
+The word that God spoke to Jeremiah the spokesman, how that Nebuchadnezzar king of Babylon should come and strike the land of Egypt: 
 "Declare in Egypt, publish in Migdol, and publish in Memphis and in Tahpanhes; say, 'Stand up, and prepare, for the sword has devoured around you.' 
 Why are your strong ones swept away? They didn't stand, because God pushed them. 
 He made many to stumble. Yes, they fell on one another. They said, 'Arise! Let's go again to our own people, and to the land of our birth, from the oppressing sword.' 

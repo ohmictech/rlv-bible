@@ -7,12 +7,12 @@ you offspring of Abraham, his servant, you children of Jacob, his chosen ones.
 He is God, our God. His judgments are in all the earth. 
 He has remembered his covenant for the eras, the word which he commanded to a thousand generations, 
 the covenant which he made with Abraham, his oath to Isaac, 
-and confirmed it to Jacob for a statute; to Israel for an everlasting covenant, 
+and confirmed it to Jacob for a statute; to Israel for an perpetual covenant, 
 saying, "To you I will give the land of Canaan, the lot of your inheritance," 
 when they were but a few men in number, yes, very few, and foreigners in it. 
 They went about from nation to nation, from one kingdom to another people. 
 He allowed no one to do them wrong. Yes, he reproved kings for their sakes, 
-"Don't touch my anointed ones! Do my prophets no harm!" 
+"Don't touch my anointed ones! Do my spokesmen no harm!" 
 He called for a famine on the land. He destroyed the food supplies. 
 He sent a man before them. Joseph was sold for a slave. 
 They bruised his feet with shackles. His neck was locked in irons, 

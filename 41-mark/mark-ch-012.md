@@ -40,5 +40,5 @@ and to have the best seats in the gathering places and the places of honor at di
 who eat up widows' houses and, for a pretense, make long prayers. These will receive a heavier verdict." 
 Jesus sat down opposite the treasury and watched how the crowd put money into the treasury. Many who were rich put in a great deal. 
 A poor widow came and put in two small copper coins, less than an hour's pay. 
-He called his students to himself and said to them, "Truly I tell you, this poor widow put in more than all those who are putting money into the treasury, 
+He called his students to himself and said to them, "Truly I tell you, this poor widow put in more than everyone who is putting money into the treasury, 
 for they all gave out of what they had to spare, but she, out of her poverty, gave everything she had to live on." 

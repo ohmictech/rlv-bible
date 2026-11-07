@@ -2,7 +2,7 @@
 God is a jealous God and avenges. God avenges and is full of wrath. God takes vengeance on his adversaries, and he maintains wrath against his enemies. 
 God is slow to anger, and great in power, and will by no means leave the guilty unpunished. God has his way in the whirlwind and in the storm, and the clouds are the dust of his feet. 
 He rebukes the sea and makes it dry, and dries up all the rivers. Bashan and Carmel languish. The flower of Lebanon languishes. 
-The mountains quake before him, and the hills melt away. The earth trembles at his presence, yes, the world, and all who dwell in it. 
+The mountains quake before him, and the hills melt away. The earth trembles at his presence, yes, the world, and everyone who dwells in it. 
 Who can stand before his indignation? Who can endure the fierceness of his anger? His wrath is poured out like fire, and the rocks are broken apart by him. 
 God is good, a stronghold in the day of trouble; and he knows those who take refuge in him. 
 But with an overflowing flood, he will make a full end of her place, and will pursue his enemies into darkness. 

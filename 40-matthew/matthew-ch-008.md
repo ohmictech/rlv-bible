@@ -13,7 +13,7 @@ but the children of the reign will be thrown out into the outer darkness. There 
 Jesus said to the centurion, "Go your way. Let it be done for you just as you have trusted." His servant was healed in that hour. 
 When Jesus came into Peter's house, he saw his wife's mother lying sick with a fever. 
 He touched her hand, and the fever left her. So she got up and served him. 
-When evening came, they brought to him many who were possessed by unclean spirits. He drove out the spirits with a word, and healed all who were sick, 
+When evening came, they brought to him many who were possessed by unclean spirits. He drove out the spirits with a word, and healed everyone who was sick, 
 so that what was spoken through the spokesman Isaiah would come true: "He took our weaknesses and carried our diseases." 
 Now when Jesus saw great crowds around him, he gave the order to go to the other side. 
 A Bible teacher came and said to him, "Teacher, I will follow you wherever you go." 

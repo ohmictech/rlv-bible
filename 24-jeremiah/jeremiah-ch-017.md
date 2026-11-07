@@ -10,7 +10,7 @@ The heart is deceitful above all things and it is exceedingly corrupt. Who can k
 "I, God, search the mind. I try the heart, even to give every man according to his ways, according to the fruit of his doings." 
 As the partridge that sits on eggs which she has not laid, so is he who gets riches, and not by right. In the middle of his days, they will leave him. At his end, he will be a fool. 
 A glorious throne, set on high from the beginning, is the place of our sanctuary. 
-God, the hope of Israel, all who forsake you will be disappointed. Those who depart from me will be written in the earth, because they have forsaken God, the spring of living waters. 
+God, the hope of Israel, everyone who forsakes you will be disappointed. Those who depart from me will be written in the earth, because they have forsaken God, the spring of living waters. 
 Heal me, O God, and I will be healed. Save me, and I will be saved; for you are my praise. 
 Behold, they ask me, "Where is God's word? Let it be fulfilled now." 
 As for me, I have not hurried from being a shepherd after you. I haven't desired the woeful day. You know. That which came out of my lips was before your face. 

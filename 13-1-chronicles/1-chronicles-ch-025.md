@@ -4,7 +4,7 @@ Of Jeduthun, the sons of Jeduthun: Gedaliah, Zeri, Jeshaiah, Shimei, Hashabiah, 
 Of Heman, the sons of Heman: Bukkiah, Mattaniah, Uzziel, Shebuel, Jerimoth, Hananiah, Hanani, Eliathah, Giddalti, Romamti-Ezer, Joshbekashah, Mallothi, Hothir, and Mahazioth. 
 All these were the sons of Heman the king's seer in the words of God, to lift up the horn. God gave to Heman fourteen sons and three daughters. 
 All these were under the hands of their father for song in God's house, with cymbals, stringed instruments, and harps, for the service of God's house: Asaph, Jeduthun, and Heman being under the order of the king. 
-The number of them, with their brothers who were instructed in singing to God, even all who were skillful, was two hundred eighty-eight. 
+The number of them, with their brothers who were instructed in singing to God, even everyone who was skillful, was two hundred eighty-eight. 
 They cast lots for their offices, all alike, the small as well as the great, the teacher as well as the student. 
 Now the first lot came out for Asaph to Joseph; the second to Gedaliah, he and his brothers and sons were twelve; 
 the third to Zaccur, his sons and his brothers, twelve; 

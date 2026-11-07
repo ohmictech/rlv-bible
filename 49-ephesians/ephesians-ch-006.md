@@ -21,4 +21,4 @@ for which I am an ambassador in chains. Pray that I may speak out in the open as
 Tychicus, our truly loved brother and trustworthy servant in the Lord, will tell you everything, so that you also may know how I am doing. 
 I am sending him to you for this very reason, so that you may know how we are doing and so that he may encourage your hearts. 
 Wholeness to the brothers and sisters, and love with trust, from God the Father and the Lord Jesus Christ. 
-Favor be with all who truly love our Lord Jesus Christ with a love that never decays. Amen. 
+Favor be with everyone who truly loves our Lord Jesus Christ with a love that never decays. Amen. 

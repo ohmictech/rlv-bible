@@ -5,7 +5,7 @@ It is not for kings, Lemuel, it is not for kings to drink wine, nor for princes 
 lest they drink, and forget the law, and pervert the justice due to anyone who is afflicted. 
 Give strong drink to him who is ready to perish, and wine to the bitter in soul. 
 Let him drink, and forget his poverty, and remember his misery no more. 
-Open your mouth for the mute, in the cause of all who are left desolate. 
+Open your mouth for the mute, in the cause of everyone who is left desolate. 
 Open your mouth, judge righteously, and serve justice to the poor and needy." 
 Who can find a worthy woman? For her value is far above rubies. 
 The heart of her husband trusts in her. He shall have no lack of gain. 

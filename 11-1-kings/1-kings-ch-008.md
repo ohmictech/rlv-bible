@@ -40,7 +40,7 @@ then hear in heaven, your dwelling place, and forgive, and act, and give to ever
 that they may fear you all the days that they live in the land which you gave to our fathers. 
 "Moreover, concerning the foreigner, who is not of your people Israel, when he comes out of a far country for your name's sake 
 (for they shall hear of your great name and of your mighty hand and of your outstretched arm), when he comes and prays toward this house, 
-hear in heaven, your dwelling place, and do according to all that the foreigner calls to you for; that all the peoples of the earth may know your name, to fear you, as do your people Israel, and that they may know that this house which I have built is called by your name. 
+hear in heaven, your dwelling place, and do according to all that the foreigner calls to you for; that everyones of the earth may know your name, to fear you, as do your people Israel, and that they may know that this house which I have built is called by your name. 
 "If your people go out to battle against their enemy, by whatever way you shall send them, and they pray to God toward the city which you have chosen, and toward the house which I have built for your name, 
 then hear in heaven their prayer and their supplication, and maintain their cause. 
 If they sin against you (for there is no man who doesn't sin), and you are angry with them and deliver them to the enemy, so that they carry them away captive to the land of the enemy, far off or near; 
@@ -50,14 +50,14 @@ then hear their prayer and their supplication in heaven, your dwelling place, an
 and forgive your people who have sinned against you, and all their transgressions in which they have transgressed against you; and give them compassion before those who carried them captive, that they may have compassion on them 
 (for they are your people and your inheritance, which you brought out of Egypt, from the middle of the iron furnace); 
 that your eyes may be open to the supplication of your servant and to the supplication of your people Israel, to listen to them whenever they cry to you. 
-For you separated them from among all the peoples of the earth to be your inheritance, as you spoke by Moses your servant, when you brought our fathers out of Egypt, God." 
+For you separated them from among everyones of the earth to be your inheritance, as you spoke by Moses your servant, when you brought our fathers out of Egypt, God." 
 It was so, that when Solomon had finished praying all this prayer and supplication to God, he arose from before God's altar, from kneeling on his knees with his hands spread out toward heaven. 
 He stood and blessed all the assembly of Israel with a loud voice, saying, 
 "Blessed be God, who has given rest to his people Israel, according to all that he promised. There has not failed one word of all his good promise, which he promised by Moses his servant. 
 May our God be with us as he was with our fathers. Let him not leave us or forsake us, 
 that he may incline our hearts to him, to walk in all his ways, and to keep his commandments, his statutes, and his ordinances, which he commanded our fathers. 
 Let these my words, with which I have made supplication before God, be near to our God day and night, that he may maintain the cause of his servant and the cause of his people Israel, as every day requires; 
-that all the peoples of the earth may know that God is the true God. There is no one else. 
+that everyones of the earth may know that God is the true God. There is no one else. 
 "Let your heart therefore be perfect with our God, to walk in his statutes, and to keep his commandments, as it is today." 
 The king, and all Israel with him, offered sacrifice before God. 
 Solomon offered for the sacrifice of peace offerings, which he offered to God, twenty two thousand head of cattle and one hundred twenty thousand sheep. So the king and all the children of Israel dedicated God's house. 

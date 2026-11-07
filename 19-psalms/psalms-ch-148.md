@@ -1,5 +1,5 @@
 ﻿Praise God! Praise God from the heavens! Praise him in the heights! 
-Praise him, all his angels! Praise him, all his army! 
+Praise him, all his messengers! Praise him, all his army! 
 Praise him, sun and moon! Praise him, all you shining stars! 
 Praise him, you heavens of heavens, you waters that are above the heavens. 
 Let them praise God's name, for he commanded, and they were created. 

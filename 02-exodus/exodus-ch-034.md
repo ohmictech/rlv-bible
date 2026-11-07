@@ -7,7 +7,7 @@ God passed by before him, and proclaimed, "God! God, a merciful and gracious God
 keeping loving kindness for thousands, forgiving iniquity and disobedience and sin; and who will by no means clear the guilty, visiting the iniquity of the fathers on the children, and on the children's children, on the third and on the fourth generation." 
 Moses hurried and bowed his head toward the earth, and worshiped. 
 He said, "If now I have found favor in your sight, Lord, please let the Lord go among us, even though this is a stiff-necked people; pardon our iniquity and our sin, and take us for your inheritance." 
-He said, "Behold, I make a covenant: before all your people I will do marvels, such as have not been worked in all the earth, nor in any nation; and all the people among whom you are shall see the work of God; for it is an awesome thing that I do with you. 
+He said, "Behold, I make a covenant: before all your people I will do marvels, such as have not been worked in all the earth, nor in any nation; and everyone among whom you are shall see the work of God; for it is an awesome thing that I do with you. 
 Observe that which I command you today. Behold, I will drive out before you the Amorite, the Canaanite, the Hittite, the Perizzite, the Hivite, and the Jebusite. 
 Be careful, lest you make a covenant with the inhabitants of the land where you are going, lest it be for a snare among you; 
 but you shall break down their altars, and dash in pieces their pillars, and you shall cut down their Asherah poles; 

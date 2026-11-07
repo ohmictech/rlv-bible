@@ -4,7 +4,7 @@ The crown of pride of the drunkards of Ephraim will be trodden under foot.
 The fading flower of his glorious beauty, which is on the head of the fertile valley, shall be like the first-ripe fig before the summer, which someone picks and eats as soon as he sees it. 
 In that day, the God of Armies will become a crown of glory and a diadem of beauty to the residue of his people, 
 and a spirit of justice to him who sits in judgment, and strength to those who turn back the battle at the gate. 
-They also reel with wine, and stagger with strong drink. The priest and the prophet reel with strong drink. They are swallowed up by wine. They stagger with strong drink. They err in vision. They stumble in judgment. 
+They also reel with wine, and stagger with strong drink. The priest and the spokesman reel with strong drink. They are swallowed up by wine. They stagger with strong drink. They err in vision. They stumble in judgment. 
 For all tables are completely full of filthy vomit and filthiness. 
 Whom will he teach knowledge? To whom will he explain the message? Those who are weaned from the milk, and drawn from the breasts? 
 For it is precept on precept, precept on precept; line on line, line on line; here a little, there a little. 

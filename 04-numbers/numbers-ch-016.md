@@ -26,7 +26,7 @@ Moses rose up and went to Dathan and Abiram; and the elders of Israel followed h
 He spoke to the congregation, saying, "Depart, please, from the tents of these wicked men, and touch nothing of theirs, lest you be consumed in all their sins!" 
 So they went away from the tent of Korah, Dathan, and Abiram, on every side. Dathan and Abiram came out, and stood at the door of their tents with their wives, their sons, and their little ones. 
 Moses said, "Hereby you shall know that God has sent me to do all these works; for they are not from my own mind. 
-If these men die the common death of all men, or if they experience what all men experience, then God hasn't sent me. 
+If these men die the common death of everyone, or if they experience what everyone experience, then God hasn't sent me. 
 But if God makes a new thing, and the ground opens its mouth, and swallows them up with all that belong to them, and they go down alive into Hades, then you shall understand that these men have despised God." 
 As he finished speaking all these words, the ground that was under them split apart. 
 The earth opened its mouth and swallowed them up with their households, all of Korah's men, and all their goods. 

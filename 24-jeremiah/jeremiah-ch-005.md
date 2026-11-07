@@ -10,7 +10,7 @@ Shouldn't I punish them for these things?" says God. "Shouldn't my soul be aveng
 "Go up on her walls, and destroy, but don't make a full end. Take away her branches, for they are not God's. 
 For the house of Israel and the house of Judah have dealt very treacherously against me," says God. 
 They have denied God, and said, "It is not he. Evil won't come on us. We won't see sword or famine. 
-The prophets will become wind, and the word is not in them. Thus it will be done to them." 
+The spokesmen will become wind, and the word is not in them. Thus it will be done to them." 
 Therefore the God of Armies says, "Because you speak this word, behold, I will make my words in your mouth fire, and this people wood, and it will devour them. 
 Behold, I will bring a nation on you from far away, house of Israel," says God. "It is a mighty nation. It is an ancient nation, a nation whose language you don't know and don't understand what they say. 
 Their quiver is an open tomb. They are all mighty men. 
@@ -28,4 +28,4 @@ As a cage is full of birds, so are their houses full of deceit. Therefore they h
 They have grown fat. They shine; yes, they excel in deeds of wickedness. They don't plead the cause, the cause of the fatherless, that they may prosper; and they don't defend the rights of the needy. 
 "Shouldn't I punish for these things?" says God. "Shouldn't my soul be avenged on such a nation as this? 
 "An astonishing and horrible thing has happened in the land. 
-The prophets prophesy falsely, and the priests rule by their own authority; and my people love to have it so. What will you do in the end of it? 
+The spokesmen prophesy falsely, and the priests rule by their own authority; and my people love to have it so. What will you do in the end of it? 

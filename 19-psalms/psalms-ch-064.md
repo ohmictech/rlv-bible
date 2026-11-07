@@ -5,6 +5,6 @@ to shoot innocent men from ambushes. They shoot at him suddenly and fearlessly.
 They encourage themselves in evil plans. They talk about laying snares secretly. They say, "Who will see them?" 
 They plot injustice, saying, "We have made a perfect plan!" Surely man's mind and heart are cunning. 
 But God will shoot at them. They will be suddenly struck down with an arrow. 
-Their own tongues shall ruin them. All who see them will shake their heads. 
+Their own tongues shall ruin them. Everyone who sees them will shake their heads. 
 All mankind shall be afraid. They shall declare the work of God, and shall wisely ponder what he has done. 
 The righteous shall be glad in God, and shall take refuge in him. All the upright in heart shall praise him! 

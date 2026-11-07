@@ -5,7 +5,7 @@ Saul summoned the people, and counted them in Telaim, two hundred thousand footm
 Saul came to the city of Amalek, and set an ambush in the valley. 
 Saul said to the Kenites, "Go, depart, go down from among the Amalekites, lest I destroy you with them; for you showed kindness to all the children of Israel when they came up out of Egypt." So the Kenites departed from among the Amalekites. 
 Saul struck the Amalekites, from Havilah as you go to Shur, which is before Egypt. 
-He took Agag the king of the Amalekites alive, and utterly destroyed all the people with the edge of the sword. 
+He took Agag the king of the Amalekites alive, and utterly destroyed everyone with the edge of the sword. 
 But Saul and the people spared Agag and the best of the sheep, of the cattle, of the fat calves, of the lambs, and all that was good, and were not willing to utterly destroy them; but everything that was vile and refuse, that they destroyed utterly. 
 Then God's word came to Samuel, saying, 
 "It grieves me that I have set up Saul to be king, for he has turned back from following me, and has not performed my commandments." Samuel was angry; and he cried to God all night. 

@@ -10,7 +10,7 @@ then he shall offer with the bull a meal offering of three tenths of an ephah of
 and you shall offer for the drink offering half a hin of wine, for an offering made by fire, of a pleasant aroma to God. 
 Thus it shall be done for each bull, for each ram, for each of the male lambs, or of the young goats. 
 According to the number that you shall prepare, so you shall do to everyone according to their number. 
-"'All who are native-born shall do these things in this way, in offering an offering made by fire, of a pleasant aroma to God. 
+"'Everyone who is native-born shall do these things in this way, in offering an offering made by fire, of a pleasant aroma to God. 
 If a stranger lives as a foreigner with you, or whoever may be among you throughout your generations, and will offer an offering made by fire, of a pleasant aroma to God, as you do, so he shall do. 
 For the assembly, there shall be one statute for you and for the stranger who lives as a foreigner, a statute for the eras throughout your generations. As you are, so the foreigner shall be before God. 
 One law and one ordinance shall be for you and for the stranger who lives as a foreigner with you.'" 
@@ -23,7 +23,7 @@ Of the first of your dough, you shall give to God a wave offering throughout you
 even all that God has commanded you by Moses, from the day that God gave commandment and onward throughout your generations 
 then it shall be, if it was done unwittingly, without the knowledge of the congregation, that all the congregation shall offer one young bull for a burnt offering, for a pleasant aroma to God, with its meal offering and its drink offering, according to the ordinance, and one male goat for a sin offering. 
 The priest shall make atonement for all the congregation of the children of Israel, and they shall be forgiven; for it was an error, and they have brought their offering, an offering made by fire to God, and their sin offering before God, for their error. 
-All the congregation of the children of Israel shall be forgiven, as well as the stranger who lives as a foreigner among them; for with regard to all the people, it was done unwittingly. 
+All the congregation of the children of Israel shall be forgiven, as well as the stranger who lives as a foreigner among them; for with regard to everyone, it was done unwittingly. 
 "'If a person sins unwittingly, then he shall offer a female goat a year old for a sin offering. 
 The priest shall make atonement for the soul who errs when he sins unwittingly before God. He shall make atonement for him; and he shall be forgiven. 
 You shall have one law for him who does anything unwittingly, for him who is native-born among the children of Israel, and for the stranger who lives as a foreigner among them. 

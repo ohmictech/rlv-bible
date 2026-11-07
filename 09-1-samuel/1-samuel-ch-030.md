@@ -1,9 +1,9 @@
 ﻿When David and his men had come to Ziklag on the third day, the Amalekites had made a raid on the South and on Ziklag, and had struck Ziklag and burned it with fire, 
-and had taken captive the women and all who were in it, both small and great. They didn't kill any, but carried them off and went their way. 
+and had taken captive the women and everyone who was in it, both small and great. They didn't kill any, but carried them off and went their way. 
 When David and his men came to the city, behold, it was burned with fire; and their wives, their sons, and their daughters were taken captive. 
 Then David and the people who were with him lifted up their voice and wept until they had no more power to weep. 
 David's two wives were taken captive, Ahinoam the Jezreelitess, and Abigail the wife of Nabal the Carmelite. 
-David was greatly distressed, for the people spoke of stoning him, because the souls of all the people were grieved, every man for his sons and for his daughters; but David strengthened himself in his God. 
+David was greatly distressed, for the people spoke of stoning him, because the souls of everyone was grieved, every man for his sons and for his daughters; but David strengthened himself in his God. 
 David said to Abiathar the priest, the son of Ahimelech, "Please bring the ephod here to me." Abiathar brought the ephod to David. 
 David inquired of God, saying, "If I pursue after this troop, will I overtake them?" He answered him, "Pursue, for you will surely overtake them, and will without fail recover all." 
 So David went, he and the six hundred men who were with him, and came to the brook Besor, where those who were left behind stayed. 

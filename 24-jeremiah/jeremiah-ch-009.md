@@ -22,5 +22,5 @@ For death has come up into our windows. It has entered into our palaces to cut o
 Speak, "God says, "'The dead bodies of men will fall as dung on the open field, and as the handful after the harvester. No one will gather them.'" 
 God says, "Don't let the wise man glory in his wisdom. Don't let the mighty man glory in his might. Don't let the rich man glory in his riches. 
 But let him who glories glory in this, that he has understanding, and knows me, that I am God who exercises loving kindness, justice, and righteousness on the earth, for I delight in these things," says God. 
-"Behold, the days come," says God, "that I will punish all those who are circumcised only in their flesh: 
-Egypt, Judah, Edom, the children of Ammon, Moab, and all who have the corners of their hair cut off, who dwell in the wilderness, for all the nations are uncircumcised, and all the house of Israel are uncircumcised in heart." 
+"Behold, the days come," says God, "that I will punish everyone who is circumcised only in their flesh: 
+Egypt, Judah, Edom, the children of Ammon, Moab, and everyone who has the corners of their hair cut off, who dwell in the wilderness, for all the nations are uncircumcised, and all the house of Israel are uncircumcised in heart." 

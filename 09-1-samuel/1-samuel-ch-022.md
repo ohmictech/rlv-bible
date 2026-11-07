@@ -2,7 +2,7 @@
 Everyone who was in distress, everyone who was in debt, and everyone who was discontented gathered themselves to him; and he became captain over them. There were with him about four hundred men. 
 David went from there to Mizpeh of Moab; and he said to the king of Moab, "Please let my father and my mother come out to you, until I know what God will do for me." 
 He brought them before the king of Moab; and they lived with him all the time that David was in the stronghold. 
-The prophet Gad said to David, "Don't stay in the stronghold. Depart, and go into the land of Judah." Then David departed, and came into the forest of Hereth. 
+The spokesman Gad said to David, "Don't stay in the stronghold. Depart, and go into the land of Judah." Then David departed, and came into the forest of Hereth. 
 Saul heard that David was discovered, with the men who were with him. Now Saul was sitting in Gibeah, under the tamarisk tree in Ramah, with his spear in his hand, and all his servants were standing around him. 
 Saul said to his servants who stood around him, "Hear now, you Benjamites! Will the son of Jesse give everyone of you fields and vineyards? Will he make you all captains of thousands and captains of hundreds? 
 Is that why all of you have conspired against me, and there is no one who discloses to me when my son makes a treaty with the son of Jesse, and there is none of you who is sorry for me, or discloses to me that my son has stirred up my servant against me, to lie in wait, as it is today?" 

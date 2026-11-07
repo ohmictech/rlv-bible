@@ -10,7 +10,7 @@ They came to Hilkiah the high priest and delivered the money that was brought in
 They delivered it into the hands of the workmen who had the oversight of God's house; and the workmen who labored in God's house gave it to mend and repair the house. 
 They gave it to the carpenters and to the builders to buy cut stone and timber for couplings, and to make beams for the houses which the kings of Judah had destroyed. 
 The men did the work faithfully. Their overseers were Jahath and Obadiah the Levites, of the sons of Merari; and Zechariah and Meshullam, of the sons of the Kohathites, to give direction; and others of the Levites, who were all skillful with musical instruments. 
-Also they were over the bearers of burdens, and directed all who did the work in every kind of service. Of the Levites, there were scribes, officials, and gatekeepers. 
+Also they were over the bearers of burdens, and directed everyone who did the work in every kind of service. Of the Levites, there were scribes, officials, and gatekeepers. 
 When they brought out the money that was brought into God's house, Hilkiah the priest found the book of God's law given by Moses. 
 Hilkiah answered Shaphan the scribe, "I have found the book of the law in God's house." So Hilkiah delivered the book to Shaphan. 
 Shaphan carried the book to the king, and moreover brought back word to the king, saying, "All that was committed to your servants, they are doing. 
@@ -27,7 +27,7 @@ But to the king of Judah, who sent you to inquire of God, you shall tell him thi
 because your heart was tender, and you humbled yourself before God when you heard his words against this place and against its inhabitants, and have humbled yourself before me, and have torn your clothes and wept before me, I also have heard you," says God. 
 "Behold, I will gather you to your fathers, and you will be gathered to your grave in peace. Your eyes won't see all the evil that I will bring on this place and on its inhabitants."'" They brought back this message to the king. 
 Then the king sent and gathered together all the elders of Judah and Jerusalem. 
-The king went up to God's house with all the men of Judah and the inhabitants of Jerusalem, the priests, the Levites, and all the people, both great and small, and he read in their hearing all the words of the book of the covenant that was found in God's house. 
+The king went up to God's house with all the men of Judah and the inhabitants of Jerusalem, the priests, the Levites, and everyone, both great and small, and he read in their hearing all the words of the book of the covenant that was found in God's house. 
 The king stood in his place and made a covenant before God, to walk after God, and to keep his commandments, his testimonies, and his statutes with all his heart and with all his soul, to perform the words of the covenant that were written in this book. 
-He caused all who were found in Jerusalem and Benjamin to stand. The inhabitants of Jerusalem did according to the covenant of the God of their fathers. 
-Josiah took away all the abominations out of all the countries that belonged to the children of Israel, and made all who were found in Israel to serve, even to serve their God. All his days they didn't depart from following the God of their fathers. 
+He caused everyone who was found in Jerusalem and Benjamin to stand. The inhabitants of Jerusalem did according to the covenant of the God of their fathers. 
+Josiah took away all the abominations out of all the countries that belonged to the children of Israel, and made everyone who was found in Israel to serve, even to serve their God. All his days they didn't depart from following the God of their fathers. 

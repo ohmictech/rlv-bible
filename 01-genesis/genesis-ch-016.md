@@ -4,11 +4,11 @@ Sarai, Abram's wife, took Hagar the Egyptian, her servant, after Abram had lived
 He went in to Hagar, and she conceived. When she saw that she had conceived, her mistress was despised in her eyes. 
 Sarai said to Abram, "This wrong is your fault. I gave my servant into your bosom, and when she saw that she had conceived, she despised me. May God judge between me and you." 
 But Abram said to Sarai, "Behold, your maid is in your hand. Do to her whatever is good in your eyes." Sarai dealt harshly with her, and she fled from her face. 
-God's angel found her by a fountain of water in the wilderness, by the fountain on the way to Shur. 
+God's messenger found her by a fountain of water in the wilderness, by the fountain on the way to Shur. 
 He said, "Hagar, Sarai's servant, where did you come from? Where are you going?" She said, "I am fleeing from the face of my mistress Sarai." 
-God's angel said to her, "Return to your mistress, and submit yourself under her hands." 
-God's angel said to her, "I will greatly multiply your offspring, that they will not be counted for multitude." 
-God's angel said to her, "Behold, you are with child, and will bear a son. You shall call his name Ishmael, because God has heard your affliction. 
+God's messenger said to her, "Return to your mistress, and submit yourself under her hands." 
+God's messenger said to her, "I will greatly multiply your offspring, that they will not be counted for multitude." 
+God's messenger said to her, "Behold, you are with child, and will bear a son. You shall call his name Ishmael, because God has heard your affliction. 
 He will be like a wild donkey among men. His hand will be against every man, and every man's hand against him. He will live opposed to all of his brothers." 
 She called the name of God who spoke to her, "You are a God who sees," for she said, "Have I even stayed alive after seeing him?" 
 Therefore the well was called Beer Lahai Roi. Behold, it is between Kadesh and Bered. 

@@ -6,7 +6,7 @@ Declare in Judah, and publish in Jerusalem; and say, 'Blow the trumpet in the la
 Set up a standard toward Zion. Flee for safety! Don't wait; for I will bring evil from the north, and a great destruction." 
 A lion has gone up from his thicket, and a destroyer of nations. He is on his way. He has gone out from his place, to make your land desolate, that your cities be laid waste, without inhabitant. 
 For this, clothe yourself with sackcloth, lament and wail; for the fierce anger of God hasn't turned back from us. 
-"It will happen at that day," says God, "that the heart of the king will perish, along with the heart of the princes. The priests will be astonished, and the prophets will wonder." 
+"It will happen at that day," says God, "that the heart of the king will perish, along with the heart of the princes. The priests will be astonished, and the spokesmen will wonder." 
 Then I said, "Ah, God! Surely you have greatly deceived this people and Jerusalem, saying, 'You will have peace;' whereas the sword reaches to the heart." 
 At that time it will be said to this people and to Jerusalem, "A hot wind blows from the bare heights in the wilderness toward the daughter of my people, not to winnow, nor to cleanse. 
 A full wind from these will come for me. Now I will also utter judgments against them." 

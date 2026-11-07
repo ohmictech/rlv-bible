@@ -13,5 +13,5 @@ For innumerable evils have surrounded me. My iniquities have overtaken me, so th
 Be pleased, God, to deliver me. Hurry to help me, God. 
 Let them be disappointed and confounded together who seek after my soul to destroy it. Let them be turned backward and brought to dishonor who delight in my hurt. 
 Let them be desolate by reason of their shame that tell me, "Aha! Aha!" 
-Let all those who seek you rejoice and be glad in you. Let such as love your salvation say continually, "Let God be exalted!" 
+Let everyone who seeks you rejoice and be glad in you. Let such as love your salvation say continually, "Let God be exalted!" 
 But I am poor and needy. May the Lord think about me. You are my help and my deliverer. Don't delay, my God. 

@@ -30,7 +30,7 @@ whatever prayer and supplication is made by any man, or by all your people Israe
 then hear from heaven your dwelling place and forgive, and give to every man according to all his ways, whose heart you know (for you, even you only, know the hearts of the children of men), 
 that they may fear you, to walk in your ways as long as they live in the land which you gave to our fathers. 
 "Moreover, concerning the foreigner, who is not of your people Israel, when he comes from a far country for your great name's sake and your mighty hand and your outstretched arm, when they come and pray toward this house, 
-then hear from heaven, even from your dwelling place, and do according to all that the foreigner calls to you for; that all the peoples of the earth may know your name and fear you, as do your people Israel, and that they may know that this house which I have built is called by your name. 
+then hear from heaven, even from your dwelling place, and do according to all that the foreigner calls to you for; that everyones of the earth may know your name and fear you, as do your people Israel, and that they may know that this house which I have built is called by your name. 
 "If your people go out to battle against their enemies, by whatever way you send them, and they pray to you toward this city which you have chosen, and the house which I have built for your name; 
 then hear from heaven their prayer and their supplication, and maintain their cause. 
 "If they sin against you (for there is no man who doesn't sin), and you are angry with them and deliver them to the enemy, so that they carry them away captive to a land far off or near; 

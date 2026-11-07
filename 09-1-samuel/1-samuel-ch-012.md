@@ -15,8 +15,8 @@ If you will fear God, and serve him, and listen to his voice, and not rebel agai
 But if you will not listen to God's voice, but rebel against the commandment of God, then God's hand will be against you, as it was against your fathers. 
 "Now therefore stand still and see this great thing, which God will do before your eyes. 
 Isn't it wheat harvest today? I will call to God, that he may send thunder and rain; and you will know and see that your wickedness is great, which you have done in God's sight, in asking for a king." 
-So Samuel called to God, and God sent thunder and rain that day. Then all the people greatly feared God and Samuel. 
-All the people said to Samuel, "Pray for your servants to your God, that we not die; for we have added to all our sins this evil, to ask for a king." 
+So Samuel called to God, and God sent thunder and rain that day. Then everyone greatly feared God and Samuel. 
+Everyone said to Samuel, "Pray for your servants to your God, that we not die; for we have added to all our sins this evil, to ask for a king." 
 Samuel said to the people, "Don't be afraid. You have indeed done all this evil; yet don't turn away from following God, but serve God with all your heart. 
 Don't turn away to go after vain things which can't profit or deliver, for they are vain. 
 For God will not forsake his people for his great name's sake, because it has pleased God to make you a people for himself. 

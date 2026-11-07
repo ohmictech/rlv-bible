@@ -1,4 +1,4 @@
-﻿All the people of Judah took Uzziah, who was sixteen years old, and made him king in the place of his father Amaziah. 
+﻿Everyone in Judah took Uzziah, who was sixteen years old, and made him king in the place of his father Amaziah. 
 He built Eloth and restored it to Judah. After that the king slept with his fathers. 
 Uzziah was sixteen years old when he began to reign; and he reigned fifty-two years in Jerusalem. His mother's name was Jechiliah, of Jerusalem. 
 He did that which was right in God's eyes, according to all that his father Amaziah had done. 
@@ -19,5 +19,5 @@ They resisted Uzziah the king, and said to him, "It isn't for you, Uzziah, to bu
 Then Uzziah was angry. He had a censer in his hand to burn incense, and while he was angry with the priests, the leprosy broke out on his forehead before the priests in God's house, beside the altar of incense. 
 Azariah the chief priest and all the priests looked at him, and behold, he was leprous in his forehead; and they thrust him out quickly from there. Indeed, he himself also hurried to go out, because God had struck him. 
 Uzziah the king was a leper to the day of his death, and lived in a separate house, being a leper; for he was cut off from God's house. Jotham his son was over the king's house, judging the people of the land. 
-Now the rest of the acts of Uzziah, first and last, Isaiah the prophet, the son of Amoz, wrote. 
+Now the rest of the acts of Uzziah, first and last, Isaiah the spokesman, the son of Amoz, wrote. 
 So Uzziah slept with his fathers; and they buried him with his fathers in the field of burial which belonged to the kings, for they said, "He is a leper." Jotham his son reigned in his place. 

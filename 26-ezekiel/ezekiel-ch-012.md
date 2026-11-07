@@ -11,12 +11,12 @@ In the morning, God's word came to me, saying,
 "Say, 'I am your sign. As I have done, so will it be done to them. They will go into exile, into captivity. 
 "'The prince who is among them will bear his baggage on his shoulder in the dark, and will go out. They will dig through the wall to carry things out that way. He will cover his face, because he will not see the land with his eyes. 
 I will also spread my net on him, and he will be taken in my snare. I will bring him to Babylon to the land of the Chaldeans; yet he will not see it, though he will die there. 
-I will scatter toward every wind all who are around him to help him, and all his bands. I will draw out the sword after them. 
+I will scatter toward every wind everyone who is around him to help him, and all his bands. I will draw out the sword after them. 
 "'They will know that I am God when I disperse them among the nations and scatter them through the countries. 
 But I will leave a few men of them from the sword, from the famine, and from the pestilence, that they may declare all their abominations among the nations where they come. Then they will know that I am God.'" 
 Moreover God's word came to me, saying, 
 "Son of man, eat your bread with quaking, and drink your water with trembling and with fearfulness. 
-Tell the people of the land, 'The God says concerning the inhabitants of Jerusalem and the land of Israel: "They will eat their bread with fearfulness and drink their water in dismay, that her land may be desolate, and all that is therein, because of the violence of all those who dwell therein. 
+Tell the people of the land, 'The God says concerning the inhabitants of Jerusalem and the land of Israel: "They will eat their bread with fearfulness and drink their water in dismay, that her land may be desolate, and all that is therein, because of the violence of everyone who dwells therein. 
 The cities that are inhabited will be laid waste, and the land will be a desolation. Then you will know that I am God."'" 
 God's word came to me, saying, 
 "Son of man, what is this proverb that you have in the land of Israel, saying, 'The days are prolonged, and every vision fails'? 

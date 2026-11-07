@@ -15,7 +15,7 @@ for in six days God made heaven and earth, the sea, and all that is in them, and
 "You shall not steal. 
 "You shall not give false testimony against your neighbor. 
 "You shall not covet your neighbor's house. You shall not covet your neighbor's wife, nor his male servant, nor his female servant, nor his ox, nor his donkey, nor anything that is your neighbor's." 
-All the people perceived the thunderings, the lightnings, the sound of the trumpet, and the mountain smoking. When the people saw it, they trembled, and stayed at a distance. 
+Everyone perceived the thunderings, the lightnings, the sound of the trumpet, and the mountain smoking. When the people saw it, they trembled, and stayed at a distance. 
 They said to Moses, "Speak with us yourself, and we will listen; but don't let God speak with us, lest we die." 
 Moses said to the people, "Don't be afraid, for God has come to test you, and that his fear may be before you, that you won't sin." 
 The people stayed at a distance, and Moses came near to the thick darkness where God was. 

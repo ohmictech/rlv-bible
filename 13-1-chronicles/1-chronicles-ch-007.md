@@ -1,6 +1,6 @@
 ﻿Of the sons of Issachar: Tola, Puah, Jashub, and Shimron, four. 
 The sons of Tola: Uzzi, Rephaiah, Jeriel, Jahmai, Ibsam, and Shemuel, heads of their fathers' houses, of Tola; mighty men of valor in their generations. Their number in the days of David was twenty-two thousand six hundred. 
-The son of Uzzi: Izrahiah. The sons of Izrahiah: Michael, Obadiah, Joel, and Isshiah, five; all of them chief men. 
+The son of Uzzi: Izrahiah. The sons of Izrahiah: Michael, Obadiah, Joel, and Isshiah, five; everyone chief men. 
 With them, by their generations, after their fathers' houses, were bands of the army for war, thirty-six thousand; for they had many wives and sons. 
 Their brothers among all the families of Issachar, mighty men of valor, listed in all by genealogy, were eighty-seven thousand. 
 The sons of Benjamin: Bela, Becher, and Jediael, three. 

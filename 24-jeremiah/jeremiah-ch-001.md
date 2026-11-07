@@ -2,7 +2,7 @@
 God's word came to him in the days of Josiah the son of Amon, king of Judah, in the thirteenth year of his reign. 
 It came also in the days of Jehoiakim the son of Josiah, king of Judah, to the end of the eleventh year of Zedekiah, the son of Josiah, king of Judah, to the carrying away of Jerusalem captive in the fifth month. 
 Now God's word came to me, saying, 
-"Before I formed you in the womb, I knew you. Before you were born, I sanctified you. I have appointed you a prophet to the nations." 
+"Before I formed you in the womb, I knew you. Before you were born, I sanctified you. I have appointed you a spokesman to the nations." 
 Then I said, "Ah, God! Behold, I don't know how to speak; for I am a child." 
 But God said to me, "Don't say, 'I am a child;' for you must go to whomever I send you, and you must say whatever I command you. 
 Don't be afraid because of them, for I am with you to rescue you," says God. 

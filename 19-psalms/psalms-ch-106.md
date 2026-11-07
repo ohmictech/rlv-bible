@@ -43,6 +43,6 @@ Their enemies also oppressed them. They were brought into subjection under their
 He rescued them many times, but they were rebellious in their counsel, and were brought low in their iniquity. 
 Nevertheless he regarded their distress, when he heard their cry. 
 He remembered for them his covenant, and repented according to the multitude of his loving kindnesses. 
-He made them also to be pitied by all those who carried them captive. 
+He made them also to be pitied by everyone who carried them captive. 
 Save us, God, our God, gather us from among the nations, to give thanks to your holy name, to triumph in your praise! 
-Blessed be the God of Israel, from everlasting even to everlasting! Let all the people say, "Amen." Praise God! 
+Blessed be the God of Israel, from perpetual even to perpetual! Let everyone say, "Amen." Praise God! 

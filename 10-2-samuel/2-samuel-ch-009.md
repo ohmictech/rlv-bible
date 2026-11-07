@@ -9,5 +9,5 @@ He bowed down, and said, "What is your servant, that you should look at such a d
 Then the king called to Ziba, Saul's servant, and said to him, "All that belonged to Saul and to all his house I have given to your master's son. 
 Till the land for him, you, your sons, and your servants. Bring in the harvest, that your master's son may have bread to eat; but Mephibosheth your master's son will always eat bread at my table." Now Ziba had fifteen sons and twenty servants. 
 Then Ziba said to the king, "According to all that my lord the king commands his servant, so your servant will do." So Mephibosheth ate at the king's table like one of the king's sons. 
-Mephibosheth had a young son, whose name was Mica. All who lived in Ziba's house were servants to Mephibosheth. 
+Mephibosheth had a young son, whose name was Mica. Everyone who lived in Ziba's house were servants to Mephibosheth. 
 So Mephibosheth lived in Jerusalem, for he ate continually at the king's table. He was lame in both his feet. 

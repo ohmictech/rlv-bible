@@ -2,7 +2,7 @@
 There is cursing, lying, murder, stealing, and committing adultery; they break boundaries, and bloodshed causes bloodshed. 
 Therefore the land will mourn, and everyone who dwells in it will waste away, with all living things in her, even the animals of the field and the birds of the sky; yes, the fish of the sea also die. 
 "Yet let no man bring a charge, neither let any man accuse; for your people are like those who bring charges against a priest. 
-You will stumble in the day, and the prophet will also stumble with you in the night; and I will destroy your mother. 
+You will stumble in the day, and the spokesman will also stumble with you in the night; and I will destroy your mother. 
 My people are destroyed for lack of knowledge. Because you have rejected knowledge, I will also reject you, that you may be no priest to me. Because you have forgotten your God's law, I will also forget your children. 
 As they were multiplied, so they sinned against me. I will change their glory into shame. 
 They feed on the sin of my people, and set their heart on their iniquity. 

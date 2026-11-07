@@ -1,13 +1,13 @@
-﻿The word that God spoke concerning Babylon, concerning the land of the Chaldeans, by Jeremiah the prophet. 
+﻿The word that God spoke concerning Babylon, concerning the land of the Chaldeans, by Jeremiah the spokesman. 
 "Declare among the nations and publish, and set up a standard; publish, and don't conceal; say, 'Babylon has been taken, Bel is disappointed, Merodach is dismayed! Her images are disappointed. Her idols are dismayed.' 
 For a nation comes up out of the north against her, which will make her land desolate, and no one will dwell in it. They have fled. They are gone, both man and animal. 
 "In those days, and in that time," says God, "the children of Israel will come, they and the children of Judah together; they will go on their way weeping, and will seek their God. 
-They will inquire concerning Zion with their faces turned toward it, saying, 'Come, and join yourselves to God in an everlasting covenant that will not be forgotten.' 
+They will inquire concerning Zion with their faces turned toward it, saying, 'Come, and join yourselves to God in an perpetual covenant that will not be forgotten.' 
 My people have been lost sheep. Their shepherds have caused them to go astray. They have turned them away on the mountains. They have gone from mountain to hill. They have forgotten their resting place. 
-All who found them have devoured them. Their adversaries said, 'We are not guilty, because they have sinned against God, the habitation of righteousness, even God, the hope of their fathers.' 
+Everyone who found them have devoured them. Their adversaries said, 'We are not guilty, because they have sinned against God, the habitation of righteousness, even God, the hope of their fathers.' 
 "Flee out of the middle of Babylon! Go out of the land of the Chaldeans, and be as the male goats before the flocks. 
 For, behold, I will stir up and cause to come up against Babylon a company of great nations from the north country; and they will set themselves in array against her. She will be taken from there. Their arrows will be as of an expert mighty man. None of them will return in vain. 
-Chaldea will be a prey. All who prey on her will be satisfied," says God. 
+Chaldea will be a prey. Everyone who preys on her will be satisfied," says God. 
 "Because you are glad, because you rejoice, O you who plunder my heritage, because you are wanton as a heifer that treads out the grain, and neigh as strong horses, 
 your mother will be utterly disappointed. She who bore you will be confounded. Behold, she will be the least of the nations, a wilderness, a dry land, and a desert. 
 Because of God's wrath she won't be inhabited, but she will be wholly desolate. Everyone who goes by Babylon will be astonished, and hiss at all her plagues. 
@@ -26,11 +26,11 @@ God has opened his armory, and has brought out the weapons of his indignation; f
 Come against her from the farthest border. Open her storehouses. Cast her up as heaps. Destroy her utterly. Let nothing of her be left. 
 Kill all her bulls. Let them go down to the slaughter. Woe to them! For their day has come, the time of their visitation. 
 Listen to those who flee and escape out of the land of Babylon, to declare in Zion the vengeance of our God, the vengeance of his temple. 
-"Call together the archers against Babylon, all those who bend the bow. Encamp against her all around. Let none of it escape. Pay her back according to her work. According to all that she has done, do to her; for she has been proud against God, against the Holy One of Israel. 
+"Call together the archers against Babylon, everyone who bends the bow. Encamp against her all around. Let none of it escape. Pay her back according to her work. According to all that she has done, do to her; for she has been proud against God, against the Holy One of Israel. 
 Therefore her young men will fall in her streets. All her men of war will be brought to silence in that day," says God. 
 "Behold, I am against you, you proud one," says the Lord, GOD of Armies; "for your day has come, the time that I will visit you. 
-The proud one will stumble and fall, and no one will raise him up. I will kindle a fire in his cities, and it will devour all who are around him." 
-The God of Armies says: "The children of Israel and the children of Judah are oppressed together. All who took them captive hold them fast. They refuse to let them go. 
+The proud one will stumble and fall, and no one will raise him up. I will kindle a fire in his cities, and it will devour everyone who is around him." 
+The God of Armies says: "The children of Israel and the children of Judah are oppressed together. Everyone who took them captive hold them fast. They refuse to let them go. 
 Their Redeemer is strong. The God of Armies is his name. He will thoroughly plead their cause, that he may give rest to the earth, and disquiet the inhabitants of Babylon. 
 "A sword is on the Chaldeans," says God, "and on the inhabitants of Babylon, on her princes, and on her wise men. 
 A sword is on the boasters, and they will become fools. A sword is on her mighty men, and they will be dismayed. 

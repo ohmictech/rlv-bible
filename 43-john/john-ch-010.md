@@ -5,7 +5,7 @@ Whenever he brings out his own sheep, he goes before them; and the sheep follow 
 They will by no means follow a stranger, but will flee from him; for they don't know the voice of strangers." 
 Jesus spoke this story to them, but they didn't understand what he was telling them. 
 Jesus therefore said to them again, "Truly I tell you, I am the sheep's door. 
-All who came before me are thieves and robbers, but the sheep didn't listen to them. 
+Everyone who came before me are thieves and robbers, but the sheep didn't listen to them. 
 I am the door. If anyone enters in by me, they will be made whole, and will go in and go out and will find pasture. 
 The thief only comes to steal, kill, and ruin. I came that they may have life, and may have it overflowing. 
 "I am the good shepherd. The good shepherd lays down his life for the sheep. 

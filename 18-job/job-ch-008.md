@@ -10,7 +10,7 @@ Though your beginning was small, yet your latter end would greatly increase.
 Shall they not teach you, tell you, and utter words out of their heart? 
 "Can the papyrus grow up without mire? Can the rushes grow without water? 
 While it is yet in its greenness, not cut down, it withers before any other reed. 
-So are the paths of all who forget God. The hope of the godless man will perish, 
+So are the paths of everyone who forgets God. The hope of the godless man will perish, 
 whose confidence will break apart, whose trust is a spider's web. 
 He will lean on his house, but it will not stand. He will cling to it, but it will not endure. 
 He is green before the sun. His shoots go out along his garden. 

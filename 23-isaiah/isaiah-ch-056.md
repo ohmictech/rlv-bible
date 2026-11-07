@@ -2,7 +2,7 @@
 Blessed is the man who does this, and the son of man who holds it fast; who keeps the Sabbath without profaning it and keeps his hand from doing any evil." 
 Let no foreigner who has joined himself to God speak, saying, "God will surely separate me from his people." Do not let the eunuch say, "Behold, I am a dry tree." 
 For God says, "To the eunuchs who keep my Sabbaths, choose the things that please me, and hold fast to my covenant, 
-I will give them in my house and within my walls a memorial and a name better than of sons and of daughters. I will give them an everlasting name that will not be cut off. 
+I will give them in my house and within my walls a memorial and a name better than of sons and of daughters. I will give them an perpetual name that will not be cut off. 
 Also the foreigners who join themselves to God to serve him, and to love God's name, to be his servants, everyone who keeps the Sabbath from profaning it, and holds fast my covenant, 
 I will bring these to my holy mountain, and make them joyful in my house of prayer. Their burnt offerings and their sacrifices will be accepted on my altar; for my house will be called a house of prayer for all peoples." 
 The God, who gathers the outcasts of Israel, says, "I will yet gather others to him, in addition to his own who are gathered." 

@@ -18,7 +18,7 @@ Cain knew his wife. She conceived, and gave birth to Enoch. He built a city, and
 Irad was born to Enoch. Irad became the father of Mehujael. Mehujael became the father of Methushael. Methushael became the father of Lamech. 
 Lamech took two wives: the name of the first one was Adah, and the name of the second one was Zillah. 
 Adah gave birth to Jabal, who was the father of those who dwell in tents and have livestock. 
-His brother's name was Jubal, who was the father of all who handle the harp and pipe. 
+His brother's name was Jubal, who was the father of everyone who handles the harp and pipe. 
 Zillah also gave birth to Tubal Cain, the forger of every cutting instrument of bronze and iron. Tubal Cain's sister was Naamah. 
 Lamech said to his wives, "Adah and Zillah, hear my voice. You wives of Lamech, listen to my speech, for I have slain a man for wounding me, a young man for bruising me. 
 If Cain will be avenged seven times, truly Lamech seventy-seven times." 

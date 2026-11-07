@@ -1,7 +1,7 @@
 ﻿Woe to her who is rebellious and polluted, the oppressing city! 
 She didn't obey the voice. She didn't receive correction. She didn't trust in God. She didn't draw near to her God. 
 Her princes within her are roaring lions. Her judges are evening wolves. They leave nothing until the next day. 
-Her prophets are arrogant and treacherous people. Her priests have profaned the sanctuary. They have done violence to the law. 
+Her spokesmen are arrogant and treacherous people. Her priests have profaned the sanctuary. They have done violence to the law. 
 God, within her, is righteous. He will do no wrong. Every morning he brings his justice to light. He doesn't fail, but the unjust know no shame. 
 I have cut off nations. Their battlements are desolate. I have made their streets waste, so that no one passes by. Their cities are destroyed, so that there is no man, so that there is no inhabitant. 
 I said, "Just fear me. Receive correction," so that her dwelling won't be cut off, according to all that I have appointed concerning her. But they rose early and corrupted all their doings. 
@@ -16,5 +16,5 @@ God has taken away your judgments. He has thrown out your enemy. The King of Isr
 In that day, it will be said to Jerusalem, "Don't be afraid, Zion. Don't let your hands be weak." 
 God, your God, is among you, a mighty one who will save. He will rejoice over you with joy. He will calm you in his love. He will rejoice over you with singing. 
 I will remove those who grieve about the appointed feasts from you. They are a burden and a reproach to you. 
-Behold, at that time I will deal with all those who afflict you; and I will save those who are lame and gather those who were driven away. I will give them praise and honor, whose shame has been in all the earth. 
-At that time I will bring you in, and at that time I will gather you; for I will give you honor and praise among all the peoples of the earth when I restore your fortunes before your eyes, says God. 
+Behold, at that time I will deal with everyone who afflicts you; and I will save those who are lame and gather those who were driven away. I will give them praise and honor, whose shame has been in all the earth. 
+At that time I will bring you in, and at that time I will gather you; for I will give you honor and praise among everyones of the earth when I restore your fortunes before your eyes, says God. 

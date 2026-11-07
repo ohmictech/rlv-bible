@@ -2,7 +2,7 @@
 Therefore behold, the days come," says God, "that I will cause an alarm of war to be heard against Rabbah of the children of Ammon, and it will become a desolate heap, and her daughters will be burned with fire; then Israel will possess those who possessed him," says God. 
 "Wail, Heshbon, for Ai is laid waste! Cry, you daughters of Rabbah! Clothe yourself in sackcloth. Lament, and run back and forth among the fences; for Malcam will go into captivity, his priests and his princes together. 
 Why do you boast in the valleys, your flowing valley, backsliding daughter? You trusted in her treasures, saying, 'Who will come to me?' 
-Behold, I will bring a terror on you," says the Lord, GOD of Armies, "from all who are around you. All of you will be driven completely out, and there will be no one to gather together the fugitives. 
+Behold, I will bring a terror on you," says the Lord, GOD of Armies, "from everyone who is around you. All of you will be driven completely out, and there will be no one to gather together the fugitives. 
 "But afterward I will reverse the captivity of the children of Ammon," says God. 
 Of Edom, the God of Armies says: "Is wisdom no more in Teman? Has counsel perished from the prudent? Has their wisdom vanished? 
 Flee! Turn back! Dwell in the depths, inhabitants of Dedan; for I will bring the calamity of Esau on him when I visit him. 
@@ -31,7 +31,7 @@ Flee! Wander far off! Dwell in the depths, you inhabitants of Hazor," says God; 
 Arise! Go up to a nation that is at ease, that dwells without care," says God; "that has neither gates nor bars, that dwells alone. 
 Their camels will be a booty, and the multitude of their livestock a plunder. I will scatter to all winds those who have the corners of their beards cut off; and I will bring their calamity from every side of them," says God. 
 Hazor will be a dwelling place of jackals, a desolation for the eras. No man will dwell there, neither will any son of man live therein." 
-God's word that came to Jeremiah the prophet concerning Elam, in the beginning of the reign of Zedekiah king of Judah, saying, 
+God's word that came to Jeremiah the spokesman concerning Elam, in the beginning of the reign of Zedekiah king of Judah, saying, 
 "The God of Armies says: 'Behold, I will break the bow of Elam, the chief of their might. 
 I will bring on Elam the four winds from the four quarters of the sky, and will scatter them toward all those winds. There will be no nation where the outcasts of Elam will not come. 
 I will cause Elam to be dismayed before their enemies, and before those who seek their life. I will bring evil on them, even my fierce anger,' says God; 'and I will send the sword after them, until I have consumed them. 

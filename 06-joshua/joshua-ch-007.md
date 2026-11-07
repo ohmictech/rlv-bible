@@ -1,6 +1,6 @@
 ﻿But the children of Israel committed a trespass in the devoted things; for Achan, the son of Carmi, the son of Zabdi, the son of Zerah, of the tribe of Judah, took some of the devoted things. Therefore God's anger burned against the children of Israel. 
 Joshua sent men from Jericho to Ai, which is beside Beth Aven, on the east side of Bethel, and spoke to them, saying, "Go up and spy out the land." The men went up and spied out Ai. 
-They returned to Joshua, and said to him, "Don't let all the people go up, but let about two or three thousand men go up and strike Ai. Don't make all the people to toil there, for there are only a few of them." 
+They returned to Joshua, and said to him, "Don't let everyone go up, but let about two or three thousand men go up and strike Ai. Don't make everyone to toil there, for there are only a few of them." 
 So about three thousand men of the people went up there, and they fled before the men of Ai. 
 The men of Ai struck about thirty-six men of them. They chased them from before the gate even to Shebarim, and struck them at the descent. The hearts of the people melted, and became like water. 
 Joshua tore his clothes, and fell to the earth on his face before God's ark until the evening, he and the elders of Israel; and they put dust on their heads. 

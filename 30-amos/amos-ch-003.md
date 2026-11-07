@@ -4,7 +4,7 @@ Do two walk together, unless they have agreed?
 Will a lion roar in the thicket, when he has no prey? Does a young lion cry out of his den, if he has caught nothing? 
 Can a bird fall in a trap on the earth, where no snare is set for him? Does a snare spring up from the ground, when there is nothing to catch? 
 Does the trumpet alarm sound in a city, without the people being afraid? Does evil happen to a city, and God hasn't done it? 
-Surely God will do nothing, unless he reveals his secret to his servants the prophets. 
+Surely God will do nothing, unless he reveals his secret to his servants the spokesmen. 
 The lion has roared. Who will not fear? The God has spoken. Who can but prophesy? 
 Proclaim in the palaces at Ashdod, and in the palaces in the land of Egypt, and say, "Assemble yourselves on the mountains of Samaria, and see what unrest is in her, and what oppression is among them." 
 "Indeed they don't know to do right," says God, "Who hoard plunder and loot in their palaces." 

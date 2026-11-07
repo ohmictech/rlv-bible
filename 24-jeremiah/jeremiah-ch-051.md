@@ -56,7 +56,7 @@ For God lays Babylon waste, and destroys out of her the great voice! Their waves
 For the destroyer has come on her, even on Babylon. Her mighty men are taken. Their bows are broken in pieces, for God is a God of retribution. He will surely repay. 
 I will make her princes, her wise men, her governors, her deputies, and her mighty men drunk. They will sleep a perpetual sleep, and not wake up," says the King, whose name is the God of Armies. 
 The God of Armies says: "The wide walls of Babylon will be utterly overthrown. Her high gates will be burned with fire. The peoples will labor for vanity, and the nations for the fire; and they will be weary." 
-The word which Jeremiah the prophet commanded Seraiah the son of Neriah, the son of Mahseiah, when he went with Zedekiah the king of Judah to Babylon in the fourth year of his reign. Now Seraiah was chief quartermaster. 
+The word which Jeremiah the spokesman commanded Seraiah the son of Neriah, the son of Mahseiah, when he went with Zedekiah the king of Judah to Babylon in the fourth year of his reign. Now Seraiah was chief quartermaster. 
 Jeremiah wrote in a book all the evil that should come on Babylon, even all these words that are written concerning Babylon. 
 Jeremiah said to Seraiah, "When you come to Babylon, then see that you read all these words, 
 and say, 'God, you have spoken concerning this place, to cut it off, that no one will dwell in it, neither man nor animal, but that it will be desolate for the eras.' 

@@ -10,7 +10,7 @@ She said, "I will surely go with you. Nevertheless, the journey that you take wo
 Barak called Zebulun and Naphtali together to Kedesh. Ten thousand men followed him; and Deborah went up with him. 
 Now Heber the Kenite had separated himself from the Kenites, even from the children of Hobab, Moses' brother-in-law, and had pitched his tent as far as the oak in Zaanannim, which is by Kedesh. 
 They told Sisera that Barak the son of Abinoam had gone up to Mount Tabor. 
-Sisera gathered together all his chariots, even nine hundred chariots of iron, and all the people who were with him, from Harosheth of the Gentiles, to the river Kishon. 
+Sisera gathered together all his chariots, even nine hundred chariots of iron, and everyone who was with him, from Harosheth of the Gentiles, to the river Kishon. 
 Deborah said to Barak, "Go; for this is the day in which God has delivered Sisera into your hand. Hasn't God gone out before you?" So Barak went down from Mount Tabor, and ten thousand men after him. 
 God confused Sisera, all his chariots, and all his army, with the edge of the sword before Barak. Sisera abandoned his chariot and fled away on his feet. 
 But Barak pursued the chariots and the army to Harosheth of the Gentiles; and all the army of Sisera fell by the edge of the sword. There was not a man left. 

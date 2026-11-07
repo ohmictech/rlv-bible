@@ -1,5 +1,5 @@
 ﻿When King Hezekiah heard it, he tore his clothes, covered himself with sackcloth, and went into God's house. 
-He sent Eliakim, who was over the household, Shebna the scribe, and the elders of the priests, covered with sackcloth, to Isaiah the prophet the son of Amoz. 
+He sent Eliakim, who was over the household, Shebna the scribe, and the elders of the priests, covered with sackcloth, to Isaiah the spokesman the son of Amoz. 
 They said to him, "Hezekiah says, 'Today is a day of trouble, of rebuke, and of rejection; for the children have come to the point of birth, and there is no strength to deliver them. 
 It may be your God will hear all the words of Rabshakeh, whom the king of Assyria his master has sent to defy the living God, and will rebuke the words which your God has heard. Therefore lift up your prayer for the remnant that is left.'" 
 So the servants of King Hezekiah came to Isaiah. 
@@ -32,6 +32,6 @@ For out of Jerusalem a remnant will go out, and out of Mount Zion those who shal
 "Therefore God says concerning the king of Assyria, 'He will not come to this city, nor shoot an arrow there. He will not come before it with shield, nor cast up a mound against it. 
 He will return the same way that he came, and he will not come to this city,' says God. 
 'For I will defend this city to save it, for my own sake and for my servant David's sake.'" 
-That night, God's angel went out and struck one hundred eighty-five thousand in the camp of the Assyrians. When men arose early in the morning, behold, these were all dead bodies. 
+That night, God's messenger went out and struck one hundred eighty-five thousand in the camp of the Assyrians. When men arose early in the morning, behold, these were all dead bodies. 
 So Sennacherib king of Assyria departed, went home, and lived at Nineveh. 
 As he was worshiping in the house of Nisroch his god, Adrammelech and Sharezer struck him with the sword; and they escaped into the land of Ararat. Esar Haddon his son reigned in his place. 

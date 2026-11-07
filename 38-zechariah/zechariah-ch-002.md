@@ -1,6 +1,6 @@
 ﻿I lifted up my eyes, and saw, and behold, a man with a measuring line in his hand. 
 Then I asked, "Where are you going?" He said to me, "To measure Jerusalem, to see what is its width and what is its length." 
-Behold, the angel who talked with me went out, and another angel went out to meet him, 
+Behold, the messenger who talked with me went out, and another messenger went out to meet him, 
 and said to him, "Run, speak to this young man, saying, 'Jerusalem will be inhabited as villages without walls, because of the multitude of men and livestock in it. 
 For I,' says God, 'will be to her a wall of fire around it, and I will be the glory in the middle of her. 
 Come! Come! Flee from the land of the north,' says God; 'for I have spread you abroad as the four winds of the sky,' says God. 

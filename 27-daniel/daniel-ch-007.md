@@ -11,12 +11,12 @@ A fiery stream issued and came out from before him. Thousands of thousands minis
 "I watched at that time because of the voice of the arrogant words which the horn spoke. I watched even until the animal was slain, and its body destroyed, and it was given to be burned with fire. 
 As for the rest of the animals, their dominion was taken away; yet their lives were prolonged for a season and a time. 
 "I saw in the night visions, and behold, there came with the clouds of the sky one like a son of man, and he came even to the Ancient of Days, and they brought him near before him. 
-Dominion was given him, and glory, and a kingdom, that all the peoples, nations, and languages should serve him. His dominion is an everlasting dominion, which will not pass away, and his kingdom one that will not be destroyed. 
+Dominion was given him, and glory, and a kingdom, that everyones, nations, and languages should serve him. His dominion is an perpetual dominion, which will not pass away, and his kingdom one that will not be destroyed. 
 "As for me, Daniel, my spirit was grieved within my body, and the visions of my head troubled me. 
 I came near to one of those who stood by, and asked him the truth concerning all this. "So he told me, and made me know the interpretation of the things. 
 'These great animals, which are four, are four kings, who will arise out of the earth. 
 But the saints of the Most High will receive the kingdom, and possess the kingdom for the eras, even for all the eras.' 
-"Then I desired to know the truth concerning the fourth animal, which was different from all of them, exceedingly terrible, whose teeth were of iron, and its nails of bronze; which devoured, broke in pieces, and stamped the residue with its feet; 
+"Then I desired to know the truth concerning the fourth animal, which was different from everyone, exceedingly terrible, whose teeth were of iron, and its nails of bronze; which devoured, broke in pieces, and stamped the residue with its feet; 
 and concerning the ten horns that were on its head and the other horn which came up, and before which three fell, even that horn that had eyes and a mouth that spoke arrogantly, whose look was more stout than its fellows. 
 I saw, and the same horn made war with the saints, and prevailed against them, 
 until the Ancient of Days came, and judgment was given to the saints of the Most High, and the time came that the saints possessed the kingdom. 
@@ -24,5 +24,5 @@ until the Ancient of Days came, and judgment was given to the saints of the Most
 As for the ten horns, ten kings will arise out of this kingdom. Another will arise after them; and he will be different from the former, and he will put down three kings. 
 He will speak words against the Most High, and will wear out the saints of the Most High. He will plan to change the times and the law; and they will be given into his hand until a time and times and half a time. 
 "'But the judgment will be set, and they will take away his dominion, to consume and to destroy it to the end. 
-The kingdom and the dominion, and the greatness of the kingdoms under the whole sky, will be given to the people of the saints of the Most High. His kingdom is an everlasting kingdom, and all dominions will serve and obey him.' 
+The kingdom and the dominion, and the greatness of the kingdoms under the whole sky, will be given to the people of the saints of the Most High. His kingdom is an perpetual kingdom, and all dominions will serve and obey him.' 
 "Here is the end of the matter. As for me, Daniel, my thoughts troubled me greatly, and my face was changed in me; but I kept the matter in my heart." 

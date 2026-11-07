@@ -22,4 +22,4 @@ Amon was twenty-two years old when he began to reign; and he reigned two years i
 He did that which was evil in God's sight, as did Manasseh his father; and Amon sacrificed to all the engraved images which Manasseh his father had made, and served them. 
 He didn't humble himself before God, as Manasseh his father had humbled himself; but this same Amon trespassed more and more. 
 His servants conspired against him, and put him to death in his own house. 
-But the people of the land killed all those who had conspired against King Amon; and the people of the land made Josiah his son king in his place. 
+But the people of the land killed everyone who had conspired against King Amon; and the people of the land made Josiah his son king in his place. 

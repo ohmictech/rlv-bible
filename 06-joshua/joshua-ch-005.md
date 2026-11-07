@@ -1,8 +1,8 @@
 ﻿When all the kings of the Amorites, who were beyond the Jordan westward, and all the kings of the Canaanites, who were by the sea, heard how God had dried up the waters of the Jordan from before the children of Israel until we had crossed over, their heart melted, and there was no more spirit in them, because of the children of Israel. 
 At that time, God said to Joshua, "Make flint knives, and circumcise again the sons of Israel the second time." 
 Joshua made himself flint knives, and circumcised the sons of Israel at the hill of the foreskins. 
-This is the reason Joshua circumcised them: all the people who came out of Egypt, who were males, even all the men of war, died in the wilderness along the way, after they came out of Egypt. 
-For all the people who came out were circumcised; but all the people who were born in the wilderness along the way as they came out of Egypt had not been circumcised. 
+This is the reason Joshua circumcised them: everyone who came out of Egypt, who were males, even all the men of war, died in the wilderness along the way, after they came out of Egypt. 
+For everyone who came out were circumcised; but everyone who was born in the wilderness along the way as they came out of Egypt had not been circumcised. 
 For the children of Israel walked forty years in the wilderness until all the nation, even the men of war who came out of Egypt, were consumed, because they didn't listen to God's voice. God swore to them that he wouldn't let them see the land which God swore to their fathers that he would give us, a land flowing with milk and honey. 
 Their children, whom he raised up in their place, were circumcised by Joshua, for they were uncircumcised, because they had not circumcised them on the way. 
 When they were done circumcising the whole nation, they stayed in their places in the camp until they were healed. 

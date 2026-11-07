@@ -1,7 +1,7 @@
-﻿The word that came to Jeremiah concerning all the people of Judah, in the fourth year of Jehoiakim the son of Josiah, king of Judah (this was the first year of Nebuchadnezzar king of Babylon), 
-which Jeremiah the prophet spoke to all the people of Judah, and to all the inhabitants of Jerusalem: 
+﻿The word that came to Jeremiah concerning everyone in Judah, in the fourth year of Jehoiakim the son of Josiah, king of Judah (this was the first year of Nebuchadnezzar king of Babylon), 
+which Jeremiah the spokesman spoke to everyone in Judah, and to all the inhabitants of Jerusalem: 
 From the thirteenth year of Josiah the son of Amon, king of Judah, even to this day, these twenty-three years, God's word has come to me, and I have spoken to you, rising up early and speaking; but you have not listened. 
-God has sent to you all his servants the prophets, rising up early and sending them (but you have not listened or inclined your ear to hear), 
+God has sent to you all his servants the spokesmen, rising up early and sending them (but you have not listened or inclined your ear to hear), 
 saying, "Return now everyone from his evil way, and from the evil of your doings, and dwell in the land that God has given to you and to your fathers, from of old and even for the eras more. 
 Don't go after other gods to serve them or worship them, and don't provoke me to anger with the work of your hands; then I will do you no harm." 
 "Yet you have not listened to me," says God, "that you may provoke me to anger with the work of your hands to your own hurt." 
@@ -20,7 +20,7 @@ Pharaoh king of Egypt, with his servants, his princes, and all his people;
 and all the mixed people, and all the kings of the land of Uz, all the kings of the Philistines, Ashkelon, Gaza, Ekron, and the remnant of Ashdod; 
 Edom, Moab, and the children of Ammon; 
 and all the kings of Tyre, all the kings of Sidon, and the kings of the isle which is beyond the sea; 
-Dedan, Tema, Buz, and all who have the corners of their beard cut off; 
+Dedan, Tema, Buz, and everyone who has the corners of their beard cut off; 
 and all the kings of Arabia, all the kings of the mixed people who dwell in the wilderness; 
 and all the kings of Zimri, all the kings of Elam, and all the kings of the Medes; 
 and all the kings of the north, far and near, one with another; and all the kingdoms of the world, which are on the surface of the earth. The king of Sheshach will drink after them. 

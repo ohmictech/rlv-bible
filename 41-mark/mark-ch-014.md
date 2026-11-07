@@ -21,7 +21,7 @@ He answered them, "It is one of the twelve, he who dips with me in the dish.
 For the Human One goes as it is written about him, but how terrible for that man who hands over the Human One! It would be better for that man if he had not been born." 
 As they were eating, Jesus took bread, and when he had blessed it, he broke it and gave it to them, and said, "Take it. This is my body." 
 He took the cup, and when he had given thanks, he gave it to them, and they all drank from it. 
-He said to them, "This is my blood of the new binding arrangement, which is poured out for many. 
+He said to them, "This is my blood of the new binding arrangement, which is poured out for everyone. 
 Truly I tell you, I will never again drink from the fruit of the vine until that day when I drink it new in God's reign." 
 When they had sung a hymn, they went out to the Mount of Olives. 
 Jesus said to them, "All of you will be trapped because of me tonight, for it is written, 'I will strike the shepherd, and the sheep will be scattered.' 

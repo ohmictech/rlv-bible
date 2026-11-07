@@ -17,5 +17,5 @@ Then Eli called Samuel and said, "Samuel, my son!" He said, "Here I am."
 He said, "What is the thing that he has spoken to you? Please don't hide it from me. God do so to you, and more also, if you hide anything from me of all the things that he spoke to you." 
 Samuel told him every bit, and hid nothing from him. He said, "It is God. Let him do what seems good to him." 
 Samuel grew, and God was with him and let none of his words fall to the ground. 
-All Israel from Dan even to Beersheba knew that Samuel was established to be a prophet of God. 
+All Israel from Dan even to Beersheba knew that Samuel was established to be a spokesman of God. 
 God appeared again in Shiloh; for God revealed himself to Samuel in Shiloh by God's word. 

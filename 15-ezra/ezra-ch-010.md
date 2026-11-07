@@ -6,14 +6,14 @@ Then Ezra arose, and made the chiefs of the priests, the Levites, and all Israel
 Then Ezra rose up from before God's house, and went into the room of Jehohanan the son of Eliashib. When he came there, he didn't eat bread or drink water, for he mourned because of the trespass of the exiles. 
 They made a proclamation throughout Judah and Jerusalem to all the children of the captivity, that they should gather themselves together to Jerusalem; 
 and that whoever didn't come within three days, according to the counsel of the princes and the elders, all his possessions should be forfeited, and he himself separated from the assembly of the captivity. 
-Then all the men of Judah and Benjamin gathered themselves together to Jerusalem within the three days. It was the ninth month, on the twentieth day of the month; and all the people sat in the wide place in front of God's house, trembling because of this matter, and because of the great rain. 
+Then all the men of Judah and Benjamin gathered themselves together to Jerusalem within the three days. It was the ninth month, on the twentieth day of the month; and everyone sat in the wide place in front of God's house, trembling because of this matter, and because of the great rain. 
 Ezra the priest stood up and said to them, "You have trespassed, and have married foreign women, increasing the guilt of Israel. 
 Now therefore make confession to the God of your fathers and do his pleasure. Separate yourselves from the peoples of the land and from the foreign women." 
 Then all the assembly answered with a loud voice, "We must do as you have said concerning us. 
 But the people are many, and it is a time of much rain, and we are not able to stand outside. This is not a work of one day or two, for we have greatly transgressed in this matter. 
-Now let our princes be appointed for all the assembly, and let all those who are in our cities who have married foreign women come at appointed times, and with them the elders of every city and its judges, until the fierce wrath of our God is turned from us, until this matter is resolved." 
+Now let our princes be appointed for all the assembly, and let everyone who is in our cities who have married foreign women come at appointed times, and with them the elders of every city and its judges, until the fierce wrath of our God is turned from us, until this matter is resolved." 
 Only Jonathan the son of Asahel and Jahzeiah the son of Tikvah stood up against this; and Meshullam and Shabbethai the Levite helped them. 
-The children of the captivity did so. Ezra the priest, with certain heads of fathers' households, after their fathers' houses, and all of them by their names, were set apart; and they sat down in the first day of the tenth month to examine the matter. 
+The children of the captivity did so. Ezra the priest, with certain heads of fathers' households, after their fathers' houses, and everyone by their names, were set apart; and they sat down in the first day of the tenth month to examine the matter. 
 They finished with all the men who had married foreign women by the first day of the first month. 
 Among the sons of the priests there were found who had married foreign women: of the sons of Jeshua, the son of Jozadak, and his brothers: Maaseiah, Eliezer, Jarib, and Gedaliah. 
 They gave their hand that they would put away their wives; and being guilty, they offered a ram of the flock for their guilt. 

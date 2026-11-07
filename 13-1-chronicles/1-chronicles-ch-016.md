@@ -14,14 +14,14 @@ you offspring of Israel his servant, you children of Jacob, his chosen ones.
 He is our God. His judgments are in all the earth. 
 Remember his covenant for the eras, the word which he commanded to a thousand generations, 
 the covenant which he made with Abraham, his oath to Isaac. 
-He confirmed it to Jacob for a statute, and to Israel for an everlasting covenant, 
+He confirmed it to Jacob for a statute, and to Israel for an perpetual covenant, 
 saying, "I will give you the land of Canaan, The lot of your inheritance," 
 when you were but a few men in number, yes, very few, and foreigners in it. 
 They went about from nation to nation, from one kingdom to another people. 
 He allowed no man to do them wrong. Yes, he reproved kings for their sakes, 
-"Don't touch my anointed ones! Do my prophets no harm!" 
+"Don't touch my anointed ones! Do my spokesmen no harm!" 
 Sing to God, all the earth! Display his salvation from day to day. 
-Declare his glory among the nations, and his marvelous works among all the peoples. 
+Declare his glory among the nations, and his marvelous works among everyones. 
 For great is God, and greatly to be praised. He also is to be feared above all gods. 
 For all the gods of the peoples are idols, but God made the heavens. 
 Honor and majesty are before him. Strength and gladness are in his place. 
@@ -33,11 +33,11 @@ Let the sea roar, and its fullness! Let the field exult, and all that is in it!
 Then the trees of the forest will sing for joy before God, for he comes to judge the earth. 
 Oh give thanks to God, for he is good, for his loving kindness endures for the eras. 
 Say, "Save us, God of our salvation! Gather us together and deliver us from the nations, to give thanks to your holy name, to triumph in your praise." 
-Blessed be the God of Israel, from everlasting even to everlasting. All the people said, "Amen," and praised God. 
+Blessed be the God of Israel, from perpetual even to perpetual. Everyone said, "Amen," and praised God. 
 So he left Asaph and his brothers there before the ark of God's covenant, to minister before the ark continually, as every day's work required; 
 and Obed-Edom with their sixty-eight relatives; Obed-Edom also the son of Jeduthun and Hosah to be doorkeepers; 
 and Zadok the priest and his brothers the priests, before God's tabernacle in the high place that was at Gibeon, 
 to offer burnt offerings to God on the altar of burnt offering continually morning and evening, even according to all that is written in God's law, which he commanded to Israel; 
 and with them Heman and Jeduthun and the rest who were chosen, who were mentioned by name, to give thanks to God, because his loving kindness endures for the eras; 
 and with them Heman and Jeduthun with trumpets and cymbals for those that should sound aloud, and with instruments for the songs of God, and the sons of Jeduthun to be at the gate. 
-All the people departed, each man to his house; and David returned to bless his house. 
+Everyone departed, each man to his house; and David returned to bless his house. 

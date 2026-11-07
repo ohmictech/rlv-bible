@@ -25,7 +25,7 @@ When the ten heard it, they were indignant with the two brothers.
 But Jesus summoned them, and said, "You know that the rulers of the nations lord it over them, and their great ones use their authority over them. 
 It will not be so among you, but whoever wants to become great among you will be your servant. 
 Whoever wants to be first among you will be your slave, 
-even as the Human One came not to be served, but to serve, and to give his life as a ransom price for many." 
+even as the Human One came not to be served, but to serve, and to give his life as a ransom price for everyone." 
 As they went out from Jericho, a great crowd followed him. 
 Suddenly, two blind men sitting by the road, when they heard that Jesus was passing by, cried out, "Lord, have mercy on us, Son of David!" 
 The crowd rebuked them, telling them that they should be quiet, but they cried out even more, "Lord, have mercy on us, Son of David!" 

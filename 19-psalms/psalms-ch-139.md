@@ -21,4 +21,4 @@ For they speak against you wickedly. Your enemies take your name in vain.
 God, don't I hate those who hate you? Am I not grieved with those who rise up against you? 
 I hate them with perfect hatred. They have become my enemies. 
 Search me, God, and know my heart. Try me, and know my thoughts. 
-See if there is any wicked way in me, and lead me in the everlasting way. 
+See if there is any wicked way in me, and lead me in the perpetual way. 

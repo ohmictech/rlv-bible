@@ -11,14 +11,14 @@ Jethro said, "Blessed be God, who has delivered you out of the hand of the Egypt
 Now I know that God is greater than all gods because of the way that they treated people arrogantly." 
 Jethro, Moses' father-in-law, took a burnt offering and sacrifices for God. Aaron came with all the elders of Israel, to eat bread with Moses' father-in-law before God. 
 On the next day, Moses sat to judge the people, and the people stood around Moses from the morning to the evening. 
-When Moses' father-in-law saw all that he did to the people, he said, "What is this thing that you do for the people? Why do you sit alone, and all the people stand around you from morning to evening?" 
+When Moses' father-in-law saw all that he did to the people, he said, "What is this thing that you do for the people? Why do you sit alone, and everyone stand around you from morning to evening?" 
 Moses said to his father-in-law, "Because the people come to me to inquire of God. 
 When they have a matter, they come to me, and I judge between a man and his neighbor, and I make them know the statutes of God, and his laws." 
 Moses' father-in-law said to him, "The thing that you do is not good. 
 You will surely wear away, both you, and this people that is with you; for the thing is too heavy for you. You are not able to perform it yourself alone. 
 Listen now to my voice. I will give you counsel, and God be with you. You represent the people before God, and bring the causes to God. 
 You shall teach them the statutes and the laws, and shall show them the way in which they must walk, and the work that they must do. 
-Moreover you shall provide out of all the people able men which fear God: men of truth, hating unjust gain; and place such over them, to be rulers of thousands, rulers of hundreds, rulers of fifties, and rulers of tens. 
+Moreover you shall provide out of everyone able men which fear God: men of truth, hating unjust gain; and place such over them, to be rulers of thousands, rulers of hundreds, rulers of fifties, and rulers of tens. 
 Let them judge the people at all times. It shall be that every great matter they shall bring to you, but every small matter they shall judge themselves. So shall it be easier for you, and they shall share the load with you. 
 If you will do this thing, and God commands you so, then you will be able to endure, and all these people also will go to their place in peace." 
 So Moses listened to the voice of his father-in-law, and did all that he had said. 

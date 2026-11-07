@@ -9,7 +9,7 @@ But he abandoned the counsel of the old men which they had given him, and took c
 He said to them, "What counsel do you give, that we may give an answer to these people, who have spoken to me, saying, 'Make the yoke that your father put on us lighter'?" 
 The young men who had grown up with him spoke to him, saying, "Thus you shall tell the people who spoke to you, saying, 'Your father made our yoke heavy, but make it lighter on us;' thus you shall say to them, 'My little finger is thicker than my father's waist. 
 Now whereas my father burdened you with a heavy yoke, I will add to your yoke. My father chastised you with whips, but I will chastise you with scorpions.'" 
-So Jeroboam and all the people came to Rehoboam the third day, as the king asked, saying, "Come to me again the third day." 
+So Jeroboam and everyone came to Rehoboam the third day, as the king asked, saying, "Come to me again the third day." 
 The king answered them roughly; and King Rehoboam abandoned the counsel of the old men, 
 and spoke to them after the counsel of the young men, saying, "My father made your yoke heavy, but I will add to it. My father chastised you with whips, but I will chastise you with scorpions." 
 So the king didn't listen to the people; for it was brought about by God, that God might establish his word, which he spoke by Ahijah the Shilonite to Jeroboam the son of Nebat. 

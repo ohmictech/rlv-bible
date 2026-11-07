@@ -3,7 +3,7 @@ They asked him, "Tell us: by what authority do you do these things? Or who is gi
 He answered them, "I also will ask you one question. Tell me: 
 the immersion of John, was it from the sky, or from people?" 
 They reasoned with themselves, saying, "If we say, 'From the sky,' he will say, 'Why didn't you trust him?' 
-But if we say, 'From people,' all the people will stone us, for they are persuaded that John was a spokesman." 
+But if we say, 'From people,' everyone will stone us, for they are persuaded that John was a spokesman." 
 They answered that they didn't know where it was from. 
 Jesus said to them, "Neither will I tell you by what authority I do these things." 
 He began to tell the people this story: "A man planted a vineyard and rented it out to some farmers, and went into another country for a long time. 
@@ -42,6 +42,6 @@ He said to them, "Why do they say that the Christ is David's son?
 David himself says in the book of Psalms, 'The Lord said to my Lord, "Sit at my right hand, 
 until I make your enemies the footstool of your feet."' 
 "David therefore calls him Lord, so how is he his son?" 
-In the hearing of all the people, he said to his students, 
+In the hearing of everyone, he said to his students, 
 "Watch out for those Bible teachers who like to walk in long robes, and love greetings in the marketplaces, the best seats in the gathering places, and the best places at dinners; 
 who eat up widows' houses, and for a pretense make long prayers. These will receive a heavier verdict." 

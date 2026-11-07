@@ -3,7 +3,7 @@
 Whoever there is among you of all his people, may his God be with him, and let him go up to Jerusalem, which is in Judah, and build the house of the God of Israel (he is God), which is in Jerusalem. 
 Whoever is left, in any place where he lives, let the men of his place help him with silver, with gold, with goods, and with animals, in addition to the free will offering for God's house which is in Jerusalem.'" 
 Then the heads of fathers' households of Judah and Benjamin, the priests and the Levites, all whose spirit God had stirred to go up, rose up to build God's house which is in Jerusalem. 
-All those who were around them strengthened their hands with vessels of silver, with gold, with goods, with animals, and with precious things, in addition to all that was willingly offered. 
+Everyone who was around them strengthened their hands with vessels of silver, with gold, with goods, with animals, and with precious things, in addition to all that was willingly offered. 
 Also Cyrus the king brought out the vessels of God's house, which Nebuchadnezzar had brought out of Jerusalem, and had put in the house of his gods; 
 even those, Cyrus king of Persia brought out by the hand of Mithredath the treasurer, and counted them out to Sheshbazzar the prince of Judah. 
 This is the number of them: thirty platters of gold, one thousand platters of silver, twenty-nine knives, 

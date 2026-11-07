@@ -16,7 +16,7 @@ Now the wise men, the enchanters, have been brought in before me, that they shou
 But I have heard of you, that you can give interpretations and dissolve doubts. Now if you can read the writing and make known to me its interpretation, you shall be clothed with purple, and have a chain of gold around your neck, and shall be the third ruler in the kingdom." 
 Then Daniel answered before the king, "Let your gifts be to yourself, and give your rewards to another. Nevertheless, I will read the writing to the king, and make known to him the interpretation. 
 "To you, king, the Most High God gave Nebuchadnezzar your father the kingdom, and greatness, and glory, and majesty. 
-Because of the greatness that he gave him, all the peoples, nations, and languages trembled and feared before him. He killed whom he wanted to, and he kept alive whom he wanted to. He raised up whom he wanted to, and he put down whom he wanted to. 
+Because of the greatness that he gave him, everyones, nations, and languages trembled and feared before him. He killed whom he wanted to, and he kept alive whom he wanted to. He raised up whom he wanted to, and he put down whom he wanted to. 
 But when his heart was lifted up, and his spirit was hardened so that he dealt proudly, he was deposed from his kingly throne, and they took his glory from him. 
 He was driven from the sons of men, and his heart was made like the animals', and his dwelling was with the wild donkeys. He was fed with grass like oxen, and his body was wet with the dew of the sky, until he knew that the Most High God rules in the kingdom of men, and that he sets up over it whomever he will. 
 "You, his son, Belshazzar, have not humbled your heart, though you knew all this, 

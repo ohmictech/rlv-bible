@@ -4,7 +4,7 @@ He sends it out under the whole sky, and his lightning to the ends of the earth.
 After it a voice roars. He thunders with the voice of his majesty. He doesn't hold back anything when his voice is heard. 
 God thunders marvelously with his voice. He does great things, which we can't comprehend. 
 For he says to the snow, 'Fall on the earth,' likewise to the shower of rain, and to the showers of his mighty rain. 
-He seals up the hand of every man, that all men whom he has made may know it. 
+He seals up the hand of every man, that everyone whom he has made may know it. 
 Then the animals take cover, and remain in their dens. 
 Out of its room comes the storm, and cold out of the north. 
 By the breath of God, ice is given, and the width of the waters is frozen. 

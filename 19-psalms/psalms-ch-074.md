@@ -6,7 +6,7 @@ They behaved like men wielding axes, cutting through a thicket of trees.
 Now they break all its carved work down with hatchet and hammers. 
 They have burned your sanctuary to the ground. They have profaned the dwelling place of your Name. 
 They said in their heart, "We will crush them completely." They have burned up all the places in the land where God was worshiped. 
-We see no miraculous signs. There is no longer any prophet, neither is there among us anyone who knows how long. 
+We see no miraculous signs. There is no longer any spokesman, neither is there among us anyone who knows how long. 
 How long, God, shall the adversary reproach? Shall the enemy blaspheme your name for the eras? 
 Why do you draw back your hand, even your right hand? Take it from your chest and consume them! 
 Yet God is my King of old, working salvation throughout the earth. 

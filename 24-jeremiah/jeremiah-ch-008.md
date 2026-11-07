@@ -1,4 +1,4 @@
-﻿"At that time," says God, "they will bring the bones of the kings of Judah, the bones of his princes, the bones of the priests, the bones of the prophets, and the bones of the inhabitants of Jerusalem, out of their graves. 
+﻿"At that time," says God, "they will bring the bones of the kings of Judah, the bones of his princes, the bones of the priests, the bones of the spokesmen, and the bones of the inhabitants of Jerusalem, out of their graves. 
 They will spread them before the sun, the moon, and all the army of the sky, which they have loved, which they have served, after which they have walked, which they have sought, and which they have worshiped. They will not be gathered or be buried. They will be like dung on the surface of the earth. 
 Death will be chosen rather than life by all the residue that remain of this evil family, that remain in all the places where I have driven them," says the God of Armies. 
 "Moreover you shall tell them, 'God says: "'Do men fall, and not rise up again? Does one turn away, and not return? 
@@ -7,7 +7,7 @@ I listened and heard, but they didn't say what is right. No one repents of his w
 Yes, the stork in the sky knows her appointed times. The turtledove, the swallow, and the crane observe the time of their coming; but my people don't know God's law. 
 "'How do you say, "We are wise, and God's law is with us"? But, behold, the false pen of the scribes has made that a lie. 
 The wise men are disappointed. They are dismayed and trapped. Behold, they have rejected God's word. What kind of wisdom is in them? 
-Therefore I will give their wives to others and their fields to those who will possess them. For everyone from the least even to the greatest is given to covetousness; from the prophet even to the priest everyone deals falsely. 
+Therefore I will give their wives to others and their fields to those who will possess them. For everyone from the least even to the greatest is given to covetousness; from the spokesman even to the priest everyone deals falsely. 
 They have healed the hurt of the daughter of my people slightly, saying, "Peace, peace," when there is no peace. 
 Were they ashamed when they had committed abomination? No, they were not at all ashamed. They couldn't blush. Therefore they will fall among those who fall. In the time of their visitation they will be cast down, says God. 
 "'I will utterly consume them, says God. No grapes will be on the vine, no figs on the fig tree, and the leaf will fade. The things that I have given them will pass away from them.'" 

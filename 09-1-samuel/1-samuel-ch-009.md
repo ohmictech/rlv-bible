@@ -6,7 +6,7 @@ When they had come to the land of Zuph, Saul said to his servant who was with hi
 The servant said to him, "Behold now, there is a man of God in this city, and he is a man who is held in honor. All that he says surely happens. Now let's go there. Perhaps he can tell us which way to go." 
 Then Saul said to his servant, "But behold, if we go, what should we bring the man? For the bread is spent in our sacks, and there is not a present to bring to the man of God. What do we have?" 
 The servant answered Saul again and said, "Behold, I have in my hand the fourth part of a shekel of silver. I will give that to the man of God, to tell us our way." 
-(In earlier times in Israel, when a man went to inquire of God, he said, "Come! Let's go to the seer;" for he who is now called a prophet was before called a seer.) 
+(In earlier times in Israel, when a man went to inquire of God, he said, "Come! Let's go to the seer;" for he who is now called a spokesman was before called a seer.) 
 Then Saul said to his servant, "Well said. Come! Let's go." So they went to the city where the man of God was. 
 As they went up the ascent to the city, they found young maidens going out to draw water, and said to them, "Is the seer here?" 
 They answered them and said, "He is. Behold, he is before you. Hurry now, for he has come today into the city; for the people have a sacrifice today in the high place. 

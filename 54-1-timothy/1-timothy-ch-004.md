@@ -7,7 +7,7 @@ If you put these things before the brothers and sisters, you will be a good serv
 Have nothing to do with worldly old women's stories. Train yourself instead for devotion to God. 
 Training the body has some value, but devotion to God has value in every way, since it carries the promise of life now and of the life to come. 
 This saying is trustworthy and deserves to be accepted without question. 
-That is what we work and struggle for, because we have set our expectation on the living God, who is the Restorer of all people, and most of all of those who trust. 
+That is what we work and struggle for, because we have set our expectation on the living God, who is the Restorer of everyone, and most of all of those who trust. 
 Command these things and teach them. 
 Don't let anyone look down on you because you are young. Be an example to those who trust, in what you say, in how you live, in love, in spirit, in trust, and in purity. 
 Until I come, give your attention to reading, to encouragement, and to teaching. 

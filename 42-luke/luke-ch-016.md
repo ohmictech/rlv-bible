@@ -13,7 +13,7 @@ If you have not been faithful in that which is another's, who will give you that
 No slave can serve two masters, for either he will hate the one and love the other; or else he will hold to one and despise the other. You aren't able to serve God and Mammon." 
 The Pharisees, who were lovers of money, also heard all these things, and they scoffed at him. 
 He said to them, "You are the ones who make yourselves look right in people's sight, but God knows your hearts. For that which is exalted among men is detestable in the sight of God. 
-"The law and the spokesmen were until John. From that time the Good News of God's reign is preached, and everyone is forcing his way into it. 
+"The law and the prophets were until John. From that time the Good News of God's reign is preached, and everyone is forcing his way into it. 
 But it is easier for the sky and the land to pass away than for one tiny stroke of a pen in the law to fall. 
 "Everyone who divorces his wife and marries another cheats. He who marries one who is divorced from a husband also cheats. 
 "Now there was a certain rich man, and he was clothed in purple and fine linen, living in luxury every day. 

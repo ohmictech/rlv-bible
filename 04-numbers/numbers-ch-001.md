@@ -1,6 +1,6 @@
 ﻿God spoke to Moses in the wilderness of Sinai, in the Tent of Meeting, on the first day of the second month, in the second year after they had come out of the land of Egypt, saying, 
 "Take a census of all the congregation of the children of Israel, by their families, by their fathers' houses, according to the number of the names, every male, one by one, 
-from twenty years old and upward, all who are able to go out to war in Israel. You and Aaron shall count them by their divisions. 
+from twenty years old and upward, everyone who is able to go out to war in Israel. You and Aaron shall count them by their divisions. 
 With you there shall be a man of every tribe, each one head of his fathers' house. 
 These are the names of the men who shall stand with you: Of Reuben: Elizur the son of Shedeur. 
 Of Simeon: Shelumiel the son of Zurishaddai. 
@@ -17,32 +17,32 @@ These are those who were called of the congregation, the princes of the tribes o
 Moses and Aaron took these men who are mentioned by name. 
 They assembled all the congregation together on the first day of the second month; and they declared their ancestry by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, one by one. 
 As God commanded Moses, so he counted them in the wilderness of Sinai. 
-The children of Reuben, Israel's firstborn, their generations, by their families, by their fathers' houses, according to the number of the names, one by one, every male from twenty years old and upward, all who were able to go out to war: 
+The children of Reuben, Israel's firstborn, their generations, by their families, by their fathers' houses, according to the number of the names, one by one, every male from twenty years old and upward, everyone who was able to go out to war: 
 those who were counted of them, of the tribe of Reuben, were forty-six thousand five hundred. 
-Of the children of Simeon, their generations, by their families, by their fathers' houses, those who were counted of it, according to the number of the names, one by one, every male from twenty years old and upward, all who were able to go out to war: 
+Of the children of Simeon, their generations, by their families, by their fathers' houses, those who were counted of it, according to the number of the names, one by one, every male from twenty years old and upward, everyone who was able to go out to war: 
 those who were counted of them, of the tribe of Simeon, were fifty-nine thousand three hundred. 
-Of the children of Gad, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, all who were able to go out to war: 
+Of the children of Gad, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, everyone who was able to go out to war: 
 those who were counted of them, of the tribe of Gad, were forty-five thousand six hundred fifty. 
-Of the children of Judah, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, all who were able to go out to war: 
+Of the children of Judah, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, everyone who was able to go out to war: 
 those who were counted of them, of the tribe of Judah, were seventy-four thousand six hundred. 
-Of the children of Issachar, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, all who were able to go out to war: 
+Of the children of Issachar, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, everyone who was able to go out to war: 
 those who were counted of them, of the tribe of Issachar, were fifty-four thousand four hundred. 
-Of the children of Zebulun, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, all who were able to go out to war: 
+Of the children of Zebulun, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, everyone who was able to go out to war: 
 those who were counted of them, of the tribe of Zebulun, were fifty-seven thousand four hundred. 
-Of the children of Joseph: of the children of Ephraim, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, all who were able to go out to war: 
+Of the children of Joseph: of the children of Ephraim, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, everyone who was able to go out to war: 
 those who were counted of them, of the tribe of Ephraim, were forty thousand five hundred. 
-Of the children of Manasseh, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, all who were able to go out to war: 
+Of the children of Manasseh, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, everyone who was able to go out to war: 
 those who were counted of them, of the tribe of Manasseh, were thirty-two thousand two hundred. 
-Of the children of Benjamin, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, all who were able to go out to war: 
+Of the children of Benjamin, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, everyone who was able to go out to war: 
 those who were counted of them, of the tribe of Benjamin, were thirty-five thousand four hundred. 
-Of the children of Dan, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, all who were able to go out to war: 
+Of the children of Dan, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, everyone who was able to go out to war: 
 those who were counted of them, of the tribe of Dan, were sixty-two thousand seven hundred. 
-Of the children of Asher, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, all who were able to go out to war: 
+Of the children of Asher, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, everyone who was able to go out to war: 
 those who were counted of them, of the tribe of Asher, were forty-one thousand five hundred. 
-Of the children of Naphtali, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, all who were able to go out to war: 
+Of the children of Naphtali, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, everyone who was able to go out to war: 
 those who were counted of them, of the tribe of Naphtali, were fifty-three thousand four hundred. 
 These are those who were counted, whom Moses and Aaron counted, and the twelve men who were princes of Israel, each one for his fathers' house. 
-So all those who were counted of the children of Israel by their fathers' houses, from twenty years old and upward, all who were able to go out to war in Israel 
+So everyone who was counted of the children of Israel by their fathers' houses, from twenty years old and upward, everyone who was able to go out to war in Israel 
 all those who were counted were six hundred three thousand five hundred fifty. 
 But the Levites after the tribe of their fathers were not counted among them. 
 For God spoke to Moses, saying, 

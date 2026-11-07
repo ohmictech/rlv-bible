@@ -2,7 +2,7 @@
 As the spokesmen wrote: "Look, I send my messenger ahead of you, who will prepare your way before you: 
 the voice of one crying in the wilderness, 'Get the way of the Lord ready! Make his paths straight!'" 
 John came, immersing in the wilderness and preaching an immersion that marked a change of heart for the release of mistakes. 
-All the country of Judea and all the people of Jerusalem went out to him. They were immersed by him in the Jordan river, confessing their mistakes out loud. 
+All the country of Judea and everyone in Jerusalem went out to him. They were immersed by him in the Jordan river, confessing their mistakes out loud. 
 John was clothed with camel's hair and a leather belt around his waist. He ate locusts and wild honey. 
 He preached, saying, "After me comes one mightier than I, whose sandal strap I am not worthy to bend down and untie. 
 I immersed you in water, but he will immerse you in the Holy Spirit." 
@@ -29,7 +29,7 @@ The news about him went out immediately into all the region of Galilee and its s
 Immediately, when they had come out of the gathering place, they went into the house of Simon and Andrew, with James and John. 
 Now Simon's wife's mother lay sick with a fever, and immediately they told him about her. 
 He came and took her by the hand and raised her up. The fever left her immediately, and she served them. 
-At evening, when the sun had set, they brought to him all who were sick and those who were possessed by unclean spirits. 
+At evening, when the sun had set, they brought to him everyone who was sick and those who were possessed by unclean spirits. 
 All the city was gathered together at the door. 
 He healed many who were sick with various diseases and drove out many unclean spirits. He didn't let the unclean spirits speak, because they knew him. 
 Early in the morning, while it was still dark, he got up and went out, and left for an empty place, and prayed there. 

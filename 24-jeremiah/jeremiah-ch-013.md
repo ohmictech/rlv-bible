@@ -10,13 +10,13 @@ Then God's word came to me, saying,
 This evil people, who refuse to hear my words, who walk in the stubbornness of their heart, and have gone after other gods to serve them and to worship them, will even be as this belt, which is profitable for nothing. 
 For as the belt clings to the waist of a man, so I have caused the whole house of Israel and the whole house of Judah to cling to me,' says God; 'that they may be to me for a people, for a name, for praise, and for glory; but they would not hear.' 
 "Therefore you shall speak to them this word: 'The God of Israel says, "Every container should be filled with wine."' They will tell you, 'Do we not certainly know that every container should be filled with wine?' 
-Then tell them, 'God says, "Behold, I will fill all the inhabitants of this land, even the kings who sit on David's throne, the priests, the prophets, and all the inhabitants of Jerusalem, with drunkenness. 
+Then tell them, 'God says, "Behold, I will fill all the inhabitants of this land, even the kings who sit on David's throne, the priests, the spokesmen, and all the inhabitants of Jerusalem, with drunkenness. 
 I will dash them one against another, even the fathers and the sons together," says God: "I will not pity, spare, or have compassion, that I should not destroy them."'" 
 Hear, and give ear. Don't be proud, for God has spoken. 
 Give glory to your God, before he causes darkness, and before your feet stumble on the dark mountains, and while you look for light, he turns it into the shadow of death, and makes it deep darkness. 
 But if you will not hear it, my soul will weep in secret for your pride. My eye will weep bitterly, and run down with tears, because God's flock has been taken captive. 
 Say to the king and to the queen mother, "Humble yourselves. Sit down, for your crowns have come down, even the crown of your glory. 
-The cities of the South are shut up, and there is no one to open them. Judah is carried away captive: all of them. They are wholly carried away captive. 
+The cities of the South are shut up, and there is no one to open them. Judah is carried away captive: everyone. They are wholly carried away captive. 
 Lift up your eyes, and see those who come from the north. Where is the flock that was given to you, your beautiful flock? 
 What will you say when he sets over you as head those whom you have yourself taught to be friends to you? Won't sorrows take hold of you, as of a woman in travail? 
 If you say in your heart, "Why have these things come on me?" Your skirts are uncovered because of the greatness of your iniquity, and your heels suffer violence. 

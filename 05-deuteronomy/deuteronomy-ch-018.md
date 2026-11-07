@@ -12,11 +12,11 @@ or a charmer, or someone who consults with a familiar spirit, or a wizard, or a 
 For whoever does these things is an abomination to God. Because of these abominations, your God drives them out from before you. 
 You shall be blameless with your God. 
 For these nations that you shall dispossess listen to those who practice sorcery and to diviners; but as for you, your God has not allowed you so to do. 
-Your God will raise up to you a prophet from among you, of your brothers, like me. You shall listen to him. 
+Your God will raise up to you a spokesman from among you, of your brothers, like me. You shall listen to him. 
 This is according to all that you desired of your God in Horeb in the day of the assembly, saying, "Let me not hear again my God's voice, neither let me see this great fire any more, that I not die." 
 God said to me, "They have well said that which they have spoken. 
-I will raise them up a prophet from among their brothers, like you. I will put my words in his mouth, and he shall speak to them all that I shall command him. 
+I will raise them up a spokesman from among their brothers, like you. I will put my words in his mouth, and he shall speak to them all that I shall command him. 
 It shall happen, that whoever will not listen to my words which he shall speak in my name, I will require it of him. 
-But the prophet who speaks a word presumptuously in my name, which I have not commanded him to speak, or who speaks in the name of other gods, that same prophet shall die." 
+But the spokesman who speaks a word presumptuously in my name, which I have not commanded him to speak, or who speaks in the name of other gods, that same spokesman shall die." 
 You may say in your heart, "How shall we know the word which God has not spoken?" 
-When a prophet speaks in God's name, if the thing doesn't follow, nor happen, that is the thing which God has not spoken. The prophet has spoken it presumptuously. You shall not be afraid of him. 
+When a spokesman speaks in God's name, if the thing doesn't follow, nor happen, that is the thing which God has not spoken. The spokesman has spoken it presumptuously. You shall not be afraid of him. 

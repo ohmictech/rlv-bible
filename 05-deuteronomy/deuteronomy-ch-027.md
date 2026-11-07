@@ -12,15 +12,15 @@ Moses commanded the people the same day, saying,
 "These shall stand on Mount Gerizim to bless the people, when you have crossed over the Jordan: Simeon, Levi, Judah, Issachar, Joseph, and Benjamin. 
 These shall stand on Mount Ebal for the curse: Reuben, Gad, Asher, Zebulun, Dan, and Naphtali. 
 With a loud voice, the Levites shall say to all the men of Israel, 
-'Cursed is the man who makes an engraved or molten image, an abomination to God, the work of the hands of the craftsman, and sets it up in secret.' All the people shall answer and say, 'Amen.' 
-'Cursed is he who dishonors his father or his mother.' All the people shall say, 'Amen.' 
-'Cursed is he who removes his neighbor's landmark.' All the people shall say, 'Amen.' 
-'Cursed is he who leads the blind astray on the road.' All the people shall say, 'Amen.' 
-'Cursed is he who withholds justice from the foreigner, fatherless, and widow.' All the people shall say, 'Amen.' 
-'Cursed is he who lies with his father's wife, because he dishonors his father's bed.' All the people shall say, 'Amen.' 
-'Cursed is he who lies with any kind of animal.' All the people shall say, 'Amen.' 
-'Cursed is he who lies with his sister, his father's daughter or his mother's daughter.' All the people shall say, 'Amen.' 
-'Cursed is he who lies with his mother-in-law.' All the people shall say, 'Amen.' 
-'Cursed is he who secretly kills his neighbor.' All the people shall say, 'Amen.' 
-'Cursed is he who takes a bribe to kill an innocent person.' All the people shall say, 'Amen.' 
-'Cursed is he who doesn't uphold the words of this law by doing them.' All the people shall say, 'Amen.'" 
+'Cursed is the man who makes an engraved or molten image, an abomination to God, the work of the hands of the craftsman, and sets it up in secret.' Everyone shall answer and say, 'Amen.' 
+'Cursed is he who dishonors his father or his mother.' Everyone shall say, 'Amen.' 
+'Cursed is he who removes his neighbor's landmark.' Everyone shall say, 'Amen.' 
+'Cursed is he who leads the blind astray on the road.' Everyone shall say, 'Amen.' 
+'Cursed is he who withholds justice from the foreigner, fatherless, and widow.' Everyone shall say, 'Amen.' 
+'Cursed is he who lies with his father's wife, because he dishonors his father's bed.' Everyone shall say, 'Amen.' 
+'Cursed is he who lies with any kind of animal.' Everyone shall say, 'Amen.' 
+'Cursed is he who lies with his sister, his father's daughter or his mother's daughter.' Everyone shall say, 'Amen.' 
+'Cursed is he who lies with his mother-in-law.' Everyone shall say, 'Amen.' 
+'Cursed is he who secretly kills his neighbor.' Everyone shall say, 'Amen.' 
+'Cursed is he who takes a bribe to kill an innocent person.' Everyone shall say, 'Amen.' 
+'Cursed is he who doesn't uphold the words of this law by doing them.' Everyone shall say, 'Amen.'" 

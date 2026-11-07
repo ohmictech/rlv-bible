@@ -1,6 +1,6 @@
 ﻿The king sent, and they gathered to him all the elders of Judah and of Jerusalem. 
-The king went up to God's house, and all the men of Judah and all the inhabitants of Jerusalem with him, with the priests, the prophets, and all the people, both small and great; and he read in their hearing all the words of the book of the covenant which was found in God's house. 
-The king stood by the pillar and made a covenant before God to walk after God and to keep his commandments, his testimonies, and his statutes with all his heart and all his soul, to confirm the words of this covenant that were written in this book; and all the people agreed to the covenant. 
+The king went up to God's house, and all the men of Judah and all the inhabitants of Jerusalem with him, with the priests, the spokesmen, and everyone, both small and great; and he read in their hearing all the words of the book of the covenant which was found in God's house. 
+The king stood by the pillar and made a covenant before God to walk after God and to keep his commandments, his testimonies, and his statutes with all his heart and all his soul, to confirm the words of this covenant that were written in this book; and everyone agreed to the covenant. 
 The king commanded Hilkiah the high priest, and the priests of the second order, and the keepers of the threshold, to bring out of God's temple all the vessels that were made for Baal, for the Asherah, and for all the army of the sky; and he burned them outside of Jerusalem in the fields of the Kidron, and carried their ashes to Bethel. 
 He got rid of the idolatrous priests whom the kings of Judah had ordained to burn incense in the high places in the cities of Judah and in the places around Jerusalem; those also who burned incense to Baal, to the sun, to the moon, to the planets, and to all the army of the sky. 
 He brought out the Asherah from God's house, outside of Jerusalem, to the brook Kidron, and burned it at the brook Kidron, and beat it to dust, and cast its dust on the graves of the common people. 
@@ -15,10 +15,10 @@ He broke in pieces the pillars, cut down the Asherah poles, and filled their pla
 Moreover the altar that was at Bethel and the high place which Jeroboam the son of Nebat, who made Israel to sin, had made, even that altar and the high place he broke down; and he burned the high place and beat it to dust, and burned the Asherah. 
 As Josiah turned himself, he spied the tombs that were there in the mountain; and he sent, and took the bones out of the tombs, and burned them on the altar, and defiled it, according to God's word which the man of God proclaimed, who proclaimed these things. 
 Then he said, "What monument is that which I see?" The men of the city told him, "It is the tomb of the man of God who came from Judah and proclaimed these things that you have done against the altar of Bethel." 
-He said, "Let him be! Let no one move his bones." So they let his bones alone, with the bones of the prophet who came out of Samaria. 
+He said, "Let him be! Let no one move his bones." So they let his bones alone, with the bones of the spokesman who came out of Samaria. 
 All the houses also of the high places that were in the cities of Samaria, which the kings of Israel had made to provoke God to anger, Josiah took away, and did to them according to all the acts that he had done in Bethel. 
 He killed all the priests of the high places that were there, on the altars, and burned men's bones on them; and he returned to Jerusalem. 
-The king commanded all the people, saying, "Keep the Passover to your God, as it is written in this book of the covenant." 
+The king commanded everyone, saying, "Keep the Passover to your God, as it is written in this book of the covenant." 
 Surely there was not kept such a Passover from the days of the judges who judged Israel, nor in all the days of the kings of Israel, nor of the kings of Judah; 
 but in the eighteenth year of King Josiah, this Passover was kept to God in Jerusalem. 
 Moreover, Josiah removed those who had familiar spirits, the wizards, and the teraphim, and the idols, and all the abominations that were seen in the land of Judah and in Jerusalem, that he might confirm the words of the law which were written in the book that Hilkiah the priest found in God's house. 

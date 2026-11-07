@@ -20,5 +20,5 @@ and the fat of the bull and of the ram, the fat tail, and that which covers the 
 and they put the fat upon the breasts, and he burned the fat on the altar. 
 Aaron waved the breasts and the right thigh for a wave offering before God, as Moses commanded. 
 Aaron lifted up his hands toward the people, and blessed them; and he came down from offering the sin offering, and the burnt offering, and the peace offerings. 
-Moses and Aaron went into the Tent of Meeting, and came out, and blessed the people; and God's glory appeared to all the people. 
-Fire came out from before God, and consumed the burnt offering and the fat upon the altar. When all the people saw it, they shouted, and fell on their faces. 
+Moses and Aaron went into the Tent of Meeting, and came out, and blessed the people; and God's glory appeared to everyone. 
+Fire came out from before God, and consumed the burnt offering and the fat upon the altar. When everyone saw it, they shouted, and fell on their faces. 

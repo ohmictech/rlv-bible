@@ -17,7 +17,7 @@ Pharaoh king of Egypt had gone up, taken Gezer, burned it with fire, killed the 
 Solomon built in the land Gezer, Beth Horon the lower, 
 Baalath, Tamar in the wilderness, 
 all the storage cities that Solomon had, the cities for his chariots, the cities for his horsemen, and that which Solomon desired to build for his pleasure in Jerusalem, and in Lebanon, and in all the land of his dominion. 
-As for all the people who were left of the Amorites, the Hittites, the Perizzites, the Hivites, and the Jebusites, who were not of the children of Israel 
+As for everyone who was left of the Amorites, the Hittites, the Perizzites, the Hivites, and the Jebusites, who were not of the children of Israel 
 their children who were left after them in the land, whom the children of Israel were not able utterly to destroy, of them Solomon raised a levy of bondservants to this day. 
 But of the children of Israel Solomon made no bondservants; but they were the men of war, his servants, his princes, his captains, and rulers of his chariots and of his horsemen. 
 These were the five hundred fifty chief officers who were over Solomon's work, who ruled over the people who labored in the work. 

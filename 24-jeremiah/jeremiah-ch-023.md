@@ -6,35 +6,35 @@ I will set up shepherds over them who will feed them. They will no longer be afr
 In his days Judah will be saved, and Israel will dwell safely. This is his name by which he will be called: God our righteousness. 
 "Therefore, behold, the days come," says God, "that they will no more say, 'As God lives, who brought up the children of Israel out of the land of Egypt;' 
 but, 'As God lives, who brought up and who led the offspring of the house of Israel out of the north country, and from all the countries where I had driven them.' Then they will dwell in their own land." 
-Concerning the prophets: My heart within me is broken. All my bones shake. I am like a drunken man, and like a man whom wine has overcome, because of God, and because of his holy words. 
+Concerning the spokesmen: My heart within me is broken. All my bones shake. I am like a drunken man, and like a man whom wine has overcome, because of God, and because of his holy words. 
 "For the land is full of adulterers; for because of the curse the land mourns. The pastures of the wilderness have dried up. Their course is evil, and their might is not right; 
-for both prophet and priest are profane. Yes, in my house I have found their wickedness," says God. 
+for both spokesman and priest are profane. Yes, in my house I have found their wickedness," says God. 
 Therefore their way will be to them as slippery places in the darkness. They will be driven on, and fall therein; for I will bring evil on them, even the year of their visitation," says God. 
-"I have seen folly in the prophets of Samaria. They prophesied by Baal, and caused my people Israel to err. 
-In the prophets of Jerusalem I have also seen a horrible thing: they commit adultery and walk in lies. They strengthen the hands of evildoers, so that no one returns from his wickedness. They have all become to me as Sodom, and its inhabitants as Gomorrah." 
-Therefore the God of Armies says concerning the prophets: "Behold, I will feed them with wormwood, and make them drink poisoned water; for from the prophets of Jerusalem ungodliness has gone out into all the land." 
-The God of Armies says, "Don't listen to the words of the prophets who prophesy to you. They teach you vanity. They speak a vision of their own heart, and not out of the mouth of God. 
+"I have seen folly in the spokesmen of Samaria. They prophesied by Baal, and caused my people Israel to err. 
+In the spokesmen of Jerusalem I have also seen a horrible thing: they commit adultery and walk in lies. They strengthen the hands of evildoers, so that no one returns from his wickedness. They have all become to me as Sodom, and its inhabitants as Gomorrah." 
+Therefore the God of Armies says concerning the spokesmen: "Behold, I will feed them with wormwood, and make them drink poisoned water; for from the spokesmen of Jerusalem ungodliness has gone out into all the land." 
+The God of Armies says, "Don't listen to the words of the spokesmen who prophesy to you. They teach you vanity. They speak a vision of their own heart, and not out of the mouth of God. 
 They say continually to those who despise me, 'God has said, "You will have peace;"' and to everyone who walks in the stubbornness of his own heart they say, 'No evil will come on you.' 
 For who has stood in the council of God, that he should perceive and hear his word? Who has listened to my word, and heard it? 
 Behold, God's storm, his wrath, has gone out. Yes, a whirling storm! It will burst on the head of the wicked. 
 God's anger will not return until he has executed and performed the intents of his heart. In the latter days, you will understand it perfectly. 
-I didn't send these prophets, yet they ran. I didn't speak to them, yet they prophesied. 
+I didn't send these spokesmen, yet they ran. I didn't speak to them, yet they prophesied. 
 But if they had stood in my council, then they would have caused my people to hear my words, and would have turned them from their evil way, and from the evil of their doings. 
 "Am I a God at hand," says God, "and not a God afar off? 
 Can anyone hide himself in secret places so that I can't see him?" says God. "Don't I fill heaven and earth?" says God. 
-"I have heard what the prophets have said, who prophesy lies in my name, saying, 'I had a dream! I had a dream!' 
-How long will this be in the heart of the prophets who prophesy lies, even the prophets of the deceit of their own heart? 
+"I have heard what the spokesmen have said, who prophesy lies in my name, saying, 'I had a dream! I had a dream!' 
+How long will this be in the heart of the spokesmen who prophesy lies, even the spokesmen of the deceit of their own heart? 
 They intend to cause my people to forget my name by their dreams which they each tell his neighbor, as their fathers forgot my name because of Baal. 
-The prophet who has a dream, let him tell a dream; and he who has my word, let him speak my word faithfully. What is the straw to the wheat?" says God. 
+The spokesman who has a dream, let him tell a dream; and he who has my word, let him speak my word faithfully. What is the straw to the wheat?" says God. 
 "Isn't my word like fire?" says God; "and like a hammer that breaks the rock in pieces? 
-"Therefore behold, I am against the prophets," says God, "who each steal my words from his neighbor. 
-Behold, I am against the prophets," says God, "who use their tongues, and say, 'He says.' 
+"Therefore behold, I am against the spokesmen," says God, "who each steal my words from his neighbor. 
+Behold, I am against the spokesmen," says God, "who use their tongues, and say, 'He says.' 
 Behold, I am against those who prophesy lying dreams," says God, "who tell them, and cause my people to err by their lies, and by their vain boasting; yet I didn't send them or command them. They don't profit this people at all," says God. 
-"When this people, or the prophet, or a priest, asks you, saying, 'What is the message from God?' Then you shall tell them, '"What message? I will cast you off," says God.' 
-As for the prophet, the priest, and the people, who say, 'The message from God,' I will even punish that man and his household. 
+"When this people, or the spokesman, or a priest, asks you, saying, 'What is the message from God?' Then you shall tell them, '"What message? I will cast you off," says God.' 
+As for the spokesman, the priest, and the people, who say, 'The message from God,' I will even punish that man and his household. 
 You will say everyone to his neighbor, and everyone to his brother, 'What has God answered?' and, 'What has God said?' 
 You will mention the message from God no more, for every man's own word has become his message; for you have perverted the words of the living God, of the God of Armies, our God. 
-You will say to the prophet, 'What has God answered you?' and, 'What has God spoken?' 
+You will say to the spokesman, 'What has God answered you?' and, 'What has God spoken?' 
 Although you say, 'The message from God,' therefore God says: 'Because you say this word, "The message from God," and I have sent to you, telling you not to say, "The message from God," 
 therefore behold, I will utterly forget you, and I will cast you off with the city that I gave to you and to your fathers, away from my presence. 
-I will bring an everlasting reproach on you, and a perpetual shame, which will not be forgotten.'" 
+I will bring an perpetual reproach on you, and a perpetual shame, which will not be forgotten.'" 

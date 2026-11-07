@@ -12,7 +12,7 @@ You shall anoint the basin and its base, and sanctify it.
 "You shall bring Aaron and his sons to the door of the Tent of Meeting, and shall wash them with water. 
 You shall put on Aaron the holy garments; and you shall anoint him, and sanctify him, that he may minister to me in the priest's office. 
 You shall bring his sons, and put tunics on them. 
-You shall anoint them, as you anointed their father, that they may minister to me in the priest's office. Their anointing shall be to them for an everlasting priesthood throughout their generations." 
+You shall anoint them, as you anointed their father, that they may minister to me in the priest's office. Their anointing shall be to them for an perpetual priesthood throughout their generations." 
 Moses did so. According to all that God commanded him, so he did. 
 In the first month in the second year, on the first day of the month, the tabernacle was raised up. 
 Moses raised up the tabernacle, and laid its sockets, and set up its boards, and put in its bars, and raised up its pillars. 

@@ -1,5 +1,5 @@
 ﻿A Prayer by Moses, the man of God. Lord, you have been our dwelling place for all generations. 
-Before the mountains were born, before you had formed the earth and the world, even from everlasting to everlasting, you are God. 
+Before the mountains were born, before you had formed the earth and the world, even from perpetual to perpetual, you are God. 
 You turn man to destruction, saying, "Return, you children of men." 
 For a thousand years in your sight are just like yesterday when it is past, like a watch in the night. 
 You sweep them away as they sleep. In the morning they sprout like new grass. 

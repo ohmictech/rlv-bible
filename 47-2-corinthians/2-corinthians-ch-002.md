@@ -3,7 +3,7 @@ For if I make you grieve, then who will make me glad but he who is made to griev
 And I wrote this very thing to you, so that when I came I wouldn't have sorrow from those I ought to be glad about, having confidence in you all that my joy would be shared by all of you. 
 For out of much hard times and deep pain I wrote to you with many tears, not to make you grieve, but so that you might know the love I have so overflowing for you. 
 But if any has caused sorrow, he has caused sorrow not to me, but in part (that I not press too heavily) to you all. 
-The penalty the many gave him is enough for such a one; 
+The penalty everyone gave him is enough for such a one; 
 so that instead you should rather release him and comfort him, so that he isn't swallowed up by too much sorrow. 
 Therefore I beg you to make your love for him firm. 
 For to this end I also wrote, that I might know the proof of you, whether you are obedient in all things. 

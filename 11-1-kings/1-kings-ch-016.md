@@ -4,12 +4,12 @@ behold, I will utterly sweep away Baasha and his house; and I will make your hou
 The dogs will eat Baasha's descendants who die in the city; and he who dies of his in the field, the birds of the sky will eat." 
 Now the rest of the acts of Baasha, and what he did, and his might, aren't they written in the book of the chronicles of the kings of Israel? 
 Baasha slept with his fathers, and was buried in Tirzah; and Elah his son reigned in his place. 
-Moreover God's word came by the prophet Jehu the son of Hanani against Baasha and against his house, both because of all the evil that he did in God's sight, to provoke him to anger with the work of his hands, in being like the house of Jeroboam, and because he struck him. 
+Moreover God's word came by the spokesman Jehu the son of Hanani against Baasha and against his house, both because of all the evil that he did in God's sight, to provoke him to anger with the work of his hands, in being like the house of Jeroboam, and because he struck him. 
 In the twenty-sixth year of Asa king of Judah, Elah the son of Baasha began to reign over Israel in Tirzah for two years. 
 His servant Zimri, captain of half his chariots, conspired against him. Now he was in Tirzah, drinking himself drunk in the house of Arza, who was over the household in Tirzah; 
 and Zimri went in and struck him and killed him in the twenty-seventh year of Asa king of Judah, and reigned in his place. 
 When he began to reign, as soon as he sat on his throne, he attacked all the house of Baasha. He didn't leave him a single one who urinates on a wall among his relatives or his friends. 
-Thus Zimri destroyed all the house of Baasha, according to God's word which he spoke against Baasha by Jehu the prophet, 
+Thus Zimri destroyed all the house of Baasha, according to God's word which he spoke against Baasha by Jehu the spokesman, 
 for all the sins of Baasha, and the sins of Elah his son, which they sinned and with which they made Israel to sin, to provoke the God of Israel, to anger with their vanities. 
 Now the rest of the acts of Elah, and all that he did, aren't they written in the book of the chronicles of the kings of Israel? 
 In the twenty-seventh year of Asa king of Judah, Zimri reigned seven days in Tirzah. Now the people were encamped against Gibbethon, which belonged to the Philistines. 
@@ -22,7 +22,7 @@ Then the people of Israel were divided into two parts: half of the people follow
 But the people who followed Omri prevailed against the people who followed Tibni the son of Ginath; so Tibni died, and Omri reigned. 
 In the thirty-first year of Asa king of Judah, Omri began to reign over Israel for twelve years. He reigned six years in Tirzah. 
 He bought the hill Samaria of Shemer for two talents of silver; and he built on the hill, and called the name of the city which he built, Samaria, after the name of Shemer, the owner of the hill. 
-Omri did that which was evil in God's sight, and dealt wickedly above all who were before him. 
+Omri did that which was evil in God's sight, and dealt wickedly above everyone who was before him. 
 For he walked in all the way of Jeroboam the son of Nebat, and in his sins with which he made Israel to sin, to provoke the God of Israel, to anger with their vanities. 
 Now the rest of the acts of Omri which he did, and his might that he showed, aren't they written in the book of the chronicles of the kings of Israel? 
 So Omri slept with his fathers, and was buried in Samaria; and Ahab his son reigned in his place. 

@@ -5,7 +5,7 @@ For you will spread out on the right hand and on the left; and your offspring wi
 For your Maker is your husband; the God of Armies is his name. The Holy One of Israel is your Redeemer. He will be called the God of the whole earth. 
 For God has called you as a wife forsaken and grieved in spirit, even a wife of youth, when she is cast off," says your God. 
 "For a small moment I have forsaken you, but I will gather you with great mercies. 
-In overflowing wrath I hid my face from you for a moment, but with everlasting loving kindness I will have mercy on you," says God your Redeemer. 
+In overflowing wrath I hid my face from you for a moment, but with perpetual loving kindness I will have mercy on you," says God your Redeemer. 
 "For this is like the waters of Noah to me; for as I have sworn that the waters of Noah will no more go over the earth, so I have sworn that I will not be angry with you, nor rebuke you. 
 For the mountains may depart, and the hills be removed, but my loving kindness will not depart from you, and my covenant of peace will not be removed," says God who has mercy on you. 
 "You afflicted, tossed with storms, and not comforted, behold, I will set your stones in beautiful colors, and lay your foundations with sapphires. 

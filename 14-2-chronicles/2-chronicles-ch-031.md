@@ -16,6 +16,6 @@ Under him were Eden, Miniamin, Jeshua, Shemaiah, Amariah, and Shecaniah, in the 
 in addition to those who were listed by genealogy of males, from three years old and upward, even everyone who entered into God's house, as the duty of every day required, for their service in their offices according to their divisions; 
 and those who were listed by genealogy of the priests by their fathers' houses, and the Levites from twenty years old and upward, in their offices by their divisions; 
 and those who were listed by genealogy of all their little ones, their wives, their sons, and their daughters, through all the congregation; for in their office of trust they sanctified themselves in holiness. 
-Also for the sons of Aaron the priests, who were in the fields of the pasture lands of their cities, in every city, there were men who were mentioned by name to give portions to all the males among the priests and to all who were listed by genealogy among the Levites. 
+Also for the sons of Aaron the priests, who were in the fields of the pasture lands of their cities, in every city, there were men who were mentioned by name to give portions to all the males among the priests and to everyone who was listed by genealogy among the Levites. 
 Hezekiah did so throughout all Judah; and he did that which was good, right, and faithful before his God. 
 In every work that he began in the service of God's house, in the law, and in the commandments, to seek his God, he did it with all his heart and prospered. 

@@ -13,4 +13,4 @@ If a man prevails against one who is alone, two shall withstand him; and a three
 Better is a poor and wise youth than an old and foolish king who doesn't know how to receive admonition any more. 
 For out of prison he came out to be king; yes, even in his kingdom he was born poor. 
 I saw all the living who walk under the sun, that they were with the youth, the other, who succeeded him. 
-There was no end of all the people, even of all them over whom he was, yet those who come after shall not rejoice in him. Surely this also is vanity and a chasing after wind. 
+There was no end of everyone, even of all them over whom he was, yet those who come after shall not rejoice in him. Surely this also is vanity and a chasing after wind. 

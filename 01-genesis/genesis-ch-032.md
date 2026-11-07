@@ -1,4 +1,4 @@
-﻿Jacob went on his way, and the angels of God met him. 
+﻿Jacob went on his way, and the messengers of God met him. 
 When he saw them, Jacob said, "This is God's army." He called the name of that place Mahanaim. 
 Jacob sent messengers in front of him to Esau, his brother, to the land of Seir, the field of Edom. 
 He commanded them, saying, "This is what you shall tell my lord, Esau: 'This is what your servant, Jacob, says. I have lived as a foreigner with Laban, and stayed until now. 

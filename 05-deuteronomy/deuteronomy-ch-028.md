@@ -7,7 +7,7 @@ You shall be blessed when you come in, and you shall be blessed when you go out.
 God will cause your enemies who rise up against you to be struck before you. They will come out against you one way, and will flee before you seven ways. 
 God will command the blessing on you in your barns, and in all that you put your hand to. He will bless you in the land which your God gives you. 
 God will establish you for a holy people to himself, as he has sworn to you, if you shall keep the commandments of your God, and walk in his ways. 
-All the peoples of the earth shall see that you are called by God's name, and they will be afraid of you. 
+Everyones of the earth shall see that you are called by God's name, and they will be afraid of you. 
 God will grant you abundant prosperity in the fruit of your body, in the fruit of your livestock, and in the fruit of your ground, in the land which God swore to your fathers to give you. 
 God will open to you his good treasure in the sky, to give the rain of your land in its season, and to bless all the work of your hand. You will lend to many nations, and you will not borrow. 
 God will make you the head, and not the tail. You will be above only, and you will not be beneath, if you listen to the commandments of your God which I command you today, to observe and to do, 
@@ -34,7 +34,7 @@ A nation which you don't know will eat the fruit of your ground and all of your 
 so that the sights that you see with your eyes will drive you mad. 
 God will strike you in the knees and in the legs with a sore boil, of which you cannot be healed, from the sole of your foot to the crown of your head. 
 God will bring you, and your king whom you will set over yourselves, to a nation that you have not known, you nor your fathers. There you will serve other gods of wood and stone. 
-You will become an astonishment, a proverb, and a byword among all the peoples where God will lead you away. 
+You will become an astonishment, a proverb, and a byword among everyones where God will lead you away. 
 You will carry much seed out into the field, and will gather little in, for the locust will consume it. 
 You will plant vineyards and dress them, but you will neither drink of the wine, nor harvest, because worms will eat them. 
 You will have olive trees throughout all your borders, but you won't anoint yourself with the oil, for your olives will drop off. 

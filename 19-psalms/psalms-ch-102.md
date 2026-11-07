@@ -23,6 +23,6 @@ when the peoples are gathered together, the kingdoms, to serve God.
 He weakened my strength along the course. He shortened my days. 
 I said, "My God, don't take me away in the middle of my days. Your years are throughout all generations. 
 Of old, you laid the foundation of the earth. The heavens are the work of your hands. 
-They will perish, but you will endure. Yes, all of them will wear out like a garment. You will change them like a cloak, and they will be changed. 
+They will perish, but you will endure. Yes, everyone will wear out like a garment. You will change them like a cloak, and they will be changed. 
 But you are the same. Your years will have no end. 
 The children of your servants will continue. Their offspring will be established before you." 

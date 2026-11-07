@@ -13,7 +13,7 @@ This was God's word which he spoke to Jehu, saying, "Your sons to the fourth gen
 Shallum the son of Jabesh began to reign in the thirty-ninth year of Uzziah king of Judah, and he reigned for a month in Samaria. 
 Menahem the son of Gadi went up from Tirzah, came to Samaria, struck Shallum the son of Jabesh in Samaria, killed him, and reigned in his place. 
 Now the rest of the acts of Shallum, and his conspiracy which he made, behold, they are written in the book of the chronicles of the kings of Israel. 
-Then Menahem attacked Tiphsah and all who were in it and its border areas, from Tirzah. He attacked it because they didn't open their gates to him, and he ripped up all their women who were with child. 
+Then Menahem attacked Tiphsah and everyone who was in it and its border areas, from Tirzah. He attacked it because they didn't open their gates to him, and he ripped up all their women who were with child. 
 In the thirty ninth year of Azariah king of Judah, Menahem the son of Gadi began to reign over Israel for ten years in Samaria. 
 He did that which was evil in God's sight. He didn't depart all his days from the sins of Jeroboam the son of Nebat, with which he made Israel to sin. 
 Pul the king of Assyria came against the land, and Menahem gave Pul one thousand talents of silver, that his hand might be with him to confirm the kingdom in his hand. 

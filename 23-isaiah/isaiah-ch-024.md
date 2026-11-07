@@ -2,7 +2,7 @@
 It will be as with the people, so with the priest; as with the servant, so with his master; as with the maid, so with her mistress; as with the buyer, so with the seller; as with the creditor, so with the debtor; as with the taker of interest, so with the giver of interest. 
 The earth will be utterly emptied and utterly laid waste; for God has spoken this word. 
 The earth mourns and fades away. The world languishes and fades away. The lofty people of the earth languish. 
-The earth also is polluted under its inhabitants, because they have transgressed the laws, violated the statutes, and broken the everlasting covenant. 
+The earth also is polluted under its inhabitants, because they have transgressed the laws, violated the statutes, and broken the perpetual covenant. 
 Therefore the curse has devoured the earth, and those who dwell therein are found guilty. Therefore the inhabitants of the earth are burned, and few men are left. 
 The new wine mourns. The vine languishes. All the merry-hearted sigh. 
 The mirth of tambourines ceases. The sound of those who rejoice ends. The joy of the harp ceases. 

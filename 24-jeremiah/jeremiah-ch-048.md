@@ -36,7 +36,7 @@ Moreover I will cause to cease in Moab," says God, "him who offers in the high p
 Therefore my heart sounds for Moab like flutes, and my heart sounds like flutes for the men of Kir Heres. Therefore the abundance that he has gotten has perished. 
 For every head is bald, and every beard clipped. There are cuttings on all the hands, and sackcloth on the waist. 
 On all the housetops of Moab, and in its streets, there is lamentation everywhere; for I have broken Moab like a vessel in which no one delights," says God. 
-"How it is broken down! How they wail! How Moab has turned the back with shame! So will Moab become a derision and a terror to all who are around him." 
+"How it is broken down! How they wail! How Moab has turned the back with shame! So will Moab become a derision and a terror to everyone who is around him." 
 For God says: "Behold, he will fly as an eagle, and will spread out his wings against Moab. 
 Kerioth is taken, and the strongholds are seized. The heart of the mighty men of Moab at that day will be as the heart of a woman in her pangs. 
 Moab will be destroyed from being a people, because he has magnified himself against God. 

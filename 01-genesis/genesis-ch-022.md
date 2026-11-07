@@ -8,11 +8,11 @@ Isaac spoke to Abraham his father, and said, "My father?" He said, "Here I am, m
 Abraham said, "God will provide himself the lamb for a burnt offering, my son." So they both went together. 
 They came to the place which God had told him of. Abraham built the altar there, and laid the wood in order, bound Isaac his son, and laid him on the altar, on the wood. 
 Abraham stretched out his hand, and took the knife to kill his son. 
-God's angel called to him out of the sky, and said, "Abraham, Abraham!" He said, "Here I am." 
+God's messenger called to him out of the sky, and said, "Abraham, Abraham!" He said, "Here I am." 
 He said, "Don't lay your hand on the boy or do anything to him. For now I know that you fear God, since you have not withheld your son, your only son, from me." 
 Abraham lifted up his eyes, and looked, and saw that behind him was a ram caught in the thicket by his horns. Abraham went and took the ram, and offered him up for a burnt offering instead of his son. 
 Abraham called the name of that place "God Will Provide". As it is said to this day, "On God's mountain, it will be provided." 
-God's angel called to Abraham a second time out of the sky, 
+God's messenger called to Abraham a second time out of the sky, 
 and said, "'I have sworn by myself,' says God, 'because you have done this thing, and have not withheld your son, your only son, 
 that I will bless you greatly, and I will multiply your offspring greatly like the stars of the heavens, and like the sand which is on the seashore. Your offspring will possess the gate of his enemies. 
 All the nations of the earth will be blessed by your offspring, because you have obeyed my voice.'" 

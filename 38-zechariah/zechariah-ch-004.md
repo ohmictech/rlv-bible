@@ -1,8 +1,8 @@
-﻿The angel who talked with me came again and wakened me, as a man who is wakened out of his sleep. 
+﻿The messenger who talked with me came again and wakened me, as a man who is wakened out of his sleep. 
 He said to me, "What do you see?" I said, "I have seen, and behold, a lamp stand all of gold, with its bowl on the top of it, and its seven lamps on it; there are seven pipes to each of the lamps which are on the top of it; 
 and two olive trees by it, one on the right side of the bowl, and the other on the left side of it." 
-I answered and spoke to the angel who talked with me, saying, "What are these, my lord?" 
-Then the angel who talked with me answered me, "Don't you know what these are?" I said, "No, my lord." 
+I answered and spoke to the messenger who talked with me, saying, "What are these, my lord?" 
+Then the messenger who talked with me answered me, "Don't you know what these are?" I said, "No, my lord." 
 Then he answered and spoke to me, saying, "This is God's word to Zerubbabel, saying, 'Not by might, nor by power, but by my Spirit,' says the God of Armies. 
 Who are you, great mountain? Before Zerubbabel you are a plain; and he will bring out the capstone with shouts of 'Grace, grace, to it!'" 
 Moreover God's word came to me, saying, 

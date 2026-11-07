@@ -1,4 +1,4 @@
-﻿In the seventh month, in the twenty-first day of the month, God's word came by Haggai the prophet, saying, 
+﻿In the seventh month, in the twenty-first day of the month, God's word came by Haggai the spokesman, saying, 
 "Speak now to Zerubbabel the son of Shealtiel, governor of Judah, and to Joshua the son of Jehozadak, the high priest, and to the remnant of the people, saying, 
 'Who is left among you who saw this house in its former glory? How do you see it now? Isn't it in your eyes as nothing? 
 Yet now be strong, Zerubbabel,' says God. 'Be strong, Joshua son of Jehozadak, the high priest. Be strong, all you people of the land,' says God, 'and work, for I am with you,' says the God of Armies. 
@@ -7,7 +7,7 @@ For this is what the God of Armies says: 'Yet once more, it is a little while, a
 and I will shake all nations. The treasure of all nations will come, and I will fill this house with glory, says the God of Armies. 
 The silver is mine, and the gold is mine,' says the God of Armies. 
 'The latter glory of this house will be greater than the former,' says the God of Armies; 'and in this place I will give peace,' says the God of Armies." 
-In the twenty-fourth day of the ninth month, in the second year of Darius, God's word came by Haggai the prophet, saying, 
+In the twenty-fourth day of the ninth month, in the second year of Darius, God's word came by Haggai the spokesman, saying, 
 "The God of Armies says: Ask now the priests concerning the law, saying, 
 'If someone carries holy meat in the fold of his garment, and with his fold touches bread, stew, wine, oil, or any food, will it become holy?'" The priests answered, "No." 
 Then Haggai said, "If one who is unclean by reason of a dead body touches any of these, will it be unclean?" The priests answered, "It will be unclean." 

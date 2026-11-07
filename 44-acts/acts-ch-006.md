@@ -12,4 +12,4 @@ Then they secretly persuaded some men to say, "We have heard him speak slanderou
 They stirred up the people, the elders, and the Bible teachers, and came against him and seized him, then brought him in to the council, 
 and set up false witnesses who said, "This man never stops speaking slanderous words against this holy place and the law. 
 For we have heard him say that this Jesus of Nazareth will tear down this place, and will change the customs which Moses delivered to us." 
-All who sat in the council looked intently at him and saw that his face was like the face of a messenger. 
+Everyone who sat in the council looked intently at him and saw that his face was like the face of a messenger. 

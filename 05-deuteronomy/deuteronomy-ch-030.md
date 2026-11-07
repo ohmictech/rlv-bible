@@ -1,6 +1,6 @@
 ﻿It shall happen, when all these things have come on you, the blessing and the curse, which I have set before you, and you shall call them to mind among all the nations where your God has driven you, 
 and return to your God and obey his voice according to all that I command you today, you and your children, with all your heart and with all your soul, 
-that then your God will release you from captivity, have compassion on you, and will return and gather you from all the peoples where your God has scattered you. 
+that then your God will release you from captivity, have compassion on you, and will return and gather you from everyones where your God has scattered you. 
 If your outcasts are in the uttermost parts of the heavens, from there your God will gather you, and from there he will bring you back. 
 Your God will bring you into the land which your fathers possessed, and you will possess it. He will do you good, and increase your numbers more than your fathers. 
 Your God will circumcise your heart, and the heart of your offspring, to love your God with all your heart and with all your soul, that you may live. 

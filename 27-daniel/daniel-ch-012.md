@@ -1,5 +1,5 @@
 ﻿"At that time Michael will stand up, the great prince who stands for the children of your people; and there will be a time of trouble, such as never was since there was a nation even to that same time. At that time your people will be delivered, everyone who is found written in the book. 
-Many of those who sleep in the dust of the earth will awake, some to everlasting life, and some to shame and everlasting contempt. 
+Many of those who sleep in the dust of the earth will awake, some to perpetual life, and some to shame and perpetual contempt. 
 Those who are wise will shine as the brightness of the expanse. Those who turn many to righteousness will shine as the stars for all the eras. 
 But you, Daniel, shut up the words and seal the book, even to the time of the end. Many will run back and forth, and knowledge will be increased." 
 Then I, Daniel, looked, and behold, two others stood, one on the river bank on this side, and the other on the river bank on that side. 

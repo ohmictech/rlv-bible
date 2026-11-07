@@ -3,7 +3,7 @@ Praise God, my soul, and don't forget all his benefits,
 who forgives all your sins, who heals all your diseases, 
 who redeems your life from destruction, who crowns you with loving kindness and tender mercies, 
 who satisfies your desire with good things, so that your youth is renewed like the eagle's. 
-God executes righteous acts, and justice for all who are oppressed. 
+God executes righteous acts, and justice for everyone who is oppressed. 
 He made known his ways to Moses, his deeds to the children of Israel. 
 God is merciful and gracious, slow to anger, and abundant in loving kindness. 
 He will not always accuse; neither will he stay angry for the eras. 
@@ -14,9 +14,9 @@ Like a father has compassion on his children, so God has compassion on those who
 For he knows how we are made. He remembers that we are dust. 
 As for man, his days are like grass. As a flower of the field, so he flourishes. 
 For the wind passes over it, and it is gone. Its place remembers it no more. 
-But God's loving kindness is from everlasting to everlasting with those who fear him, his righteousness to children's children, 
+But God's loving kindness is from perpetual to perpetual with those who fear him, his righteousness to children's children, 
 to those who keep his covenant, to those who remember to obey his precepts. 
 God has established his throne in the heavens. His kingdom rules over all. 
-Praise God, you angels of his, who are mighty in strength, who fulfill his word, obeying the voice of his word. 
+Praise God, you messengers of his, who are mighty in strength, who fulfill his word, obeying the voice of his word. 
 Praise God, all you armies of his, you servants of his, who do his pleasure. 
 Praise God, all you works of his, in all places of his dominion. Praise God, my soul! 

@@ -42,7 +42,7 @@ When the ten heard it, they became indignant with James and John.
 Jesus called them and said to them, "You know that those who are recognized as rulers over the nations lord it over them, and their great ones use their authority over them. 
 But it is not to be so among you. Whoever wants to become great among you must be your servant. 
 Whoever of you wants to be first must be slave of all. 
-For the Human One also came not to be served but to serve, and to give his life as a ransom price for many." 
+For the Human One also came not to be served but to serve, and to give his life as a ransom price for everyone." 
 They came to Jericho. As he went out from Jericho with his students and a great crowd, Bartimaeus, the son of Timaeus, a blind beggar, was sitting by the roadside. 
 When he heard that it was Jesus of Nazareth, he began to cry out and say, "Jesus, son of David, have mercy on me!" 
 Many rebuked him and told him to be quiet, but he cried out all the more, "Son of David, have mercy on me!" 

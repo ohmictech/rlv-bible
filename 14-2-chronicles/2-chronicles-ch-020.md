@@ -17,7 +17,7 @@ Tomorrow, go down against them. Behold, they are coming up by the ascent of Ziz.
 You will not need to fight this battle. Set yourselves, stand still, and see the salvation of God with you, O Judah and Jerusalem. Don't be afraid, nor be dismayed. Go out against them tomorrow, for God is with you.'" 
 Jehoshaphat bowed his head with his face to the ground; and all Judah and the inhabitants of Jerusalem fell down before God, worshiping God. 
 The Levites, of the children of the Kohathites and of the children of the Korahites, stood up to praise the God of Israel, with an exceedingly loud voice. 
-They rose early in the morning and went out into the wilderness of Tekoa. As they went out, Jehoshaphat stood and said, "Listen to me, Judah and you inhabitants of Jerusalem! Believe in your God, so you will be established! Believe his prophets, so you will prosper." 
+They rose early in the morning and went out into the wilderness of Tekoa. As they went out, Jehoshaphat stood and said, "Listen to me, Judah and you inhabitants of Jerusalem! Believe in your God, so you will be established! Believe his spokesmen, so you will prosper." 
 When he had taken counsel with the people, he appointed those who were to sing to God and give praise in holy array as they go out before the army, and say, "Give thanks to God, for his loving kindness endures for the eras." 
 When they began to sing and to praise, God set ambushers against the children of Ammon, Moab, and Mount Seir, who had come against Judah; and they were struck. 
 For the children of Ammon and Moab stood up against the inhabitants of Mount Seir to utterly kill and destroy them. When they had finished the inhabitants of Seir, everyone helped to destroy each other. 

@@ -8,7 +8,7 @@ The men of the place asked him about his wife. He said, "She is my sister," for 
 When he had been there a long time, Abimelech king of the Philistines looked out at a window, and saw, and, behold, Isaac was caressing Rebekah, his wife. 
 Abimelech called Isaac, and said, "Behold, surely she is your wife. Why did you say, 'She is my sister'?" Isaac said to him, "Because I said, 'Lest I die because of her.'" 
 Abimelech said, "What is this you have done to us? One of the people might easily have lain with your wife, and you would have brought guilt on us!" 
-Abimelech commanded all the people, saying, "He who touches this man or his wife will surely be put to death." 
+Abimelech commanded everyone, saying, "He who touches this man or his wife will surely be put to death." 
 Isaac sowed in that land, and reaped in the same year one hundred times what he planted. God blessed him. 
 The man grew great, and grew more and more until he became very great. 
 He had possessions of flocks, possessions of herds, and a great household. The Philistines envied him. 

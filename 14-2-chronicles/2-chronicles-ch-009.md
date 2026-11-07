@@ -26,6 +26,6 @@ Solomon had four thousand stalls for horses and chariots, and twelve thousand ho
 He ruled over all the kings from the River even to the land of the Philistines, and to the border of Egypt. 
 The king made silver as common in Jerusalem as stones, and he made cedars to be as abundant as the sycamore trees that are in the lowland. 
 They brought horses for Solomon out of Egypt and out of all lands. 
-Now the rest of the acts of Solomon, first and last, aren't they written in the history of Nathan the prophet, and in the prophecy of Ahijah the Shilonite, and in the visions of Iddo the seer concerning Jeroboam the son of Nebat? 
+Now the rest of the acts of Solomon, first and last, aren't they written in the history of Nathan the spokesman, and in the prophecy of Ahijah the Shilonite, and in the visions of Iddo the seer concerning Jeroboam the son of Nebat? 
 Solomon reigned in Jerusalem over all Israel forty years. 
 Solomon slept with his fathers, and he was buried in his father David's city; and Rehoboam his son reigned in his place. 

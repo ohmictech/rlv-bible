@@ -7,7 +7,7 @@ There is no one like you, God. You are great, and your name is great in might.
 Who shouldn't fear you, King of the nations? For it belongs to you. Because among all the wise men of the nations, and in all their royal estate, there is no one like you. 
 But they are together brutish and foolish, instructed by idols! It is just wood. 
 There is silver beaten into plates, which is brought from Tarshish, and gold from Uphaz, the work of the engraver and of the hands of the goldsmith. Their clothing is blue and purple. They are all the work of skillful men. 
-But God is the true God. He is the living God, and an everlasting King. At his wrath, the earth trembles. The nations aren't able to withstand his indignation. 
+But God is the true God. He is the living God, and an perpetual King. At his wrath, the earth trembles. The nations aren't able to withstand his indignation. 
 "You shall say this to them: 'The gods that have not made the heavens and the earth will perish from the earth, and from under the heavens.'" 
 God has made the earth by his power. He has established the world by his wisdom, and by his understanding has he stretched out the heavens. 
 When he utters his voice, the waters in the heavens roar, and he causes the vapors to ascend from the ends of the earth. He makes lightnings for the rain, and brings the wind out of his treasuries. 

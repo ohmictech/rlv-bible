@@ -4,7 +4,7 @@ Solomon went to Hamath Zobah, and prevailed against it.
 He built Tadmor in the wilderness, and all the storage cities, which he built in Hamath. 
 Also he built Beth Horon the upper and Beth Horon the lower, fortified cities with walls, gates, and bars; 
 and Baalath, and all the storage cities that Solomon had, and all the cities for his chariots, the cities for his horsemen, and all that Solomon desired to build for his pleasure in Jerusalem, in Lebanon, and in all the land of his dominion. 
-As for all the people who were left of the Hittites, the Amorites, the Perizzites, the Hivites, and the Jebusites, who were not of Israel 
+As for everyone who was left of the Hittites, the Amorites, the Perizzites, the Hivites, and the Jebusites, who were not of Israel 
 of their children who were left after them in the land, whom the children of Israel didn't consume, of them Solomon conscripted forced labor to this day. 
 But of the children of Israel, Solomon made no servants for his work, but they were men of war, chief of his captains, and rulers of his chariots and of his horsemen. 
 These were the chief officers of King Solomon, even two-hundred fifty, who ruled over the people. 

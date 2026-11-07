@@ -1,7 +1,7 @@
 ﻿The word that came to Jeremiah concerning all the Jews who lived in the land of Egypt, who lived at Migdol, and at Tahpanhes, and at Memphis, and in the country of Pathros, saying, 
 "The God of Armies, the God of Israel, says: 'You have seen all the evil that I have brought on Jerusalem, and on all the cities of Judah. Behold, today they are a desolation, and no man dwells in them, 
 because of their wickedness which they have committed to provoke me to anger, in that they went to burn incense, to serve other gods that they didn't know, neither they, nor you, nor your fathers. 
-However I sent to you all my servants the prophets, rising up early and sending them, saying, "Oh, don't do this abominable thing that I hate." 
+However I sent to you all my servants the spokesmen, rising up early and sending them, saying, "Oh, don't do this abominable thing that I hate." 
 But they didn't listen and didn't incline their ear. They didn't turn from their wickedness, to stop burning incense to other gods. 
 Therefore my wrath and my anger was poured out, and was kindled in the cities of Judah and in the streets of Jerusalem; and they are wasted and desolate, as it is today.' 
 "Therefore now the God of Armies, the God of Israel, says: 'Why do you commit great evil against your own souls, to cut off from yourselves man and woman, infant and nursing child out of the middle of Judah, to leave yourselves no one remaining, 
@@ -12,16 +12,16 @@ They are not humbled even to this day, neither have they feared, nor walked in m
 I will take the remnant of Judah that have set their faces to go into the land of Egypt to live there, and they will all be consumed. They will fall in the land of Egypt. They will be consumed by the sword and by the famine. They will die, from the least even to the greatest, by the sword and by the famine. They will be an object of horror, an astonishment, a curse, and a reproach. 
 For I will punish those who dwell in the land of Egypt, as I have punished Jerusalem, by the sword, by the famine, and by the pestilence; 
 so that none of the remnant of Judah, who have gone into the land of Egypt to live there, will escape or be left to return into the land of Judah, to which they have a desire to return to dwell there; for no one will return except those who will escape.'" 
-Then all the men who knew that their wives burned incense to other gods, and all the women who stood by, a great assembly, even all the people who lived in the land of Egypt, in Pathros, answered Jeremiah, saying, 
+Then all the men who knew that their wives burned incense to other gods, and all the women who stood by, a great assembly, even everyone who lived in the land of Egypt, in Pathros, answered Jeremiah, saying, 
 "As for the word that you have spoken to us in God's name, we will not listen to you. 
 But we will certainly perform every word that has gone out of our mouth, to burn incense to the queen of the sky and to pour out drink offerings to her, as we have done, we and our fathers, our kings and our princes, in the cities of Judah and in the streets of Jerusalem; for then we had plenty of food, and were well, and saw no evil. 
 But since we stopped burning incense to the queen of the sky, and pouring out drink offerings to her, we have lacked all things, and have been consumed by the sword and by the famine." 
 The women said, "When we burned incense to the queen of the sky and poured out drink offerings to her, did we make her cakes to worship her, and pour out drink offerings to her, without our husbands?" 
-Then Jeremiah said to all the people, to the men and to the women, even to all the people who had given him an answer, saying, 
+Then Jeremiah said to everyone, to the men and to the women, even to everyone who had given him an answer, saying, 
 "The incense that you burned in the cities of Judah, and in the streets of Jerusalem, you and your fathers, your kings and your princes, and the people of the land, didn't God remember them, and didn't it come into his mind? 
 Thus God could no longer bear it, because of the evil of your doings and because of the abominations which you have committed. Therefore your land has become a desolation, an astonishment, and a curse, without inhabitant, as it is today. 
 Because you have burned incense and because you have sinned against God, and have not obeyed God's voice, nor walked in his law, nor in his statutes, nor in his testimonies; therefore this evil has happened to you, as it is today." 
-Moreover Jeremiah said to all the people, including all the women, "Hear God's word, all Judah who are in the land of Egypt! 
+Moreover Jeremiah said to everyone, including all the women, "Hear God's word, all Judah who are in the land of Egypt! 
 The God of Armies, the God of Israel, says, 'You and your wives have both spoken with your mouths, and with your hands have fulfilled it, saying, "We will surely perform our vows that we have vowed, to burn incense to the queen of the sky, and to pour out drink offerings to her." "'Establish then your vows, and perform your vows.' 
 "Therefore hear God's word, all Judah who dwell in the land of Egypt: 'Behold, I have sworn by my great name,' says God, 'that my name will no more be named in the mouth of any man of Judah in all the land of Egypt, saying, "As God lives." 
 Behold, I watch over them for evil, and not for good; and all the men of Judah who are in the land of Egypt will be consumed by the sword and by the famine, until they are all gone. 

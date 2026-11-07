@@ -12,7 +12,7 @@ Attai the sixth, Eliel the seventh,
 Johanan the eighth, Elzabad the ninth, 
 Jeremiah the tenth, and Machbannai the eleventh. 
 These of the sons of Gad were captains of the army. He who was least was equal to one hundred, and the greatest to one thousand. 
-These are those who went over the Jordan in the first month, when it had overflowed all its banks; and they put to flight all who lived in the valleys, both toward the east and toward the west. 
+These are those who went over the Jordan in the first month, when it had overflowed all its banks; and they put to flight everyone who lived in the valleys, both toward the east and toward the west. 
 Some of the children of Benjamin and Judah came to the stronghold to David. 
 David went out to meet them, and answered them, "If you have come peaceably to me to help me, my heart will be united with you; but if you have come to betray me to my adversaries, since there is no wrong in my hands, may the God of our fathers see this and rebuke it." 
 Then the Spirit came on Amasai, who was chief of the thirty, and he said, "We are yours, David, and on your side, you son of Jesse. Peace, peace be to you, and peace be to your helpers; for your God helps you." Then David received them and made them captains of the band. 

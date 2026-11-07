@@ -4,7 +4,7 @@ I will make you swear by the God of heaven and the God of the earth, that you sh
 But you shall go to my country, and to my relatives, and take a wife for my son Isaac." 
 The servant said to him, "What if the woman isn't willing to follow me to this land? Must I bring your son again to the land you came from?" 
 Abraham said to him, "Beware that you don't bring my son there again. 
-The God of heaven, who took me from my father's house, and from the land of my birth, who spoke to me, and who swore to me, saying, 'I will give this land to your offspring, he will send his angel before you, and you shall take a wife for my son from there. 
+The God of heaven, who took me from my father's house, and from the land of my birth, who spoke to me, and who swore to me, saying, 'I will give this land to your offspring, he will send his messenger before you, and you shall take a wife for my son from there. 
 If the woman isn't willing to follow you, then you shall be clear from this oath to me. Only you shall not bring my son there again." 
 The servant put his hand under the thigh of Abraham his master, and swore to him concerning this matter. 
 The servant took ten of his master's camels, and departed, having a variety of good things of his master's with him. He arose, and went to Mesopotamia, to the city of Nahor. 
@@ -37,7 +37,7 @@ Sarah, my master's wife, bore a son to my master when she was old. He has given 
 My master made me swear, saying, 'You shall not take a wife for my son from the daughters of the Canaanites, in whose land I live, 
 but you shall go to my father's house, and to my relatives, and take a wife for my son.' 
 I asked my master, 'What if the woman will not follow me?' 
-He said to me, 'God, before whom I walk, will send his angel with you, and prosper your way. You shall take a wife for my son from my relatives, and of my father's house. 
+He said to me, 'God, before whom I walk, will send his messenger with you, and prosper your way. You shall take a wife for my son from my relatives, and of my father's house. 
 Then you will be clear from my oath, when you come to my relatives. If they don't give her to you, you shall be clear from my oath.' 
 I came today to the spring, and said, 'The God of my master Abraham, if now you do prosper my way which I go 
 behold, I am standing by this spring of water. Let it happen, that the maiden who comes out to draw, to whom I will say, "Please give me a little water from your pitcher to drink," 

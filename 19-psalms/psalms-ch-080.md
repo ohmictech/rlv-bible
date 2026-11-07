@@ -9,7 +9,7 @@ You brought a vine out of Egypt. You drove out the nations, and planted it.
 You cleared the ground for it. It took deep root, and filled the land. 
 The mountains were covered with its shadow. Its boughs were like God's cedars. 
 It sent out its branches to the sea, its shoots to the River. 
-Why have you broken down its walls, so that all those who pass by the way pluck it? 
+Why have you broken down its walls, so that everyone who passes by the way pluck it? 
 The boar out of the wood ravages it. The wild animals of the field feed on it. 
 Turn again, we beg you, God of Armies. Look down from heaven, and see, and visit this vine, 
 the stock which your right hand planted, the branch that you made strong for yourself. 

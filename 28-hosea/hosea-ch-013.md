@@ -1,5 +1,5 @@
 ﻿When Ephraim spoke, there was trembling. He exalted himself in Israel, but when he became guilty through Baal, he died. 
-Now they sin more and more, and have made themselves molten images of their silver, even idols according to their own understanding, all of them the work of the craftsmen. They say of them, 'They offer human sacrifice and kiss the calves.' 
+Now they sin more and more, and have made themselves molten images of their silver, even idols according to their own understanding, everyone the work of the craftsmen. They say of them, 'They offer human sacrifice and kiss the calves.' 
 Therefore they will be like the morning mist, like the dew that passes away early, like the chaff that is driven with the whirlwind out of the threshing floor, and like the smoke out of the chimney. 
 "Yet I am your God from the land of Egypt; and you shall acknowledge no god but me, and besides me there is no savior. 
 I knew you in the wilderness, in the land of great drought. 

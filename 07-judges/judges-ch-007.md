@@ -1,4 +1,4 @@
-﻿Then Jerubbaal, who is Gideon, and all the people who were with him, rose up early and encamped beside the spring of Harod. Midian's camp was on the north side of them, by the hill of Moreh, in the valley. 
+﻿Then Jerubbaal, who is Gideon, and everyone who was with him, rose up early and encamped beside the spring of Harod. Midian's camp was on the north side of them, by the hill of Moreh, in the valley. 
 God said to Gideon, "The people who are with you are too many for me to give the Midianites into their hand, lest Israel brag against me, saying, 'My own hand has saved me.' 
 Now therefore proclaim in the ears of the people, saying, 'Whoever is fearful and trembling, let him return and depart from Mount Gilead.'" So twenty-two thousand of the people returned, and ten thousand remained. 
 God said to Gideon, "There are still too many people. Bring them down to the water, and I will test them for you there. It shall be, that those whom I tell you, 'This shall go with you,' shall go with you; and whoever I tell you, 'This shall not go with you,' shall not go." 
@@ -13,9 +13,9 @@ The Midianites and the Amalekites and all the children of the east lay along in 
 When Gideon had come, behold, there was a man telling a dream to his fellow. He said, "Behold, I dreamed a dream; and behold, a cake of barley bread tumbled into the camp of Midian, came to the tent, and struck it so that it fell, and turned it upside down, so that the tent lay flat." 
 His fellow answered, "This is nothing other than the sword of Gideon the son of Joash, a man of Israel. God has delivered Midian into his hand, with all the army." 
 It was so, when Gideon heard the telling of the dream and its interpretation, that he worshiped. Then he returned into the camp of Israel and said, "Arise, for God has delivered the army of Midian into your hand!" 
-He divided the three hundred men into three companies, and he put into the hands of all of them trumpets and empty pitchers, with torches within the pitchers. 
+He divided the three hundred men into three companies, and he put into the hands of everyone trumpets and empty pitchers, with torches within the pitchers. 
 He said to them, "Watch me, and do likewise. Behold, when I come to the outermost part of the camp, it shall be that, as I do, so you shall do. 
-When I blow the trumpet, I and all who are with me, then blow the trumpets also on every side of all the camp, and shout, 'For God and for Gideon!'" 
+When I blow the trumpet, I and everyone who is with me, then blow the trumpets also on every side of all the camp, and shout, 'For God and for Gideon!'" 
 So Gideon and the hundred men who were with him came to the outermost part of the camp in the beginning of the middle watch, when they had but newly set the watch. Then they blew the trumpets and broke in pieces the pitchers that were in their hands. 
 The three companies blew the trumpets, broke the pitchers, and held the torches in their left hands and the trumpets in their right hands with which to blow; and they shouted, "The sword of God and of Gideon!" 
 They each stood in his place around the camp, and all the army ran; and they shouted, and put them to flight. 

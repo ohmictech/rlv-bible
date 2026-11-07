@@ -8,8 +8,8 @@ They trample the heads of the poor into the dust of the earth and deny justice t
 They lay themselves down beside every altar on clothes taken in pledge. In the house of their God they drink the wine of those who have been fined. 
 Yet I destroyed the Amorite before them, whose height was like the height of the cedars, and he was strong as the oaks; yet I destroyed his fruit from above, and his roots from beneath. 
 Also I brought you up out of the land of Egypt and led you forty years in the wilderness, to possess the land of the Amorite. 
-I raised up some of your sons for prophets, and some of your young men for Nazirites. Isn't this true, you children of Israel?" says God. 
-"But you gave the Nazirites wine to drink, and commanded the prophets, saying, 'Don't prophesy!' 
+I raised up some of your sons for spokesmen, and some of your young men for Nazirites. Isn't this true, you children of Israel?" says God. 
+"But you gave the Nazirites wine to drink, and commanded the spokesmen, saying, 'Don't prophesy!' 
 Behold, I will crush you in your place, as a cart crushes that is full of grain. 
 Flight will perish from the swift. The strong won't strengthen his force. The mighty won't deliver himself. 
 He who handles the bow won't stand. He who is swift of foot won't escape. He who rides the horse won't deliver himself. 

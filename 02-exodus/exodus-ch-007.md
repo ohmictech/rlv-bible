@@ -1,4 +1,4 @@
-﻿God said to Moses, "Behold, I have made you as God to Pharaoh; and Aaron your brother shall be your prophet. 
+﻿God said to Moses, "Behold, I have made you as God to Pharaoh; and Aaron your brother shall be your spokesman. 
 You shall speak all that I command you; and Aaron your brother shall speak to Pharaoh, that he let the children of Israel go out of his land. 
 I will harden Pharaoh's heart, and multiply my signs and my wonders in the land of Egypt. 
 But Pharaoh will not listen to you, so I will lay my hand on Egypt, and bring out my armies, my people the children of Israel, out of the land of Egypt by great judgments. 

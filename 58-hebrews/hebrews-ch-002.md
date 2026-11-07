@@ -12,7 +12,7 @@ For the one who sets apart and those who are set apart all come from one Father.
 when he says, "I will tell my brothers and sisters your name. In the middle of the gathering I will sing your praise." 
 And again, "I will put my trust in him." And again, "Here I am, with the children God has given me." 
 Since the children share in flesh and blood, he also shared in the same things himself, so that through his death he might put out of work the one who holds the power of death, that is, the Slanderer, 
-and set free all those who were held in slavery their whole lives by the fear of death. 
+and set free everyone who was held in slavery their whole lives by the fear of death. 
 For surely he does not come to the aid of messengers, but he comes to the aid of the offspring of Abraham. 
 That is why he had to become like his brothers and sisters in every way, so that he could be a merciful and trustworthy high priest in God's service, to make things right for the mistakes of the people. 
 Because he himself suffered when he was tested, he is able to help those who are being tested. 

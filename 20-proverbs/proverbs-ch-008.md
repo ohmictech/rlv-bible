@@ -20,7 +20,7 @@ My fruit is better than gold, yes, than fine gold, my yield than choice silver.
 I walk in the way of righteousness, in the middle of the paths of justice, 
 that I may give wealth to those who love me. I fill their treasuries. 
 "God possessed me in the beginning of his work, before his deeds of old. 
-I was set up from everlasting, from the beginning, before the earth existed. 
+I was set up from perpetual, from the beginning, before the earth existed. 
 When there were no depths, I was born, when there were no springs abounding with water. 
 Before the mountains were settled in place, before the hills, I was born; 
 while as yet he had not made the earth, nor the fields, nor the beginning of the dust of the world. 
@@ -33,4 +33,4 @@ rejoicing in his whole world. My delight was with the sons of men.
 Hear instruction, and be wise. Don't refuse it. 
 Blessed is the man who hears me, watching daily at my gates, waiting at my door posts. 
 For whoever finds me finds life, and will obtain favor from God. 
-But he who sins against me wrongs his own soul. All those who hate me love death." 
+But he who sins against me wrongs his own soul. Everyone who hates me love death." 

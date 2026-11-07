@@ -7,7 +7,7 @@ When Paul had laid his hands on them, the Holy Spirit came on them and they spok
 They were about twelve men in all. 
 He entered into the gathering place and spoke boldly for a period of three months, reasoning and persuading about the things concerning God's reign. 
 But when some were hardened and disobedient, speaking badly of the Way before the crowd, he departed from them and separated the students, reasoning daily in the school of Tyrannus. 
-This continued for two years, so that all those who lived in Asia heard the word of the Lord Jesus, both Jewish people and Greeks. 
+This continued for two years, so that everyone who lived in Asia heard the word of the Lord Jesus, both Jewish people and Greeks. 
 God worked special signs by the hands of Paul, 
 so that even handkerchiefs or aprons were carried away from his body to the sick, and the diseases departed from them, and the unclean spirits went out. 
 But some of the traveling Jewish men, exorcists, took on themselves to invoke over those who had the unclean spirits the name of the Lord Jesus, saying, "We put you under oath by Jesus whom Paul tells about." 

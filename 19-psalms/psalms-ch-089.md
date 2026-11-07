@@ -4,7 +4,7 @@ I indeed declare, "Love stands firm for the eras. You established the heavens. Y
 'I will establish your offspring for the eras, and build up your throne to all generations.'" Selah. 
 The heavens will praise your wonders, God, your faithfulness also in the assembly of the holy ones. 
 For who in the skies can be compared to God? Who among the sons of the heavenly beings is like God, 
-a very awesome God in the council of the holy ones, to be feared above all those who are around him? 
+a very awesome God in the council of the holy ones, to be feared above everyone who is around him? 
 God, God of Armies, who is a mighty one, like you? God, your faithfulness is around you. 
 You rule the pride of the sea. When its waves rise up, you calm them. 
 You have broken Rahab in pieces, like one of the slain. You have scattered your enemies with your mighty arm. 
@@ -38,7 +38,7 @@ It will be established for the eras like the moon, the faithful witness in the s
 But you have rejected and spurned. You have been angry with your anointed. 
 You have renounced the covenant of your servant. You have defiled his crown in the dust. 
 You have broken down all his hedges. You have brought his strongholds to ruin. 
-All who pass by the way rob him. He has become a reproach to his neighbors. 
+Everyone who passes by the way rob him. He has become a reproach to his neighbors. 
 You have exalted the right hand of his adversaries. You have made all of his enemies rejoice. 
 Yes, you turn back the edge of his sword, and haven't supported him in battle. 
 You have ended his splendor, and thrown his throne down to the ground. 

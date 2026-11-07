@@ -19,4 +19,4 @@ Thus the children of Israel were brought under at that time, and the children of
 Abijah pursued Jeroboam, and took cities from him: Bethel with its villages, Jeshanah with its villages, and Ephron with its villages. 
 Jeroboam didn't recover strength again in the days of Abijah. God struck him, and he died. 
 But Abijah grew mighty and took for himself fourteen wives, and became the father of twenty-two sons and sixteen daughters. 
-The rest of the acts of Abijah, his ways, and his sayings are written in the commentary of the prophet Iddo. 
+The rest of the acts of Abijah, his ways, and his sayings are written in the commentary of the spokesman Iddo. 

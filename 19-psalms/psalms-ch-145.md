@@ -10,12 +10,12 @@ God is good to all. His tender mercies are over all his works.
 All your works will give thanks to you, God. Your saints will extol you. 
 They will speak of the glory of your kingdom, and talk about your power, 
 to make known to the sons of men his mighty acts, the glory of the majesty of his kingdom. 
-Your kingdom is an everlasting kingdom. Your dominion endures throughout all generations. God is faithful in all his words, and loving in all his deeds. 
-God upholds all who fall, and raises up all those who are bowed down. 
+Your kingdom is an perpetual kingdom. Your dominion endures throughout all generations. God is faithful in all his words, and loving in all his deeds. 
+God upholds everyone who falls, and raises up everyone who is bowed down. 
 The eyes of all wait for you. You give them their food in due season. 
 You open your hand, and satisfy the desire of every living thing. 
 God is righteous in all his ways, and gracious in all his works. 
-God is near to all those who call on him, to all who call on him in truth. 
+God is near to everyone who calls on him, to everyone who calls on him in truth. 
 He will fulfill the desire of those who fear him. He also will hear their cry, and will save them. 
-God preserves all those who love him, but he will destroy all the wicked. 
+God preserves everyone who loves him, but he will destroy all the wicked. 
 My mouth will speak the praise of God. Let all flesh bless his holy name for all the eras. 

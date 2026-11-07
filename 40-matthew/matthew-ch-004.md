@@ -21,5 +21,5 @@ They immediately left their nets and followed him.
 Going on from there, he saw two other brothers, James the son of Zebedee, and John his brother, in the boat with Zebedee their father, mending their nets. He called them. 
 They immediately left the boat and their father, and followed him. 
 Jesus went about in all Galilee, teaching in their gathering places, preaching the good news of the reign, and healing every disease and every sickness among the people. 
-The report about him went out into all Syria. They brought to him all who were sick, suffering with various diseases and pains, harassed by unclean spirits, the epileptics, and the paralyzed, and he healed them. 
+The report about him went out into all Syria. They brought to him everyone who was sick, suffering with various diseases and pains, harassed by unclean spirits, the epileptics, and the paralyzed, and he healed them. 
 Great crowds from Galilee, Decapolis, Jerusalem, Judea, and from beyond the Jordan followed him. 

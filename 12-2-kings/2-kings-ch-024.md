@@ -1,5 +1,5 @@
 ﻿In his days Nebuchadnezzar king of Babylon came up, and Jehoiakim became his servant for three years. Then he turned and rebelled against him. 
-God sent against him bands of the Chaldeans, bands of the Syrians, bands of the Moabites, and bands of the children of Ammon, and sent them against Judah to destroy it, according to God's word which he spoke by his servants the prophets. 
+God sent against him bands of the Chaldeans, bands of the Syrians, bands of the Moabites, and bands of the children of Ammon, and sent them against Judah to destroy it, according to God's word which he spoke by his servants the spokesmen. 
 Surely at the commandment of God this came on Judah, to remove them out of his sight for the sins of Manasseh, according to all that he did, 
 and also for the innocent blood that he shed; for he filled Jerusalem with innocent blood, and God would not pardon. 
 Now the rest of the acts of Jehoiakim, and all that he did, aren't they written in the book of the chronicles of the kings of Judah? 
@@ -13,7 +13,7 @@ and Jehoiachin the king of Judah went out to the king of Babylon, he, his mother
 He carried out from there all the treasures of God's house and the treasures of the king's house, and cut in pieces all the vessels of gold which Solomon king of Israel had made in God's temple, as God had said. 
 He carried away all Jerusalem, and all the princes, and all the mighty men of valor, even ten thousand captives, and all the craftsmen and the smiths. No one remained except the poorest people of the land. 
 He carried away Jehoiachin to Babylon, with the king's mother, the king's wives, his officers, and the chief men of the land. He carried them into captivity from Jerusalem to Babylon. 
-All the men of might, even seven thousand, and the craftsmen and the smiths one thousand, all of them strong and fit for war, even them the king of Babylon brought captive to Babylon. 
+All the men of might, even seven thousand, and the craftsmen and the smiths one thousand, everyone strong and fit for war, even them the king of Babylon brought captive to Babylon. 
 The king of Babylon made Mattaniah, Jehoiachin's father's brother, king in his place, and changed his name to Zedekiah. 
 Zedekiah was twenty-one years old when he began to reign, and he reigned eleven years in Jerusalem. His mother's name was Hamutal the daughter of Jeremiah of Libnah. 
 He did that which was evil in God's sight, according to all that Jehoiakim had done. 

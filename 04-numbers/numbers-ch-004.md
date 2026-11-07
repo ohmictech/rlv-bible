@@ -1,6 +1,6 @@
 ﻿God spoke to Moses and to Aaron, saying, 
 "Take a census of the sons of Kohath from among the sons of Levi, by their families, by their fathers' houses, 
-from thirty years old and upward even until fifty years old, all who enter into the service to do the work in the Tent of Meeting. 
+from thirty years old and upward even until fifty years old, everyone who enters into the service to do the work in the Tent of Meeting. 
 "This is the service of the sons of Kohath in the Tent of Meeting, regarding the most holy things. 
 When the camp moves forward, Aaron shall go in with his sons; and they shall take down the veil of the screen, cover the ark of the Testimony with it, 
 put a covering of sealskin on it, spread a blue cloth over it, and put in its poles. 
@@ -20,7 +20,7 @@ but do this to them, that they may live, and not die, when they approach the mos
 but they shall not go in to see the sanctuary even for a moment, lest they die." 
 God spoke to Moses, saying, 
 "Take a census of the sons of Gershon also, by their fathers' houses, by their families; 
-you shall count them from thirty years old and upward until fifty years old: all who enter in to wait on the service, to do the work in the Tent of Meeting. 
+you shall count them from thirty years old and upward until fifty years old: everyone who enters in to wait on the service, to do the work in the Tent of Meeting. 
 "This is the service of the families of the Gershonites, in serving and in bearing burdens: 
 they shall carry the curtains of the tabernacle and the Tent of Meeting, its covering, the covering of sealskin that is on it, the screen for the door of the Tent of Meeting, 
 the hangings of the court, the screen for the door of the gate of the court which is by the tabernacle and around the altar, their cords, and all the instruments of their service, and whatever shall be done with them. They shall serve in there. 
@@ -34,16 +34,16 @@ This is the service of the families of the sons of Merari, according to all thei
 Moses and Aaron and the princes of the congregation counted the sons of the Kohathites by their families, and by their fathers' houses, 
 from thirty years old and upward even to fifty years old, everyone who entered into the service for work in the Tent of Meeting. 
 Those who were counted of them by their families were two thousand seven hundred fifty. 
-These are those who were counted of the families of the Kohathites, all who served in the Tent of Meeting, whom Moses and Aaron counted according to the commandment of God by Moses. 
+These are those who were counted of the families of the Kohathites, everyone who served in the Tent of Meeting, whom Moses and Aaron counted according to the commandment of God by Moses. 
 Those who were counted of the sons of Gershon, by their families, and by their fathers' houses, 
 from thirty years old and upward even to fifty years old, everyone who entered into the service for work in the Tent of Meeting, 
 even those who were counted of them, by their families, by their fathers' houses, were two thousand six hundred thirty. 
-These are those who were counted of the families of the sons of Gershon, all who served in the Tent of Meeting, whom Moses and Aaron counted according to the commandment of God. 
+These are those who were counted of the families of the sons of Gershon, everyone who served in the Tent of Meeting, whom Moses and Aaron counted according to the commandment of God. 
 Those who were counted of the families of the sons of Merari, by their families, by their fathers' houses, 
 from thirty years old and upward even to fifty years old, everyone who entered into the service for work in the Tent of Meeting, 
 even those who were counted of them by their families, were three thousand two hundred. 
 These are those who were counted of the families of the sons of Merari, whom Moses and Aaron counted according to the commandment of God by Moses. 
-All those who were counted of the Levites whom Moses and Aaron and the princes of Israel counted, by their families and by their fathers' houses, 
+Everyone who was counted of the Levites whom Moses and Aaron and the princes of Israel counted, by their families and by their fathers' houses, 
 from thirty years old and upward even to fifty years old, everyone who entered in to do the work of service and the work of bearing burdens in the Tent of Meeting, 
 even those who were counted of them, were eight thousand five hundred eighty. 
 According to the commandment of God they were counted by Moses, everyone according to his service and according to his burden. Thus they were counted by him, as God commanded Moses. 

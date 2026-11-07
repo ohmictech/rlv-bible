@@ -13,11 +13,11 @@ For God says, "Your hurt is incurable. Your wound is grievous.
 There is no one to plead your cause, that you may be bound up. You have no healing medicines. 
 All your lovers have forgotten you. They don't seek you. For I have wounded you with the wound of an enemy, with the chastisement of a cruel one, for the greatness of your iniquity, because your sins were increased. 
 Why do you cry over your injury? Your pain is incurable. For the greatness of your iniquity, because your sins have increased, I have done these things to you. 
-Therefore all those who devour you will be devoured. All your adversaries, everyone of them, will go into captivity. Those who plunder you will be plunder. I will make all who prey on you become prey. 
+Therefore everyone who devours you will be devoured. All your adversaries, everyone of them, will go into captivity. Those who plunder you will be plunder. I will make everyone who preys on you become prey. 
 For I will restore health to you, and I will heal you of your wounds," says God, "because they have called you an outcast, saying, 'It is Zion, whom no man seeks after.'" 
 God says: "Behold, I will reverse the captivity of Jacob's tents, and have compassion on his dwelling places. The city will be built on its own hill, and the palace will be inhabited in its own place. 
 Thanksgiving will proceed out of them with the voice of those who make merry. I will multiply them, and they will not be few; I will also glorify them, and they will not be small. 
-Their children also will be as before, and their congregation will be established before me. I will punish all who oppress them. 
+Their children also will be as before, and their congregation will be established before me. I will punish everyone who oppresses them. 
 Their prince will be one of them, and their ruler will proceed from among them. I will cause him to draw near, and he will approach me; for who is he who has had boldness to approach me?" says God. 
 "You shall be my people, and I will be your God. 
 Behold, God's storm, his wrath, has gone out, a sweeping storm; it will burst on the head of the wicked. 

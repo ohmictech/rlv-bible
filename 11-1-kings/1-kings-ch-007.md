@@ -34,7 +34,7 @@ The work of the wheels was like the work of a chariot wheel. Their axles, their 
 There were four supports at the four corners of each base. Its supports were of the base itself. 
 In the top of the base there was a round band half a cubit high; and on the top of the base its supports and its panels were the same. 
 On the plates of its supports and on its panels, he engraved cherubim, lions, and palm trees, each in its space, with wreaths all around. 
-He made the ten bases in this way: all of them had one casting, one measure, and one form. 
+He made the ten bases in this way: everyone had one casting, one measure, and one form. 
 He made ten basins of bronze. One basin contained forty baths. Every basin measured four cubits. One basin was on every one of the ten bases. 
 He set the bases, five on the right side of the house and five on the left side of the house. He set the sea on the right side of the house eastward and toward the south. 
 Hiram made the pots, the shovels, and the basins. So Hiram finished doing all the work that he worked for King Solomon in God's house: 

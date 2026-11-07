@@ -36,12 +36,12 @@ until I make your enemies a footstool for your feet."'
 "Let all the house of Israel therefore know certainly that God has made him both Lord and Christ, this Jesus whom you crucified." 
 Now when they heard this, they were cut to the heart, and said to Peter and the rest of the sent ones, "Brothers and sisters, what should we do?" 
 Peter said to them, "Have a change of heart and be immersed, every one of you, in the name of Jesus Christ, so that your mistakes are released, and you will receive the gift of the Holy Spirit. 
-For the promise is to you and to your children, and to all who are far off, even as many as the Lord our God will call to himself." 
+For the promise is to you and to your children, and to everyone who is far off, even as many as the Lord our God will call to himself." 
 With many other words he testified and urged them, saying, "Rescue yourselves from this crooked generation!" 
 Then those who gladly received his word were immersed. There were added that day about three thousand people. 
 They continued steadfastly in the teaching of the sent ones and in sharing, in the breaking of bread, and prayer. 
 Awe came on every person, and many wonders and signs were done through the sent ones. 
-All who trusted were together, and had all things in common. 
+Everyone who trusted were together, and had all things in common. 
 They sold their possessions and goods, and distributed them to all, as anyone had need. 
 Day by day, continuing steadfastly together in the temple courts, and breaking bread at home, they took their food with gladness and singleness of heart, 
-praising God and having favor with all the people. The Lord added to the gathering day by day those who were being made whole. 
+praising God and having favor with everyone. The Lord added to the gathering day by day those who were being made whole. 

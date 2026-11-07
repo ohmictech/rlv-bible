@@ -1,6 +1,6 @@
 ﻿When the people saw that Moses delayed coming down from the mountain, the people gathered themselves together to Aaron, and said to him, "Come, make us gods, which shall go before us; for as for this Moses, the man who brought us up out of the land of Egypt, we don't know what has become of him." 
 Aaron said to them, "Take off the golden rings, which are in the ears of your wives, of your sons, and of your daughters, and bring them to me." 
-All the people took off the golden rings which were in their ears, and brought them to Aaron. 
+Everyone took off the golden rings which were in their ears, and brought them to Aaron. 
 He received what they handed him, fashioned it with an engraving tool, and made it a molded calf. Then they said, "These are your gods, Israel, which brought you up out of the land of Egypt." 
 When Aaron saw this, he built an altar before it; and Aaron made a proclamation, and said, "Tomorrow shall be a feast to God." 
 They rose up early on the next day, and offered burnt offerings, and brought peace offerings; and the people sat down to eat and to drink, and rose up to play. 
@@ -31,5 +31,5 @@ On the next day, Moses said to the people, "You have sinned a great sin. Now I w
 Moses returned to God, and said, "Oh, this people have sinned a great sin, and have made themselves gods of gold. 
 Yet now, if you will, forgive their sin, and if not, please blot me out of your book which you have written." 
 God said to Moses, "Whoever has sinned against me, I will blot him out of my book. 
-Now go, lead the people to the place of which I have spoken to you. Behold, my angel shall go before you. Nevertheless, in the day when I punish, I will punish them for their sin." 
+Now go, lead the people to the place of which I have spoken to you. Behold, my messenger shall go before you. Nevertheless, in the day when I punish, I will punish them for their sin." 
 God struck the people, because of what they did with the calf, which Aaron made. 

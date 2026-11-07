@@ -1,5 +1,5 @@
 ﻿For, behold, the Lord, GOD of Armies, takes away from Jerusalem and from Judah supply and support, the whole supply of bread, and the whole supply of water; 
-the mighty man, the man of war, the judge, the prophet, the diviner, the elder, 
+the mighty man, the man of war, the judge, the spokesman, the diviner, the elder, 
 the captain of fifty, the honorable man, the counselor, the skilled craftsman, and the clever enchanter. 
 I will give boys to be their princes, and children shall rule over them. 
 The people will be oppressed, everyone by another, and everyone by his neighbor. The child will behave himself proudly against the old man, and the wicked against the honorable. 

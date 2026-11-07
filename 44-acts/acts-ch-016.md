@@ -29,7 +29,7 @@ But Paul cried with a loud voice, saying, "Don't harm yourself, for we are all h
 He called for lights, sprang in, fell down trembling before Paul and Silas, 
 brought them out, and said, "Sirs, what must I do to be made whole?" 
 They said, "Trust in the Lord Jesus Christ, and you will be made whole, you and your household." 
-They spoke the word of the Lord to him, and to all who were in his house. 
+They spoke the word of the Lord to him, and to everyone who was in his house. 
 He took them the same hour of the night and washed their stripes, and was immediately immersed, he and all his household. 
 He brought them up into his house and set food before them, and celebrated greatly with all his household, having trusted in God. 
 But when it was day, the magistrates sent the sergeants, saying, "Let those men go." 

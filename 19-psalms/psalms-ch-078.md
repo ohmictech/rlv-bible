@@ -22,7 +22,7 @@ Therefore God heard, and was angry. A fire was kindled against Jacob, anger also
 because they didn't believe in God, and didn't trust in his salvation. 
 Yet he commanded the skies above, and opened the doors of heaven. 
 He rained down manna on them to eat, and gave them food from the sky. 
-Man ate the bread of angels. He sent them food to the full. 
+Man ate the bread of messengers. He sent them food to the full. 
 He caused the east wind to blow in the sky. By his power he guided the south wind. 
 He also rained meat on them as the dust, winged birds as the sand of the seas. 
 He let them fall in the middle of their camp, around their habitations. 
@@ -46,7 +46,7 @@ He sent among them swarms of flies, which devoured them; and frogs, which destro
 He also gave their increase to the caterpillar, and their labor to the locust. 
 He destroyed their vines with hail, their sycamore fig trees with frost. 
 He also gave over their livestock to the hail, and their flocks to hot thunderbolts. 
-He threw on them the fierceness of his anger, wrath, indignation, and trouble, and a band of angels of evil. 
+He threw on them the fierceness of his anger, wrath, indignation, and trouble, and a band of messengers of evil. 
 He made a path for his anger. He didn't spare their soul from death, but gave their life over to the pestilence, 
 and struck all the firstborn in Egypt, the chief of their strength in the tents of Ham. 
 But he led out his own people like sheep, and guided them in the wilderness like a flock. 

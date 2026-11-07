@@ -11,7 +11,7 @@ Then Amaziah the priest of Bethel sent to Jeroboam king of Israel, saying, "Amos
 For Amos says, 'Jeroboam will die by the sword, and Israel shall surely be led away captive out of his land.'" 
 Amaziah also said to Amos, "You seer, go, flee away into the land of Judah, and there eat bread, and prophesy there, 
 but don't prophesy again any more at Bethel; for it is the king's sanctuary, and it is a royal house!" 
-Then Amos answered Amaziah, "I was no prophet, neither was I a prophet's son, but I was a herdsman, and a farmer of sycamore figs; 
+Then Amos answered Amaziah, "I was no spokesman, neither was I a spokesman's son, but I was a herdsman, and a farmer of sycamore figs; 
 and God took me from following the flock, and God said to me, 'Go, prophesy to my people Israel.' 
 Now therefore listen to God's word: 'You say, Don't prophesy against Israel, and don't preach against the house of Isaac.' 
 Therefore God says: 'Your wife shall be a prostitute in the city, and your sons and your daughters shall fall by the sword, and your land shall be divided by line; and you yourself shall die in a land that is unclean, and Israel shall surely be led away captive out of his land.'" 

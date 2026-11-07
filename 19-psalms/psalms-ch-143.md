@@ -9,4 +9,4 @@ Cause me to hear your loving kindness in the morning, for I trust in you. Cause 
 Deliver me, God, from my enemies. I flee to you to hide me. 
 Teach me to do your will, for you are my God. Your Spirit is good. Lead me in the land of uprightness. 
 Revive me, God, for your name's sake. In your righteousness, bring my soul out of trouble. 
-In your loving kindness, cut off my enemies, and destroy all those who afflict my soul, for I am your servant. 
+In your loving kindness, cut off my enemies, and destroy everyone who afflicts my soul, for I am your servant. 

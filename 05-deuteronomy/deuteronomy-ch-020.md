@@ -8,7 +8,7 @@ What man is there who has pledged to be married to a wife, and has not taken her
 The officers shall speak further to the people, and they shall say, "What man is there who is fearful and faint-hearted? Let him go and return to his house, lest his brother's heart melt as his heart." 
 It shall be, when the officers have finished speaking to the people, that they shall appoint captains of armies at the head of the people. 
 When you draw near to a city to fight against it, then proclaim peace to it. 
-It shall be, if it gives you answer of peace and opens to you, then it shall be that all the people who are found therein shall become forced laborers to you, and shall serve you. 
+It shall be, if it gives you answer of peace and opens to you, then it shall be that everyone who is found therein shall become forced laborers to you, and shall serve you. 
 If it will make no peace with you, but will make war against you, then you shall besiege it. 
 When your God delivers it into your hand, you shall strike every male of it with the edge of the sword; 
 but the women, the little ones, the livestock, and all that is in the city, even all its plunder, you shall take for plunder for yourself. You may use the plunder of your enemies, which your God has given you. 

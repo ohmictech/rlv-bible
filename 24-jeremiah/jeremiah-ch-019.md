@@ -11,5 +11,5 @@ I will cause them to eat the flesh of their sons and the flesh of their daughter
 and shall tell them, 'The God of Armies says: "Even so I will break this people and this city as one breaks a potter's vessel, that can't be made whole again. They will bury in Topheth until there is no place to bury. 
 This is what I will do to this place," says God, "and to its inhabitants, even making this city as Topheth. 
 The houses of Jerusalem and the houses of the kings of Judah, which are defiled, will be as the place of Topheth, even all the houses on whose roofs they have burned incense to all the army of the sky and have poured out drink offerings to other gods."'" 
-Then Jeremiah came from Topheth, where God had sent him to prophesy, and he stood in the court of God's house, and said to all the people: 
+Then Jeremiah came from Topheth, where God had sent him to prophesy, and he stood in the court of God's house, and said to everyone: 
 "The God of Armies, the God of Israel says, 'Behold, I will bring on this city and on all its towns all the evil that I have pronounced against it, because they have made their neck stiff, that they may not hear my words.'" 

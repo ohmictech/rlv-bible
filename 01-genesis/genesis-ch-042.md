@@ -3,7 +3,7 @@ He said, "Behold, I have heard that there is grain in Egypt. Go down there, and 
 Joseph's ten brothers went down to buy grain from Egypt. 
 But Jacob didn't send Benjamin, Joseph's brother, with his brothers; for he said, "Lest perhaps harm happen to him." 
 The sons of Israel came to buy among those who came, for the famine was in the land of Canaan. 
-Joseph was the governor over the land. It was he who sold to all the people of the land. Joseph's brothers came, and bowed themselves down to him with their faces to the earth. 
+Joseph was the governor over the land. It was he who sold to everyone in the land. Joseph's brothers came, and bowed themselves down to him with their faces to the earth. 
 Joseph saw his brothers, and he recognized them, but acted like a stranger to them, and spoke roughly with them. He said to them, "Where did you come from?" They said, "From the land of Canaan, to buy food." 
 Joseph recognized his brothers, but they didn't recognize him. 
 Joseph remembered the dreams which he dreamed about them, and said to them, "You are spies! You have come to see the nakedness of the land." 

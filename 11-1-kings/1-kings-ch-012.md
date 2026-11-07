@@ -9,7 +9,7 @@ But he abandoned the counsel of the old men which they had given him, and took c
 He said to them, "What counsel do you give, that we may answer these people who have spoken to me, saying, 'Make the yoke that your father put on us lighter'?" 
 The young men who had grown up with him said to him, "Tell these people who spoke to you, saying, 'Your father made our yoke heavy, but make it lighter to us', tell them, 'My little finger is thicker than my father's waist. 
 Now my father burdened you with a heavy yoke, but I will add to your yoke. My father chastised you with whips, but I will chastise you with scorpions.'" 
-So Jeroboam and all the people came to Rehoboam the third day, as the king asked, saying, "Come to me again the third day." 
+So Jeroboam and everyone came to Rehoboam the third day, as the king asked, saying, "Come to me again the third day." 
 The king answered the people roughly, and abandoned the counsel of the old men which they had given him, 
 and spoke to them according to the counsel of the young men, saying, "My father made your yoke heavy, but I will add to your yoke. My father chastised you with whips, but I will chastise you with scorpions." 
 So the king didn't listen to the people; for it was a thing brought about from God, that he might establish his word, which God spoke by Ahijah the Shilonite to Jeroboam the son of Nebat. 
@@ -28,6 +28,6 @@ If this people goes up to offer sacrifices in God's house at Jerusalem, then the
 So the king took counsel, and made two calves of gold; and he said to them, "It is too much for you to go up to Jerusalem. Look and behold your gods, Israel, which brought you up out of the land of Egypt!" 
 He set the one in Bethel, and the other he put in Dan. 
 This thing became a sin, for the people went even as far as Dan to worship before the one there. 
-He made houses of high places, and made priests from among all the people, who were not of the sons of Levi. 
+He made houses of high places, and made priests from among everyone, who were not of the sons of Levi. 
 Jeroboam ordained a feast in the eighth month, on the fifteenth day of the month, like the feast that is in Judah, and he went up to the altar. He did so in Bethel, sacrificing to the calves that he had made, and he placed in Bethel the priests of the high places that he had made. 
 He went up to the altar which he had made in Bethel on the fifteenth day in the eighth month, even in the month which he had devised of his own heart; and he ordained a feast for the children of Israel, and went up to the altar to burn incense. 

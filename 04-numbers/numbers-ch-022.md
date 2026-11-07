@@ -19,20 +19,20 @@ Balaam answered the servants of Balak, "If Balak would give me his house full of
 Now therefore please stay here tonight as well, that I may know what else God will speak to me." 
 God came to Balaam at night, and said to him, "If the men have come to call you, rise up, go with them; but only the word which I speak to you, that you shall do." 
 Balaam rose up in the morning, and saddled his donkey, and went with the princes of Moab. 
-God's anger burned because he went; and God's angel placed himself in the way as an adversary against him. Now he was riding on his donkey, and his two servants were with him. 
-The donkey saw God's angel standing in the way, with his sword drawn in his hand; and the donkey turned out of the path, and went into the field. Balaam struck the donkey, to turn her into the path. 
-Then God's angel stood in a narrow path between the vineyards, a wall being on this side, and a wall on that side. 
-The donkey saw God's angel, and she thrust herself to the wall, and crushed Balaam's foot against the wall. He struck her again. 
-God's angel went further, and stood in a narrow place, where there was no way to turn either to the right hand or to the left. 
-The donkey saw God's angel, and she lay down under Balaam. Balaam's anger burned, and he struck the donkey with his staff. 
+God's anger burned because he went; and God's messenger placed himself in the way as an adversary against him. Now he was riding on his donkey, and his two servants were with him. 
+The donkey saw God's messenger standing in the way, with his sword drawn in his hand; and the donkey turned out of the path, and went into the field. Balaam struck the donkey, to turn her into the path. 
+Then God's messenger stood in a narrow path between the vineyards, a wall being on this side, and a wall on that side. 
+The donkey saw God's messenger, and she thrust herself to the wall, and crushed Balaam's foot against the wall. He struck her again. 
+God's messenger went further, and stood in a narrow place, where there was no way to turn either to the right hand or to the left. 
+The donkey saw God's messenger, and she lay down under Balaam. Balaam's anger burned, and he struck the donkey with his staff. 
 God opened the mouth of the donkey, and she said to Balaam, "What have I done to you, that you have struck me these three times?" 
 Balaam said to the donkey, "Because you have mocked me, I wish there were a sword in my hand, for now I would have killed you." 
 The donkey said to Balaam, "Am I not your donkey, on which you have ridden all your life long until today? Was I ever in the habit of doing so to you?" He said, "No." 
-Then God opened the eyes of Balaam, and he saw God's angel standing in the way, with his sword drawn in his hand; and he bowed his head, and fell on his face. 
-God's angel said to him, "Why have you struck your donkey these three times? Behold, I have come out as an adversary, because your way is perverse before me. 
+Then God opened the eyes of Balaam, and he saw God's messenger standing in the way, with his sword drawn in his hand; and he bowed his head, and fell on his face. 
+God's messenger said to him, "Why have you struck your donkey these three times? Behold, I have come out as an adversary, because your way is perverse before me. 
 The donkey saw me, and turned away before me these three times. Unless she had turned away from me, surely now I would have killed you, and saved her alive." 
-Balaam said to God's angel, "I have sinned; for I didn't know that you stood in the way against me. Now therefore, if it displeases you, I will go back again." 
-God's angel said to Balaam, "Go with the men; but you shall only speak the word that I shall speak to you." So Balaam went with the princes of Balak. 
+Balaam said to God's messenger, "I have sinned; for I didn't know that you stood in the way against me. Now therefore, if it displeases you, I will go back again." 
+God's messenger said to Balaam, "Go with the men; but you shall only speak the word that I shall speak to you." So Balaam went with the princes of Balak. 
 When Balak heard that Balaam had come, he went out to meet him to the City of Moab, which is on the border of the Arnon, which is in the utmost part of the border. 
 Balak said to Balaam, "Didn't I earnestly send for you to summon you? Why didn't you come to me? Am I not able indeed to promote you to honor?" 
 Balaam said to Balak, "Behold, I have come to you. Have I now any power at all to speak anything? I will speak the word that God puts in my mouth." 

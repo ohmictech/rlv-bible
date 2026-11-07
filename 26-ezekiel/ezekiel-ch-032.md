@@ -12,7 +12,7 @@ For God says: "The sword of the king of Babylon will come on you.
 I will cause your multitude to fall by the swords of the mighty. They are all the ruthless of the nations. They will bring the pride of Egypt to nothing, and all its multitude will be destroyed. 
 I will destroy also all its animals from beside many waters. The foot of man won't trouble them any more, nor will the hoofs of animals trouble them. 
 Then I will make their waters clear, and cause their rivers to run like oil," says God. 
-"When I make the land of Egypt desolate and waste, a land destitute of that of which it was full, when I strike all those who dwell therein, then they will know that I am God. 
+"When I make the land of Egypt desolate and waste, a land destitute of that of which it was full, when I strike everyone who dwells therein, then they will know that I am God. 
 "'"This is the lamentation with which they will lament. The daughters of the nations will lament with this. They will lament with it over Egypt, and over all her multitude," says God.'" 
 Also in the twelfth year, in the fifteenth day of the month, God's word came to me, saying, 
 "Son of man, wail for the multitude of Egypt, and cast them down, even her and the daughters of the famous nations, to the lower parts of the earth, with those who go down into the pit. 
@@ -20,13 +20,13 @@ Whom do you pass in beauty? Go down, and be laid with the uncircumcised.
 They will fall among those who are slain by the sword. She is delivered to the sword. Draw her away with all her multitudes. 
 The strong among the mighty will speak to him out of the middle of Hades with those who help him. They have gone down. The uncircumcised lie still, slain by the sword. 
 "Asshur is there with all her company. Her graves are all around her. All of them are slain, fallen by the sword, 
-whose graves are set in the uttermost parts of the pit, and her company is around her grave, all of them slain, fallen by the sword, who caused terror in the land of the living. 
-"There is Elam and all her multitude around her grave; all of them slain, fallen by the sword, who have gone down uncircumcised into the lower parts of the earth, who caused their terror in the land of the living, and have borne their shame with those who go down to the pit. 
-They have made Elam a bed among the slain with all her multitude. Her graves are around her, all of them uncircumcised, slain by the sword; for their terror was caused in the land of the living, and they have borne their shame with those who go down to the pit. He is put among those who are slain. 
-"There is Meshech, Tubal, and all their multitude. Their graves are around them, all of them uncircumcised, slain by the sword; for they caused their terror in the land of the living. 
+whose graves are set in the uttermost parts of the pit, and her company is around her grave, everyone slain, fallen by the sword, who caused terror in the land of the living. 
+"There is Elam and all her multitude around her grave; everyone slain, fallen by the sword, who have gone down uncircumcised into the lower parts of the earth, who caused their terror in the land of the living, and have borne their shame with those who go down to the pit. 
+They have made Elam a bed among the slain with all her multitude. Her graves are around her, everyone uncircumcised, slain by the sword; for their terror was caused in the land of the living, and they have borne their shame with those who go down to the pit. He is put among those who are slain. 
+"There is Meshech, Tubal, and all their multitude. Their graves are around them, everyone uncircumcised, slain by the sword; for they caused their terror in the land of the living. 
 They will not lie with the mighty who are fallen of the uncircumcised, who have gone down to Hades with their weapons of war and have laid their swords under their heads. Their iniquities are on their bones; for they were the terror of the mighty in the land of the living. 
 "But you will be broken among the uncircumcised, and will lie with those who are slain by the sword. 
 "There is Edom, her kings, and all her princes, who in their might are laid with those who are slain by the sword. They will lie with the uncircumcised, and with those who go down to the pit. 
-"There are the princes of the north, all of them, and all the Sidonians, who have gone down with the slain. They are put to shame in the terror which they caused by their might. They lie uncircumcised with those who are slain by the sword, and bear their shame with those who go down to the pit. 
+"There are the princes of the north, everyone, and all the Sidonians, who have gone down with the slain. They are put to shame in the terror which they caused by their might. They lie uncircumcised with those who are slain by the sword, and bear their shame with those who go down to the pit. 
 "Pharaoh will see them and will be comforted over all his multitude, even Pharaoh and all his army, slain by the sword," says God. 
 "For I have put his terror in the land of the living. He will be laid among the uncircumcised, with those who are slain by the sword, even Pharaoh and all his multitude," says God. 

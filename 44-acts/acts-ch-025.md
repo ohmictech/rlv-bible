@@ -21,7 +21,7 @@ Being perplexed how to inquire concerning these things, I asked whether he was w
 But when Paul had appealed to be kept for the decision of the emperor, I commanded him to be kept until I could send him to Caesar." 
 Agrippa said to Festus, "I also would like to hear the man myself." "Tomorrow," he said, "you will hear him." 
 So on the next day, when Agrippa and Bernice had come with great pomp, and they had entered into the place of hearing with the commanding officers and the principal men of the city, at the command of Festus, Paul was brought in. 
-Festus said, "King Agrippa, and all men who are here present with us, you see this man about whom all the crowd of the Jewish people petitioned me, both at Jerusalem and here, crying that he ought not to live any longer. 
+Festus said, "King Agrippa, and everyone who is here present with us, you see this man about whom all the crowd of the Jewish people petitioned me, both at Jerusalem and here, crying that he ought not to live any longer. 
 But when I found that he had committed nothing worthy of death, and as he himself appealed to the emperor, I determined to send him, 
 of whom I have no certain thing to write to my lord. Therefore I have brought him out before you, and especially before you, King Agrippa, that, after examination I may have something to write. 
 For it seems to me unreasonable, in sending a prisoner, not to also specify the charges against him." 

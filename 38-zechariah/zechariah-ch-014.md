@@ -9,7 +9,7 @@ It will happen in that day that living waters will go out from Jerusalem, half o
 God will be King over all the earth. In that day God will be one, and his name one. 
 All the land will be made like the Arabah, from Geba to Rimmon south of Jerusalem; and she will be lifted up and will dwell in her place, from Benjamin's gate to the place of the first gate, to the corner gate, and from the tower of Hananel to the king's wine presses. 
 Men will dwell therein, and there will be no more curse; but Jerusalem will dwell safely. 
-This will be the plague with which God will strike all the peoples who have fought against Jerusalem: their flesh will consume away while they stand on their feet, and their eyes will consume away in their sockets, and their tongue will consume away in their mouth. 
+This will be the plague with which God will strike everyones who have fought against Jerusalem: their flesh will consume away while they stand on their feet, and their eyes will consume away in their sockets, and their tongue will consume away in their mouth. 
 It will happen in that day that a great panic from God will be among them; and they will each seize the hand of his neighbor, and his hand will rise up against the hand of his neighbor. 
 Judah also will fight at Jerusalem; and the wealth of all the surrounding nations will be gathered together: gold, silver, and clothing, in great abundance. 
 A plague like this will fall on the horse, on the mule, on the camel, on the donkey, and on all the animals that will be in those camps. 
@@ -18,4 +18,4 @@ It will be that whoever of all the families of the earth doesn't go up to Jerusa
 If the family of Egypt doesn't go up and doesn't come, neither will it rain on them. This will be the plague with which God will strike the nations that don't go up to keep the feast of booths. 
 This will be the punishment of Egypt and the punishment of all the nations that don't go up to keep the feast of booths. 
 In that day there will be inscribed on the bells of the horses, "HOLY TO THE God"; and the pots in God's house will be like the bowls before the altar. 
-Yes, every pot in Jerusalem and in Judah will be holy to the God of Armies; and all those who sacrifice will come and take of them, and cook in them. In that day there will no longer be a Canaanite in the house of the God of Armies. 
+Yes, every pot in Jerusalem and in Judah will be holy to the God of Armies; and everyone who sacrifices will come and take of them, and cook in them. In that day there will no longer be a Canaanite in the house of the God of Armies. 

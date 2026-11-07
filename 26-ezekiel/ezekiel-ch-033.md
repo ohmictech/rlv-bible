@@ -30,4 +30,4 @@ Then they will know that I am God, when I have made the land a desolation and an
 "As for you, son of man, the children of your people talk about you by the walls and in the doors of the houses, and speak to one another, everyone to his brother, saying, 'Please come and hear what the word is that comes out from God.' 
 They come to you as the people come, and they sit before you as my people, and they hear your words, but don't do them; for with their mouth they show much love, but their heart goes after their gain. 
 Behold, you are to them as a very lovely song of one who has a pleasant voice, and can play well on an instrument; for they hear your words, but they don't do them. 
-"When this comes to pass, behold, it comes, then they will know that a prophet has been among them." 
+"When this comes to pass, behold, it comes, then they will know that a spokesman has been among them." 

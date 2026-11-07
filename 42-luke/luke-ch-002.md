@@ -7,7 +7,7 @@ While they were there, the day had come for her to give birth.
 She gave birth to her firstborn son. She wrapped him in strips of cloth and laid him in a feeding trough, because there was no room for them in the guest room. 
 There were shepherds in that region staying out in the fields, keeping watch over their flock by night. 
 Look, a messenger of the Lord stood by them, and the weight of the Lord shone around them, and they were terrified. 
-The messenger said to them, "Don't be afraid, for look, I bring you good news of great joy for all the people. 
+The messenger said to them, "Don't be afraid, for look, I bring you good news of great joy for everyone. 
 For there is born to you today, in David's city, a Restorer, who is Christ the Lord. 
 This is the sign to you: you will find a baby wrapped in strips of cloth, lying in a feeding trough." 
 Suddenly there was with the messenger a crowd of the sky's army, praising God and saying, 
@@ -15,7 +15,7 @@ Suddenly there was with the messenger a crowd of the sky's army, praising God an
 When the messengers went away from them into the sky, the shepherds said to one another, "Let's go to Bethlehem, now, and see this thing that has happened, which the Lord has made known to us." 
 They hurried and found both Mary and Joseph, and the baby was lying in the feeding trough. 
 When they saw it, they made widely known what was spoken to them about this child. 
-All who heard it were amazed at the things which were spoken to them by the shepherds. 
+Everyone who heard it were amazed at the things which were spoken to them by the shepherds. 
 But Mary treasured all these sayings, pondering them in her heart. 
 The shepherds returned, giving weight to God and praising him for all the things that they had heard and seen, just as it was told them. 
 When eight days had passed for the circumcision of the child, he was named Jesus, the name given by the messenger before he was conceived in the womb. 
@@ -35,7 +35,7 @@ Simeon blessed them, and said to Mary, his mother, "Look, this child is appointe
 And a sword will pierce through your own life too, so that the thoughts of many hearts may be revealed." 
 There was also Anna, a spokeswoman, the daughter of Phanuel, of the tribe of Asher (she was very old, having lived with a husband seven years after her marriage, 
 and she had been a widow for about eighty-four years), who never left the temple, worshiping with going without food and prayers night and day. 
-Coming up at that very hour, she gave thanks to the Lord, and spoke of him to all those who were waiting for the setting free in Jerusalem. 
+Coming up at that very hour, she gave thanks to the Lord, and spoke of him to everyone who was waiting for the setting free in Jerusalem. 
 When they had done everything required by the law of the Lord, they returned into Galilee, to their own city, Nazareth. 
 The child grew and became strong, filled with wisdom, and the favor of God was on him. 
 His parents went every year to Jerusalem at the feast of the Passover. 
@@ -44,7 +44,7 @@ and when the feast days were over, as they were returning, the boy Jesus stayed 
 but thinking he was in the traveling group, they went a day's journey, and then looked for him among their relatives and acquaintances. 
 When they didn't find him, they returned to Jerusalem, looking for him. 
 After three days they found him in the temple courts, sitting among the teachers, listening to them and asking them questions. 
-All who heard him were amazed at his understanding and his answers. 
+Everyone who heard him were amazed at his understanding and his answers. 
 When they saw him, they were astonished; and his mother said to him, "Son, why have you done this to us? Look, your father and I have been looking for you anxiously." 
 He said to them, "Why were you looking for me? Didn't you know that I must be in my Father's house?" 
 They didn't understand the saying which he spoke to them. 

@@ -1,6 +1,6 @@
 ﻿Nadab and Abihu, the sons of Aaron, each took his censer, and put fire in it, and laid incense on it, and offered strange fire before God, which he had not commanded them. 
 Fire came out from before God, and devoured them, and they died before God. 
-Then Moses said to Aaron, "This is what God spoke of, saying, 'I will show myself holy to those who come near me, and before all the people I will be glorified.'" Aaron held his peace. 
+Then Moses said to Aaron, "This is what God spoke of, saying, 'I will show myself holy to those who come near me, and before everyone I will be glorified.'" Aaron held his peace. 
 Moses called Mishael and Elzaphan, the sons of Uzziel the uncle of Aaron, and said to them, "Draw near, carry your brothers from before the sanctuary out of the camp." 
 So they came near, and carried them in their tunics out of the camp, as Moses had said. 
 Moses said to Aaron, and to Eleazar and to Ithamar, his sons, "Don't let the hair of your heads go loose, and don't tear your clothes, so that you don't die, and so that he will not be angry with all the congregation; but let your brothers, the whole house of Israel, bewail the burning which God has kindled. 

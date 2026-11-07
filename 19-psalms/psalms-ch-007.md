@@ -1,4 +1,4 @@
-﻿A meditation by David, which he sang to God, concerning the words of Cush, the Benjamite. God, my God, I take refuge in you. Save me from all those who pursue me, and deliver me, 
+﻿A meditation by David, which he sang to God, concerning the words of Cush, the Benjamite. God, my God, I take refuge in you. Save me from everyone who pursues me, and deliver me, 
 lest they tear apart my soul like a lion, ripping it in pieces, while there is no one to deliver. 
 God, my God, if I have done this, if there is iniquity in my hands, 
 if I have rewarded evil to him who was at peace with me (yes, I have plundered him who without cause was my adversary), 

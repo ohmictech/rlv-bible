@@ -10,14 +10,14 @@ Behold, it comes, and it will be done," says God. "This is the day about which I
 so that they will take no wood out of the field, and not cut down any out of the forests; for they will make fires with the weapons. They will plunder those who plundered them, and rob those who robbed them," says God. 
 "'"It will happen in that day, that I will give to Gog a place for burial in Israel, the valley of those who pass through on the east of the sea; and it will stop those who pass through. They will bury Gog and all his multitude there, and they will call it 'The valley of Hamon Gog'. 
 "'"The house of Israel will be burying them for seven months, that they may cleanse the land. 
-Yes, all the people of the land will bury them; and they will become famous in the day that I will be glorified," says God. 
+Yes, everyone in the land will bury them; and they will become famous in the day that I will be glorified," says God. 
 "'"They will set apart men of continual employment who will pass through the land. Those who pass through will go with those who bury those who remain on the surface of the land, to cleanse it. After the end of seven months they will search. 
 Those who search through the land will pass through; and when anyone sees a man's bone, then he will set up a sign by it, until the undertakers have buried it in the valley of Hamon Gog. 
 Hamonah will also be the name of a city. Thus they will cleanse the land."' 
 "You, son of man, God says: 'Speak to the birds of every sort, and to every animal of the field, "Assemble yourselves, and come; gather yourselves on every side to my sacrifice that I sacrifice for you, even a great sacrifice on the mountains of Israel, that you may eat meat and drink blood. 
-You shall eat the flesh of the mighty, and drink the blood of the princes of the earth, of rams, of lambs, and of goats, of bulls, all of them fatlings of Bashan. 
+You shall eat the flesh of the mighty, and drink the blood of the princes of the earth, of rams, of lambs, and of goats, of bulls, everyone fatlings of Bashan. 
 You shall eat fat until you are full, and drink blood until you are drunk, of my sacrifice which I have sacrificed for you. 
-You shall be filled at my table with horses and charioteers, with mighty men, and with all men of war," says God.' 
+You shall be filled at my table with horses and charioteers, with mighty men, and with everyone of war," says God.' 
 "I will set my glory among the nations. Then all the nations will see my judgment that I have executed, and my hand that I have laid on them. 
 So the house of Israel will know that I am their God, from that day and forward. 
 The nations will know that the house of Israel went into captivity for their iniquity, because they trespassed against me, and I hid my face from them; so I gave them into the hand of their adversaries, and they all fell by the sword. 

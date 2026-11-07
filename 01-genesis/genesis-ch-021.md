@@ -14,7 +14,7 @@ I will also make a nation of the son of the servant, because he is your child."
 Abraham rose up early in the morning, and took bread and a container of water, and gave it to Hagar, putting it on her shoulder; and gave her the child, and sent her away. She departed, and wandered in the wilderness of Beersheba. 
 The water in the container was spent, and she put the child under one of the shrubs. 
 She went and sat down opposite him, a good way off, about a bow shot away. For she said, "Don't let me see the death of the child." She sat opposite him, and lifted up her voice, and wept. 
-God heard the voice of the boy. The angel of God called to Hagar out of the sky, and said to her, "What troubles you, Hagar? Don't be afraid. For God has heard the voice of the boy where he is. 
+God heard the voice of the boy. The messenger of God called to Hagar out of the sky, and said to her, "What troubles you, Hagar? Don't be afraid. For God has heard the voice of the boy where he is. 
 Get up, lift up the boy, and hold him with your hand. For I will make him a great nation." 
 God opened her eyes, and she saw a well of water. She went, filled the container with water, and gave the boy a drink. 
 God was with the boy, and he grew. He lived in the wilderness, and as he grew up, he became an archer. 
@@ -30,5 +30,5 @@ Abimelech said to Abraham, "What do these seven ewe lambs, which you have set by
 He said, "You shall take these seven ewe lambs from my hand, that it may be a witness to me, that I have dug this well." 
 Therefore he called that place Beersheba, because they both swore an oath there. 
 So they made a covenant at Beersheba. Abimelech rose up with Phicol, the captain of his army, and they returned into the land of the Philistines. 
-Abraham planted a tamarisk tree in Beersheba, and there he called on the name of the Everlasting God. 
+Abraham planted a tamarisk tree in Beersheba, and there he called on the name of the God of the eras. 
 Abraham lived as a foreigner in the land of the Philistines many days. 

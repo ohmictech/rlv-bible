@@ -9,4 +9,4 @@ Ask of me, and I will give the nations for your inheritance, the uttermost parts
 You shall break them with a rod of iron. You shall dash them in pieces like a potter's vessel." 
 Now therefore be wise, you kings. Be instructed, you judges of the earth. 
 Serve God with fear, and rejoice with trembling. 
-Give sincere homage to the Son, lest he be angry, and you perish on the way, for his wrath will soon be kindled. Blessed are all those who take refuge in him. 
+Give sincere homage to the Son, lest he be angry, and you perish on the way, for his wrath will soon be kindled. Blessed are everyone who takes refuge in him. 

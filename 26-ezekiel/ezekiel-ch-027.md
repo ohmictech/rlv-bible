@@ -26,7 +26,7 @@ These were your traders in choice wares, in wrappings of blue and embroidered wo
 Your rowers have brought you into great waters. The east wind has broken you in the heart of the seas. 
 Your riches, your wares, your merchandise, your mariners, your pilots, your repairers of ship seams, the dealers in your merchandise, and all your men of war who are in you, with all your company which is among you, will fall into the heart of the seas in the day of your ruin. 
 At the sound of the cry of your pilots, the pasture lands will shake. 
-All who handle the oars, the mariners and all the pilots of the sea, will come down from their ships. They will stand on the land, 
+Everyone who handles the oars, the mariners and all the pilots of the sea, will come down from their ships. They will stand on the land, 
 and will cause their voice to be heard over you, and will cry bitterly. They will cast up dust on their heads. They will wallow in the ashes. 
 They will make themselves bald for you, and clothe themselves with sackcloth. They will weep for you in bitterness of soul, with bitter mourning. 
 In their wailing they will take up a lamentation for you, and lament over you, saying, 'Who is there like Tyre, like her who is brought to silence in the middle of the sea?' 

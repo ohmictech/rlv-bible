@@ -15,5 +15,5 @@ The second how terrible has passed. Look, the third how terrible is coming soon.
 The seventh messenger sounded, and loud voices in the sky said, "The kingdom of the world has become the kingdom of our Lord and of his Christ, and he will reign through all the eras!" 
 The twenty-four elders, who sit on their thrones in front of God's throne, fell on their faces and bowed down to God, 
 saying, "We give you thanks, Lord God, the one who holds sway over all, the one who is and who was, because you have taken your great power and begun to reign. 
-The nations were angry, and your heat came, and with it the time for the dead to be judged and for your slaves the spokesmen to be given their reward, along with the set-apart ones and all who honor your name, both small and great, and for those who destroy the land to be destroyed." 
+The nations were angry, and your heat came, and with it the time for the dead to be judged and for your slaves the spokesmen to be given their reward, along with the set-apart ones and everyone who honors your name, both small and great, and for those who destroy the land to be destroyed." 
 Then God's temple in the sky was opened, and the chest of his binding arrangement was seen inside his temple. There were flashes of lightning, rumblings, peals of thunder, an earthquake, and heavy hail. 

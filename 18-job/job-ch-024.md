@@ -14,7 +14,7 @@ From out of the populous city, men groan. The soul of the wounded cries out, yet
 The murderer rises with the light. He kills the poor and needy. In the night he is like a thief. 
 The eye also of the adulterer waits for the twilight, saying, 'No eye will see me.' He disguises his face. 
 In the dark they dig through houses. They shut themselves up in the daytime. They don't know the light. 
-For the morning is to all of them like thick darkness, for they know the terrors of the thick darkness. 
+For the morning is to everyone like thick darkness, for they know the terrors of the thick darkness. 
 "They are foam on the surface of the waters. Their portion is cursed on the earth. They don't turn into the way of the vineyards. 
 Drought and heat consume the snow waters, so does Hades those who have sinned. 
 The womb will forget him. The worm will feed sweetly on him. He will be no more remembered. Unrighteousness will be broken as a tree. 

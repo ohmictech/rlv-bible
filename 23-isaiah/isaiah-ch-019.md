@@ -5,9 +5,9 @@ I will give over the Egyptians into the hand of a cruel lord. A fierce king will
 The waters will fail from the sea, and the river will be wasted and become dry. 
 The rivers will become foul. The streams of Egypt will be diminished and dried up. The reeds and flags will wither away. 
 The meadows by the Nile, by the brink of the Nile, and all the sown fields of the Nile, will become dry, be driven away, and be no more. 
-The fishermen will lament, and all those who fish in the Nile will mourn, and those who spread nets on the waters will languish. 
+The fishermen will lament, and everyone who fishes in the Nile will mourn, and those who spread nets on the waters will languish. 
 Moreover those who work in combed flax, and those who weave white cloth, will be confounded. 
-The pillars will be broken in pieces. All those who work for hire will be grieved in soul. 
+The pillars will be broken in pieces. Everyone who works for hire will be grieved in soul. 
 The princes of Zoan are utterly foolish. The counsel of the wisest counselors of Pharaoh has become stupid. How do you say to Pharaoh, "I am the son of the wise, the son of ancient kings"? 
 Where then are your wise men? Let them tell you now; and let them know what the God of Armies has purposed concerning Egypt. 
 The princes of Zoan have become fools. The princes of Memphis are deceived. They have caused Egypt to go astray, those who are the cornerstone of her tribes. 

@@ -9,7 +9,7 @@ Then the one who lives as if there were no law will be unveiled, and the Lord wi
 His arrival is the work of the Adversary, with every kind of power and sign and lying wonder, 
 and with every kind of wrong trickery aimed at those who are on their way to ruin, because they would not welcome the love of the truth and be rescued. 
 That is why God lets them be powerfully led astray, so that they go on trusting a lie, 
-so that all of them may be sentenced, those who would not trust the truth but took pleasure in wrong. 
+so that everyone may be sentenced, those who would not trust the truth but took pleasure in wrong. 
 But we have to keep giving thanks to God for you, brothers and sisters truly loved by the Lord, because God chose you from the beginning to be rescued, through the Spirit setting you apart and through your trusting the truth. 
 He called you to this through our Good News, so that you may come to share the weight of our Lord Jesus Christ. 
 So then, brothers and sisters, stand firm and hold on to what we handed down to you, whether by word or by letter. 

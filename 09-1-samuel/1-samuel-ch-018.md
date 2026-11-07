@@ -2,7 +2,7 @@
 Saul took him that day, and wouldn't let him go home to his father's house any more. 
 Then Jonathan and David made a covenant, because he loved him as his own soul. 
 Jonathan stripped himself of the robe that was on him and gave it to David with his clothing, even including his sword, his bow, and his sash. 
-David went out wherever Saul sent him, and behaved himself wisely; and Saul set him over the men of war. It was good in the sight of all the people, and also in the sight of Saul's servants. 
+David went out wherever Saul sent him, and behaved himself wisely; and Saul set him over the men of war. It was good in the sight of everyone, and also in the sight of Saul's servants. 
 As they came, when David returned from the slaughter of the Philistine, the women came out of all the cities of Israel, singing and dancing, to meet King Saul with tambourines, with joy, and with instruments of music. 
 The women sang to one another as they played, and said, "Saul has slain his thousands, and David his ten thousands." 
 Saul was very angry, and this saying displeased him. He said, "They have credited David with ten thousands, and they have only credited me with thousands. What can he have more but the kingdom?" 

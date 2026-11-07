@@ -16,7 +16,7 @@ Be very careful, for you saw no kind of form on the day that God spoke to you in
 lest you corrupt yourselves, and make yourself a carved image in the form of any figure, the likeness of male or female, 
 the likeness of any animal that is on the earth, the likeness of any winged bird that flies in the sky, 
 the likeness of anything that creeps on the ground, the likeness of any fish that is in the water under the earth; 
-and lest you lift up your eyes to the sky, and when you see the sun and the moon and the stars, even all the army of the sky, you are drawn away and worship them, and serve them, which your God has allotted to all the peoples under the whole sky. 
+and lest you lift up your eyes to the sky, and when you see the sun and the moon and the stars, even all the army of the sky, you are drawn away and worship them, and serve them, which your God has allotted to everyones under the whole sky. 
 But God has taken you, and brought you out of the iron furnace, out of Egypt, to be to him a people of inheritance, as it is today. 
 Furthermore God was angry with me for your sakes, and swore that I should not go over the Jordan, and that I should not go in to that good land which your God gives you for an inheritance; 
 but I must die in this land. I must not go over the Jordan, but you shall go over and possess that good land. 

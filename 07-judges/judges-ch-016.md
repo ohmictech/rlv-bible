@@ -27,5 +27,5 @@ and Samson said to the boy who held him by the hand, "Allow me to feel the pilla
 Now the house was full of men and women; and all the lords of the Philistines were there; and there were on the roof about three thousand men and women, who saw while Samson performed. 
 Samson called to God, and said, "God, remember me, please, and strengthen me, please, only this once, God, that I may be at once avenged of the Philistines for my two eyes." 
 Samson took hold of the two middle pillars on which the house rested and leaned on them, the one with his right hand and the other with his left. 
-Samson said, "Let me die with the Philistines!" He bowed himself with all his might; and the house fell on the lords, and on all the people who were in it. So the dead that he killed at his death were more than those who he killed in his life. 
+Samson said, "Let me die with the Philistines!" He bowed himself with all his might; and the house fell on the lords, and on everyone who was in it. So the dead that he killed at his death were more than those who he killed in his life. 
 Then his brothers and all the house of his father came down and took him, and brought him up and buried him between Zorah and Eshtaol in the burial site of Manoah his father. He judged Israel twenty years. 

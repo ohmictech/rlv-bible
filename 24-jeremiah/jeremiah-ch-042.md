@@ -1,11 +1,11 @@
-﻿Then all the captains of the forces, and Johanan the son of Kareah, and Jezaniah the son of Hoshaiah, and all the people from the least even to the greatest, came near, 
-and said to Jeremiah the prophet, "Please let our supplication be presented before you, and pray for us to your God, even for all this remnant, for we are left but a few of many, as your eyes see us, 
+﻿Then all the captains of the forces, and Johanan the son of Kareah, and Jezaniah the son of Hoshaiah, and everyone from the least even to the greatest, came near, 
+and said to Jeremiah the spokesman, "Please let our supplication be presented before you, and pray for us to your God, even for all this remnant, for we are left but a few of many, as your eyes see us, 
 that your God may show us the way in which we should walk, and the things that we should do." 
-Then Jeremiah the prophet said to them, "I have heard you. Behold, I will pray to your God according to your words; and it will happen that whatever thing God answers you, I will declare it to you. I will keep nothing back from you." 
+Then Jeremiah the spokesman said to them, "I have heard you. Behold, I will pray to your God according to your words; and it will happen that whatever thing God answers you, I will declare it to you. I will keep nothing back from you." 
 Then they said to Jeremiah, "May God be a true and faithful witness among us, if we don't do according to all the word with which your God sends you to tell us. 
 Whether it is good, or whether it is bad, we will obey the voice of our God, to whom we send you; that it may be well with us, when we obey the voice of our God." 
 After ten days, God's word came to Jeremiah. 
-Then he called Johanan the son of Kareah, and all the captains of the forces who were with him, and all the people from the least even to the greatest, 
+Then he called Johanan the son of Kareah, and all the captains of the forces who were with him, and everyone from the least even to the greatest, 
 and said to them, "The God of Israel, to whom you sent me to present your supplication before him, says: 
 'If you will still live in this land, then I will build you, and not pull you down, and I will plant you, and not pluck you up; for I grieve over the distress that I have brought on you. 
 Don't be afraid of the king of Babylon, of whom you are afraid. Don't be afraid of him,' says God, 'for I am with you to save you, and to deliver you from his hand. 

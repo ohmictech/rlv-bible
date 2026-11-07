@@ -7,13 +7,13 @@ Annas the high priest was there, with Caiaphas, John, Alexander, and as many as 
 When they had stood Peter and John in the middle of them, they inquired, "By what power, or in what name, have you done this?" 
 Then Peter, filled with the Holy Spirit, said to them, "You rulers of the people and elders of Israel, 
 if we are examined today concerning a good deed done to a crippled man, by what means this man has been healed, 
-may it be known to you all, and to all the people of Israel, that in the name of Jesus Christ of Nazareth, whom you crucified, whom God raised from the dead, this man stands here before you whole in him. 
+may it be known to you all, and to everyone in Israel, that in the name of Jesus Christ of Nazareth, whom you crucified, whom God raised from the dead, this man stands here before you whole in him. 
 He is 'the stone which was regarded as worthless by you, the builders, which has become the head of the corner.' 
 There is rescue in no one else, for there is no other name under the sky that is given among people, by which we must be rescued!" 
 Now when they saw the boldness of Peter and John, and had perceived that they were unlearned and ordinary men, they were amazed. They recognized that they had been with Jesus. 
 Seeing the man who was healed standing with them, they could say nothing against it. 
 But when they had commanded them to go aside out of the council, they conferred among themselves, 
-saying, "What should we do to these men? Because indeed a notable sign has been done through them, as can be plainly seen by all who dwell in Jerusalem, and we can't deny it. 
+saying, "What should we do to these men? Because indeed a notable sign has been done through them, as can be plainly seen by everyone who dwells in Jerusalem, and we can't deny it. 
 But so that this spreads no further among the people, let's threaten them, that from now on they don't speak to anyone in this name." 
 They called them, and commanded them not to speak at all nor teach in the name of Jesus. 
 But Peter and John answered them, "Whether it is right in the sight of God to listen to you rather than to God, judge for yourselves, 

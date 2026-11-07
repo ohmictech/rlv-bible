@@ -16,7 +16,7 @@ But when the children of Israel cried to God, God raised up a savior for them: E
 Ehud made himself a sword which had two edges, a cubit in length; and he wore it under his clothing on his right thigh. 
 He offered the tribute to Eglon king of Moab. Now Eglon was a very fat man. 
 When Ehud had finished offering the tribute, he sent away the people who carried the tribute. 
-But he himself turned back from the stone idols that were by Gilgal, and said, "I have a secret message for you, O king." The king said, "Keep silence!" All who stood by him left him. 
+But he himself turned back from the stone idols that were by Gilgal, and said, "I have a secret message for you, O king." The king said, "Keep silence!" Everyone who stood by him left him. 
 Ehud came to him; and he was sitting by himself alone in the cool upper room. Ehud said, "I have a message from God to you." He arose out of his seat. 
 Ehud put out his left hand, and took the sword from his right thigh, and thrust it into his body. 
 The handle also went in after the blade; and the fat closed on the blade, for he didn't draw the sword out of his body; and it came out behind. 

@@ -9,7 +9,7 @@ But what does it say? "The word is near you, in your mouth and in your heart;" t
 that if you will agree with your mouth that Jesus is Lord and trust in your heart that God raised him from the dead, you will be made whole. 
 For with the heart one trusts, resulting in rightness; and with the mouth confession is made resulting in rescue. 
 For the Scripture says, "Whoever trusts in him will not be disappointed." 
-For there is no distinction between Jew and Greek; for the same Lord is Lord of all, and is rich to all who call on him. 
+For there is no distinction between Jew and Greek; for the same Lord is Lord of all, and is rich to everyone who calls on him. 
 For, "Whoever will call on the name of the Lord will be rescued." 
 How then will they call on him in whom they have not trusted? How will they trust in him whom they have not heard? How will they hear without someone announcing? 
 And how will they announce unless they are sent? As it is written: "How beautiful are the feet of those who announce the Good News of wholeness, who bring glad news of good things!" 

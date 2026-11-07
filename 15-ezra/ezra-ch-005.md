@@ -1,5 +1,5 @@
-﻿Now the prophets, Haggai the prophet and Zechariah the son of Iddo, prophesied to the Jews who were in Judah and Jerusalem. They prophesied to them in the name of the God of Israel. 
-Then Zerubbabel the son of Shealtiel, and Jeshua the son of Jozadak rose up and began to build God's house which is at Jerusalem; and with them were the prophets of God, helping them. 
+﻿Now the spokesmen, Haggai the spokesman and Zechariah the son of Iddo, prophesied to the Jews who were in Judah and Jerusalem. They prophesied to them in the name of the God of Israel. 
+Then Zerubbabel the son of Shealtiel, and Jeshua the son of Jozadak rose up and began to build God's house which is at Jerusalem; and with them were the spokesmen of God, helping them. 
 At the same time Tattenai, the governor beyond the River, came to them, with Shetharbozenai and their companions, and asked them, "Who gave you a decree to build this house and to finish this wall?" 
 They also asked for the names of the men who were making this building. 
 But the eye of their God was on the elders of the Jews, and they didn't make them cease until the matter should come to Darius, and an answer should be returned by letter concerning it. 

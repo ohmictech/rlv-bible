@@ -4,7 +4,7 @@ Let the husband give his wife the affection owed her, and likewise also the wife
 The wife doesn't have authority over her own body, but the husband does. Likewise also the husband doesn't have authority over his own body, but the wife does. 
 Don't hold back from one another, unless you both agree for a time, so that you may give yourselves to going without food and prayer, and then be together again, so that the Adversary doesn't test you because of your lack of self-control. 
 But this I say by way of concession, not of commandment. 
-Yet I wish that all people were like me. But each person has his own gift from God, one of one kind, and another of another. 
+Yet I wish that everyone was like me. But each person has his own gift from God, one of one kind, and another of another. 
 But I say to the unmarried and to widows, it is good for them if they remain even as I am. 
 But if they don't have self-control, let them marry. For it's better to marry than to burn with passion. 
 But to the married I command, not I but the Lord, that the wife not leave her husband 

@@ -12,11 +12,11 @@ God, bless his skills. Accept the work of his hands. Strike through the hips of 
 About Benjamin he said, "The beloved of God will dwell in safety by him. He covers him all day long. He dwells between his shoulders." 
 About Joseph he said, "His land is blessed by God, for the precious things of the heavens, for the dew, for the deep that couches beneath, 
 for the precious things of the fruits of the sun, for the precious things that the moon can yield, 
-for the best things of the ancient mountains, for the precious things of the everlasting hills, 
+for the best things of the ancient mountains, for the precious things of the perpetual hills, 
 for the precious things of the earth and its fullness, the good will of him who lived in the bush. Let this come on the head of Joseph, on the crown of the head of him who was separated from his brothers. 
-Majesty belongs to the firstborn of his herd. His horns are the horns of the wild ox. With them he will push all the peoples to the ends of the earth. They are the ten thousands of Ephraim. They are the thousands of Manasseh." 
+Majesty belongs to the firstborn of his herd. His horns are the horns of the wild ox. With them he will push everyones to the ends of the earth. They are the ten thousands of Ephraim. They are the thousands of Manasseh." 
 About Zebulun he said, "Rejoice, Zebulun, in your going out; and Issachar, in your tents. 
-They will call the peoples to the mountain. There they will offer sacrifices of righteousness, for they will draw out the abundance of the seas, the hidden treasures of the sand." 
+They will ceveryones to the mountain. There they will offer sacrifices of righteousness, for they will draw out the abundance of the seas, the hidden treasures of the sand." 
 About Gad he said, "He who enlarges Gad is blessed. He dwells as a lioness, and tears the arm and the crown of the head. 
 He provided the first part for himself, for the lawgiver's portion was reserved for him. He came with the heads of the people. He executed the righteousness of God, His ordinances with Israel." 
 About Dan he said, "Dan is a lion's cub that leaps out of Bashan." 
@@ -24,6 +24,6 @@ About Naphtali he said, "Naphtali, satisfied with favor, full of God's blessing,
 About Asher he said, "Asher is blessed with children. Let him be acceptable to his brothers. Let him dip his foot in oil. 
 Your bars will be iron and bronze. As your days, so your strength will be. 
 "There is no one like God, Jeshurun, who rides on the heavens for your help, in his excellency on the skies. 
-The eternal God is your dwelling place. Underneath are the everlasting arms. He thrust out the enemy from before you, and said, 'Destroy!' 
+The eternal God is your dwelling place. Underneath are the perpetual arms. He thrust out the enemy from before you, and said, 'Destroy!' 
 Israel dwells in safety, the fountain of Jacob alone, In a land of grain and new wine. Yes, his heavens drop down dew. 
 You are happy, Israel! Who is like you, a people saved by God, the shield of your help, the sword of your excellency? Your enemies will submit themselves to you. You will tread on their high places." 

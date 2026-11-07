@@ -13,6 +13,6 @@ I, the Preacher, was king over Israel in Jerusalem.
 I applied my heart to seek and to search out by wisdom concerning all that is done under the sky. It is a heavy burden that God has given to the sons of men to be afflicted with. 
 I have seen all the works that are done under the sun; and behold, all is vanity and a chasing after wind. 
 That which is crooked can't be made straight; and that which is lacking can't be counted. 
-I said to myself, "Behold, I have obtained for myself great wisdom above all who were before me in Jerusalem. Yes, my heart has had great experience of wisdom and knowledge." 
+I said to myself, "Behold, I have obtained for myself great wisdom above everyone who was before me in Jerusalem. Yes, my heart has had great experience of wisdom and knowledge." 
 I applied my heart to know wisdom, and to know madness and folly. I perceived that this also was a chasing after wind. 
 For in much wisdom is much grief; and he who increases knowledge increases sorrow. 

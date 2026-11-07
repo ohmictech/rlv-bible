@@ -10,15 +10,15 @@ After this, Sennacherib king of Assyria sent his servants to Jerusalem, (now he 
 Sennacherib king of Assyria says, "In whom do you trust, that you remain under siege in Jerusalem? 
 Doesn't Hezekiah persuade you to give you over to die by famine and by thirst, saying, 'Our God will deliver us out of the hand of the king of Assyria'? 
 Hasn't the same Hezekiah taken away his high places and his altars, and commanded Judah and Jerusalem, saying, 'You shall worship before one altar, and you shall burn incense on it'? 
-Don't you know what I and my fathers have done to all the peoples of the lands? Were the gods of the nations of those lands in any way able to deliver their land out of my hand? 
+Don't you know what I and my fathers have done to everyones of the lands? Were the gods of the nations of those lands in any way able to deliver their land out of my hand? 
 Who was there among all the gods of those nations which my fathers utterly destroyed that could deliver his people out of my hand, that your God should be able to deliver you out of my hand? 
 Now therefore don't let Hezekiah deceive you nor persuade you in this way. Don't believe him, for no god of any nation or kingdom was able to deliver his people out of my hand, and out of the hand of my fathers. How much less will your God deliver you out of my hand?" 
 His servants spoke yet more against God and against his servant Hezekiah. 
 He also wrote letters insulting the God of Israel, and speaking against him, saying, "As the gods of the nations of the lands, which have not delivered their people out of my hand, so shall the God of Hezekiah not deliver his people out of my hand." 
 They called out with a loud voice in the Jews' language to the people of Jerusalem who were on the wall, to frighten them and to trouble them, that they might take the city. 
 They spoke of the God of Jerusalem as of the gods of the peoples of the earth, which are the work of men's hands. 
-Hezekiah the king and Isaiah the prophet, the son of Amoz, prayed because of this, and cried to heaven. 
-God sent an angel, who cut off all the mighty men of valor, the leaders, and captains in the camp of the king of Assyria. So he returned with shame of face to his own land. When he had come into the house of his god, those who came out of his own body killed him there with the sword. 
+Hezekiah the king and Isaiah the spokesman, the son of Amoz, prayed because of this, and cried to heaven. 
+God sent an messenger, who cut off all the mighty men of valor, the leaders, and captains in the camp of the king of Assyria. So he returned with shame of face to his own land. When he had come into the house of his god, those who came out of his own body killed him there with the sword. 
 Thus God saved Hezekiah and the inhabitants of Jerusalem from the hand of Sennacherib the king of Assyria and from the hand of all others, and guided them on every side. 
 Many brought gifts to God to Jerusalem, and precious things to Hezekiah king of Judah, so that he was exalted in the sight of all nations from then on. 
 In those days Hezekiah was terminally ill, and he prayed to God; and he spoke to him, and gave him a sign. 
@@ -29,5 +29,5 @@ also storehouses for the increase of grain, new wine, and oil; and stalls for al
 Moreover he provided for himself cities, and possessions of flocks and herds in abundance; for God had given him abundant possessions. 
 This same Hezekiah also stopped the upper spring of the waters of Gihon, and brought them straight down on the west side of David's city. Hezekiah prospered in all his works. 
 However, concerning the ambassadors of the princes of Babylon, who sent to him to inquire of the wonder that was done in the land, God left him to test him, that he might know all that was in his heart. 
-Now the rest of the acts of Hezekiah and his good deeds, behold, they are written in the vision of Isaiah the prophet, the son of Amoz, in the book of the kings of Judah and Israel. 
+Now the rest of the acts of Hezekiah and his good deeds, behold, they are written in the vision of Isaiah the spokesman, the son of Amoz, in the book of the kings of Judah and Israel. 
 Hezekiah slept with his fathers, and they buried him in the ascent to the tombs of the sons of David. All Judah and the inhabitants of Jerusalem honored him at his death. Manasseh his son reigned in his place. 

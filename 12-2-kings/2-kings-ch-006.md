@@ -1,4 +1,4 @@
-﻿The sons of the prophets said to Elisha, "See now, the place where we live and meet with you is too small for us. 
+﻿The sons of the spokesmen said to Elisha, "See now, the place where we live and meet with you is too small for us. 
 Please let us go to the Jordan, and each man take a beam from there, and let's make us a place there, where we may live." He answered, "Go!" 
 One said, "Please be pleased to go with your servants." He answered, "I will go." 
 So he went with them. When they came to the Jordan, they cut down wood. 
@@ -9,7 +9,7 @@ Now the king of Syria was at war against Israel; and he took counsel with his se
 The man of God sent to the king of Israel, saying, "Beware that you not pass this place, for the Syrians are coming down there." 
 The king of Israel sent to the place which the man of God told him and warned him of; and he saved himself there, not once or twice. 
 The king of Syria's heart was very troubled about this. He called his servants, and said to them, "Won't you show me which of us is for the king of Israel?" 
-One of his servants said, "No, my lord, O king; but Elisha, the prophet who is in Israel, tells the king of Israel the words that you speak in your bedroom." 
+One of his servants said, "No, my lord, O king; but Elisha, the spokesman who is in Israel, tells the king of Israel the words that you speak in your bedroom." 
 He said, "Go and see where he is, that I may send and get him." He was told, "Behold, he is in Dothan." 
 Therefore he sent horses, chariots, and a great army there. They came by night and surrounded the city. 
 When the servant of the man of God had risen early and gone out, behold, an army with horses and chariots was around the city. His servant said to him, "Alas, my master! What shall we do?" 

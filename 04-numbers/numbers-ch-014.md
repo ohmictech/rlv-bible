@@ -26,7 +26,7 @@ Since the Amalekite and the Canaanite dwell in the valley, tomorrow turn and go 
 God spoke to Moses and to Aaron, saying, 
 "How long shall I bear with this evil congregation that complain against me? I have heard the complaints of the children of Israel, which they complain against me. 
 Tell them, 'As I live, says God, surely as you have spoken in my ears, so I will do to you. 
-Your dead bodies shall fall in this wilderness; and all who were counted of you, according to your whole number, from twenty years old and upward, who have complained against me, 
+Your dead bodies shall fall in this wilderness; and everyone who was counted of you, according to your whole number, from twenty years old and upward, who have complained against me, 
 surely you shall not come into the land concerning which I swore that I would make you dwell therein, except Caleb the son of Jephunneh, and Joshua the son of Nun. 
 But I will bring in your little ones that you said should be captured or killed, and they shall know the land which you have rejected. 
 But as for you, your dead bodies shall fall in this wilderness. 

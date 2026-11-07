@@ -27,7 +27,7 @@ Nebuzaradan the captain of the guard took them, and brought them to the king of 
 The king of Babylon struck them, and put them to death at Riblah in the land of Hamath. So Judah was carried away captive out of his land. 
 This is the number of the people whom Nebuchadnezzar carried away captive: in the seventh year, three thousand twenty-three Jews; 
 in the eighteenth year of Nebuchadnezzar, he carried away captive from Jerusalem eight hundred thirty-two persons; 
-in the twenty-third year of Nebuchadnezzar, Nebuzaradan the captain of the guard carried away captive of the Jews seven hundred forty-five people. All the people numbered four thousand six hundred. 
+in the twenty-third year of Nebuchadnezzar, Nebuzaradan the captain of the guard carried away captive of the Jews seven hundred forty-five people. Everyone numbered four thousand six hundred. 
 In the thirty-seventh year of the captivity of Jehoiachin king of Judah, in the twelfth month, in the twenty-fifth day of the month, Evilmerodach king of Babylon, in the first year of his reign, lifted up the head of Jehoiachin king of Judah, and released him from prison. 
 He spoke kindly to him, and set his throne above the throne of the kings who were with him in Babylon, 
 and changed his prison garments. Jehoiachin ate bread before him continually all the days of his life. 

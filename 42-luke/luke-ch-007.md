@@ -26,7 +26,7 @@ But what did you go out to see? A man clothed in soft clothing? Look, those who 
 But what did you go out to see? A spokesman? Yes, I tell you, and much more than a spokesman. 
 This is he of whom it is written, 'Look, I send my messenger before your face, who will prepare your way before you.' 
 "For I tell you, among those who are born of women there is not a greater spokesman than John the Baptist; yet he who is least in God's reign is greater than he." 
-When all the people and the tax collectors heard this, they acknowledged that God was right, having been immersed with John's immersion. 
+When everyone and the tax collectors heard this, they acknowledged that God was right, having been immersed with John's immersion. 
 But the Pharisees and the experts in the law rejected God's purpose for them, not having been immersed by him. 
 "To what then should I compare the people of this generation? What are they like? 
 They are like children who sit in the marketplace and call to one another, saying, 'We piped to you, and you didn't dance. We mourned, and you didn't weep.' 

@@ -27,8 +27,8 @@ He made from one blood every nation of people to dwell on all the surface of the
 that they should seek the Lord, if perhaps they might reach out for him and find him, though he is not far from each one of us. 
 'For in him we live, move, and have our being.' As some of your own poets have said, 'For we are also his offspring.' 
 Being then the offspring of God, we ought not to think that the Divine Nature is like gold, or silver, or stone, engraved by art and design of man. 
-The times of ignorance therefore God overlooked. But now he commands that all people everywhere should have a change of heart, 
-because he has appointed a day in which he will judge the world in rightness by the man whom he has ordained; of which he has given assurance to all men, in that he has raised him from the dead." 
+The times of ignorance therefore God overlooked. But now he commands that everyone everywhere should have a change of heart, 
+because he has appointed a day in which he will judge the world in rightness by the man whom he has ordained; of which he has given assurance to everyone, in that he has raised him from the dead." 
 Now when they heard of the rising of the dead, some mocked; but others said, "We want to hear you again concerning this." 
 Thus Paul went out from among them. 
 But certain men joined with him and trusted, including Dionysius the Areopagite, and a woman named Damaris, and others with them. 

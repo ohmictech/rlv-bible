@@ -10,7 +10,7 @@ The children of Israel secretly did things that were not right against their God
 and they set up for themselves pillars and Asherah poles on every high hill and under every green tree; 
 and there they burned incense in all the high places, as the nations whom God carried away before them did; and they did wicked things to provoke God to anger; 
 and they served idols, of which God had said to them, "You shall not do this thing." 
-Yet God testified to Israel and to Judah, by every prophet and every seer, saying, "Turn from your evil ways, and keep my commandments and my statutes, according to all the law which I commanded your fathers, and which I sent to you by my servants the prophets." 
+Yet God testified to Israel and to Judah, by every spokesman and every seer, saying, "Turn from your evil ways, and keep my commandments and my statutes, according to all the law which I commanded your fathers, and which I sent to you by my servants the spokesmen." 
 Notwithstanding, they would not listen, but hardened their neck like the neck of their fathers who didn't believe in their God. 
 They rejected his statutes and his covenant that he made with their fathers, and his testimonies which he testified to them; and they followed vanity, and became vain, and followed the nations that were around them, concerning whom God had commanded them that they should not do like them. 
 They abandoned all the commandments of their God, and made molten images for themselves, even two calves, and made an Asherah, and worshiped all the army of the sky, and served Baal. 
@@ -20,7 +20,7 @@ Also Judah didn't keep the commandments of their God, but walked in the statutes
 God rejected all the offspring of Israel, afflicted them, and delivered them into the hands of raiders, until he had cast them out of his sight. 
 For he tore Israel from David's house; and they made Jeroboam the son of Nebat king; and Jeroboam drove Israel from following God, and made them sin a great sin. 
 The children of Israel walked in all the sins of Jeroboam which he did; they didn't depart from them 
-until God removed Israel out of his sight, as he said by all his servants the prophets. So Israel was carried away out of their own land to Assyria to this day. 
+until God removed Israel out of his sight, as he said by all his servants the spokesmen. So Israel was carried away out of their own land to Assyria to this day. 
 The king of Assyria brought people from Babylon, from Cuthah, from Avva, and from Hamath and Sepharvaim, and placed them in the cities of Samaria instead of the children of Israel; and they possessed Samaria and lived in its cities. 
 So it was, at the beginning of their dwelling there, that they didn't fear God. Therefore God sent lions among them, which killed some of them. 
 Therefore they spoke to the king of Assyria, saying, "The nations which you have carried away and placed in the cities of Samaria don't know the law of the god of the land. Therefore he has sent lions among them; and behold, they kill them, because they don't know the law of the god of the land." 

@@ -7,7 +7,7 @@ He made his son to pass through the fire, practiced sorcery, used enchantments, 
 He set the engraved image of Asherah that he had made in the house of which God said to David and to Solomon his son, "In this house, and in Jerusalem, which I have chosen out of all the tribes of Israel, I will put my name for the eras; 
 I will not cause the feet of Israel to wander any more out of the land which I gave their fathers, if only they will observe to do according to all that I have commanded them, and according to all the law that my servant Moses commanded them." 
 But they didn't listen, and Manasseh seduced them to do that which is evil more than the nations did whom God destroyed before the children of Israel. 
-God spoke by his servants the prophets, saying, 
+God spoke by his servants the spokesmen, saying, 
 "Because Manasseh king of Judah has done these abominations, and has done wickedly above all that the Amorites did, who were before him, and has also made Judah to sin with his idols; 
 therefore God the God of Israel says, 'Behold, I will bring such evil on Jerusalem and Judah that whoever hears of it, both his ears will tingle. 
 I will stretch over Jerusalem the line of Samaria, and the plumb line of Ahab's house; and I will wipe Jerusalem as a man wipes a dish, wiping it and turning it upside down. 
@@ -21,6 +21,6 @@ He did that which was evil in God's sight, as Manasseh his father did.
 He walked in all the ways that his father walked in, and served the idols that his father served, and worshiped them; 
 and he abandoned the God of his fathers, and didn't walk in the way of God. 
 The servants of Amon conspired against him, and put the king to death in his own house. 
-But the people of the land killed all those who had conspired against King Amon; and the people of the land made Josiah his son king in his place. 
+But the people of the land killed everyone who had conspired against King Amon; and the people of the land made Josiah his son king in his place. 
 Now the rest of the acts of Amon which he did, aren't they written in the book of the chronicles of the kings of Judah? 
 He was buried in his tomb in the garden of Uzza, and Josiah his son reigned in his place. 

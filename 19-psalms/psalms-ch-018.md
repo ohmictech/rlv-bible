@@ -27,7 +27,7 @@ With the pure, you will show yourself pure. With the crooked you will show yours
 For you will save the afflicted people, but the arrogant eyes you will bring down. 
 For you will light my lamp, God. My God will light up my darkness. 
 For by you, I advance through a troop. By my God, I leap over a wall. 
-As for God, his way is perfect. God's word is tried. He is a shield to all those who take refuge in him. 
+As for God, his way is perfect. God's word is tried. He is a shield to everyone who takes refuge in him. 
 For who is God, except God? Who is a rock, besides our God, 
 the God who arms me with strength, and makes my way perfect? 
 He makes my feet like deer's feet, and sets me on my high places. 

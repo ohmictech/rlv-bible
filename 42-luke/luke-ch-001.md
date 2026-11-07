@@ -62,13 +62,13 @@ They said to her, "There is no one among your relatives who is called by this na
 They made signs to his father to find out what he wanted him called. 
 He asked for a writing tablet, and wrote, "His name is John." They were all amazed. 
 His mouth was opened immediately and his tongue freed, and he spoke, blessing God. 
-Fear came on all who lived around them, and all these sayings were talked about throughout the whole hill country of Judea. 
-All who heard them kept them in their heart, saying, "What then will this child be?" The hand of the Lord was with him. 
+Fear came on everyone who lived around them, and all these sayings were talked about throughout the whole hill country of Judea. 
+Everyone who heard them kept them in their heart, saying, "What then will this child be?" The hand of the Lord was with him. 
 His father Zacharias was filled with the Holy Spirit, and spoke for God, saying, 
 "Praised be the Lord, the God of Israel, for he has come to his people and set them free. 
 and has raised up a mighty deliverer for us in the house of his servant David 
 (as he spoke by the mouth of his set-apart spokesmen who have been from of old), 
-rescue from our enemies and from the hand of all who hate us, 
+rescue from our enemies and from the hand of everyone who hates us, 
 to show mercy toward our fathers, to remember his set-apart binding arrangement, 
 the oath which he swore to Abraham our father, 
 to grant to us that we, having been rescued out of the hand of our enemies, should serve him without fear, 

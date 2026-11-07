@@ -19,7 +19,7 @@ According to the good hand of our God on us they brought us a man of discretion,
 and Hashabiah, and with him Jeshaiah of the sons of Merari, his brothers and their sons, twenty; 
 and of the temple servants, whom David and the princes had given for the service of the Levites, two hundred twenty temple servants. All of them were mentioned by name. 
 Then I proclaimed a fast there at the river Ahava, that we might humble ourselves before our God, to seek from him a straight way for us, for our little ones, and for all our possessions. 
-For I was ashamed to ask of the king a band of soldiers and horsemen to help us against the enemy on the way, because we had spoken to the king, saying, "The hand of our God is on all those who seek him, for good; but his power and his wrath is against all those who forsake him." 
+For I was ashamed to ask of the king a band of soldiers and horsemen to help us against the enemy on the way, because we had spoken to the king, saying, "The hand of our God is on everyone who seeks him, for good; but his power and his wrath is against everyone who forsakes him." 
 So we fasted and begged our God for this, and he granted our request. 
 Then I set apart twelve of the chiefs of the priests, even Sherebiah, Hashabiah, and ten of their brothers with them, 
 and weighed to them the silver, the gold, and the vessels, even the offering for the house of our God, which the king, his counselors, his princes, and all Israel there present, had offered. 

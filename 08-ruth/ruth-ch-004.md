@@ -6,9 +6,9 @@ Then Boaz said, "On the day you buy the field from the hand of Naomi, you must b
 The near kinsman said, "I can't redeem it for myself, lest I endanger my own inheritance. Take my right of redemption for yourself; for I can't redeem it." 
 Now this was the custom in former time in Israel concerning redeeming and concerning exchanging, to confirm all things: a man took off his sandal, and gave it to his neighbor; and this was the way of formalizing transactions in Israel. 
 So the near kinsman said to Boaz, "Buy it for yourself," then he took off his sandal. 
-Boaz said to the elders and to all the people, "You are witnesses today, that I have bought all that was Elimelech's, and all that was Chilion's and Mahlon's, from the hand of Naomi. 
+Boaz said to the elders and to everyone, "You are witnesses today, that I have bought all that was Elimelech's, and all that was Chilion's and Mahlon's, from the hand of Naomi. 
 Moreover, Ruth the Moabitess, the wife of Mahlon, I have purchased to be my wife, to raise up the name of the dead on his inheritance, that the name of the dead may not be cut off from among his brothers and from the gate of his place. You are witnesses today." 
-All the people who were in the gate, and the elders, said, "We are witnesses. May God make the woman who has come into your house like Rachel and like Leah, which both built the house of Israel; and treat you worthily in Ephrathah, and be famous in Bethlehem. 
+Everyone who was in the gate, and the elders, said, "We are witnesses. May God make the woman who has come into your house like Rachel and like Leah, which both built the house of Israel; and treat you worthily in Ephrathah, and be famous in Bethlehem. 
 Let your house be like the house of Perez, whom Tamar bore to Judah, of the offspring which God will give you by this young woman." 
 So Boaz took Ruth and she became his wife; and he went in to her, and God enabled her to conceive, and she bore a son. 
 The women said to Naomi, "Blessed be God, who has not left you today without a near kinsman. Let his name be famous in Israel. 

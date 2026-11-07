@@ -28,12 +28,12 @@ When Abner had returned to Hebron, Joab took him aside into the middle of the ga
 Afterward, when David heard it, he said, "I and my kingdom are guiltless before God for the eras of the blood of Abner the son of Ner. 
 Let it fall on the head of Joab and on all his father's house. Let there not fail from the house of Joab one who has a discharge, or who is a leper, or who leans on a staff, or who falls by the sword, or who lacks bread." 
 So Joab and Abishai his brother killed Abner, because he had killed their brother Asahel at Gibeon in the battle. 
-David said to Joab and to all the people who were with him, "Tear your clothes, and clothe yourselves with sackcloth, and mourn in front of Abner." King David followed the bier. 
-They buried Abner in Hebron; and the king lifted up his voice and wept at Abner's grave; and all the people wept. 
+David said to Joab and to everyone who was with him, "Tear your clothes, and clothe yourselves with sackcloth, and mourn in front of Abner." King David followed the bier. 
+They buried Abner in Hebron; and the king lifted up his voice and wept at Abner's grave; and everyone wept. 
 The king lamented for Abner, and said, "Should Abner die as a fool dies? 
-Your hands weren't bound, and your feet weren't put into fetters. As a man falls before the children of iniquity, so you fell." All the people wept again over him. 
-All the people came to urge David to eat bread while it was yet day; but David swore, saying, "God do so to me, and more also, if I taste bread or anything else, until the sun goes down." 
-All the people took notice of it, and it pleased them, as whatever the king did pleased all the people. 
-So all the people and all Israel understood that day that it was not of the king to kill Abner the son of Ner. 
+Your hands weren't bound, and your feet weren't put into fetters. As a man falls before the children of iniquity, so you fell." Everyone wept again over him. 
+Everyone came to urge David to eat bread while it was yet day; but David swore, saying, "God do so to me, and more also, if I taste bread or anything else, until the sun goes down." 
+Everyone took notice of it, and it pleased them, as whatever the king did pleased everyone. 
+So everyone and all Israel understood that day that it was not of the king to kill Abner the son of Ner. 
 The king said to his servants, "Don't you know that a prince and a great man has fallen today in Israel? 
 I am weak today, though anointed king. These men, the sons of Zeruiah are too hard for me. May God reward the evildoer according to his wickedness." 

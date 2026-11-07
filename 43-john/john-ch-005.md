@@ -25,7 +25,7 @@ that all may honor the Son, even as they honor the Father. Whoever doesn't honor
 Truly I tell you, the time comes, and now is, when the dead will hear the Son of God's voice; and those who hear will live. 
 For as the Father has life in himself, even so he gave to the Son also to have life in himself. 
 He also gave him authority to pass a verdict, because he is the Human One. 
-Don't be amazed at this, for the time comes in which all who are in the tombs will hear his voice 
+Don't be amazed at this, for the time comes in which everyone who is in the tombs will hear his voice 
 and will come out; those who have done good, to the rising of life; and those who have done bad things, to the rising that brings a verdict. 
 I can of myself do nothing. As I hear, I pass a verdict; and my verdict is right, because I don't seek my own will, but the will of my Father who sent me. 
 "If I testify about myself, my witness is not valid. 

@@ -45,4 +45,4 @@ and will dash you and your children within you to the ground. They will not leav
 He entered into the temple courts and began to drive out those who bought and sold in it, 
 saying to them, "It is written, 'My house shall be a house of prayer,' but you have made it a 'den of robbers'!" 
 He was teaching daily in the temple courts, but the chief priests, the Bible teachers, and the leading men among the people sought to kill him. 
-They couldn't find what they might do, for all the people hung on to every word that he said. 
+They couldn't find what they might do, for everyone hung on to every word that he said. 

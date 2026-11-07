@@ -22,10 +22,10 @@ Then his servants said to him, "What is this that you have done? You fasted and 
 He said, "While the child was yet alive, I fasted and wept; for I said, 'Who knows whether God will not be gracious to me, that the child may live?' 
 But now he is dead. Why should I fast? Can I bring him back again? I will go to him, but he will not return to me." 
 David comforted Bathsheba his wife, and went in to her, and lay with her. She bore a son, and he called his name Solomon. God loved him; 
-and he sent by the hand of Nathan the prophet, and he named him Jedidiah, for God's sake. 
+and he sent by the hand of Nathan the spokesman, and he named him Jedidiah, for God's sake. 
 Now Joab fought against Rabbah of the children of Ammon, and took the royal city. 
 Joab sent messengers to David, and said, "I have fought against Rabbah. Yes, I have taken the city of waters. 
 Now therefore gather the rest of the people together, and encamp against the city and take it; lest I take the city, and it be called by my name." 
-David gathered all the people together and went to Rabbah, and fought against it and took it. 
+David gathered everyone together and went to Rabbah, and fought against it and took it. 
 He took the crown of their king from off his head; and its weight was a talent of gold, and in it were precious stones; and it was set on David's head. He brought a great quantity of plunder out of the city. 
-He brought out the people who were in it, and put them to work under saws, under iron picks, under axes of iron, and made them go to the brick kiln; and he did so to all the cities of the children of Ammon. Then David and all the people returned to Jerusalem. 
+He brought out the people who were in it, and put them to work under saws, under iron picks, under axes of iron, and made them go to the brick kiln; and he did so to all the cities of the children of Ammon. Then David and everyone returned to Jerusalem. 

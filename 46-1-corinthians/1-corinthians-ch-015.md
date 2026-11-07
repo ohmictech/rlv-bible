@@ -7,7 +7,7 @@ Then he appeared to over five hundred brothers at once, most of whom remain unti
 Then he appeared to James, then to all the sent ones, 
 and last of all, as to the child born at the wrong time, he appeared to me also. 
 For I am the least of the sent ones, and I am not fit to be called a sent one, because I hunted down the gathering of God. 
-But by the favor of God I am what I am. His favor to me was not wasted, but I worked harder than all of them; yet not I, but the favor of God that was with me. 
+But by the favor of God I am what I am. His favor to me was not wasted, but I worked harder than everyone; yet not I, but the favor of God that was with me. 
 Whether then it is I or they, so we announce, and so you trusted. 
 Now if Christ is announced as raised from the dead, how can some of you say that there is no rising again of the dead? 
 But if there is no rising again of the dead, then Christ has not been raised either. 
@@ -16,7 +16,7 @@ Yes, and we are found to be false witnesses about God, because we testified that
 For if the dead aren't raised, neither has Christ been raised. 
 If Christ has not been raised, your trust is empty; you are still in your mistakes. 
 Then those who have fallen asleep in Christ have also been lost. 
-If our expectation in Christ is only for this life, we are of all people the most to be pitied. 
+If our expectation in Christ is only for this life, we are of everyone the most to be pitied. 
 But now Christ has been raised from the dead, the firstfruits of those who have fallen asleep. 
 For since death came by a human being, the rising again of the dead also comes by a human being. 
 For as in Adam all die, so also in Christ all will be made alive. 

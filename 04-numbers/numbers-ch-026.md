@@ -1,5 +1,5 @@
 ﻿After the plague, God spoke to Moses and to Eleazar the son of Aaron the priest, saying, 
-"Take a census of all the congregation of the children of Israel, from twenty years old and upward, by their fathers' houses, all who are able to go out to war in Israel." 
+"Take a census of all the congregation of the children of Israel, from twenty years old and upward, by their fathers' houses, everyone who is able to go out to war in Israel." 
 Moses and Eleazar the priest spoke with them in the plains of Moab by the Jordan at Jericho, saying, 
 "Take a census, from twenty years old and upward, as God commanded Moses and the children of Israel." These are those who came out of the land of Egypt. 
 Reuben, the firstborn of Israel; the sons of Reuben: of Hanoch, the family of the Hanochites; of Pallu, the family of the Palluites; 

@@ -2,7 +2,7 @@
 "Moreover, you shall tell the children of Israel, 'Anyone of the children of Israel, or of the strangers who live as foreigners in Israel, who gives any of his offspring to Molech shall surely be put to death. The people of the land shall stone that person with stones. 
 I also will set my face against that person, and will cut him off from among his people, because he has given of his offspring to Molech, to defile my sanctuary, and to profane my holy name. 
 If the people of the land all hide their eyes from that person when he gives of his offspring to Molech, and don't put him to death, 
-then I will set my face against that man and against his family, and will cut him off, and all who play the prostitute after him to play the prostitute with Molech, from among their people. 
+then I will set my face against that man and against his family, and will cut him off, and everyone who plays the prostitute after him to play the prostitute with Molech, from among their people. 
 "'The person that turns to those who are mediums and wizards, to play the prostitute after them, I will even set my face against that person, and will cut him off from among his people. 
 "'Sanctify yourselves therefore, and be holy; for I am your God. 
 You shall keep my statutes, and do them. I am God who sanctifies you. 

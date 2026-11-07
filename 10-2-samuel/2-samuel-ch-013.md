@@ -6,7 +6,7 @@ Jonadab said to him, "Lay down on your bed and pretend to be sick. When your fat
 So Amnon lay down and faked being sick. When the king came to see him, Amnon said to the king, "Please let my sister Tamar come and make me a couple of cakes in my sight, that I may eat from her hand." 
 Then David sent home to Tamar, saying, "Go now to your brother Amnon's house, and prepare food for him." 
 So Tamar went to her brother Amnon's house; and he was lying down. She took dough, kneaded it, made cakes in his sight, and baked the cakes. 
-She took the pan and poured them out before him, but he refused to eat. Amnon said, "Have all men leave me." Then every man went out from him. 
+She took the pan and poured them out before him, but he refused to eat. Amnon said, "Have everyone leave me." Then every man went out from him. 
 Amnon said to Tamar, "Bring the food into the room, that I may eat from your hand." Tamar took the cakes which she had made, and brought them into the room to Amnon her brother. 
 When she had brought them near to him to eat, he took hold of her and said to her, "Come, lie with me, my sister!" 
 She answered him, "No, my brother, do not force me! For no such thing ought to be done in Israel. Don't you do this folly! 

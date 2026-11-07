@@ -1,4 +1,4 @@
-﻿In those days Hezekiah was sick and dying. Isaiah the prophet the son of Amoz came to him, and said to him, "God says, 'Set your house in order; for you will die, and not live.'" 
+﻿In those days Hezekiah was sick and dying. Isaiah the spokesman the son of Amoz came to him, and said to him, "God says, 'Set your house in order; for you will die, and not live.'" 
 Then he turned his face to the wall, and prayed to God, saying, 
 "Remember now, God, I beg you, how I have walked before you in truth and with a perfect heart, and have done that which is good in your sight." And Hezekiah wept bitterly. 
 Before Isaiah had gone out into the middle part of the city, God's word came to him, saying, 
@@ -8,10 +8,10 @@ Isaiah said, "Take a cake of figs." They took and laid it on the boil, and he re
 Hezekiah said to Isaiah, "What will be the sign that God will heal me, and that I will go up to God's house the third day?" 
 Isaiah said, "This will be the sign to you from God, that God will do the thing that he has spoken: should the shadow go forward ten steps, or go back ten steps?" 
 Hezekiah answered, "It is a light thing for the shadow to go forward ten steps. No, but let the shadow return backward ten steps." 
-Isaiah the prophet cried to God; and he brought the shadow ten steps backward, by which it had gone down on the sundial of Ahaz. 
+Isaiah the spokesman cried to God; and he brought the shadow ten steps backward, by which it had gone down on the sundial of Ahaz. 
 At that time Berodach Baladan the son of Baladan, king of Babylon, sent letters and a present to Hezekiah, for he had heard that Hezekiah had been sick. 
 Hezekiah listened to them, and showed them all the storehouse of his precious things, the silver, the gold, the spices, and the precious oil, and the house of his armor, and all that was found in his treasures. There was nothing in his house, or in all his dominion, that Hezekiah didn't show them. 
-Then Isaiah the prophet came to King Hezekiah, and said to him, "What did these men say? From where did they come to you?" Hezekiah said, "They have come from a far country, even from Babylon." 
+Then Isaiah the spokesman came to King Hezekiah, and said to him, "What did these men say? From where did they come to you?" Hezekiah said, "They have come from a far country, even from Babylon." 
 He said, "What have they seen in your house?" Hezekiah answered, "They have seen all that is in my house. There is nothing among my treasures that I have not shown them." 
 Isaiah said to Hezekiah, "Hear God's word. 
 'Behold, the days come that all that is in your house, and that which your fathers have laid up in store to this day, will be carried to Babylon. Nothing will be left,' says God. 

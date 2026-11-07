@@ -1,5 +1,5 @@
 ﻿David again gathered together all the chosen men of Israel, thirty thousand. 
-David arose and went with all the people who were with him from Baale Judah, to bring up from there God's ark, which is called by the Name, even the name of the God of Armies who sits above the cherubim. 
+David arose and went with everyone who was with him from Baale Judah, to bring up from there God's ark, which is called by the Name, even the name of the God of Armies who sits above the cherubim. 
 They set God's ark on a new cart, and brought it out of Abinadab's house that was on the hill; and Uzzah and Ahio, the sons of Abinadab, drove the new cart. 
 They brought it out of Abinadab's house which was in the hill, with God's ark; and Ahio went before the ark. 
 David and all the house of Israel played before God with all kinds of instruments made of cypress wood, with harps, with stringed instruments, with tambourines, with castanets, and with cymbals. 
@@ -16,7 +16,7 @@ So David and all the house of Israel brought up God's ark with shouting and with
 As God's ark came into David's city, Michal the daughter of Saul looked out through the window and saw King David leaping and dancing before God; and she despised him in her heart. 
 They brought in God's ark, and set it in its place in the middle of the tent that David had pitched for it; and David offered burnt offerings and peace offerings before God. 
 When David had finished offering the burnt offering and the peace offerings, he blessed the people in the name of the God of Armies. 
-He gave to all the people, even among the whole multitude of Israel, both to men and women, to everyone a portion of bread, dates, and raisins. So all the people departed, each to his own house. 
+He gave to everyone, even among the whole multitude of Israel, both to men and women, to everyone a portion of bread, dates, and raisins. So everyone departed, each to his own house. 
 Then David returned to bless his household. Michal the daughter of Saul came out to meet David, and said, "How glorious the king of Israel was today, who uncovered himself today in the eyes of his servants' maids, as one of the vain fellows shamelessly uncovers himself!" 
 David said to Michal, "It was before God, who chose me above your father, and above all his house, to appoint me prince over the people of God, over Israel. Therefore I will celebrate before God. 
 I will be yet more undignified than this, and will be worthless in my own sight. But the maids of whom you have spoken will honor me." 

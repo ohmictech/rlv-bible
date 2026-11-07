@@ -1,7 +1,7 @@
 ﻿Then Nahash the Ammonite came up and encamped against Jabesh Gilead; and all the men of Jabesh said to Nahash, "Make a covenant with us, and we will serve you." 
 Nahash the Ammonite said to them, "On this condition I will make it with you, that all your right eyes be gouged out. I will make this dishonor all Israel." 
 The elders of Jabesh said to him, "Give us seven days, that we may send messengers to all the borders of Israel; and then, if there is no one to save us, we will come out to you." 
-Then the messengers came to Gibeah of Saul, and spoke these words in the ears of the people, then all the people lifted up their voice and wept. 
+Then the messengers came to Gibeah of Saul, and spoke these words in the ears of the people, then everyone lifted up their voice and wept. 
 Behold, Saul came following the oxen out of the field; and Saul said, "What ails the people that they weep?" They told him the words of the men of Jabesh. 
 God's Spirit came mightily on Saul when he heard those words, and his anger burned hot. 
 He took a yoke of oxen and cut them in pieces, then sent them throughout all the borders of Israel by the hand of messengers, saying, "Whoever doesn't come out after Saul and after Samuel, so shall it be done to his oxen." The dread of God fell on the people, and they came out as one man. 
@@ -12,4 +12,4 @@ On the next day, Saul put the people in three companies; and they came into the 
 The people said to Samuel, "Who is he who said, 'Shall Saul reign over us?' Bring those men, that we may put them to death!" 
 Saul said, "No man shall be put to death today; for today God has rescued Israel." 
 Then Samuel said to the people, "Come! Let's go to Gilgal, and renew the kingdom there." 
-All the people went to Gilgal; and there they made Saul king before God in Gilgal. There they offered sacrifices of peace offerings before God; and there Saul and all the men of Israel rejoiced greatly. 
+Everyone went to Gilgal; and there they made Saul king before God in Gilgal. There they offered sacrifices of peace offerings before God; and there Saul and all the men of Israel rejoiced greatly. 

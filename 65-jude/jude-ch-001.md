@@ -12,7 +12,7 @@ How terrible for them! They have gone the way of Cain. They have rushed into Bal
 These people are hidden reefs at your love feasts when they feast with you. They are shepherds who feed themselves without a qualm. They are clouds without water, carried along by winds; trees in late autumn with no fruit, twice dead, pulled up by the roots; 
 wild waves of the sea, foaming out their own shame; wandering stars, and the deepest darkness has been kept for them for the eras. 
 Enoch, the seventh in line from Adam, also spoke about these people when he said, "Look, the Lord has come with tens of thousands of his set-apart ones, 
-to pass a verdict on everyone, and to show all who disregard God every way they have disregarded him, and every harsh word they have spoken against him." 
+to pass a verdict on everyone, and to show everyone who disregards God every way they have disregarded him, and every harsh word they have spoken against him." 
 These people grumble and find fault, following their own cravings, and their mouths talk big, and they flatter people to get what they want. 
 But you, my truly loved friends, remember what the sent ones of our Lord Jesus Christ said long ago. 
 They told you, "In the last time there will be people who mock, following their own cravings that disregard God." 

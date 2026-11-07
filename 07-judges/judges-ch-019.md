@@ -27,4 +27,4 @@ Then the woman came in the dawning of the day, and fell down at the door of the 
 Her lord rose up in the morning and opened the doors of the house, and went out to go his way; and behold, the woman his concubine had fallen down at the door of the house, with her hands on the threshold. 
 He said to her, "Get up, and let's get going!" but no one answered. Then he took her up on the donkey; and the man rose up, and went to his place. 
 When he had come into his house, he took a knife and cut up his concubine, and divided her, limb by limb, into twelve pieces, and sent her throughout all the borders of Israel. 
-It was so, that all who saw it said, "Such a deed has not been done or seen from the day that the children of Israel came up out of the land of Egypt to this day! Consider it, take counsel, and speak." 
+It was so, that everyone who saw it said, "Such a deed has not been done or seen from the day that the children of Israel came up out of the land of Egypt to this day! Consider it, take counsel, and speak." 

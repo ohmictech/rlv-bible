@@ -1,5 +1,5 @@
 ﻿This is the word that came to Jeremiah from God in the tenth year of Zedekiah king of Judah, which was the eighteenth year of Nebuchadnezzar. 
-Now at that time the king of Babylon's army was besieging Jerusalem. Jeremiah the prophet was shut up in the court of the guard, which was in the king of Judah's house. 
+Now at that time the king of Babylon's army was besieging Jerusalem. Jeremiah the spokesman was shut up in the court of the guard, which was in the king of Judah's house. 
 For Zedekiah king of Judah had shut him up, saying, "Why do you prophesy, and say, 'God says, "Behold, I will give this city into the hand of the king of Babylon, and he will take it; 
 and Zedekiah king of Judah won't escape out of the hand of the Chaldeans, but will surely be delivered into the hand of the king of Babylon, and will speak with him mouth to mouth, and his eyes will see his eyes; 
 and he will bring Zedekiah to Babylon, and he will be there until I visit him," says God, "though you fight with the Chaldeans, you will not prosper"'?" 
@@ -29,7 +29,7 @@ Therefore God says: Behold, I will give this city into the hand of the Chaldeans
 The Chaldeans, who fight against this city, will come and set this city on fire, and burn it with the houses on whose roofs they have offered incense to Baal, and poured out drink offerings to other gods, to provoke me to anger. 
 "For the children of Israel and the children of Judah have done only that which was evil in my sight from their youth; for the children of Israel have only provoked me to anger with the work of their hands, says God. 
 For this city has been to me a provocation of my anger and of my wrath from the day that they built it even to this day, so that I should remove it from before my face, 
-because of all the evil of the children of Israel and of the children of Judah, which they have done to provoke me to anger, they, their kings, their princes, their priests, their prophets, the men of Judah, and the inhabitants of Jerusalem. 
+because of all the evil of the children of Israel and of the children of Judah, which they have done to provoke me to anger, they, their kings, their princes, their priests, their spokesmen, the men of Judah, and the inhabitants of Jerusalem. 
 They have turned their backs to me, and not their faces. Although I taught them, rising up early and teaching them, yet they have not listened to receive instruction. 
 But they set their abominations in the house which is called by my name, to defile it. 
 They built the high places of Baal, which are in the valley of the son of Hinnom, to cause their sons and their daughters to pass through fire to Molech, which I didn't command them. It didn't even come into my mind, that they should do this abomination, to cause Judah to sin." 
@@ -37,7 +37,7 @@ Now therefore the God of Israel, says concerning this city, about which you say,
 "Behold, I will gather them out of all the countries where I have driven them in my anger, and in my wrath, and in great indignation; and I will bring them again to this place. I will cause them to dwell safely. 
 Then they will be my people, and I will be their God. 
 I will give them one heart and one way, that they may fear me for the eras, for their good and the good of their children after them. 
-I will make an everlasting covenant with them, that I will not turn away from following them, to do them good. I will put my fear in their hearts, that they may not depart from me. 
+I will make an perpetual covenant with them, that I will not turn away from following them, to do them good. I will put my fear in their hearts, that they may not depart from me. 
 Yes, I will rejoice over them to do them good, and I will plant them in this land assuredly with my whole heart and with my whole soul." 
 For God says: "Just as I have brought all this great evil on this people, so I will bring on them all the good that I have promised them. 
 Fields will be bought in this land, about which you say, 'It is desolate, without man or animal. It is given into the hand of the Chaldeans.' 

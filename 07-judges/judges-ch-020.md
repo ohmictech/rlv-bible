@@ -1,11 +1,11 @@
 ﻿Then all the children of Israel went out, and the congregation was assembled as one man, from Dan even to Beersheba, with the land of Gilead, to God at Mizpah. 
-The chiefs of all the people, even of all the tribes of Israel, presented themselves in the assembly of the people of God, four hundred thousand footmen who drew sword. 
+The chiefs of everyone, even of all the tribes of Israel, presented themselves in the assembly of the people of God, four hundred thousand footmen who drew sword. 
 (Now the children of Benjamin heard that the children of Israel had gone up to Mizpah.) The children of Israel said, "Tell us, how did this wickedness happen?" 
 The Levite, the husband of the woman who was murdered, answered, "I came into Gibeah that belongs to Benjamin, I and my concubine, to spend the night. 
 The men of Gibeah rose against me, and surrounded the house by night. They intended to kill me and they raped my concubine, and she is dead. 
 I took my concubine and cut her in pieces, and sent her throughout all the country of the inheritance of Israel; for they have committed lewdness and folly in Israel. 
 Behold, you children of Israel, all of you, give here your advice and counsel." 
-All the people arose as one man, saying, "None of us will go to his tent, neither will any of us turn to his house. 
+Everyone arose as one man, saying, "None of us will go to his tent, neither will any of us turn to his house. 
 But now this is the thing which we will do to Gibeah: we will go up against it by lot; 
 and we will take ten men of one hundred throughout all the tribes of Israel, and one hundred of one thousand, and a thousand out of ten thousand to get food for the people, that they may do, when they come to Gibeah of Benjamin, according to all the folly that the men of Gibeah have done in Israel." 
 So all the men of Israel were gathered against the city, knit together as one man. 
@@ -23,7 +23,7 @@ The people, the men of Israel, encouraged themselves, and set the battle again i
 The children of Israel went up and wept before God until evening; and they asked of God, saying, "Shall I again draw near to battle against the children of Benjamin my brother?" God said, "Go up against him." 
 The children of Israel came near against the children of Benjamin the second day. 
 Benjamin went out against them out of Gibeah the second day, and destroyed down to the ground of the children of Israel again eighteen thousand men. All these drew the sword. 
-Then all the children of Israel and all the people went up, and came to Bethel, and wept, and sat there before God, and fasted that day until evening; then they offered burnt offerings and peace offerings before God. 
+Then all the children of Israel and everyone went up, and came to Bethel, and wept, and sat there before God, and fasted that day until evening; then they offered burnt offerings and peace offerings before God. 
 The children of Israel asked God (for the ark of the covenant of God was there in those days, 
 and Phinehas, the son of Eleazar, the son of Aaron, stood before it in those days), saying, "Shall I yet again go out to battle against the children of Benjamin my brother, or shall I cease?" God said, "Go up; for tomorrow I will deliver him into your hand." 
 Israel set ambushes all around Gibeah. 
@@ -43,6 +43,6 @@ Therefore they turned their backs before the men of Israel to the way of the wil
 They surrounded the Benjamites, chased them, and trod them down at their resting place, as far as near Gibeah toward the sunrise. 
 Eighteen thousand men of Benjamin fell; all these were men of valor. 
 They turned and fled toward the wilderness to the rock of Rimmon. They gleaned five thousand men of them in the highways, and followed hard after them to Gidom, and struck two thousand men of them. 
-So that all who fell that day of Benjamin were twenty-five thousand men who drew the sword. All these were men of valor. 
+So that everyone who fell that day of Benjamin were twenty-five thousand men who drew the sword. All these were men of valor. 
 But six hundred men turned and fled toward the wilderness to the rock of Rimmon, and stayed in the rock of Rimmon four months. 
 The men of Israel turned again on the children of Benjamin, and struck them with the edge of the sword, including the entire city, the livestock, and all that they found. Moreover they set all the cities which they found on fire. 

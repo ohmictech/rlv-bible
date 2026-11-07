@@ -17,7 +17,7 @@ They lived in Gilead in Bashan and in its towns, and in all the pasture lands of
 All these were listed by genealogies in the days of Jotham king of Judah, and in the days of Jeroboam king of Israel. 
 The sons of Reuben, the Gadites, and the half-tribe of Manasseh, of valiant men, men able to bear buckler and sword, able to shoot with bow, and skillful in war, were forty-four thousand seven hundred sixty that were able to go out to war. 
 They made war with the Hagrites, with Jetur, and Naphish, and Nodab. 
-They were helped against them, and the Hagrites were delivered into their hand, and all who were with them; for they cried to God in the battle, and he answered them because they put their trust in him. 
+They were helped against them, and the Hagrites were delivered into their hand, and everyone who was with them; for they cried to God in the battle, and he answered them because they put their trust in him. 
 They took away their livestock: of their camels fifty thousand, and of sheep two hundred fifty thousand, and of donkeys two thousand, and of men one hundred thousand. 
 For many fell slain, because the war was of God. They lived in their place until the captivity. 
 The children of the half-tribe of Manasseh lived in the land. They increased from Bashan to Baal Hermon, Senir, and Mount Hermon. 

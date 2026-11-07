@@ -4,9 +4,9 @@ I searched in my heart how to cheer my flesh with wine, my heart yet guiding me 
 I made myself great works. I built myself houses. I planted myself vineyards. 
 I made myself gardens and parks, and I planted trees in them of all kinds of fruit. 
 I made myself pools of water, to water the forest where trees were grown. 
-I bought male servants and female servants, and had servants born in my house. I also had great possessions of herds and flocks, above all who were before me in Jerusalem. 
+I bought male servants and female servants, and had servants born in my house. I also had great possessions of herds and flocks, above everyone who was before me in Jerusalem. 
 I also gathered silver and gold for myself, and the treasure of kings and of the provinces. I got myself male and female singers, and the delights of the sons of men: musical instruments of all sorts. 
-So I was great, and increased more than all who were before me in Jerusalem. My wisdom also remained with me. 
+So I was great, and increased more than everyone who was before me in Jerusalem. My wisdom also remained with me. 
 Whatever my eyes desired, I didn't keep from them. I didn't withhold my heart from any joy, for my heart rejoiced because of all my labor, and this was my portion from all my labor. 
 Then I looked at all the works that my hands had worked, and at the labor that I had labored to do; and behold, all was vanity and a chasing after wind, and there was no profit under the sun. 
 I turned myself to consider wisdom, madness, and folly; for what can the king's successor do? Just that which has been done long ago. 

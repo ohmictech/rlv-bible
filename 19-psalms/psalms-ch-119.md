@@ -60,7 +60,7 @@ I considered my ways, and turned my steps to your statutes.
 I will hurry, and not delay, to obey your commandments. 
 The ropes of the wicked bind me, but I won't forget your law. 
 At midnight I will rise to give thanks to you, because of your righteous ordinances. 
-I am a friend of all those who fear you, of those who observe your precepts. 
+I am a friend of everyone who fears you, of those who observe your precepts. 
 The earth is full of your loving kindness, God. Teach me your statutes. TETH 
 You have treated your servant well, according to your word, God. 
 Teach me good judgment and knowledge, for I believe in your commandments. 
@@ -115,7 +115,7 @@ You are my hiding place and my shield. I hope in your word.
 Depart from me, you evildoers, that I may keep the commandments of my God. 
 Uphold me according to your word, that I may live. Let me not be ashamed of my hope. 
 Hold me up, and I will be safe, and will have respect for your statutes continually. 
-You reject all those who stray from your statutes, for their deceit is in vain. 
+You reject everyone who strays from your statutes, for their deceit is in vain. 
 You put away all the wicked of the earth like dross. Therefore I love your testimonies. 
 My flesh trembles for fear of you. I am afraid of your judgments. AYIN 
 I have done what is just and righteous. Don't leave me to my oppressors. 
@@ -139,7 +139,7 @@ You have commanded your statutes in righteousness. They are fully trustworthy.
 My zeal wears me out, because my enemies ignore your words. 
 Your promises have been thoroughly tested, and your servant loves them. 
 I am small and despised. I don't forget your precepts. 
-Your righteousness is an everlasting righteousness. Your law is truth. 
+Your righteousness is an perpetual righteousness. Your law is truth. 
 Trouble and anguish have taken hold of me. Your commandments are my delight. 
 Your testimonies are righteous for the eras. Give me understanding, that I may live. QOPH 
 I have called with my whole heart. Answer me, God! I will keep your statutes. 

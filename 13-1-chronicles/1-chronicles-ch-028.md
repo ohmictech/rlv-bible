@@ -18,4 +18,4 @@ and the forks, the basins, and the cups, of pure gold; and for the golden bowls 
 and for the altar of incense, refined gold by weight; and gold for the plans for the chariot, and the cherubim that spread out and cover the ark of God's covenant. 
 "All this", David said, "I have been made to understand in writing from God's hand, even all the works of this pattern." 
 David said to Solomon his son, "Be strong and courageous, and do it. Don't be afraid, nor be dismayed, for God, even my God, is with you. He will not fail you nor forsake you, until all the work for the service of God's house is finished. 
-Behold, there are the divisions of the priests and the Levites for all the service of God's house. Every willing man who has skill for any kind of service shall be with you in all kinds of work. Also the captains and all the people will be entirely at your command." 
+Behold, there are the divisions of the priests and the Levites for all the service of God's house. Every willing man who has skill for any kind of service shall be with you in all kinds of work. Also the captains and everyone will be entirely at your command." 

@@ -8,7 +8,7 @@ Your father has deceived me, and changed my wages ten times, but God didn't allo
 If he said, 'The speckled will be your wages,' then all the flock bore speckled. If he said, 'The streaked will be your wages,' then all the flock bore streaked. 
 Thus God has taken away your father's livestock, and given them to me. 
 During mating season, I lifted up my eyes, and saw in a dream, and behold, the male goats which leaped on the flock were streaked, speckled, and grizzled. 
-The angel of God said to me in the dream, 'Jacob,' and I said, 'Here I am.' 
+The messenger of God said to me in the dream, 'Jacob,' and I said, 'Here I am.' 
 He said, 'Now lift up your eyes, and behold, all the male goats which leap on the flock are streaked, speckled, and grizzled, for I have seen all that Laban does to you. 
 I am the God of Bethel, where you anointed a pillar, where you vowed a vow to me. Now arise, get out from this land, and return to the land of your birth.'" 
 Rachel and Leah answered him, "Is there yet any portion or inheritance for us in our father's house? 

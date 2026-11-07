@@ -1,17 +1,17 @@
-﻿Shephatiah the son of Mattan, Gedaliah the son of Pashhur, Jucal the son of Shelemiah, and Pashhur the son of Malchijah heard the words that Jeremiah spoke to all the people, saying, 
+﻿Shephatiah the son of Mattan, Gedaliah the son of Pashhur, Jucal the son of Shelemiah, and Pashhur the son of Malchijah heard the words that Jeremiah spoke to everyone, saying, 
 "God says, 'He who remains in this city will die by the sword, by the famine, and by the pestilence, but he who goes out to the Chaldeans will live. He will escape with his life and he will live.' 
 God says, 'This city will surely be given into the hand of the army of the king of Babylon, and he will take it.'" 
-Then the princes said to the king, "Please let this man be put to death, because he weakens the hands of the men of war who remain in this city, and the hands of all the people, in speaking such words to them; for this man doesn't seek the welfare of this people, but harm." 
+Then the princes said to the king, "Please let this man be put to death, because he weakens the hands of the men of war who remain in this city, and the hands of everyone, in speaking such words to them; for this man doesn't seek the welfare of this people, but harm." 
 Zedekiah the king said, "Behold, he is in your hand; for the king can't do anything to oppose you." 
 Then they took Jeremiah and threw him into the dungeon of Malchijah the king's son, that was in the court of the guard. They let down Jeremiah with cords. In the dungeon there was no water, but mire; and Jeremiah sank in the mire. 
 Now when Ebedmelech the Ethiopian, a eunuch, who was in the king's house, heard that they had put Jeremiah in the dungeon (the king was then sitting in Benjamin's gate), 
 Ebedmelech went out of the king's house, and spoke to the king, saying, 
-"My lord the king, these men have done evil in all that they have done to Jeremiah the prophet, whom they have cast into the dungeon. He is likely to die in the place where he is, because of the famine; for there is no more bread in the city." 
-Then the king commanded Ebedmelech the Ethiopian, saying, "Take from here thirty men with you, and take up Jeremiah the prophet out of the dungeon, before he dies." 
+"My lord the king, these men have done evil in all that they have done to Jeremiah the spokesman, whom they have cast into the dungeon. He is likely to die in the place where he is, because of the famine; for there is no more bread in the city." 
+Then the king commanded Ebedmelech the Ethiopian, saying, "Take from here thirty men with you, and take up Jeremiah the spokesman out of the dungeon, before he dies." 
 So Ebedmelech took the men with him, and went into the house of the king under the treasury, and took from there rags and worn-out garments, and let them down by cords into the dungeon to Jeremiah. 
 Ebedmelech the Ethiopian said to Jeremiah, "Now put these rags and worn-out garments under your armpits under the cords." Jeremiah did so. 
 So they lifted Jeremiah up with the cords, and took him up out of the dungeon; and Jeremiah remained in the court of the guard. 
-Then Zedekiah the king sent and took Jeremiah the prophet to himself into the third entry that is in God's house. Then the king said to Jeremiah, "I will ask you something. Hide nothing from me." 
+Then Zedekiah the king sent and took Jeremiah the spokesman to himself into the third entry that is in God's house. Then the king said to Jeremiah, "I will ask you something. Hide nothing from me." 
 Then Jeremiah said to Zedekiah, "If I declare it to you, will you not surely put me to death? If I give you counsel, you will not listen to me." 
 So Zedekiah the king swore secretly to Jeremiah, saying, "As God lives, who made our souls, I will not put you to death, neither will I give you into the hand of these men who seek your life." 
 Then Jeremiah said to Zedekiah, "The God of Armies, the God of Israel, says: 'If you will go out to the king of Babylon's princes, then your soul will live, and this city will not be burned with fire. You will live, along with your house. 

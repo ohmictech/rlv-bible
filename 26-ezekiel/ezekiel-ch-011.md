@@ -12,7 +12,7 @@ This will not be your cauldron, neither will you be the meat in the middle of it
 You will know that I am God, for you have not walked in my statutes. You have not executed my ordinances, but have done after the ordinances of the nations that are around you."'" 
 When I prophesied, Pelatiah the son of Benaiah died. Then I fell down on my face, and cried with a loud voice, and said, "Ah God! Will you make a full end of the remnant of Israel?" 
 God's word came to me, saying, 
-"Son of man, your brothers, even your brothers, the men of your relatives, and all the house of Israel, all of them, are the ones to whom the inhabitants of Jerusalem have said, 'Go far away from God. This land has been given to us for a possession.' 
+"Son of man, your brothers, even your brothers, the men of your relatives, and all the house of Israel, everyone, are the ones to whom the inhabitants of Jerusalem have said, 'Go far away from God. This land has been given to us for a possession.' 
 "Therefore say, 'The God says: "Whereas I have removed them far off among the nations, and whereas I have scattered them among the countries, yet I will be to them a sanctuary for a little while in the countries where they have come."' 
 "Therefore say, 'The God says: "I will gather you from the peoples, and assemble you out of the countries where you have been scattered, and I will give you the land of Israel." 
 "'They will come there, and they will take away all its detestable things and all its abominations from there. 

@@ -22,7 +22,7 @@ The God of Armies, the God of Israel says: "Add your burnt offerings to your sac
 For I didn't speak to your fathers or command them in the day that I brought them out of the land of Egypt concerning burnt offerings or sacrifices; 
 but this thing I commanded them, saying, 'Listen to my voice, and I will be your God, and you shall be my people. Walk in all the way that I command you, that it may be well with you.' 
 But they didn't listen or turn their ear, but walked in their own counsels and in the stubbornness of their evil heart, and went backward, and not forward. 
-Since the day that your fathers came out of the land of Egypt to this day, I have sent to you all my servants the prophets, daily rising up early and sending them. 
+Since the day that your fathers came out of the land of Egypt to this day, I have sent to you all my servants the spokesmen, daily rising up early and sending them. 
 Yet they didn't listen to me or incline their ear, but made their neck stiff. They did worse than their fathers. 
 "You shall speak all these words to them, but they will not listen to you. You shall also call to them, but they will not answer you. 
 You shall tell them, 'This is the nation that has not listened to their God's voice, nor received instruction. Truth has perished, and is cut off from their mouth.' 

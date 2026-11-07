@@ -3,7 +3,7 @@ They said, "Has God indeed spoken only with Moses? Hasn't he spoken also with us
 Now the man Moses was very humble, more than all the men who were on the surface of the earth. 
 God spoke suddenly to Moses, to Aaron, and to Miriam, "You three come out to the Tent of Meeting!" The three of them came out. 
 God came down in a pillar of cloud, and stood at the door of the Tent, and called Aaron and Miriam; and they both came forward. 
-He said, "Now hear my words. If there is a prophet among you, I, God, will make myself known to him in a vision. I will speak with him in a dream. 
+He said, "Now hear my words. If there is a spokesman among you, I, God, will make myself known to him in a vision. I will speak with him in a dream. 
 My servant Moses is not so. He is faithful in all my house. 
 With him, I will speak mouth to mouth, even plainly, and not in riddles; and he shall see God's form. Why then were you not afraid to speak against my servant, against Moses?" 
 God's anger burned against them; and he departed. 

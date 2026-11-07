@@ -10,7 +10,7 @@ Those who are killed with the sword are better than those who are killed with hu
 The hands of the pitiful women have boiled their own children. They were their food in the destruction of the daughter of my people. 
 God has accomplished his wrath. He has poured out his fierce anger. He has kindled a fire in Zion, which has devoured its foundations. 
 The kings of the earth didn't believe, neither did all the inhabitants of the world, that the adversary and the enemy would enter into the gates of Jerusalem. 
-It is because of the sins of her prophets and the iniquities of her priests, that have shed the blood of the just in the middle of her. 
+It is because of the sins of her spokesmen and the iniquities of her priests, that have shed the blood of the just in the middle of her. 
 They wander as blind men in the streets. They are polluted with blood, So that men can't touch their garments. 
 "Go away!" they cried to them. "Unclean! Go away! Go away! Don't touch! When they fled away and wandered, men said among the nations, "They can't live here any more." 
 God's anger has scattered them. He will not pay attention to them any more. They didn't respect the persons of the priests. They didn't favor the elders. 

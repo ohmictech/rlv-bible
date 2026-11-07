@@ -29,7 +29,7 @@ Father, give weight to your name!" Then a voice came out of the sky, saying, "I 
 Therefore the crowd who stood by and heard it said that it had thundered. Others said, "A messenger has spoken to him." 
 Jesus answered, "This voice hasn't come for my sake, but for your sakes. 
 Now is the verdict on this world. Now the ruler of this world will be cast out. 
-And I, if I am lifted up from the earth, will draw all people to myself." 
+And I, if I am lifted up from the earth, will draw everyone to myself." 
 But he said this, signifying by what kind of death he should die. 
 The crowd answered him, "We have heard out of the law that the Christ remains forever. How do you say, 'The Human One must be lifted up'? Who is this Human One?" 
 Jesus therefore said to them, "Yet a little while the light is with you. Walk while you have the light, so that darkness doesn't overtake you. Whoever walks in the darkness doesn't know where they are going. 

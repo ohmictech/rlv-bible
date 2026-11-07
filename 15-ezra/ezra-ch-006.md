@@ -11,12 +11,12 @@ that they may offer sacrifices of pleasant aroma to the God of heaven, and pray 
 I have also made a decree that whoever alters this message, let a beam be pulled out from his house, and let him be lifted up and fastened on it; and let his house be made a dunghill for this. 
 May the God who has caused his name to dwell there overthrow all kings and peoples who stretch out their hand to alter this, to destroy this house of God which is at Jerusalem. I Darius have made a decree. Let it be done with all diligence. 
 Then Tattenai, the governor beyond the River, Shetharbozenai, and their companions did accordingly with all diligence, because Darius the king had sent a decree. 
-The elders of the Jews built and prospered, through the prophesying of Haggai the prophet and Zechariah the son of Iddo. They built and finished it, according to the commandment of the God of Israel, and according to the decree of Cyrus, Darius, and Artaxerxes king of Persia. 
+The elders of the Jews built and prospered, through the prophesying of Haggai the spokesman and Zechariah the son of Iddo. They built and finished it, according to the commandment of the God of Israel, and according to the decree of Cyrus, Darius, and Artaxerxes king of Persia. 
 This house was finished on the third day of the month Adar, which was in the sixth year of the reign of Darius the king. 
 The children of Israel, the priests, the Levites, and the rest of the children of the captivity, kept the dedication of this house of God with joy. 
 They offered at the dedication of this house of God one hundred bulls, two hundred rams, four hundred lambs; and for a sin offering for all Israel, twelve male goats, according to the number of the tribes of Israel. 
 They set the priests in their divisions and the Levites in their courses, for the service of God which is at Jerusalem, as it is written in the book of Moses. 
 The children of the captivity kept the Passover on the fourteenth day of the first month. 
-Because the priests and the Levites had purified themselves together, all of them were pure. They killed the Passover for all the children of the captivity, for their brothers the priests, and for themselves. 
-The children of Israel who had returned out of the captivity, and all who had separated themselves to them from the filthiness of the nations of the land to seek the God of Israel, ate, 
+Because the priests and the Levites had purified themselves together, everyone was pure. They killed the Passover for all the children of the captivity, for their brothers the priests, and for themselves. 
+The children of Israel who had returned out of the captivity, and everyone who had separated themselves to them from the filthiness of the nations of the land to seek the God of Israel, ate, 
 and kept the feast of unleavened bread seven days with joy; because God had made them joyful, and had turned the heart of the king of Assyria to them, to strengthen their hands in the work of the God of Israel's house. 

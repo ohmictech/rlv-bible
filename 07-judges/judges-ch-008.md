@@ -7,7 +7,7 @@ The princes of Succoth said, "Are the hands of Zebah and Zalmunna now in your ha
 Gideon said, "Therefore when God has delivered Zebah and Zalmunna into my hand, then I will tear your flesh with the thorns of the wilderness and with briers." 
 He went up there to Penuel, and spoke to them in the same way; and the men of Penuel answered him as the men of Succoth had answered. 
 He spoke also to the men of Penuel, saying, "When I come again in peace, I will break down this tower." 
-Now Zebah and Zalmunna were in Karkor, and their armies with them, about fifteen thousand men, all who were left of all the army of the children of the east; for there fell one hundred twenty thousand men who drew sword. 
+Now Zebah and Zalmunna were in Karkor, and their armies with them, about fifteen thousand men, everyone who was left of all the army of the children of the east; for there fell one hundred twenty thousand men who drew sword. 
 Gideon went up by the way of those who lived in tents on the east of Nobah and Jogbehah, and struck the army; for the army felt secure. 
 Zebah and Zalmunna fled and he pursued them. He took the two kings of Midian, Zebah and Zalmunna, and confused all the army. 
 Gideon the son of Joash returned from the battle from the ascent of Heres. 

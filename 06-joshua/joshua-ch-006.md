@@ -2,7 +2,7 @@
 God said to Joshua, "Behold, I have given Jericho into your hand, with its king and the mighty men of valor. 
 All of your men of war shall march around the city, going around the city once. You shall do this six days. 
 Seven priests shall bear seven trumpets of rams' horns before the ark. On the seventh day, you shall march around the city seven times, and the priests shall blow the trumpets. 
-It shall be that when they make a long blast with the ram's horn, and when you hear the sound of the trumpet, all the people shall shout with a great shout; then the city wall will fall down flat, and the people shall go up, every man straight in front of him." 
+It shall be that when they make a long blast with the ram's horn, and when you hear the sound of the trumpet, everyone shall shout with a great shout; then the city wall will fall down flat, and the people shall go up, every man straight in front of him." 
 Joshua the son of Nun called the priests, and said to them, "Take up the ark of the covenant, and let seven priests bear seven trumpets of rams' horns before God's ark." 
 They said to the people, "Advance! March around the city, and let the armed men pass on before God's ark." 
 It was so, that when Joshua had spoken to the people, the seven priests bearing the seven trumpets of rams' horns before God advanced and blew the trumpets, and the ark of God's covenant followed them. 
@@ -14,7 +14,7 @@ The seven priests bearing the seven trumpets of rams' horns in front of God's ar
 The second day they marched around the city once, and returned into the camp. They did this six days. 
 On the seventh day, they rose early at the dawning of the day, and marched around the city in the same way seven times. On this day only they marched around the city seven times. 
 At the seventh time, when the priests blew the trumpets, Joshua said to the people, "Shout, for God has given you the city! 
-The city shall be devoted, even it and all that is in it, to God. Only Rahab the prostitute shall live, she and all who are with her in the house, because she hid the messengers that we sent. 
+The city shall be devoted, even it and all that is in it, to God. Only Rahab the prostitute shall live, she and everyone who is with her in the house, because she hid the messengers that we sent. 
 But as for you, only keep yourselves from what is devoted to destruction, lest when you have devoted it, you take of the devoted thing; so you would make the camp of Israel accursed and trouble it. 
 But all the silver, gold, and vessels of bronze and iron are holy to God. They shall come into God's treasury." 
 So the people shouted and the priests blew the trumpets. When the people heard the sound of the trumpet, the people shouted with a great shout, and the wall fell down flat, so that the people went up into the city, every man straight in front of him, and they took the city. 

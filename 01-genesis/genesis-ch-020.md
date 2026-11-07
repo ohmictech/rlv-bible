@@ -4,7 +4,7 @@ But God came to Abimelech in a dream of the night, and said to him, "Behold, you
 Now Abimelech had not come near her. He said, "Lord, will you kill even a righteous nation? 
 Didn't he tell me, 'She is my sister'? She, even she herself, said, 'He is my brother.' I have done this in the integrity of my heart and the innocence of my hands." 
 God said to him in the dream, "Yes, I know that in the integrity of your heart you have done this, and I also withheld you from sinning against me. Therefore I didn't allow you to touch her. 
-Now therefore, restore the man's wife. For he is a prophet, and he will pray for you, and you will live. If you don't restore her, know for sure that you will die, you, and all who are yours." 
+Now therefore, restore the man's wife. For he is a spokesman, and he will pray for you, and you will live. If you don't restore her, know for sure that you will die, you, and everyone who is yours." 
 Abimelech rose early in the morning, and called all his servants, and told all these things in their ear. The men were very scared. 
 Then Abimelech called Abraham, and said to him, "What have you done to us? How have I sinned against you, that you have brought on me and on my kingdom a great sin? You have done deeds to me that ought not to be done!" 
 Abimelech said to Abraham, "What did you see, that you have done this thing?" 

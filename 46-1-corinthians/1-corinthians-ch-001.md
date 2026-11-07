@@ -1,5 +1,5 @@
 ﻿Paul, called to be a sent one of Jesus Christ by the will of God, and our brother Sosthenes, 
-to the gathering of God that is at Corinth, those who are set apart in Christ Jesus, called to be set-apart ones, with all who call on the name of our Lord Jesus Christ in every place, both theirs and ours: 
+to the gathering of God that is at Corinth, those who are set apart in Christ Jesus, called to be set-apart ones, with everyone who calls on the name of our Lord Jesus Christ in every place, both theirs and ours: 
 Favor and wholeness to you from God our Father and the Lord Jesus Christ. 
 I always thank my God for you, for the gift of God that was given you in Christ Jesus, 
 that in everything you were made rich in him, in all speech and all knowledge, 

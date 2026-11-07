@@ -1,5 +1,5 @@
 ﻿but Jesus went to the Mount of Olives. 
-Now very early in the morning, he came again into the temple courts, and all the people came to him. He sat down and taught them. 
+Now very early in the morning, he came again into the temple courts, and everyone came to him. He sat down and taught them. 
 The Bible teachers and the Pharisees brought a woman caught sleeping around. Having set her in the middle, 
 they told him, "Teacher, this woman was caught in the very act of sleeping around. 
 Now in our law, Moses commanded us to stone such women. What then do you say about her?" 

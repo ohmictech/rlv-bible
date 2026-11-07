@@ -4,7 +4,7 @@ Then the local governors, the deputies, and the governors, the judges, the treas
 Then the herald cried aloud, "To you it is commanded, peoples, nations, and languages, 
 that whenever you hear the sound of the horn, flute, zither, lyre, harp, pipe, and all kinds of music, you fall down and worship the golden image that Nebuchadnezzar the king has set up. 
 Whoever doesn't fall down and worship shall be cast into the middle of a burning fiery furnace the same hour." 
-Therefore at that time, when all the peoples heard the sound of the horn, flute, zither, lyre, harp, pipe, and all kinds of music, all the peoples, the nations, and the languages fell down and worshiped the golden image that Nebuchadnezzar the king had set up. 
+Therefore at that time, when everyones heard the sound of the horn, flute, zither, lyre, harp, pipe, and all kinds of music, everyones, the nations, and the languages fell down and worshiped the golden image that Nebuchadnezzar the king had set up. 
 Therefore at that time certain Chaldeans came near and brought accusation against the Jews. 
 They answered Nebuchadnezzar the king, "O king, live for the eras! 
 You, O king, have made a decree that every man who hears the sound of the horn, flute, zither, lyre, harp, pipe, and all kinds of music shall fall down and worship the golden image; 
@@ -25,6 +25,6 @@ Then Nebuchadnezzar the king was astonished and rose up in haste. He spoke and s
 He answered, "Look, I see four men loose, walking in the middle of the fire, and they are unharmed. The appearance of the fourth is like a son of the gods." 
 Then Nebuchadnezzar came near to the mouth of the burning fiery furnace. He spoke and said, "Shadrach, Meshach, and Abednego, you servants of the Most High God, come out, and come here!" Then Shadrach, Meshach, and Abednego came out of the middle of the fire. 
 The local governors, the deputies, and the governors, and the king's counselors, being gathered together, saw these men, that the fire had no power on their bodies. The hair of their head wasn't singed. Their pants weren't changed. The smell of fire wasn't even on them. 
-Nebuchadnezzar spoke and said, "Blessed be the God of Shadrach, Meshach, and Abednego, who has sent his angel and delivered his servants who trusted in him, and have changed the king's word, and have yielded their bodies, that they might not serve nor worship any god except their own God. 
+Nebuchadnezzar spoke and said, "Blessed be the God of Shadrach, Meshach, and Abednego, who has sent his messenger and delivered his servants who trusted in him, and have changed the king's word, and have yielded their bodies, that they might not serve nor worship any god except their own God. 
 Therefore I make a decree that every people, nation, and language which speak anything evil against the God of Shadrach, Meshach, and Abednego shall be cut in pieces, and their houses shall be made a dunghill, because there is no other god who is able to deliver like this." 
 Then the king promoted Shadrach, Meshach, and Abednego in the province of Babylon. 

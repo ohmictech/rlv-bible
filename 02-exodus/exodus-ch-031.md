@@ -3,7 +3,7 @@
 I have filled him with the Spirit of God, in wisdom, and in understanding, and in knowledge, and in all kinds of workmanship, 
 to devise skillful works, to work in gold, and in silver, and in bronze, 
 and in cutting of stones for setting, and in carving of wood, to work in all kinds of workmanship. 
-Behold, I myself have appointed with him Oholiab, the son of Ahisamach, of the tribe of Dan; and in the heart of all who are wise-hearted I have put wisdom, that they may make all that I have commanded you: 
+Behold, I myself have appointed with him Oholiab, the son of Ahisamach, of the tribe of Dan; and in the heart of everyone who is wise-hearted I have put wisdom, that they may make all that I have commanded you: 
 the Tent of Meeting, the ark of the covenant, the mercy seat that is on it, all the furniture of the Tent, 
 the table and its vessels, the pure lamp stand with all its vessels, the altar of incense, 
 the altar of burnt offering with all its vessels, the basin and its base, 

@@ -18,7 +18,7 @@ His winnowing fork is in his hand, and he will clean out his threshing floor com
 Then with many other appeals he preached good news to the people, 
 but Herod the district ruler, being rebuked by him for Herodias, his brother's wife, and for all the bad things which Herod had done, 
 added this also to them all, that he locked John up in prison. 
-Now when all the people were immersed, Jesus also had been immersed and was praying. The sky was opened, 
+Now when everyone was immersed, Jesus also had been immersed and was praying. The sky was opened, 
 and the Holy Spirit came down on him in bodily form like a dove; and a voice came out of the sky, saying "You are my Son, whom I truly love. I am delighted with you." 
 Jesus himself, when he began to teach, was about thirty years old, being the son (as was supposed) of Joseph, the son of Heli, 
 the son of Matthat, the son of Levi, the son of Melchi, the son of Jannai, the son of Joseph, 

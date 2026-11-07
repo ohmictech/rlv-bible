@@ -11,12 +11,12 @@ Surely the islands will wait for me, and the ships of Tarshish first, to bring y
 Your gates also shall be open continually; they shall not be shut day nor night, that men may bring to you the wealth of the nations, and their kings led captive. 
 For that nation and kingdom that will not serve you shall perish; yes, those nations shall be utterly wasted. 
 "The glory of Lebanon shall come to you, the cypress tree, the pine, and the box tree together, to beautify the place of my sanctuary; and I will make the place of my feet glorious. 
-The sons of those who afflicted you will come bowing to you; and all those who despised you will bow themselves down at the soles of your feet. They will call you God's City, the Zion of the Holy One of Israel. 
+The sons of those who afflicted you will come bowing to you; and everyone who despised you will bow themselves down at the soles of your feet. They will call you God's City, the Zion of the Holy One of Israel. 
 "Whereas you have been forsaken and hated, so that no one passed through you, I will make you an eternal excellency, a joy of many generations. 
 You will also drink the milk of the nations, and will nurse from royal breasts. Then you will know that I, God, am your Savior, your Redeemer, the Mighty One of Jacob. 
 For bronze I will bring gold; for iron I will bring silver; for wood, bronze, and for stones, iron. I will also make peace your governor, and righteousness your ruler. 
 Violence shall no more be heard in your land, nor desolation or destruction within your borders; but you will call your walls Salvation, and your gates Praise. 
-The sun will be no more your light by day, nor will the brightness of the moon give light to you, but God will be your everlasting light, and your God will be your glory. 
-Your sun will not go down any more, nor will your moon withdraw itself; for God will be your everlasting light, and the days of your mourning will end. 
+The sun will be no more your light by day, nor will the brightness of the moon give light to you, but God will be your perpetual light, and your God will be your glory. 
+Your sun will not go down any more, nor will your moon withdraw itself; for God will be your perpetual light, and the days of your mourning will end. 
 Then your people will all be righteous. They will inherit the land for the eras, the branch of my planting, the work of my hands, that I may be glorified. 
 The little one will become a thousand, and the small one a strong nation. I, God, will do this quickly in its time." 

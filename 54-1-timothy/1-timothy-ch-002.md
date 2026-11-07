@@ -1,7 +1,7 @@
 ﻿First of all, then, I urge that requests, prayers, pleadings, and thanksgivings be made for everyone, 
 for kings and for everyone in high office, so that we may live calm, quiet lives in all devotion to God and seriousness. 
 This is good, and it pleases God our Restorer, 
-who wants all people to be rescued and to come to know the truth fully. 
+who wants everyone to be rescued and to come to know the truth fully. 
 For there is one God, and one mediator between God and people, a human being, Christ Jesus, 
 who gave himself as a ransom for everyone, the witness at the right time. 
 That is what I was appointed to announce and to be a sent one for, I am telling the truth in Christ, I am not lying, a teacher of the nations in trust and truth. 

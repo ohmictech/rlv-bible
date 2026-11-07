@@ -18,11 +18,11 @@ Amaziah the son of Joash king of Judah lived after the death of Jehoash son of J
 Now the rest of the acts of Amaziah, aren't they written in the book of the chronicles of the kings of Judah? 
 They made a conspiracy against him in Jerusalem, and he fled to Lachish; but they sent after him to Lachish and killed him there. 
 They brought him on horses, and he was buried at Jerusalem with his fathers in David's city. 
-All the people of Judah took Azariah, who was sixteen years old, and made him king in the place of his father Amaziah. 
+Everyone in Judah took Azariah, who was sixteen years old, and made him king in the place of his father Amaziah. 
 He built Elath and restored it to Judah. After that the king slept with his fathers. 
 In the fifteenth year of Amaziah the son of Joash king of Judah, Jeroboam the son of Joash king of Israel began to reign in Samaria for forty-one years. 
 He did that which was evil in God's sight. He didn't depart from all the sins of Jeroboam the son of Nebat, with which he made Israel to sin. 
-He restored the border of Israel from the entrance of Hamath to the sea of the Arabah, according to the God of Israel's word, which he spoke by his servant Jonah the son of Amittai, the prophet, who was from Gath Hepher. 
+He restored the border of Israel from the entrance of Hamath to the sea of the Arabah, according to the God of Israel's word, which he spoke by his servant Jonah the son of Amittai, the spokesman, who was from Gath Hepher. 
 For God saw the affliction of Israel, that it was very bitter for all, slave and free; and there was no helper for Israel. 
 God didn't say that he would blot out the name of Israel from under the sky; but he saved them by the hand of Jeroboam the son of Joash. 
 Now the rest of the acts of Jeroboam, and all that he did, and his might, how he fought, and how he recovered Damascus, and Hamath, which had belonged to Judah, for Israel, aren't they written in the book of the chronicles of the kings of Israel? 

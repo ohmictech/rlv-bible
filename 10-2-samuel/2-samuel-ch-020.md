@@ -9,17 +9,17 @@ When they were at the great stone which is in Gibeon, Amasa came to meet them. J
 Joab said to Amasa, "Is it well with you, my brother?" Joab took Amasa by the beard with his right hand to kiss him. 
 But Amasa took no heed to the sword that was in Joab's hand. So he struck him with it in the body and shed out his bowels to the ground, and didn't strike him again; and he died. Joab and Abishai his brother pursued Sheba the son of Bichri. 
 One of Joab's young men stood by him, and said, "He who favors Joab, and he who is for David, let him follow Joab!" 
-Amasa lay wallowing in his blood in the middle of the highway. When the man saw that all the people stood still, he carried Amasa out of the highway into the field, and cast a garment over him when he saw that everyone who came by him stood still. 
-When he was removed out of the highway, all the people went on after Joab to pursue Sheba the son of Bichri. 
+Amasa lay wallowing in his blood in the middle of the highway. When the man saw that everyone stood still, he carried Amasa out of the highway into the field, and cast a garment over him when he saw that everyone who came by him stood still. 
+When he was removed out of the highway, everyone went on after Joab to pursue Sheba the son of Bichri. 
 He went through all the tribes of Israel to Abel, to Beth Maacah, and all the Berites. They were gathered together, and went also after him. 
-They came and besieged him in Abel of Beth Maacah, and they cast up a mound against the city, and it stood against the rampart; and all the people who were with Joab battered the wall to throw it down. 
+They came and besieged him in Abel of Beth Maacah, and they cast up a mound against the city, and it stood against the rampart; and everyone who was with Joab battered the wall to throw it down. 
 Then a wise woman cried out of the city, "Hear, hear! Please say to Joab, 'Come near here, that I may speak with you.'" 
 He came near to her; and the woman said, "Are you Joab?" He answered, "I am." Then she said to him, "Hear the words of your servant." He answered, "I'm listening." 
 Then she spoke, saying, "They used to say in old times, 'They shall surely ask counsel at Abel,' and so they settled a matter. 
 I am among those who are peaceable and faithful in Israel. You seek to destroy a city and a mother in Israel. Why will you swallow up God's inheritance?" 
 Joab answered, "Far be it, far be it from me, that I should swallow up or destroy. 
 The matter is not so. But a man of the hill country of Ephraim, Sheba the son of Bichri by name, has lifted up his hand against the king, even against David. Just deliver him, and I will depart from the city." The woman said to Joab, "Behold, his head will be thrown to you over the wall." 
-Then the woman went to all the people in her wisdom. They cut off the head of Sheba the son of Bichri, and threw it out to Joab. He blew the trumpet, and they were dispersed from the city, every man to his tent. Then Joab returned to Jerusalem to the king. 
+Then the woman went to everyone in her wisdom. They cut off the head of Sheba the son of Bichri, and threw it out to Joab. He blew the trumpet, and they were dispersed from the city, every man to his tent. Then Joab returned to Jerusalem to the king. 
 Now Joab was over all the army of Israel, Benaiah the son of Jehoiada was over the Cherethites and over the Pelethites, 
 Adoram was over the men subject to forced labor, Jehoshaphat the son of Ahilud was the recorder, 
 Sheva was scribe, Zadok and Abiathar were priests, 

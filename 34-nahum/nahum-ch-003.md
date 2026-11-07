@@ -4,7 +4,7 @@ the horseman charging, and the flashing sword, the glittering spear, and a multi
 because of the multitude of the prostitution of the alluring prostitute, the mistress of witchcraft, who sells nations through her prostitution, and families through her witchcraft. 
 "Behold, I am against you," says the God of Armies, "and I will lift your skirts over your face. I will show the nations your nakedness, and the kingdoms your shame. 
 I will throw abominable filth on you and make you vile, and will make you a spectacle. 
-It will happen that all those who look at you will flee from you, and say, 'Nineveh is laid waste! Who will mourn for her?' Where will I seek comforters for you?" 
+It will happen that everyone who looks at you will flee from you, and say, 'Nineveh is laid waste! Who will mourn for her?' Where will I seek comforters for you?" 
 Are you better than No-Amon, who was situated among the rivers, who had the waters around her, whose rampart was the sea, and her wall was of the sea? 
 Cush and Egypt were her boundless strength. Put and Libya were her helpers. 
 Yet was she carried away. She went into captivity. Her young children also were dashed in pieces at the head of all the streets, and they cast lots for her honorable men, and all her great men were bound in chains. 
@@ -16,4 +16,4 @@ There the fire will devour you. The sword will cut you off. It will devour you l
 You have increased your merchants more than the stars of the skies. The grasshopper strips and flees away. 
 Your guards are like the locusts, and your officials like the swarms of locusts, which settle on the walls on a cold day, but when the sun appears, they flee away, and their place is not known where they are. 
 Your shepherds slumber, king of Assyria. Your nobles lie down. Your people are scattered on the mountains, and there is no one to gather them. 
-There is no healing your wound, for your injury is fatal. All who hear the report of you clap their hands over you, for who hasn't felt your endless cruelty? 
+There is no healing your wound, for your injury is fatal. Everyone who hear the report of you clap their hands over you, for who hasn't felt your endless cruelty? 

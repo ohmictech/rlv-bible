@@ -1,12 +1,12 @@
 ﻿Joab was told, "Behold, the king weeps and mourns for Absalom." 
-The victory that day was turned into mourning among all the people, for the people heard it said that day, "The king grieves for his son." 
+The victory that day was turned into mourning among everyone, for the people heard it said that day, "The king grieves for his son." 
 The people sneaked into the city that day, as people who are ashamed steal away when they flee in battle. 
 The king covered his face, and the king cried with a loud voice, "My son Absalom, Absalom, my son, my son!" 
 Joab came into the house to the king, and said, "Today you have shamed the faces of all your servants who today have saved your life, and the lives of your sons and of your daughters, and the lives of your wives, and the lives of your concubines; 
 in that you love those who hate you and hate those who love you. For you have declared today that princes and servants are nothing to you. For today I perceive that if Absalom had lived and we had all died today, then it would have pleased you well. 
 Now therefore arise, go out and speak to comfort your servants; for I swear by God, if you don't go out, not a man will stay with you this night. That would be worse to you than all the evil that has happened to you from your youth until now." 
-Then the king arose and sat in the gate. The people were all told, "Behold, the king is sitting in the gate." All the people came before the king. Now Israel had fled every man to his tent. 
-All the people were at strife throughout all the tribes of Israel, saying, "The king delivered us out of the hand of our enemies, and he saved us out of the hand of the Philistines; and now he has fled out of the land from Absalom. 
+Then the king arose and sat in the gate. The people were all told, "Behold, the king is sitting in the gate." Everyone came before the king. Now Israel had fled every man to his tent. 
+Everyone was at strife throughout all the tribes of Israel, saying, "The king delivered us out of the hand of our enemies, and he saved us out of the hand of the Philistines; and now he has fled out of the land from Absalom. 
 Absalom, whom we anointed over us, is dead in battle. Now therefore why don't you speak a word of bringing the king back?" 
 King David sent to Zadok and to Abiathar the priests, saying, "Speak to the elders of Judah, saying, 'Why are you the last to bring the king back to his house, since the speech of all Israel has come to the king, to return him to his house? 
 You are my brothers. You are my bone and my flesh. Why then are you the last to bring back the king?' 
@@ -24,7 +24,7 @@ The king said to Shimei, "You will not die." The king swore to him.
 Mephibosheth the son of Saul came down to meet the king; and he had neither groomed his feet, nor trimmed his beard, nor washed his clothes, from the day the king departed until the day he came home in peace. 
 When he had come to Jerusalem to meet the king, the king said to him, "Why didn't you go with me, Mephibosheth?" 
 He answered, "My lord, O king, my servant deceived me. For your servant said, 'I will saddle a donkey for myself, that I may ride on it and go with the king,' because your servant is lame. 
-He has slandered your servant to my lord the king, but my lord the king is as an angel of God. Therefore do what is good in your eyes. 
+He has slandered your servant to my lord the king, but my lord the king is as an messenger of God. Therefore do what is good in your eyes. 
 For all my father's house were but dead men before my lord the king; yet you set your servant among those who ate at your own table. What right therefore have I yet that I should appeal any more to the king?" 
 The king said to him, "Why do you speak any more of your matters? I say, you and Ziba divide the land." 
 Mephibosheth said to the king, "Yes, let him take all, because my lord the king has come in peace to his own house." 
@@ -36,8 +36,8 @@ I am eighty years old, today. Can I discern between good and bad? Can your serva
 Your servant will just go over the Jordan with the king. Why should the king repay me with such a reward? 
 Please let your servant turn back again, that I may die in my own city, by the grave of my father and my mother. But behold, your servant Chimham; let him go over with my lord the king; and do to him what shall seem good to you." 
 The king answered, "Chimham shall go over with me, and I will do to him that which shall seem good to you. Whatever you request of me, that I will do for you." 
-All the people went over the Jordan, and the king went over. Then the king kissed Barzillai and blessed him; and he returned to his own place. 
-So the king went over to Gilgal, and Chimham went over with him. All the people of Judah brought the king over, and also half the people of Israel. 
+Everyone went over the Jordan, and the king went over. Then the king kissed Barzillai and blessed him; and he returned to his own place. 
+So the king went over to Gilgal, and Chimham went over with him. Everyone in Judah brought the king over, and also half the people of Israel. 
 Behold, all the men of Israel came to the king, and said to the king, "Why have our brothers the men of Judah stolen you away, and brought the king and his household, over the Jordan, and all David's men with him?" 
 All the men of Judah answered the men of Israel, "Because the king is a close relative to us. Why then are you angry about this matter? Have we eaten at all at the king's cost? Or has he given us any gift?" 
 The men of Israel answered the men of Judah, and said, "We have ten parts in the king, and we have also more claim to David than you. Why then did you despise us, that our advice should not be first had in bringing back our king?" The words of the men of Judah were fiercer than the words of the men of Israel. 

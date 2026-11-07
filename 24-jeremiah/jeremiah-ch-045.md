@@ -1,4 +1,4 @@
-﻿The message that Jeremiah the prophet spoke to Baruch the son of Neriah, when he wrote these words in a book at the mouth of Jeremiah, in the fourth year of Jehoiakim the son of Josiah, king of Judah, saying, 
+﻿The message that Jeremiah the spokesman spoke to Baruch the son of Neriah, when he wrote these words in a book at the mouth of Jeremiah, in the fourth year of Jehoiakim the son of Josiah, king of Judah, saying, 
 "The God of Israel, says to you, Baruch: 
 'You said, "Woe is me now! For God has added sorrow to my pain! I am weary with my groaning, and I find no rest."' 
 "You shall tell him, God says: 'Behold, that which I have built, I will break down, and that which I have planted I will pluck up; and this in the whole land. 

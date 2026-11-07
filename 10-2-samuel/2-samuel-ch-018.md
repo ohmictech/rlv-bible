@@ -1,8 +1,8 @@
 ﻿David counted the people who were with him, and set captains of thousands and captains of hundreds over them. 
 David sent the people out, a third part under the hand of Joab, and a third part under the hand of Abishai the son of Zeruiah, Joab's brother, and a third part under the hand of Ittai the Gittite. The king said to the people, "I will also surely go out with you myself." 
 But the people said, "You shall not go out, for if we flee away, they will not care for us, neither if half of us die, will they care for us. But you are worth ten thousand of us. Therefore now it is better that you are ready to help us out of the city." 
-The king said to them, "I will do what seems best to you." The king stood beside the gate, and all the people went out by hundreds and by thousands. 
-The king commanded Joab and Abishai and Ittai, saying, "Deal gently for my sake with the young man Absalom." All the people heard when the king commanded all the captains concerning Absalom. 
+The king said to them, "I will do what seems best to you." The king stood beside the gate, and everyone went out by hundreds and by thousands. 
+The king commanded Joab and Abishai and Ittai, saying, "Deal gently for my sake with the young man Absalom." Everyone heard when the king commanded all the captains concerning Absalom. 
 So the people went out into the field against Israel; and the battle was in the forest of Ephraim. 
 The people of Israel were struck there before David's servants, and there was a great slaughter there that day of twenty thousand men. 
 For the battle was there spread over the surface of all the country, and the forest devoured more people that day than the sword devoured. 
@@ -28,6 +28,6 @@ The watchman said, "I think the running of the first one is like the running of 
 Ahimaaz called, and said to the king, "All is well." He bowed himself before the king with his face to the earth, and said, "Blessed is your God, who has delivered up the men who lifted up their hand against my lord the king!" 
 The king said, "Is it well with the young man Absalom?" Ahimaaz answered, "When Joab sent the king's servant, even me your servant, I saw a great tumult, but I don't know what it was." 
 The king said, "Come and stand here." He came and stood still. 
-Behold, the Cushite came. The Cushite said, "Good news for my lord the king, for God has avenged you today of all those who rose up against you." 
-The king said to the Cushite, "Is it well with the young man Absalom?" The Cushite answered, "May the enemies of my lord the king, and all who rise up against you to do you harm, be as that young man is." 
+Behold, the Cushite came. The Cushite said, "Good news for my lord the king, for God has avenged you today of everyone who rose up against you." 
+The king said to the Cushite, "Is it well with the young man Absalom?" The Cushite answered, "May the enemies of my lord the king, and everyone who rises up against you to do you harm, be as that young man is." 
 The king was much moved, and went up to the room over the gate and wept. As he went, he said, "My son Absalom! My son, my son Absalom! I wish I had died instead of you, Absalom, my son, my son!" 

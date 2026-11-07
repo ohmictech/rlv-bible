@@ -9,13 +9,13 @@ But God commends his own love toward us, in that while we were yet those who mis
 Much more then, being now made right by his blood, we will be rescued from God's heat through him. 
 For if while we were enemies, we were brought back to God through the death of his Son, much more, being brought back, we will be rescued by his life. 
 Not only so, but we also take pride in God through our Lord Jesus Christ, through whom we have now received the bringing back together. 
-Therefore, as the mistake entered into the world through one man, and death through the mistake, so death passed to all people because all missed the mark. 
+Therefore, as the mistake entered into the world through one man, and death through the mistake, so death passed to everyone because all missed the mark. 
 For until the law, the mistake was in the world; but the mistake is not charged when there is no law. 
 Nevertheless death reigned from Adam until Moses, even over those whose missing the mark wasn't like Adam's disobedience, who is a foreshadowing of him who was to come. 
-But the free gift isn't like the false step. For if by the false step of the one the many died, much more did the gift of God and the free gift through the one man, Jesus Christ, overflow to the many. 
+But the free gift isn't like the false step. For if by the false step of the one everyone died, much more did the gift of God and the free gift through the one man, Jesus Christ, overflow to everyone. 
 The gift is not as through one who missed the mark; for the verdict came by one to a sentence, but the free gift followed many false steps to being made right. 
 For if by the false step of the one, death reigned through the one; so much more will those who receive the overflow of favor and of the gift of rightness reign in real life through the one, Jesus Christ. 
-So then as through one false step, all people were sentenced; even so through one act of rightness, all people were made right to life. 
-For as through the one man's disobedience many were made those who miss the mark, even so through the obedience of the one, many will be made right. 
+So then as through one false step, everyone was sentenced; even so through one act of rightness, everyone was made right to life. 
+For as through the one man's disobedience everyone was made those who miss the mark, even so through the obedience of the one, everyone will be made right. 
 The law came in so that the false step might increase; but where the mistake overflowed, favor overflowed far more, 
 that as the mistake reigned in death, even so favor might reign through rightness to the real life of the era through Jesus Christ our Lord. 

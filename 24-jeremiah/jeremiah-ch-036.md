@@ -5,9 +5,9 @@ Then Jeremiah called Baruch the son of Neriah; and Baruch wrote from the mouth o
 Jeremiah commanded Baruch, saying, "I am restricted. I can't go into God's house. 
 Therefore you go, and read from the scroll which you have written from my mouth, God's words, in the ears of the people in God's house on the fast day. Also you shall read them in the ears of all Judah who come out of their cities. 
 It may be they will present their supplication before God, and will each return from his evil way; for God has pronounced great anger and wrath against this people." 
-Baruch the son of Neriah did according to all that Jeremiah the prophet commanded him, reading in the book God's words in God's house. 
-Now in the fifth year of Jehoiakim the son of Josiah, king of Judah, in the ninth month, all the people in Jerusalem and all the people who came from the cities of Judah to Jerusalem, proclaimed a fast before God. 
-Then Baruch read the words of Jeremiah from the book in God's house, in the room of Gemariah the son of Shaphan the scribe, in the upper court, at the entry of the new gate of God's house, in the ears of all the people. 
+Baruch the son of Neriah did according to all that Jeremiah the spokesman commanded him, reading in the book God's words in God's house. 
+Now in the fifth year of Jehoiakim the son of Josiah, king of Judah, in the ninth month, everyone in Jerusalem and everyone who came from the cities of Judah to Jerusalem, proclaimed a fast before God. 
+Then Baruch read the words of Jeremiah from the book in God's house, in the room of Gemariah the son of Shaphan the scribe, in the upper court, at the entry of the new gate of God's house, in the ears of everyone. 
 When Micaiah the son of Gemariah, the son of Shaphan, had heard out of the book all God's words, 
 he went down into the king's house, into the scribe's room; and behold, all the princes were sitting there, Elishama the scribe, Delaiah the son of Shemaiah, Elnathan the son of Achbor, Gemariah the son of Shaphan, Zedekiah the son of Hananiah, and all the princes. 
 Then Micaiah declared to them all the words that he had heard, when Baruch read the book in the ears of the people. 
@@ -23,7 +23,7 @@ Now the king was sitting in the winter house in the ninth month, and there was a
 When Jehudi had read three or four columns, the king cut it with the penknife, and cast it into the fire that was in the brazier, until all the scroll was consumed in the fire that was in the brazier. 
 The king and his servants who heard all these words were not afraid, and didn't tear their garments. 
 Moreover Elnathan and Delaiah and Gemariah had made intercession to the king that he would not burn the scroll; but he would not listen to them. 
-The king commanded Jerahmeel the king's son, and Seraiah the son of Azriel, and Shelemiah the son of Abdeel, to arrest Baruch the scribe and Jeremiah the prophet; but God hid them. 
+The king commanded Jerahmeel the king's son, and Seraiah the son of Azriel, and Shelemiah the son of Abdeel, to arrest Baruch the scribe and Jeremiah the spokesman; but God hid them. 
 Then God's word came to Jeremiah, after the king had burned the scroll, and the words which Baruch wrote at the mouth of Jeremiah, saying, 
 "Take again another scroll, and write in it all the former words that were in the first scroll, which Jehoiakim the king of Judah has burned. 
 Concerning Jehoiakim king of Judah you shall say, 'God says: "You have burned this scroll, saying, 'Why have you written therein, saying, "The king of Babylon will certainly come and destroy this land, and will cause to cease from there man and animal"?'" 

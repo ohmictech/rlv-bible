@@ -1,6 +1,6 @@
 ﻿He said to Moses, "Come up to God, you, and Aaron, Nadab, and Abihu, and seventy of the elders of Israel; and worship from a distance. 
 Moses alone shall come near to God, but they shall not come near. The people shall not go up with him." 
-Moses came and told the people all God's words, and all the ordinances; and all the people answered with one voice, and said, "All the words which God has spoken we will do." 
+Moses came and told the people all God's words, and all the ordinances; and everyone answered with one voice, and said, "All the words which God has spoken we will do." 
 Moses wrote all God's words, then rose up early in the morning and built an altar at the base of the mountain, with twelve pillars for the twelve tribes of Israel. 
 He sent young men of the children of Israel, who offered burnt offerings and sacrificed peace offerings of cattle to God. 
 Moses took half of the blood and put it in basins, and half of the blood he sprinkled on the altar. 

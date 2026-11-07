@@ -14,20 +14,20 @@ A messenger came to David, saying, "The hearts of the men of Israel are after Ab
 David said to all his servants who were with him at Jerusalem, "Arise! Let's flee, or else none of us will escape from Absalom. Hurry to depart, lest he overtake us quickly and bring down evil on us, and strike the city with the edge of the sword." 
 The king's servants said to the king, "Behold, your servants are ready to do whatever my lord the king chooses." 
 The king went out, and all his household after him. The king left ten women, who were concubines, to keep the house. 
-The king went out, and all the people after him; and they stayed in Beth Merhak. 
+The king went out, and everyone after him; and they stayed in Beth Merhak. 
 All his servants passed on beside him; and all the Cherethites, and all the Pelethites, and all the Gittites, six hundred men who came after him from Gath, passed on before the king. 
 Then the king said to Ittai the Gittite, "Why do you also go with us? Return, and stay with the king; for you are a foreigner and also an exile. Return to your own place. 
 Whereas you came but yesterday, should I today make you go up and down with us, since I go where I may? Return, and take back your brothers. Mercy and truth be with you." 
 Ittai answered the king and said, "As God lives, and as my lord the king lives, surely in what place my lord the king is, whether for death or for life, your servant will be there also." 
 David said to Ittai, "Go and pass over." Ittai the Gittite passed over, and all his men, and all the little ones who were with him. 
-All the country wept with a loud voice, and all the people passed over. The king also himself passed over the brook Kidron, and all the people passed over toward the way of the wilderness. 
-Behold, Zadok also came, and all the Levites with him, bearing the ark of the covenant of God; and they set down God's ark; and Abiathar went up until all the people finished passing out of the city. 
+All the country wept with a loud voice, and everyone passed over. The king also himself passed over the brook Kidron, and everyone passed over toward the way of the wilderness. 
+Behold, Zadok also came, and all the Levites with him, bearing the ark of the covenant of God; and they set down God's ark; and Abiathar went up until everyone finished passing out of the city. 
 The king said to Zadok, "Carry God's ark back into the city. If I find favor in God's eyes, he will bring me again, and show me both it and his habitation; 
 but if he says, 'I have no delight in you,' behold, here I am. Let him do to me as seems good to him." 
 The king said also to Zadok the priest, "Aren't you a seer? Return into the city in peace, and your two sons with you, Ahimaaz your son and Jonathan the son of Abiathar. 
 Behold, I will stay at the fords of the wilderness until word comes from you to inform me." 
 Zadok therefore and Abiathar carried God's ark to Jerusalem again; and they stayed there. 
-David went up by the ascent of the Mount of Olives, and wept as he went up; and he had his head covered and went barefoot. All the people who were with him each covered his head, and they went up, weeping as they went up. 
+David went up by the ascent of the Mount of Olives, and wept as he went up; and he had his head covered and went barefoot. Everyone who was with him each covered his head, and they went up, weeping as they went up. 
 Someone told David, saying, "Ahithophel is among the conspirators with Absalom." David said, "God, please turn the counsel of Ahithophel into foolishness." 
 When David had come to the top, where God was worshiped, behold, Hushai the Archite came to meet him with his tunic torn and earth on his head. 
 David said to him, "If you pass on with me, then you will be a burden to me; 

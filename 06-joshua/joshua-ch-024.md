@@ -1,5 +1,5 @@
 ﻿Joshua gathered all the tribes of Israel to Shechem, and called for the elders of Israel, for their heads, for their judges, and for their officers; and they presented themselves before God. 
-Joshua said to all the people, "The God of Israel, says, 'Your fathers lived of old time beyond the River, even Terah, the father of Abraham, and the father of Nahor. They served other gods. 
+Joshua said to everyone, "The God of Israel, says, 'Your fathers lived of old time beyond the River, even Terah, the father of Abraham, and the father of Nahor. They served other gods. 
 I took your father Abraham from beyond the River, and led him throughout all the land of Canaan, and multiplied his offspring, and gave him Isaac. 
 I gave to Isaac Jacob and Esau: and I gave to Esau Mount Seir, to possess it. Jacob and his children went down into Egypt. 
 "'I sent Moses and Aaron, and I plagued Egypt, according to that which I did among them: and afterward I brought you out. 
@@ -14,8 +14,8 @@ I gave you a land on which you had not labored, and cities which you didn't buil
 "Now therefore fear God, and serve him in sincerity and in truth. Put away the gods which your fathers served beyond the River, in Egypt; and serve God. 
 If it seems evil to you to serve God, choose today whom you will serve; whether the gods which your fathers served that were beyond the River, or the gods of the Amorites, in whose land you dwell; but as for me and my house, we will serve God." 
 The people answered, "Far be it from us that we should forsake God, to serve other gods; 
-for it is our God who brought us and our fathers up out of the land of Egypt, from the house of bondage, and who did those great signs in our sight, and preserved us in all the way in which we went, and among all the peoples through the middle of whom we passed. 
-God drove out from before us all the peoples, even the Amorites who lived in the land. Therefore we also will serve God; for he is our God." 
+for it is our God who brought us and our fathers up out of the land of Egypt, from the house of bondage, and who did those great signs in our sight, and preserved us in all the way in which we went, and among everyones through the middle of whom we passed. 
+God drove out from before us everyones, even the Amorites who lived in the land. Therefore we also will serve God; for he is our God." 
 Joshua said to the people, "You can't serve God, for he is a holy God. He is a jealous God. He will not forgive your disobedience nor your sins. 
 If you forsake God, and serve foreign gods, then he will turn and do you evil, and consume you, after he has done you good." 
 The people said to Joshua, "No, but we will serve God." 
@@ -24,7 +24,7 @@ Joshua said to the people, "You are witnesses against yourselves that you have c
 The people said to Joshua, "We will serve our God, and we will listen to his voice." 
 So Joshua made a covenant with the people that day, and made for them a statute and an ordinance in Shechem. 
 Joshua wrote these words in the book of the law of God; and he took a great stone, and set it up there under the oak that was by the sanctuary of God. 
-Joshua said to all the people, "Behold, this stone shall be a witness against us, for it has heard all God's words which he spoke to us. It shall be therefore a witness against you, lest you deny your God." 
+Joshua said to everyone, "Behold, this stone shall be a witness against us, for it has heard all God's words which he spoke to us. It shall be therefore a witness against you, lest you deny your God." 
 So Joshua sent the people away, each to his own inheritance. 
 After these things, Joshua the son of Nun, the servant of God, died, being one hundred ten years old. 
 They buried him in the border of his inheritance in Timnathserah, which is in the hill country of Ephraim, on the north of the mountain of Gaash. 

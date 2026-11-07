@@ -2,11 +2,11 @@
 You who hate the good, and love the evil; who tear off their skin, and their flesh from off their bones; 
 who also eat the flesh of my people, and peel their skin from off them, and break their bones, and chop them in pieces, as for the pot, and as meat within the cauldron. 
 Then they will cry to God, but he will not answer them. Yes, he will hide his face from them at that time, because they made their deeds evil." 
-God says concerning the prophets who lead my people astray, for those who feed their teeth, they proclaim, "Peace!" and whoever doesn't provide for their mouths, they prepare war against him: 
-"Therefore night is over you, with no vision, and it is dark to you, that you may not divine; and the sun will go down on the prophets, and the day will be black over them. 
+God says concerning the spokesmen who lead my people astray, for those who feed their teeth, they proclaim, "Peace!" and whoever doesn't provide for their mouths, they prepare war against him: 
+"Therefore night is over you, with no vision, and it is dark to you, that you may not divine; and the sun will go down on the spokesmen, and the day will be black over them. 
 The seers shall be disappointed, and the diviners confounded. Yes, they shall all cover their lips, for there is no answer from God." 
 But as for me, I am full of power by God's Spirit, and of judgment, and of might, to declare to Jacob his disobedience, and to Israel his sin. 
 Please listen to this, you heads of the house of Jacob, and rulers of the house of Israel, who abhor justice, and pervert all equity, 
 who build up Zion with blood, and Jerusalem with iniquity. 
-Her leaders judge for bribes, and her priests teach for a price, and her prophets tell fortunes for money; yet they lean on God, and say, "Isn't God among us? No disaster will come on us." 
+Her leaders judge for bribes, and her priests teach for a price, and her spokesmen tell fortunes for money; yet they lean on God, and say, "Isn't God among us? No disaster will come on us." 
 Therefore Zion for your sake will be plowed like a field, and Jerusalem will become heaps of rubble, and the mountain of the temple like the high places of a forest. 

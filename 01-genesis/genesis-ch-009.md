@@ -13,7 +13,7 @@ God said, "This is the token of the covenant which I make between me and you and
 I set my rainbow in the cloud, and it will be a sign of a covenant between me and the earth. 
 When I bring a cloud over the earth, that the rainbow will be seen in the cloud, 
 I will remember my covenant, which is between me and you and every living creature of all flesh, and the waters will no more become a flood to destroy all flesh. 
-The rainbow will be in the cloud. I will look at it, that I may remember the everlasting covenant between God and every living creature of all flesh that is on the earth." 
+The rainbow will be in the cloud. I will look at it, that I may remember the perpetual covenant between God and every living creature of all flesh that is on the earth." 
 God said to Noah, "This is the token of the covenant which I have established between me and all flesh that is on the earth." 
 The sons of Noah who went out from the ship were Shem, Ham, and Japheth. Ham is the father of Canaan. 
 These three were the sons of Noah, and from these the whole earth was populated. 

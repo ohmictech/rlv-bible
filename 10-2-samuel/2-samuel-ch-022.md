@@ -28,7 +28,7 @@ With the pure you will show yourself pure. With the crooked you will show yourse
 You will save the afflicted people, but your eyes are on the arrogant, that you may bring them down. 
 For you are my lamp, God. God will light up my darkness. 
 For by you, I run against a troop. By my God, I leap over a wall. 
-As for God, his way is perfect. God's word is tested. He is a shield to all those who take refuge in him. 
+As for God, his way is perfect. God's word is tested. He is a shield to everyone who takes refuge in him. 
 For who is God, besides God? Who is a rock, besides our God? 
 God is my strong fortress. He makes my way perfect. 
 He makes his feet like hinds' feet, and sets me on my high places. 

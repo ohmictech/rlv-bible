@@ -30,5 +30,5 @@ He who burns them shall wash his clothes, and bathe his flesh in water, and afte
 for on this day shall atonement be made for you, to cleanse you. You shall be clean from all your sins before God. 
 It is a Sabbath of solemn rest to you, and you shall afflict your souls. It is a statute for the eras. 
 The priest, who is anointed and who is consecrated to be priest in his father's place, shall make the atonement, and shall put on the linen garments, even the holy garments. 
-Then he shall make atonement for the Holy Sanctuary; and he shall make atonement for the Tent of Meeting and for the altar; and he shall make atonement for the priests and for all the people of the assembly. 
-"This shall be an everlasting statute for you, to make atonement for the children of Israel once in the year because of all their sins." It was done as God commanded Moses. 
+Then he shall make atonement for the Holy Sanctuary; and he shall make atonement for the Tent of Meeting and for the altar; and he shall make atonement for the priests and for everyone in the assembly. 
+"This shall be an perpetual statute for you, to make atonement for the children of Israel once in the year because of all their sins." It was done as God commanded Moses. 

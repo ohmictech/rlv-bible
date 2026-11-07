@@ -4,7 +4,7 @@ concerning his Son, who was born of David's offspring according to the flesh,
 who was declared to be the Son of God with power according to the Holy Spirit, by the rising from the dead, Jesus Christ our Lord, 
 through whom we received favor and a sending out, for the obedience that comes from trust among all the nations for his name's sake; 
 among whom you are also called to belong to Jesus Christ; 
-to all who are in Rome, truly loved by God, called to be set-apart ones: Favor and wholeness to you from God our Father and the Lord Jesus Christ. 
+to everyone who is in Rome, truly loved by God, called to be set-apart ones: Favor and wholeness to you from God our Father and the Lord Jesus Christ. 
 First, I thank my God through Jesus Christ for all of you, that your trust is announced throughout the whole world. 
 For God is my witness, whom I serve in my spirit in the Good News of his Son, how I never stop mentioning you in my prayers, 
 always asking that somehow, by the will of God, I may finally find my way to you. 

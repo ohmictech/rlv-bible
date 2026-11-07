@@ -14,7 +14,7 @@ and cinnamon, incense, perfume, frankincense, wine, olive oil, fine flour, wheat
 The ripe fruit your heart longed for is gone from you. Everything rich and splendid has vanished from you, and you will never find any of it again. 
 The merchants who sold these things, who grew rich from her, will stand far off because they are afraid of her anguish, weeping and mourning, 
 saying, 'How terrible, how terrible for the great city, dressed in fine linen, purple, and scarlet, covered with gold, precious stones, and pearls! 
-In a single hour such great wealth has been wiped out!' Every ship captain and everyone who sails anywhere, and the sailors, and all who make their living on the sea, stood far off 
+In a single hour such great wealth has been wiped out!' Every ship captain and everyone who sails anywhere, and the sailors, and everyone who makes their living on the sea, stood far off 
 and cried out as they watched the smoke of her burning, saying, 'What city was ever like this great city?' 
 They threw dust on their heads and cried out, weeping and mourning, saying, 'How terrible, how terrible for the great city, where everyone who had ships on the sea grew rich from her great wealth! In a single hour she has been wiped out!' 
 "Celebrate over her, you sky, and you set-apart ones, sent ones, and spokesmen, because God has passed your verdict on her." 

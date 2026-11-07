@@ -1,4 +1,4 @@
-﻿Now a certain woman of the wives of the sons of the prophets cried out to Elisha, saying, "Your servant my husband is dead. You know that your servant feared God. Now the creditor has come to take for himself my two children to be slaves." 
+﻿Now a certain woman of the wives of the sons of the spokesmen cried out to Elisha, saying, "Your servant my husband is dead. You know that your servant feared God. Now the creditor has come to take for himself my two children to be slaves." 
 Elisha said to her, "What should I do for you? Tell me, what do you have in the house?" She said, "Your servant has nothing in the house, except a pot of oil." 
 Then he said, "Go, borrow empty containers from all your neighbors. Don't borrow just a few containers. 
 Go in and shut the door on you and on your sons, and pour oil into all those containers; and set aside those which are full." 
@@ -35,7 +35,7 @@ He went up and lay on the child, and put his mouth on his mouth, and his eyes on
 Then he returned, and walked in the house once back and forth, then went up and stretched himself out on him. Then the child sneezed seven times, and the child opened his eyes. 
 He called Gehazi, and said, "Call this Shunammite!" So he called her. When she had come in to him, he said, "Take up your son." 
 Then she went in, fell at his feet, and bowed herself to the ground; then she picked up her son, and went out. 
-Elisha came again to Gilgal. There was a famine in the land; and the sons of the prophets were sitting before him; and he said to his servant, "Get the large pot, and boil stew for the sons of the prophets." 
+Elisha came again to Gilgal. There was a famine in the land; and the sons of the spokesmen were sitting before him; and he said to his servant, "Get the large pot, and boil stew for the sons of the spokesmen." 
 One went out into the field to gather herbs, and found a wild vine, and gathered a lap full of wild gourds from it, and came and cut them up into the pot of stew; for they didn't recognize them. 
 So they poured out for the men to eat. As they were eating some of the stew, they cried out and said, "Man of God, there is death in the pot!" And they could not eat it. 
 But he said, "Then bring meal." He threw it into the pot; and he said, "Serve it to the people, that they may eat." And there was nothing harmful in the pot. 

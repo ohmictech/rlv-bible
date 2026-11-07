@@ -15,7 +15,7 @@ The mouth of an adulteress is a deep pit. He who is under God's wrath will fall 
 Folly is bound up in the heart of a child; the rod of discipline drives it far from him. 
 Whoever oppresses the poor for his own increase and whoever gives to the rich, both come to poverty. 
 Turn your ear, and listen to the words of the wise. Apply your heart to my teaching. 
-For it is a pleasant thing if you keep them within you, if all of them are ready on your lips. 
+For it is a pleasant thing if you keep them within you, if everyone is ready on your lips. 
 I teach you today, even you, so that your trust may be in God. 
 Haven't I written to you thirty excellent things of counsel and knowledge, 
 To teach you truth, reliable words, to give sound answers to the ones who sent you? 

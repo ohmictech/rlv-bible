@@ -14,7 +14,7 @@ contributing to the needs of the set-apart ones, and given to hospitality.
 Bless those who hunt you down; bless, and don't curse. 
 Celebrate with those who celebrate. Weep with those who weep. 
 Be of the same mind one toward another. Don't set your mind on high things, but associate with the humble. Don't be wise in your own conceits. 
-Pay no one back with bad for bad. Respect what is honorable in the sight of all people. 
+Pay no one back with bad for bad. Respect what is honorable in the sight of everyone. 
 If it is possible, as much as it is up to you, keep wholeness with everyone. 
 Don't take payback into your own hands, truly loved, but leave room for God's heat. For it is written, "Payback belongs to me; I will repay, says the Lord." 
 Therefore "If your enemy is hungry, feed him. If he is thirsty, give him a drink; for in doing so, you will heap coals of fire on his head." 

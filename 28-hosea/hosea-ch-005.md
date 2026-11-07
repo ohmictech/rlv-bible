@@ -1,5 +1,5 @@
 ﻿"Listen to this, you priests! Listen, house of Israel, and give ear, house of the king! For the judgment is against you; for you have been a snare at Mizpah, and a net spread on Tabor. 
-The rebels are deep in slaughter, but I discipline all of them. 
+The rebels are deep in slaughter, but I discipline everyone. 
 I know Ephraim, and Israel is not hidden from me; for now, Ephraim, you have played the prostitute. Israel is defiled. 
 Their deeds won't allow them to turn to their God, for the spirit of prostitution is within them, and they don't know God. 
 The pride of Israel testifies to his face. Therefore Israel and Ephraim will stumble in their iniquity. Judah also will stumble with them. 

@@ -25,7 +25,7 @@ Hallohesh, Pilha, Shobek,
 Rehum, Hashabnah, Maaseiah, 
 Ahiah, Hanan, Anan, 
 Malluch, Harim, and Baanah. 
-The rest of the people, the priests, the Levites, the gatekeepers, the singers, the temple servants, and all those who had separated themselves from the peoples of the lands to the law of God, their wives, their sons, and their daughters, everyone who had knowledge and understanding 
+The rest of the people, the priests, the Levites, the gatekeepers, the singers, the temple servants, and everyone who had separated themselves from the peoples of the lands to the law of God, their wives, their sons, and their daughters, everyone who had knowledge and understanding 
 joined with their brothers, their nobles, and entered into a curse and into an oath, to walk in God's law, which was given by Moses the servant of God, and to observe and do all the commandments of God our Lord, and his ordinances and his statutes; 
 and that we would not give our daughters to the peoples of the land, nor take their daughters for our sons; 
 and if the peoples of the land bring wares or any grain on the Sabbath day to sell, that we would not buy from them on the Sabbath, or on a holy day; and that we would forego the seventh year crops and the exaction of every debt. 

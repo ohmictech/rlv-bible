@@ -4,7 +4,7 @@ Oh magnify God with me. Let's exalt his name together.
 I sought God, and he answered me, and delivered me from all my fears. 
 They looked to him, and were radiant. Their faces shall never be covered with shame. 
 This poor man cried, and God heard him, and saved him out of all his troubles. 
-God's angel encamps around those who fear him, and delivers them. 
+God's messenger encamps around those who fear him, and delivers them. 
 Oh taste and see that God is good. Blessed is the man who takes refuge in him. 
 Oh fear God, you his saints, for there is no lack with those who fear him. 
 The young lions do lack, and suffer hunger, but those who seek God shall not lack any good thing. 

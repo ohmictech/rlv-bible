@@ -21,7 +21,7 @@ Hamor and Shechem, his son, came to the gate of their city, and talked with the 
 "These men are peaceful with us. Therefore let them live in the land and trade in it. For behold, the land is large enough for them. Let's take their daughters to us for wives, and let's give them our daughters. 
 Only on this condition will the men consent to us to live with us, to become one people, if every male among us is circumcised, as they are circumcised. 
 Won't their livestock and their possessions and all their animals be ours? Only let's give our consent to them, and they will dwell with us." 
-All who went out of the gate of his city listened to Hamor, and to Shechem his son; and every male was circumcised, all who went out of the gate of his city. 
+Everyone who went out of the gate of his city listened to Hamor, and to Shechem his son; and every male was circumcised, everyone who went out of the gate of his city. 
 On the third day, when they were sore, two of Jacob's sons, Simeon and Levi, Dinah's brothers, each took his sword, came upon the unsuspecting city, and killed all the males. 
 They killed Hamor and Shechem, his son, with the edge of the sword, and took Dinah out of Shechem's house, and went away. 
 Jacob's sons came on the dead, and plundered the city, because they had defiled their sister. 

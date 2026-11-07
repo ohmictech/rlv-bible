@@ -23,7 +23,7 @@ As for the people who were left in the land of Judah whom Nebuchadnezzar king of
 Now when all the captains of the forces, they and their men, heard that the king of Babylon had made Gedaliah governor, they came to Gedaliah to Mizpah, even Ishmael the son of Nethaniah, Johanan the son of Kareah, Seraiah the son of Tanhumeth the Netophathite, and Jaazaniah the son of the Maacathite, they and their men. 
 Gedaliah swore to them and to their men, and said to them, "Don't be afraid because of the servants of the Chaldeans. Dwell in the land and serve the king of Babylon, and it will be well with you." 
 But in the seventh month, Ishmael the son of Nethaniah, the son of Elishama, of the royal offspring came, and ten men with him, and struck Gedaliah so that he died, with the Jews and the Chaldeans that were with him at Mizpah. 
-All the people, both small and great, and the captains of the forces arose and came to Egypt; for they were afraid of the Chaldeans. 
+Everyone, both small and great, and the captains of the forces arose and came to Egypt; for they were afraid of the Chaldeans. 
 In the thirty-seventh year of the captivity of Jehoiachin king of Judah, in the twelfth month, on the twenty-seventh day of the month, Evilmerodach king of Babylon, in the year that he began to reign, released Jehoiachin king of Judah out of prison, 
 and he spoke kindly to him and set his throne above the throne of the kings who were with him in Babylon, 
 and changed his prison garments. Jehoiachin ate bread before him continually all the days of his life; 

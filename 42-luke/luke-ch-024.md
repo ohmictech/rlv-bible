@@ -16,7 +16,7 @@ While they talked and questioned together, Jesus himself came near, and went wit
 But their eyes were kept from recognizing him. 
 He said to them, "What are you talking about as you walk, and are sad?" 
 One of them, named Cleopas, answered him, "Are you the only stranger in Jerusalem who doesn't know the things which have happened there in these days?" 
-He said to them, "What things?" They said to him, "The things concerning Jesus of Nazareth, who was a spokesman mighty in what he did and said before God and all the people; 
+He said to them, "What things?" They said to him, "The things concerning Jesus of Nazareth, who was a spokesman mighty in what he did and said before God and everyone; 
 and how the chief priests and our rulers handed him over to be sentenced to death, and crucified him. 
 But we were hoping that it was he who would set Israel free. Yes, and besides all this, it is now the third day since these things happened. 
 Also, certain women of our company amazed us, having arrived early at the tomb; 

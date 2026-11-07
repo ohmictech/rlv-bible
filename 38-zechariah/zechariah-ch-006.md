@@ -1,8 +1,8 @@
 ﻿Again I lifted up my eyes, and saw, and behold, four chariots came out from between two mountains; and the mountains were mountains of bronze. 
 In the first chariot were red horses. In the second chariot were black horses. 
-In the third chariot were white horses. In the fourth chariot were dappled horses, all of them powerful. 
-Then I asked the angel who talked with me, "What are these, my lord?" 
-The angel answered me, "These are the four winds of the sky, which go out from standing before the Lord of all the earth. 
+In the third chariot were white horses. In the fourth chariot were dappled horses, everyone powerful. 
+Then I asked the messenger who talked with me, "What are these, my lord?" 
+The messenger answered me, "These are the four winds of the sky, which go out from standing before the Lord of all the earth. 
 The one with the black horses goes out toward the north country; and the white went out after them; and the dappled went out toward the south country." 
 The strong went out, and sought to go that they might walk back and forth through the earth. He said, "Go around and through the earth!" So they walked back and forth through the earth. 
 Then he called to me, and spoke to me, saying, "Behold, those who go toward the north country have quieted my spirit in the north country." 

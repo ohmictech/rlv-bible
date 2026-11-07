@@ -27,5 +27,5 @@ saying, 'Go to this people and say, in hearing, you will hear, but will in no wa
 For this people's heart has grown callous. Their ears are dull of hearing. Their eyes they have closed. So that they can't see with their eyes, hear with their ears, understand with their heart, and turn again, and I would heal them.' 
 "Be it known therefore to you that the healing and wholeness of God is sent to the nations, and they will listen." 
 When he had said these words, the Jewish people departed, having a great dispute among themselves. 
-Paul stayed two whole years in his own rented house and received all who were coming to him, 
+Paul stayed two whole years in his own rented house and received everyone who was coming to him, 
 announcing God's reign and teaching the things concerning the Lord Jesus Christ with all boldness, without hindrance. 

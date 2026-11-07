@@ -2,8 +2,8 @@
 Take hold of shield and buckler, and stand up for my help. 
 Brandish the spear and block those who pursue me. Tell my soul, "I am your salvation." 
 Let those who seek after my soul be disappointed and brought to dishonor. Let those who plot my ruin be turned back and confounded. 
-Let them be as chaff before the wind, God's angel driving them on. 
-Let their way be dark and slippery, God's angel pursuing them. 
+Let them be as chaff before the wind, God's messenger driving them on. 
+Let their way be dark and slippery, God's messenger pursuing them. 
 For without cause they have hidden their net in a pit for me. Without cause they have dug a pit for my soul. 
 Let destruction come on him unawares. Let his net that he has hidden catch himself. Let him fall into that destruction. 
 My soul shall be joyful in God. It shall rejoice in his salvation. 

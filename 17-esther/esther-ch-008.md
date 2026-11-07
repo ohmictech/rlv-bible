@@ -10,7 +10,7 @@ Then the king's scribes were called at that time, in the third month, which is t
 He wrote in the name of King Ahasuerus, and sealed it with the king's ring, and sent letters by courier on horseback, riding on royal horses that were bred from swift steeds. 
 In those letters, the king granted the Jews who were in every city to gather themselves together and to defend their lives, to destroy, to kill, and to cause to perish all the power of the people and province that would assault them, their little ones and women, and to plunder their possessions, 
 on one day in all the provinces of King Ahasuerus, on the thirteenth day of the twelfth month, which is the month Adar. 
-A copy of the letter, that the decree should be given out in every province, was published to all the peoples, that the Jews should be ready for that day to avenge themselves on their enemies. 
+A copy of the letter, that the decree should be given out in every province, was published to everyones, that the Jews should be ready for that day to avenge themselves on their enemies. 
 So the couriers who rode on royal horses went out, hastened and pressed on by the king's commandment. The decree was given out in the citadel of Susa. 
 Mordecai went out of the presence of the king in royal clothing of blue and white, and with a great crown of gold, and with a robe of fine linen and purple; and the city of Susa shouted and was glad. 
 The Jews had light, gladness, joy, and honor. 

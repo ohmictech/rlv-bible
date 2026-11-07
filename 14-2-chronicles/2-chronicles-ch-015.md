@@ -5,7 +5,7 @@ But when in their distress they turned to the God of Israel, and sought him, he 
 In those times there was no peace to him who went out, nor to him who came in; but great troubles were on all the inhabitants of the lands. 
 They were broken in pieces, nation against nation, and city against city; for God troubled them with all adversity. 
 But you be strong! Don't let your hands be slack, for your work will be rewarded." 
-When Asa heard these words and the prophecy of Oded the prophet, he took courage, and put away the abominations out of all the land of Judah and Benjamin, and out of the cities which he had taken from the hill country of Ephraim; and he renewed God's altar that was before God's porch. 
+When Asa heard these words and the prophecy of Oded the spokesman, he took courage, and put away the abominations out of all the land of Judah and Benjamin, and out of the cities which he had taken from the hill country of Ephraim; and he renewed God's altar that was before God's porch. 
 He gathered all Judah and Benjamin, and those who lived with them out of Ephraim, Manasseh, and Simeon; for they came to him out of Israel in abundance when they saw that his God was with him. 
 So they gathered themselves together at Jerusalem in the third month, in the fifteenth year of Asa's reign. 
 They sacrificed to God in that day, from the plunder which they had brought, seven hundred head of cattle and seven thousand sheep. 

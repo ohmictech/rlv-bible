@@ -1,5 +1,5 @@
 ﻿A good name is better than fine perfume; and the day of death better than the day of one's birth. 
-It is better to go to the house of mourning than to go to the house of feasting; for that is the end of all men, and the living should take this to heart. 
+It is better to go to the house of mourning than to go to the house of feasting; for that is the end of everyone, and the living should take this to heart. 
 Sorrow is better than laughter; for by the sadness of the face the heart is made good. 
 The heart of the wise is in the house of mourning; but the heart of fools is in the house of mirth. 
 It is better to hear the rebuke of the wise than for a man to hear the song of fools. 

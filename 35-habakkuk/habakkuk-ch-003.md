@@ -1,4 +1,4 @@
-﻿A prayer of Habakkuk, the prophet, set to victorious music. 
+﻿A prayer of Habakkuk, the spokesman, set to victorious music. 
 God, I have heard of your fame. I stand in awe of your deeds, God. Renew your work in the middle of the years. In the middle of the years make it known. In wrath, you remember mercy. 
 God came from Teman, the Holy One from Mount Paran. Selah. His glory covered the heavens, and his praise filled the earth. 
 His splendor is like the sunrise. Rays shine from his hand, where his power is hidden. 

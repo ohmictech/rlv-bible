@@ -3,16 +3,16 @@
 They played the prostitute in Egypt. They played the prostitute in their youth. Their breasts were fondled there, and their youthful nipples were caressed there. 
 Their names were Oholah the elder, and Oholibah her sister. They became mine, and they bore sons and daughters. As for their names, Samaria is Oholah, and Jerusalem Oholibah. 
 "Oholah played the prostitute when she was mine. She doted on her lovers, on the Assyrians her neighbors, 
-who were clothed with blue, governors and rulers, all of them desirable young men, horsemen riding on horses. 
-She gave herself as a prostitute to them, all of them the choicest men of Assyria. She defiled herself with the idols of whomever she lusted after. 
+who were clothed with blue, governors and rulers, everyone desirable young men, horsemen riding on horses. 
+She gave herself as a prostitute to them, everyone the choicest men of Assyria. She defiled herself with the idols of whomever she lusted after. 
 She hasn't left her prostitution since leaving Egypt; for in her youth they lay with her. They caressed her youthful nipples and they poured out their prostitution on her. 
 "Therefore I delivered her into the hand of her lovers, into the hand of the Assyrians on whom she doted. 
 These uncovered her nakedness. They took her sons and her daughters, and they killed her with the sword. She became a byword among women; for they executed judgments on her. 
 "Her sister Oholibah saw this, yet she was more corrupt in her lusting than she, and in her prostitution which was more depraved than the prostitution of her sister. 
-She lusted after the Assyrians, governors and rulers, her neighbors, clothed most gorgeously, horsemen riding on horses, all of them desirable young men. 
+She lusted after the Assyrians, governors and rulers, her neighbors, clothed most gorgeously, horsemen riding on horses, everyone desirable young men. 
 I saw that she was defiled. They both went the same way. 
 "She increased her prostitution; for she saw men portrayed on the wall, the images of the Chaldeans portrayed with red, 
-dressed with belts on their waists, with flowing turbans on their heads, all of them looking like princes, after the likeness of the Babylonians in Chaldea, the land of their birth. 
+dressed with belts on their waists, with flowing turbans on their heads, everyone looking like princes, after the likeness of the Babylonians in Chaldea, the land of their birth. 
 As soon as she saw them, she lusted after them and sent messengers to them into Chaldea. 
 The Babylonians came to her into the bed of love, and they defiled her with their prostitution. She was polluted with them, and her soul was alienated from them. 
 So she uncovered her prostitution and uncovered her nakedness. Then my soul was alienated from her, just like my soul was alienated from her sister. 
@@ -20,7 +20,7 @@ Yet she multiplied her prostitution, remembering the days of her youth, in which
 She lusted after their lovers, whose flesh is as the flesh of donkeys, and whose issue is like the issue of horses. 
 Thus you called to memory the lewdness of your youth, in the caressing of your nipples by the Egyptians because of your youthful breasts. 
 "Therefore, Oholibah, God says: 'Behold, I will raise up your lovers against you, from whom your soul is alienated, and I will bring them against you on every side: 
-the Babylonians and all the Chaldeans, Pekod, Shoa, Koa, and all the Assyrians with them; all of them desirable young men, governors and rulers, princes and men of renown, all of them riding on horses. 
+the Babylonians and all the Chaldeans, Pekod, Shoa, Koa, and all the Assyrians with them; everyone desirable young men, governors and rulers, princes and men of renown, everyone riding on horses. 
 They will come against you with weapons, chariots, and wagons, and with a company of peoples. They will set themselves against you with buckler, shield, and helmet all around. I will commit the judgment to them, and they will judge you according to their judgments. 
 I will set my jealousy against you, and they will deal with you in fury. They will take away your nose and your ears. Your remnant will fall by the sword. They will take your sons and your daughters; and the rest of you will be devoured by the fire. 
 They will also strip you of your clothes and take away your beautiful jewels. 

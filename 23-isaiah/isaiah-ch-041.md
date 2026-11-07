@@ -8,7 +8,7 @@ So the carpenter encourages the goldsmith. He who smooths with the hammer encour
 "But you, Israel, my servant, Jacob whom I have chosen, the offspring of Abraham my friend, 
 you whom I have taken hold of from the ends of the earth, and called from its corners, and said to you, 'You are my servant. I have chosen you and have not cast you away.' 
 Don't you be afraid, for I am with you. Don't be dismayed, for I am your God. I will strengthen you. Yes, I will help you. Yes, I will uphold you with the right hand of my righteousness. 
-Behold, all those who are incensed against you will be disappointed and confounded. Those who strive with you will be like nothing, and shall perish. 
+Behold, everyone who is incensed against you will be disappointed and confounded. Those who strive with you will be like nothing, and shall perish. 
 You will seek them, and won't find them, even those who contend with you. Those who war against you will be as nothing, as a nonexistent thing. 
 For I, your God, will hold your right hand, saying to you, 'Don't be afraid. I will help you.' 
 Don't be afraid, you worm Jacob, and you men of Israel. I will help you," says God. "Your Redeemer is the Holy One of Israel. 

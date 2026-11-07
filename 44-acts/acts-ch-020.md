@@ -23,13 +23,13 @@ Now, look, I go bound by the Spirit to Jerusalem, not knowing what will happen t
 except that the Holy Spirit testifies in every city, saying that bonds and afflictions wait for me. 
 But these things don't count; nor do I hold my life dear to myself, so that I may finish my race with joy, and the work which I received from the Lord Jesus, to fully witness to the Good News of the favor of God. 
 "Now, look, I know that you all, among whom I went about announcing God's reign, will see my face no more. 
-Therefore I testify to you today that I am clean from the blood of all men, 
+Therefore I testify to you today that I am clean from the blood of everyone, 
 for I didn't shrink from declaring to you the whole counsel of God. 
 Take heed, therefore, to yourselves and to all the flock, in which the Holy Spirit has made you overseers, to shepherd the gathering of the Lord and God which he purchased with his own blood. 
 For I know that after my departure, vicious wolves will enter in among you, not sparing the flock. 
 Men will arise from among your own selves, speaking perverse things, to draw away the students after them. 
 Therefore watch, remembering that for a period of three years I didn't cease to admonish everyone night and day with tears. 
-Now, brothers, I entrust you to God and to the word of his favor, which is able to build up and to give you the inheritance among all those who are set apart. 
+Now, brothers, I entrust you to God and to the word of his favor, which is able to build up and to give you the inheritance among everyone who is set apart. 
 I coveted no one's silver, gold, or clothing. 
 You yourselves know that these hands served my necessities, and those who were with me. 
 In all things I gave you an example, that so laboring you ought to help the weak, and to remember the words of the Lord Jesus, that he himself said, 'There is more flourishing in giving than in receiving.' " 

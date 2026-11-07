@@ -8,9 +8,9 @@ He went and sent to Jehoshaphat the king of Judah, saying, "The king of Moab has
 Then he said, "Which way shall we go up?" Jehoram answered, "The way of the wilderness of Edom." 
 So the king of Israel went with the king of Judah and the king of Edom, and they marched for seven days along a circuitous route. There was no water for the army or for the animals that followed them. 
 The king of Israel said, "Alas! For God has called these three kings together to deliver them into the hand of Moab." 
-But Jehoshaphat said, "Isn't there a prophet of God here, that we may inquire of God by him?" One of the king of Israel's servants answered, "Elisha the son of Shaphat, who poured water on the hands of Elijah, is here." 
+But Jehoshaphat said, "Isn't there a spokesman of God here, that we may inquire of God by him?" One of the king of Israel's servants answered, "Elisha the son of Shaphat, who poured water on the hands of Elijah, is here." 
 Jehoshaphat said, "God's word is with him." So the king of Israel and Jehoshaphat and the king of Edom went down to him. 
-Elisha said to the king of Israel, "What have I to do with you? Go to the prophets of your father, and to the prophets of your mother." The king of Israel said to him, "No, for God has called these three kings together to deliver them into the hand of Moab." 
+Elisha said to the king of Israel, "What have I to do with you? Go to the spokesmen of your father, and to the spokesmen of your mother." The king of Israel said to him, "No, for God has called these three kings together to deliver them into the hand of Moab." 
 Elisha said, "As the God of Armies lives, before whom I stand, surely, were it not that I respect the presence of Jehoshaphat the king of Judah, I would not look toward you, nor see you. 
 But now bring me a musician." When the musician played, God's hand came on him. 
 He said, "God says, 'Make this valley full of trenches.' 
@@ -18,7 +18,7 @@ For God says, 'You will not see wind, neither will you see rain, yet that valley
 This is an easy thing in God's sight. He will also deliver the Moabites into your hand. 
 You shall strike every fortified city and every choice city, and shall fell every good tree, and stop all springs of water, and mar every good piece of land with stones.'" 
 In the morning, about the time of offering the sacrifice, behold, water came by the way of Edom, and the country was filled with water. 
-Now when all the Moabites heard that the kings had come up to fight against them, they gathered themselves together, all who were able to put on armor, young and old, and stood on the border. 
+Now when all the Moabites heard that the kings had come up to fight against them, they gathered themselves together, everyone who was able to put on armor, young and old, and stood on the border. 
 They rose up early in the morning, and the sun shone on the water, and the Moabites saw the water opposite them as red as blood. 
 They said, "This is blood. The kings are surely destroyed, and they have struck each other. Now therefore, Moab, to the plunder!" 
 When they came to the camp of Israel, the Israelites rose up and struck the Moabites, so that they fled before them; and they went forward into the land attacking the Moabites. 

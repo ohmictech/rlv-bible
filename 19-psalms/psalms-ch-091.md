@@ -8,7 +8,7 @@ A thousand may fall at your side, and ten thousand at your right hand; but it wi
 You will only look with your eyes, and see the recompense of the wicked. 
 Because you have made God your refuge, and the Most High your dwelling place, 
 no evil shall happen to you, neither shall any plague come near your dwelling. 
-For he will put his angels in charge of you, to guard you in all your ways. 
+For he will put his messengers in charge of you, to guard you in all your ways. 
 They will bear you up in their hands, so that you won't dash your foot against a stone. 
 You will tread on the lion and cobra. You will trample the young lion and the serpent underfoot. 
 "Because he has set his love on me, therefore I will deliver him. I will set him on high, because he has known my name. 

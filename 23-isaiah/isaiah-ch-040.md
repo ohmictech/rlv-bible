@@ -25,7 +25,7 @@ They are planted scarcely. They are sown scarcely. Their stock has scarcely take
 "To whom then will you liken me? Who is my equal?" says the Holy One. 
 Lift up your eyes on high, and see who has created these, who brings out their army by number. He calls them all by name. By the greatness of his might, and because he is strong in power, not one is lacking. 
 Why do you say, Jacob, and speak, Israel, "My way is hidden from God, and the justice due me is disregarded by my God"? 
-Haven't you known? Haven't you heard? The everlasting God, God, the Creator of the ends of the earth, doesn't faint. He isn't weary. His understanding is unsearchable. 
+Haven't you known? Haven't you heard? The perpetual God, God, the Creator of the ends of the earth, doesn't faint. He isn't weary. His understanding is unsearchable. 
 He gives power to the weak. He increases the strength of him who has no might. 
 Even the youths faint and get weary, and the young men utterly fall; 
 but those who wait for God will renew their strength. They will mount up with wings like eagles. They will run, and not be weary. They will walk, and not faint. 

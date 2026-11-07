@@ -20,7 +20,7 @@ Zebulun was a people that jeopardized their lives to the death; Naphtali also, o
 From the sky the stars fought. From their courses, they fought against Sisera. 
 The river Kishon swept them away, that ancient river, the river Kishon. My soul, march on with strength. 
 Then the horse hoofs stamped because of the prancing, the prancing of their strong ones. 
-'Curse Meroz,' said God's angel. 'Curse bitterly its inhabitants, because they didn't come to help God, to help God against the mighty.' 
+'Curse Meroz,' said God's messenger. 'Curse bitterly its inhabitants, because they didn't come to help God, to help God against the mighty.' 
 "Jael shall be blessed above women, the wife of Heber the Kenite; blessed shall she be above women in the tent. 
 He asked for water. She gave him milk. She brought him butter in a lordly dish. 
 She put her hand to the tent peg, and her right hand to the workmen's hammer. With the hammer she struck Sisera. She struck through his head. Yes, she pierced and struck through his temples. 

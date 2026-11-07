@@ -3,7 +3,7 @@ David said to Achish, "Therefore you will know what your servant can do." Achish
 Now Samuel was dead, and all Israel had mourned for him and buried him in Ramah, even in his own city. Saul had sent away those who had familiar spirits and the wizards out of the land. 
 The Philistines gathered themselves together, and came and encamped in Shunem; and Saul gathered all Israel together, and they encamped in Gilboa. 
 When Saul saw the army of the Philistines, he was afraid, and his heart trembled greatly. 
-When Saul inquired of God, God didn't answer him by dreams, by Urim, or by prophets. 
+When Saul inquired of God, God didn't answer him by dreams, by Urim, or by spokesmen. 
 Then Saul said to his servants, "Seek for me a woman who has a familiar spirit, that I may go to her and inquire of her." His servants said to him, "Behold, there is a woman who has a familiar spirit at Endor." 
 Saul disguised himself and put on other clothing, and went, he and two men with him, and they came to the woman by night. Then he said, "Please consult for me by the familiar spirit, and bring me up whomever I shall name to you." 
 The woman said to him, "Behold, you know what Saul has done, how he has cut off those who have familiar spirits and the wizards out of the land. Why then do you lay a snare for my life, to cause me to die?" 
@@ -12,7 +12,7 @@ Then the woman said, "Whom shall I bring up to you?" He said, "Bring Samuel up f
 When the woman saw Samuel, she cried with a loud voice; and the woman spoke to Saul, saying, "Why have you deceived me? For you are Saul!" 
 The king said to her, "Don't be afraid! What do you see?" The woman said to Saul, "I see a god coming up out of the earth." 
 He said to her, "What does he look like?" She said, "An old man comes up. He is covered with a robe." Saul perceived that it was Samuel, and he bowed with his face to the ground, and showed respect. 
-Samuel said to Saul, "Why have you disturbed me, to bring me up?" Saul answered, "I am very distressed; for the Philistines make war against me, and God has departed from me, and answers me no more, by prophets, or by dreams. Therefore I have called you, that you may make known to me what I shall do." 
+Samuel said to Saul, "Why have you disturbed me, to bring me up?" Saul answered, "I am very distressed; for the Philistines make war against me, and God has departed from me, and answers me no more, by spokesmen, or by dreams. Therefore I have called you, that you may make known to me what I shall do." 
 Samuel said, "Why then do you ask me, since God has departed from you and has become your adversary? 
 God has done to you as he spoke by me. God has torn the kingdom out of your hand and given it to your neighbor, even to David. 
 Because you didn't obey God's voice, and didn't execute his fierce wrath on Amalek, therefore God has done this thing to you today. 

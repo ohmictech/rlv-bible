@@ -35,13 +35,13 @@ Peter began to speak: "Truly I perceive that God doesn't show favoritism;
 but in every nation he who fears him and does what is right is acceptable to him. 
 The word which he sent to the children of Israel, announcing good news of wholeness by Jesus Christ, he is Lord of all, 
 you yourselves know what happened, which was proclaimed throughout all Judea, beginning from Galilee, after the immersion which John announced; 
-how God anointed Jesus of Nazareth with the Holy Spirit and with power, who went about doing good and healing all who were oppressed by the Slanderer, for God was with him. 
+how God anointed Jesus of Nazareth with the Holy Spirit and with power, who went about doing good and healing everyone who was oppressed by the Slanderer, for God was with him. 
 We are witnesses of everything he did both in the country of the Jewish people and in Jerusalem; whom they also killed, hanging him on a tree. 
 God raised him up the third day and gave him to be revealed, 
-not to all the people, but to witnesses who were chosen before by God, to us, who ate and drank with him after he rose from the dead. 
+not to everyone, but to witnesses who were chosen before by God, to us, who ate and drank with him after he rose from the dead. 
 He commanded us to announce to the people and to witness that this is he who is appointed by God as the Judge of the living and the dead. 
 All the spokesmen testify about him, that through his name everyone who trusts in him will receive release of mistakes." 
-While Peter was still speaking these words, the Holy Spirit fell on all those who heard the word. 
+While Peter was still speaking these words, the Holy Spirit fell on everyone who heard the word. 
 The Jewish believers who had come with Peter were amazed, because the gift of the Holy Spirit was also poured out on the nations. 
 For they heard them speaking in other languages and magnifying God. Then Peter answered, 
 "Can anyone forbid these people from being immersed with water? They have received the Holy Spirit just like us." 

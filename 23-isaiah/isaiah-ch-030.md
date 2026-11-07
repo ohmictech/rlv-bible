@@ -7,7 +7,7 @@ The burden of the animals of the South. Through the land of trouble and anguish,
 For Egypt helps in vain, and to no purpose; therefore I have called her Rahab who sits still. 
 Now go, write it before them on a tablet, and inscribe it in a book, that it may be for the time to come for all the eras. 
 For it is a rebellious people, lying children, children who will not hear God's law; 
-who tell the seers, "Don't see!" and the prophets, "Don't prophesy to us right things. Tell us pleasant things. Prophesy deceits. 
+who tell the seers, "Don't see!" and the spokesmen, "Don't prophesy to us right things. Tell us pleasant things. Prophesy deceits. 
 Get out of the way. Turn away from the path. Cause the Holy One of Israel to cease from before us." 
 Therefore the Holy One of Israel says, "Because you despise this word, and trust in oppression and perverseness, and rely on it, 
 therefore this iniquity shall be to you like a breach ready to fall, swelling out in a high wall, whose breaking comes suddenly in an instant. 
@@ -15,7 +15,7 @@ He will break it as a potter's vessel is broken, breaking it in pieces without s
 For thus said God, the Holy One of Israel, "You will be saved in returning and rest. Your strength will be in quietness and in confidence." You refused, 
 but you said, "No, for we will flee on horses;" therefore you will flee; and, "We will ride on the swift;" therefore those who pursue you will be swift. 
 One thousand will flee at the threat of one. At the threat of five, you will flee until you are left like a beacon on the top of a mountain, and like a banner on a hill. 
-Therefore God will wait, that he may be gracious to you; and therefore he will be exalted, that he may have mercy on you, for God is a God of justice. Blessed are all those who wait for him. 
+Therefore God will wait, that he may be gracious to you; and therefore he will be exalted, that he may have mercy on you, for God is a God of justice. Blessed are everyone who waits for him. 
 For the people will dwell in Zion at Jerusalem. You will weep no more. He will surely be gracious to you at the voice of your cry. When he hears you, he will answer you. 
 Though the Lord may give you the bread of adversity and the water of affliction, yet your teachers won't be hidden any more, but your eyes will see your teachers; 
 and when you turn to the right hand, and when you turn to the left, your ears will hear a voice behind you, saying, "This is the way. Walk in it." 

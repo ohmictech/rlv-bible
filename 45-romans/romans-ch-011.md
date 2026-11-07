@@ -29,7 +29,7 @@ Concerning the Good News, they are enemies for your sake. But concerning the cho
 For the gifts and the calling of God can never be backtracked. 
 For as you in time past were disobedient to God, but now have obtained mercy by their disobedience, 
 even so these also have now been disobedient, that by the mercy shown to you they may also obtain mercy. 
-For God has bound all to disobedience, that he might have mercy on all. 
+For God has locked everyone into disobedience, that he might have mercy on everyone. 
 Oh the depth of the riches both of the wisdom and the knowledge of God! How unsearchable are his verdicts, and his ways past tracing out! 
 "For who has known the mind of the Lord? Or who has been his counselor?" 
 "Or who has first given to him, and it will be repaid to him again?" 

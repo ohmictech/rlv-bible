@@ -16,7 +16,7 @@ That is why he is the mediator of a new binding arrangement: a death has taken p
 For where there is a will, the one who made it must be shown to have died. 
 A will only takes effect when someone has died; it never takes effect while the one who made it is still alive. 
 That is why even the first arrangement was not put into effect without blood. 
-When Moses had announced every command of the law to all the people, he took the blood of the calves and the goats, with water and scarlet wool and hyssop, and sprinkled the scroll itself and all the people, 
+When Moses had announced every command of the law to everyone, he took the blood of the calves and the goats, with water and scarlet wool and hyssop, and sprinkled the scroll itself and everyone, 
 saying, "This is the blood of the arrangement which God has commanded you to keep." 
 In the same way he sprinkled the tent and all the vessels used in worship with the blood. 
 Under the law, almost everything is made clean with blood, and without blood being poured out there is no release. 
@@ -25,4 +25,4 @@ For Christ did not enter a place set apart that was made by hands, which is only
 And he did not go in to offer himself over and over, the way the high priest enters the Holy Place year after year with blood that is not his own. 
 If he had, he would have had to suffer many times since the world was founded. But as it is, he has appeared once, at the end of the eras, to do away with the mistake by sacrificing himself. 
 Just as people are appointed to die once, and after that comes the verdict, 
-so Christ also, having been offered once to carry the mistakes of many, will appear a second time, not to deal with the mistake, but to rescue those who are waiting for him with eager expectation. 
+so Christ also, having been offered once to carry the mistakes of everyone, will appear a second time, not to deal with the mistake, but to rescue those who are waiting for him with eager expectation. 

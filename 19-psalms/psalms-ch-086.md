@@ -2,7 +2,7 @@
 Preserve my soul, for I am godly. You, my God, save your servant who trusts in you. 
 Be merciful to me, Lord, for I call to you all day long. 
 Bring joy to the soul of your servant, for to you, Lord, do I lift up my soul. 
-For you, Lord, are good, and ready to forgive, abundant in loving kindness to all those who call on you. 
+For you, Lord, are good, and ready to forgive, abundant in loving kindness to everyone who calls on you. 
 Hear, God, my prayer. Listen to the voice of my petitions. 
 In the day of my trouble I will call on you, for you will answer me. 
 There is no one like you among the gods, Lord, nor any deeds like your deeds. 

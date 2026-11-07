@@ -11,14 +11,14 @@ Now there was a certain student at Damascus named Ananias. The Lord said to him 
 The Lord said to him, "Get up and go to the street called Straight, and inquire in the house of Judah for one named Saul, a man of Tarsus. For look, he is praying, 
 and in a vision he has seen a man named Ananias coming in and laying his hands on him, that he might receive his sight." 
 But Ananias answered, "Lord, I have heard from many about this man, how much harm he did to your set-apart ones at Jerusalem. 
-Here he has authority from the chief priests to bind all who call on your name." 
+Here he has authority from the chief priests to bind everyone who calls on your name." 
 But the Lord said to him, "Go your way, for he is my chosen vessel to bear my name before the nations and kings, and the children of Israel. 
 For I will show him how many things he must suffer for my name's sake." 
 Ananias departed and entered into the house. Laying his hands on him, he said, "Brother Saul, the Lord, who appeared to you on the road by which you came, has sent me that you may receive your sight and be filled with the Holy Spirit." 
 Immediately something like scales fell from his eyes, and he received his sight. He got up and was immersed. 
 He took food and was strengthened. Saul stayed several days with the students who were at Damascus. 
 Immediately in the gathering places he proclaimed the Christ, that he is the Son of God. 
-All who heard him were amazed, and said, "Isn't this he who in Jerusalem made havoc of those who called on this name? And he had come here intending to bring them bound before the chief priests!" 
+Everyone who heard him were amazed, and said, "Isn't this he who in Jerusalem made havoc of those who called on this name? And he had come here intending to bring them bound before the chief priests!" 
 But Saul increased more in strength, and confounded the Jewish people living in Damascus, proving that this is the Christ. 
 When many days were fulfilled, the Jewish people conspired together to kill him, 
 but their plot became known to Saul. They watched the gates both day and night that they might kill him, 
@@ -32,7 +32,7 @@ So the gatherings throughout all Judea, Galilee, and Samaria had wholeness and w
 As Peter went throughout all those parts, he came down also to the set-apart ones who lived at Lydda. 
 There he found a certain man named Aeneas, who had been bedridden for eight years because he was paralyzed. 
 Peter said to him, "Aeneas, Jesus Christ heals you. Get up and make your bed!" Immediately he arose. 
-All who lived at Lydda and in Sharon saw him, and they turned to the Lord. 
+Everyone who lived at Lydda and in Sharon saw him, and they turned to the Lord. 
 Now there was at Joppa a certain student named Tabitha, which means Dorcas. This woman was full of good deeds and acts of mercy which she did. 
 In those days, she became sick and died. When they had washed her, they laid her in an upper room. 
 As Lydda was near Joppa, the students, hearing that Peter was there, sent two men to him, imploring him not to delay in coming to them. 

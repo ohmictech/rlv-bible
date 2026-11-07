@@ -1,7 +1,7 @@
 ﻿David consulted with the captains of thousands and of hundreds, even with every leader. 
 David said to all the assembly of Israel, "If it seems good to you, and if it is of our God, let's send word everywhere to our brothers who are left in all the land of Israel, with whom the priests and Levites are in their cities that have pasture lands, that they may gather themselves to us. 
 Also, let's bring the ark of our God back to us again, for we didn't seek it in the days of Saul." 
-All the assembly said that they would do so, for the thing was right in the eyes of all the people. 
+All the assembly said that they would do so, for the thing was right in the eyes of everyone. 
 So David assembled all Israel together, from the Shihor River of Egypt even to the entrance of Hamath, to bring God's ark from Kiriath Jearim. 
 David went up with all Israel to Baalah, that is, to Kiriath Jearim, which belonged to Judah, to bring up from there God's ark that sits above the cherubim, that is called by the Name. 
 They carried God's ark on a new cart, and brought it out of Abinadab's house; and Uzza and Ahio drove the cart. 

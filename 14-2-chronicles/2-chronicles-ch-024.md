@@ -7,7 +7,7 @@ The king called for Jehoiada the chief, and said to him, "Why haven't you requir
 For the sons of Athaliah, that wicked woman, had broken up God's house; and they also gave all the dedicated things of God's house to the Baals. 
 So the king commanded, and they made a chest, and set it outside at the gate of God's house. 
 They made a proclamation through Judah and Jerusalem, to bring in for God the tax that Moses the servant of God laid on Israel in the wilderness. 
-All the princes and all the people rejoiced, and brought in, and cast into the chest, until they had filled it. 
+All the princes and everyone rejoiced, and brought in, and cast into the chest, until they had filled it. 
 Whenever the chest was brought to the king's officers by the hand of the Levites, and when they saw that there was much money, the king's scribe and the chief priest's officer came and emptied the chest, and took it, and carried it to its place again. Thus they did day by day, and gathered money in abundance. 
 The king and Jehoiada gave it to those who did the work of the service of God's house. They hired masons and carpenters to restore God's house, and also those who worked iron and bronze to repair God's house. 
 So the workmen worked, and the work of repairing went forward in their hands. They set up God's house as it was designed, and strengthened it. 
@@ -16,7 +16,7 @@ But Jehoiada grew old and was full of days, and he died. He was one hundred thir
 They buried him in David's city among the kings, because he had done good in Israel, and toward God and his house. 
 Now after the death of Jehoiada, the princes of Judah came and bowed down to the king. Then the king listened to them. 
 They abandoned the house of the God of their fathers, and served the Asherah poles and the idols, so wrath came on Judah and Jerusalem for this their guiltiness. 
-Yet he sent prophets to them to bring them again to God, and they testified against them; but they would not listen. 
+Yet he sent spokesmen to them to bring them again to God, and they testified against them; but they would not listen. 
 The Spirit of God came on Zechariah the son of Jehoiada the priest; and he stood above the people, and said to them, "God says, 'Why do you disobey God's commandments, so that you can't prosper? Because you have forsaken God, he has also forsaken you.'" 
 They conspired against him, and stoned him with stones at the commandment of the king in the court of God's house. 
 Thus Joash the king didn't remember the kindness which Jehoiada his father had done to him, but killed his son. When he died, he said, "May God look at it, and repay it." 

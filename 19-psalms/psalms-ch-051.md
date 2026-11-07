@@ -1,4 +1,4 @@
-﻿For the Chief Musician. A Psalm by David, when Nathan the prophet came to him, after he had gone in to Bathsheba. Have mercy on me, God, according to your loving kindness. According to the multitude of your tender mercies, blot out my transgressions. 
+﻿For the Chief Musician. A Psalm by David, when Nathan the spokesman came to him, after he had gone in to Bathsheba. Have mercy on me, God, according to your loving kindness. According to the multitude of your tender mercies, blot out my transgressions. 
 Wash me thoroughly from my iniquity. Cleanse me from my sin. 
 For I know my transgressions. My sin is constantly before me. 
 Against you, and you only, I have sinned, and done that which is evil in your sight, so you may be proved right when you speak, and justified when you judge. 

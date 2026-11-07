@@ -1,5 +1,5 @@
 ﻿Now Moses was keeping the flock of Jethro, his father-in-law, the priest of Midian, and he led the flock to the back of the wilderness, and came to God's mountain, to Horeb. 
-God's angel appeared to him in a flame of fire out of the middle of a bush. He looked, and behold, the bush burned with fire, and the bush was not consumed. 
+God's messenger appeared to him in a flame of fire out of the middle of a bush. He looked, and behold, the bush burned with fire, and the bush was not consumed. 
 Moses said, "I will go now, and see this great sight, why the bush is not burned." 
 When God saw that he came over to see, God called to him out of the middle of the bush, and said, "Moses! Moses!" He said, "Here I am." 
 He said, "Don't come close. Take off your sandals, for the place you are standing on is holy ground." 

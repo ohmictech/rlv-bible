@@ -39,6 +39,6 @@ in addition to the Sabbaths of God, and in addition to your gifts, and in additi
 "'So on the fifteenth day of the seventh month, when you have gathered in the fruits of the land, you shall keep the feast of God seven days. On the first day shall be a solemn rest, and on the eighth day shall be a solemn rest. 
 You shall take on the first day the fruit of majestic trees, branches of palm trees, and boughs of thick trees, and willows of the brook; and you shall rejoice before your God seven days. 
 You shall keep it as a feast to God seven days in the year. It is a statute for the eras throughout your generations. You shall keep it in the seventh month. 
-You shall dwell in temporary shelters for seven days. All who are native-born in Israel shall dwell in temporary shelters, 
+You shall dwell in temporary shelters for seven days. Everyone who is native-born in Israel shall dwell in temporary shelters, 
 that your generations may know that I made the children of Israel to dwell in temporary shelters when I brought them out of the land of Egypt. I am your God.'" 
 So Moses declared to the children of Israel the appointed feasts of God. 

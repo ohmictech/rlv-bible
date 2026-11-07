@@ -25,7 +25,7 @@ The Human One goes even as it is written of him, but how terrible for that man w
 Judas, who was handing him over, answered, "It isn't me, is it, Rabbi?" He said to him, "You said it." 
 As they were eating, Jesus took bread, gave thanks for it, and broke it. He gave it to the students and said, "Take, eat. This is my body." 
 He took the cup, gave thanks, and gave to them, saying, "All of you drink it, 
-for this is my blood of the new binding arrangement, poured out for many for the release of their mistakes. 
+for this is my blood of the new binding arrangement, poured out for everyone for the release of their mistakes. 
 But I tell you that I will not drink from this fruit of the vine from now on, until that day when I drink it new with you in my Father's reign." 
 When they had sung a hymn, they went out to the Mount of Olives. 
 Then Jesus said to them, "All of you will be trapped because of me tonight, for it is written, 'I will strike the shepherd, and the sheep of the flock will be scattered.' 
@@ -49,7 +49,7 @@ Now the one handing him over had given them a sign, saying, "Whoever I kiss, he 
 Immediately he came to Jesus, and said, "Greetings, Rabbi!" and kissed him. 
 Jesus said to him, "Friend, do what you came for." Then they came and laid hands on Jesus and seized him. 
 Look, one of those who were with Jesus stretched out his hand and drew his sword, and struck the high priest's slave, and cut off his ear. 
-Then Jesus said to him, "Put your sword back into its place, for all those who take the sword will die by the sword. 
+Then Jesus said to him, "Put your sword back into its place, for everyone who takes the sword will die by the sword. 
 Or do you think that I couldn't ask my Father, and he would even now send me more than twelve legions of messengers? 
 How then would the Scriptures be fulfilled that it must be so?" 
 At that time Jesus said to the crowds, "Have you come out against me with swords and clubs as if I were a robber? I sat daily in the temple courts teaching, and you didn't arrest me. 

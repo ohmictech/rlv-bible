@@ -1,4 +1,4 @@
-﻿In those days Hezekiah was sick and near death. Isaiah the prophet, the son of Amoz, came to him, and said to him, "God says, 'Set your house in order, for you will die, and not live.'" 
+﻿In those days Hezekiah was sick and near death. Isaiah the spokesman, the son of Amoz, came to him, and said to him, "God says, 'Set your house in order, for you will die, and not live.'" 
 Then Hezekiah turned his face to the wall and prayed to God, 
 and said, "Remember now, God, I beg you, how I have walked before you in truth and with a perfect heart, and have done that which is good in your sight." Then Hezekiah wept bitterly. 
 Then God's word came to Isaiah, saying, 
@@ -13,7 +13,7 @@ My dwelling is removed, and is carried away from me like a shepherd's tent. I ha
 I waited patiently until morning. He breaks all my bones like a lion. From day even to night you will make an end of me. 
 I chattered like a swallow or a crane. I moaned like a dove. My eyes weaken looking upward. Lord, I am oppressed. Be my security." 
 What will I say? He has both spoken to me, and himself has done it. I will walk carefully all my years because of the anguish of my soul. 
-Lord, men live by these things; and my spirit finds life in all of them. You restore me, and cause me to live. 
+Lord, men live by these things; and my spirit finds life in everyone. You restore me, and cause me to live. 
 Behold, for peace I had great anguish, but you have in love for my soul delivered it from the pit of corruption; for you have cast all my sins behind your back. 
 For Hades can't praise you. Death can't celebrate you. Those who go down into the pit can't hope for your truth. 
 The living, the living, he shall praise you, as I do today. The father shall make known your truth to the children. 

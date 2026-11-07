@@ -6,7 +6,7 @@ You will know that I have sent this commandment to you, that my covenant may be 
 The law of truth was in his mouth, and unrighteousness was not found in his lips. He walked with me in peace and uprightness, and turned many away from iniquity. 
 For the priest's lips should keep knowledge, and they should seek the law at his mouth; for he is the messenger of the God of Armies. 
 But you have turned away from the path. You have caused many to stumble in the law. You have corrupted the covenant of Levi," says the God of Armies. 
-"Therefore I have also made you contemptible and wicked before all the people, according to the way you have not kept my ways, but have had respect for persons in the law. 
+"Therefore I have also made you contemptible and wicked before everyone, according to the way you have not kept my ways, but have had respect for persons in the law. 
 Don't we all have one father? Hasn't one God created us? Why do we deal treacherously every man against his brother, profaning the covenant of our fathers? 
 Judah has dealt treacherously, and an abomination is committed in Israel and in Jerusalem; for Judah has profaned the holiness of God which he loves, and has married the daughter of a foreign god. 
 God will cut off the man who does this, him who wakes and him who answers, out of the tents of Jacob and him who offers an offering to the God of Armies. 

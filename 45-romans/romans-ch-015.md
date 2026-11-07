@@ -8,7 +8,7 @@ Therefore accept one another, even as Christ also accepted you, to the weight of
 Now I say that Christ has become a servant of the circumcision for God's truth, to confirm the promises given to the ancestors, 
 and that the nations might give weight to God for his mercy. As it is written, "Therefore I will give praise to you among the nations and sing to your name." 
 Again he says, "Celebrate, you nations, with his people." 
-Again, "Praise the Lord, all you nations! Let all the peoples praise him." 
+Again, "Praise the Lord, all you nations! Let everyones praise him." 
 Again, Isaiah says, "There will be the root of Jesse, he who arises to rule over the nations; in him the nations will put their expectation." 
 Now may the God of expectation fill you with all joy and wholeness as you trust, so that you may overflow with expectation in the power of the Holy Spirit. 
 I myself am also persuaded about you, my brothers, that you yourselves are full of goodness, filled with all knowledge, able also to admonish others. 

@@ -2,7 +2,7 @@
 In the fifth year of King Rehoboam, Shishak king of Egypt came up against Jerusalem, because they had trespassed against God, 
 with twelve hundred chariots and sixty thousand horsemen. The people were without number who came with him out of Egypt: the Lubim, the Sukkiim, and the Ethiopians. 
 He took the fortified cities which belonged to Judah, and came to Jerusalem. 
-Now Shemaiah the prophet came to Rehoboam and to the princes of Judah, who were gathered together to Jerusalem because of Shishak, and said to them, "God says, 'You have forsaken me, therefore I have also left you in the hand of Shishak.'" 
+Now Shemaiah the spokesman came to Rehoboam and to the princes of Judah, who were gathered together to Jerusalem because of Shishak, and said to them, "God says, 'You have forsaken me, therefore I have also left you in the hand of Shishak.'" 
 Then the princes of Israel and the king humbled themselves; and they said, "God is righteous." 
 When God saw that they humbled themselves, God's word came to Shemaiah, saying, "They have humbled themselves. I will not destroy them, but I will grant them some deliverance, and my wrath won't be poured out on Jerusalem by the hand of Shishak. 
 Nevertheless they will be his servants, that they may know my service, and the service of the kingdoms of the countries." 
@@ -12,5 +12,5 @@ As often as the king entered into God's house, the guard came and bore them, the
 When he humbled himself, God's wrath turned from him, so as not to destroy him altogether. Moreover, there were good things found in Judah. 
 So King Rehoboam strengthened himself in Jerusalem and reigned; for Rehoboam was forty-one years old when he began to reign, and he reigned seventeen years in Jerusalem, the city which God had chosen out of all the tribes of Israel to put his name there. His mother's name was Naamah the Ammonitess. 
 He did that which was evil, because he didn't set his heart to seek God. 
-Now the acts of Rehoboam, first and last, aren't they written in the histories of Shemaiah the prophet and of Iddo the seer, in the genealogies? There were wars between Rehoboam and Jeroboam continually. 
+Now the acts of Rehoboam, first and last, aren't they written in the histories of Shemaiah the spokesman and of Iddo the seer, in the genealogies? There were wars between Rehoboam and Jeroboam continually. 
 Rehoboam slept with his fathers, and was buried in David's city; and Abijah his son reigned in his place. 

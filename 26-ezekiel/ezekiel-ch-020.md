@@ -37,7 +37,7 @@ Just as I entered into judgment with your fathers in the wilderness of the land 
 "I will cause you to pass under the rod, and I will bring you into the bond of the covenant. 
 I will purge out from among you the rebels and those who disobey me. I will bring them out of the land where they live, but they shall not enter into the land of Israel. Then you will know that I am God." 
 "'As for you, house of Israel, God says: "Go, everyone serve his idols, and hereafter also, if you will not listen to me; but you shall no more profane my holy name with your gifts and with your idols. 
-For in my holy mountain, in the mountain of the height of Israel," says God, "there all the house of Israel, all of them, shall serve me in the land. There I will accept them, and there I will require your offerings and the first fruits of your offerings, with all your holy things. 
+For in my holy mountain, in the mountain of the height of Israel," says God, "there all the house of Israel, everyone, shall serve me in the land. There I will accept them, and there I will require your offerings and the first fruits of your offerings, with all your holy things. 
 I will accept you as a pleasant aroma when I bring you out from the peoples and gather you out of the countries in which you have been scattered. I will be sanctified in you in the sight of the nations. 
 You will know that I am God when I bring you into the land of Israel, into the country which I swore to give to your fathers. 
 There you will remember your ways, and all your deeds in which you have polluted yourselves. Then you will loathe yourselves in your own sight for all your evils that you have committed. 

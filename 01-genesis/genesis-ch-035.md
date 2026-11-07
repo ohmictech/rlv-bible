@@ -1,9 +1,9 @@
 ﻿God said to Jacob, "Arise, go up to Bethel, and live there. Make there an altar to God, who appeared to you when you fled from the face of Esau your brother." 
-Then Jacob said to his household, and to all who were with him, "Put away the foreign gods that are among you, purify yourselves, and change your garments. 
+Then Jacob said to his household, and to everyone who was with him, "Put away the foreign gods that are among you, purify yourselves, and change your garments. 
 Let's arise, and go up to Bethel. I will make there an altar to God, who answered me in the day of my distress, and was with me on the way which I went." 
 They gave to Jacob all the foreign gods which were in their hands, and the rings which were in their ears; and Jacob hid them under the oak which was by Shechem. 
 They traveled, and a terror of God was on the cities that were around them, and they didn't pursue the sons of Jacob. 
-So Jacob came to Luz (that is, Bethel), which is in the land of Canaan, he and all the people who were with him. 
+So Jacob came to Luz (that is, Bethel), which is in the land of Canaan, he and everyone who was with him. 
 He built an altar there, and called the place El Beth El; because there God was revealed to him, when he fled from the face of his brother. 
 Deborah, Rebekah's nurse, died, and she was buried below Bethel under the oak; and its name was called Allon Bacuth. 
 God appeared to Jacob again, when he came from Paddan Aram, and blessed him. 

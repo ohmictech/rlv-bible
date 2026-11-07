@@ -4,7 +4,7 @@ He said to the Levites who taught all Israel, who were holy to God, "Put the hol
 Prepare yourselves after your fathers' houses by your divisions, according to the writing of David king of Israel, and according to the writing of Solomon his son. 
 Stand in the holy place according to the divisions of the fathers' houses of your brothers the children of the people, and let there be for each a portion of a fathers' house of the Levites. 
 Kill the Passover lamb, sanctify yourselves, and prepare for your brothers, to do according to God's word by Moses." 
-Josiah gave to the children of the people, of the flock, lambs and young goats, all of them for the Passover offerings, to all who were present, to the number of thirty thousand, and three thousand bulls. These were of the king's substance. 
+Josiah gave to the children of the people, of the flock, lambs and young goats, everyone for the Passover offerings, to everyone who was present, to the number of thirty thousand, and three thousand bulls. These were of the king's substance. 
 His princes gave a free will offering to the people, to the priests, and to the Levites. Hilkiah, Zechariah, and Jehiel, the rulers of God's house, gave to the priests for the Passover offerings two thousand six hundred small livestock, and three hundred head of cattle. 
 Conaniah also, and Shemaiah and Nethanel, his brothers, and Hashabiah, Jeiel, and Jozabad, the chiefs of the Levites, gave to the Levites for the Passover offerings five thousand small livestock and five hundred head of cattle. 
 So the service was prepared, and the priests stood in their place, and the Levites by their divisions, according to the king's commandment. 
@@ -15,7 +15,7 @@ Afterward they prepared for themselves and for the priests, because the priests 
 The singers, the sons of Asaph, were in their place, according to the commandment of David, Asaph, Heman, and Jeduthun the king's seer; and the gatekeepers were at every gate. They didn't need to depart from their service, because their brothers the Levites prepared for them. 
 So all the service of God was prepared the same day, to keep the Passover, and to offer burnt offerings on God's altar, according to the commandment of King Josiah. 
 The children of Israel who were present kept the Passover at that time, and the feast of unleavened bread seven days. 
-There was no Passover like that kept in Israel from the days of Samuel the prophet, nor did any of the kings of Israel keep such a Passover as Josiah kept, with the priests, the Levites, and all Judah and Israel who were present, and the inhabitants of Jerusalem. 
+There was no Passover like that kept in Israel from the days of Samuel the spokesman, nor did any of the kings of Israel keep such a Passover as Josiah kept, with the priests, the Levites, and all Judah and Israel who were present, and the inhabitants of Jerusalem. 
 This Passover was kept in the eighteenth year of the reign of Josiah. 
 After all this, when Josiah had prepared the temple, Neco king of Egypt went up to fight against Carchemish by the Euphrates, and Josiah went out against him. 
 But he sent ambassadors to him, saying, "What have I to do with you, you king of Judah? I come not against you today, but against the house with which I have war. God has commanded me to make haste. Beware that it is God who is with me, that he not destroy you." 

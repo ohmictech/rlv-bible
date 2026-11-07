@@ -12,7 +12,7 @@ Now, look, the hand of the Lord is on you, and you will be blind, not seeing the
 Then the proconsul, when he saw what was done, trusted, being astonished at the teaching of the Lord. 
 Now Paul and his company set sail from Paphos and came to Perga in Pamphylia. John departed from them and returned to Jerusalem. 
 But they, passing on from Perga, came to Antioch of Pisidia. They went into the gathering place on the Sabbath day and sat down. 
-After the reading of the law and the spokesmen, the rulers of the gathering place sent to them, saying, "Brothers, if you have any word of encouragement for the people, speak." 
+After the reading of the law and the prophets, the rulers of the gathering place sent to them, saying, "Brothers, if you have any word of encouragement for the people, speak." 
 Paul stood up, and gesturing with his hand said, "Men of Israel, and you who are in awe of God, listen. 
 The God of this people chose our fathers, and exalted the people when they stayed as aliens in the land of Egypt, and with an uplifted arm, he led them out of it. 
 For a period of about forty years he put up with them in the wilderness. 

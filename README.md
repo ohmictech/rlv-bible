@@ -2,37 +2,37 @@
 
 **The Bible: Real Life Version**
 
-The World English Bible re-rendered into plain modern English, so the words do the work instead of the associations.
+The World English Bible re-rendered into plain modern English.
 
-## This is a community project, and it is never finished
+## A community project, and an unfinished one
 
-The sweep runs a chapter at a time, and there are always chapters left. Fork it, argue a ruling, sweep one chapter, or just tell us a sentence reads badly. Disagreement is the main way this text improves: the way to change a word is to make the case from the text, and if the case is good, the ruling changes and the change is recorded with the reasoning. Nothing here is anyone's property, and no chapter is beyond a better sentence.
+The readability work runs a chapter at a time and there are a great many chapters still to go. Anyone who wants to help can fork the repository and take a chapter, argue against a ruling that seems wrong, or simply report a sentence that reads badly. The rulings are open to argument. The way to change one is to make the case from the text, and if the case holds up the ruling changes and the reasoning joins everything else in the constitution. No chapter is treated as settled beyond improvement.
 
 ## What this is
 
-Most English Bibles are not written in English. They are written in a dialect that only exists inside churches: it sounds like English, borrows English words, and means something different by them. You can read a chapter of it and come away thinking you have understood, when what you have done is recognize the shape of sentences you have heard before.
+A good deal of English Bible text does not read like English. It is written in a dialect that exists mainly inside churches, one that borrows ordinary words and means something else by them, so that it is possible to read a chapter and come away believing you have understood it when what you have really done is recognize the shape of sentences you have heard before.
 
-This version removes that. It is not a new translation out of Greek and Hebrew; the WEB already put the text in English carefully, and the work here is the layer above it, taking what is accurate and making it sayable.
+This version starts from the World English Bible, which already did the careful work of translating from the Greek and Hebrew. What happens here is the layer above that, where accurate English is rewritten so that it can be read aloud without the reader having to translate it again in their head.
 
-## The conviction
+## What it is trying to do
 
-The words should speak what they mean. Every rule below follows from that. If a word has to be explained after it is read, it has failed. If it arrives carrying a picture nobody in the room is seeing, it has failed. If the sentence has to be untangled before it can be understood, it has failed, however correct it is.
+The aim is easy enough to state. The words should mean what they say to a reader who has no church vocabulary, and no inherited picture should be doing work that the text itself does not do.
 
-**Christianese has to go.** *Repentance* has worn into a church word, *justification* into a doctrine, *sin* into rule breaking. Where a word still has force for someone who has never been inside a church it stays: *Christ*, *Lord*, *the gathering*, *spokesman*. *Heresy* and *baptism* do not survive that test.
+The first half of that concerns worn vocabulary. Where a word has collapsed into a religious label, the version looks for the everyday word that still carries the sense. Repentance now signals a church word more than a change of direction, so the text reads have a change of heart. Justification has become the name of a doctrine rather than the state of being put right. Some words have held up better than others, and where an old word still means something to someone outside the church it stays: Christ, Lord, the gathering, spokesman.
 
-**The mental images have to go.** A version can be plain and still be full of pictures nobody meant to draw. *Soul* summons a detachable ghost. *Glory* summons light. *Hell* summons a place and a temperature, and is not in the text at all: the Greek has Hades and Gehenna, two words with two histories, kept apart here instead of melted together.
+The second half concerns images. A version can use plain vocabulary and still leave the reader holding pictures the original never supplied. The English soul brings a detachable ghost along with it, glory brings light, and hell brings a place with a temperature. Hell in particular is not in the text at all; the Greek has two words behind it, Hades and Gehenna, with two different histories, and this version keeps them apart instead of merging them.
 
-**Small words get read up, big ones read down.** Tradition flattens what God does and inflates the machinery around it. *Blessed* becomes a mood when the Greek says flourishing. *Saved* becomes a status when the Greek says healed and made whole. *Eternal* becomes a philosophical property when the Greek says of the era. Meanwhile *glory* becomes a shining substance when the Hebrew is talking about weight, and *the kingdom of God* becomes a place when the Greek is talking about a reign, something a king is actually doing.
+Running through both is a question of direction. Words that tradition tends to flatten, mostly the ones describing what God does, usually need to be read upward: blessed is closer to flourishing, saved is closer to healed and made whole, and eternal in the New Testament is usually closer to of the era. Words that tradition inflates, mostly the ones describing the structure around God, usually need to be read down, since the Hebrew behind glory is often closer to weight, and the kingdom of God is a reign, something a king is doing, rather than a place.
 
 ## The stance
 
-This is written from a biblical universalist position: the scriptures teach restorative justice and the rescue of all, each in his own order (1 Cor 15:23). That is not smuggled into the text. No verse gets stretched toward the conclusion and none gets softened away from it. Where the text says everyone, it says everyone (1 Tim 2:6, "who gave himself as a ransom for everyone"). Where it says aionios, it says of the era, because that is the word. Where it describes judgment, the judgment stays as severe as it is. The version refuses later doctrinal furniture in first-century sentences, refuses to mistranslate a hard passage to protect endless punishment, and refuses the opposite error of turning every warning into a mist.
+The version is written from a biblical universalist position, holding that the scriptures teach restorative justice and the eventual rescue of all, each in his own order (1 Cor 15:23). The stance affects the translation mostly by ruling things out. It rules out reading a hard passage through the prior assumption of endless punishment and then adjusting the words to suit, and it equally rules out softening a warning until it has stopped saying anything. Where the text says everyone, as at 1 Tim 2:6, the version says everyone. Where it says aionios, it says of the era, because that is what the word means. Where it describes judgment, the judgment is left as severe as the text makes it.
 
 ## How the English reads
 
-The test is a person of about twenty in 2026 with no church background. Not "would they understand it," which is a much lower bar. Would they say it. So the prose is spoken rather than composed: contractions, short sentences where the Greek is short, *will* instead of *shall*, semicolons broken into full stops, the two-beat pairings kept because Hebrew and Greek both like them and they still work.
+Every sentence is tested against a reader of about twenty in 2026 who has no church background. The question is whether they would say it themselves, which is a good deal stricter than whether they could work out what it meant. In practice that produces a spoken register: contractions, short sentences where the Greek is short, will in place of shall except inside a quotation of the law, and semicolons broken into full stops where they were only holding two clauses together. Hebrew and Greek both like pairings of two short phrases, and those are kept wherever they still work in English.
 
-And no dashes, ever. Each one is resolved by asking what it was doing: apposition becomes a comma, two clauses become a full stop, a list becomes a colon. A dash is a shortcut, and a shortcut usually marks a place where the writer has not decided what the relation is.
+Dashes are removed entirely. Each one is dealt with by asking what it had been doing. Where it stood in place of an apposition it becomes a comma, where it joined two clauses it becomes a full stop, and where it introduced a list or a definition it becomes a colon.
 
 ## What it looks like
 
@@ -44,19 +44,21 @@ And no dashes, ever. Each one is resolved by asking what it was doing: appositio
 | 1 John 2:2 | he is the propitiation for our sins | He's the sacrifice that makes things right for our mistakes |
 | Matt 5:3 | Blessed are the poor in spirit | Flourishing are the ones who know they have nothing to offer God |
 
-Each of those is a ruling with a reason and a precedent behind it. None is a preference.
+Each of these is a recorded ruling with a reason and a precedent behind it, arrived at the same way as every other one.
 
 ## How it is made
 
-There is a constitution, and it is law: a routing table with one line per word in the original languages, the English it is rendered as, and one sentence on why. Nothing changes without a row, and nothing gets a row without an argument.
+The whole thing is governed by a constitution, which is a routing table with one line per word in the original languages, the English it is rendered as, and a sentence explaining why. A word cannot be changed without a row, and a row cannot be added without an argument.
 
-1. Read the chapter cold and note what is accurate versus what is unreadable. Two different problems.
-2. Check every rendering against the routing table, lemma by lemma, against the Greek and Hebrew themselves rather than a list of English words to swap.
-3. Rewrite for speech, keeping the repetitions that are doing work.
-4. Sweep for the debris mechanical passes leave: doubled articles, orphaned commas, a formula a contraction broke.
-5. Read it three more times, once out loud, then commit that chapter and only that chapter.
+The pattern for a chapter is roughly this:
 
-The hardest discipline is the one that sounds trivial: never assume a rule is applied because it is written down. A search is case-sensitive or it is not, a word boundary is there or it is not, and most of the real work of this project has gone into that gap.
+1. Read it cold in its present state, separating what is inaccurate from what is merely hard to read, since those are different problems with different fixes.
+2. Check each rendering against the routing table, working from the Greek and Hebrew words themselves rather than from a list of English words to swap, which is one of the ways a version drifts over time.
+3. Rewrite for speech, keeping the repetitions that are carrying weight and dropping the ones that are not.
+4. Sweep for the damage a mechanical pass tends to leave: doubled articles, commas left orphaned after a deletion, a fixed formula broken by a contraction.
+5. Read it through several more times, once aloud, then commit that chapter on its own.
+
+Much of the difficulty turns out to be mundane. A rule can be entirely correct and still not be applied, because a search was case-sensitive when it needed not to be, or a word boundary was missing, and a fair amount of the work has gone into finding that sort of gap.
 
 ## Format
 
@@ -68,11 +70,11 @@ One folder per book in canonical order, one file per chapter, verses only:
 66-revelation/revelation-ch-022.md
 ```
 
-Verse *V* sits on line *V*, so the verse number is the line number. Files are UTF-8 with BOM, LF only, newline at the end, one trailing space per line, straight quotes only, no em or en dashes.
+Verse *V* sits on line *V*, so the verse number is the line number. Files are UTF-8 with BOM, LF line endings only, a newline at the end of the file, one trailing space on each line, straight quotes only, and no em or en dashes.
 
-## Source, and license
+## Source and license
 
-Rendered from the **World English Bible**, public domain, itself a modern-English update of the American Standard Version. The result is released under **CC BY-SA 4.0**: copy it, print it, read it aloud, quote it, change it, sell what you make from it, as long as you credit the source and let your version carry the same freedoms. The WEB is public domain, so nothing forces that condition. It is chosen, because a version of the scriptures is exactly the thing that should not become somebody's property.
+The text is rendered from the World English Bible, which is in the public domain and is itself a modern English update of the American Standard Version. The result is released under CC BY-SA 4.0, which permits copying, printing, public reading, quotation, modification and commercial use, provided the source is credited and any derivative is released under the same terms. Public domain status does not oblige anyone to that condition; it is adopted here so that the text, and anything made from it, stays available.
 
 ## Status
 
@@ -80,8 +82,6 @@ Rendered from the **World English Bible**, public domain, itself a modern-Englis
 - Old Testament: 39 books, 929 chapters, 23,145 verses, readability pass in progress from Genesis forward.
 - Total: 1,189 chapters, 31,098 verses.
 
-## Why bother
+## Why the project exists
 
-Because the text is better than the way it is usually said, and a person who has never been inside a church should be able to open it and meet the thing itself. Because the habit of explaining a sentence to yourself while reading it is a habit that hides the sentence.
-
-If the words speak what they mean, there is nothing left to translate.
+The reason is fairly ordinary. The text is better than the way it is usually presented, and someone with no church background ought to be able to open it and meet it directly. There is a smaller reason alongside that one, which is that reading a sentence while quietly explaining it to yourself is a habit that makes the sentence hard to hear.

@@ -1,34 +1,34 @@
 ﻿The famine was severe in the land. 
-When they had eaten up the grain which they had brought out of Egypt, their father said to them, "Go again, buy us a little more food." 
-Judah spoke to him, saying, "The man solemnly warned us, saying, 'You won't see my face, unless your brother is with you.' 
-If you'll send our brother with us, we'll go down and buy you food; 
-but if you don't send him, we won't go down, for the man said to us, 'You won't see my face, unless your brother is with you.'" 
-Israel said, "Why did you treat me so badly, telling the man that you had another brother?" 
-They said, "The man asked directly concerning ourselves, and concerning our relatives, saying, 'Is your father still alive? Have you another brother?' We just answered his questions. Is there any way we could know that he'd say, 'Bring your brother down'?" 
-Judah said to Israel, his father, "Send the boy with me, and we'll get up and go, so that we can live, and not die, both we, and you, and also our little ones. 
-I'll be collateral for him. From my hand will you require him. If I don't bring him to you, and set him before you, then let me bear the blame for the eras; 
-for if we hadn't delayed, surely we'd have returned a second time by now." 
-Their father, Israel, said to them, "If it must be so, then do this: Take from the choice fruits of the land in your bags, and carry down a present for the man, a little balm, a little honey, spices and myrrh, nuts, and almonds; 
-and take double money in your hand, and take back the money that was returned in the mouth of your sacks. Perhaps it was an oversight. 
-Take your brother also, get up, and return to the man. 
-May God Almighty give you mercy before the man, that he can release to you your other brother and Benjamin. If I'm bereaved of my children, I'm bereaved." 
-The men took that present, and they took double money in their hand, and Benjamin; and got up, went down to Egypt, and stood before Joseph. 
-When Joseph saw Benjamin with them, he said to the steward of his house, "Bring the men into the house, and butcher an animal, and prepare; for the men will dine with me at noon." 
-The man did as Joseph commanded, and the man brought the men to Joseph's house. 
-The men were afraid, because they were brought to Joseph's house; and they said, "Because of the money that was returned in our sacks the first time, we're brought in; that he can seek occasion against us, attack us, and seize us as slaves, along with our donkeys." 
-They came near to the steward of Joseph's house, and they spoke to him at the door of the house, 
-and said, "Oh, my lord, we indeed came down the first time to buy food. 
-When we came to the lodging place, we opened our sacks, and look, each man's money was in the mouth of his sack, our money in full weight. We have brought it back in our hand. 
-We have brought down other money in our hand to buy food. We don't know who put our money in our sacks." 
-He said, "Peace be to you. Don't be afraid. Your God, and the God of your father, has given you treasure in your sacks. I received your money." He brought Simeon out to them. 
-The man brought the men into Joseph's house, and gave them water, and they washed their feet. He gave their donkeys fodder. 
-They prepared the present for Joseph's coming at noon, for they heard that they should eat bread there. 
-When Joseph came home, they brought him the present which was in their hand into the house, and bowed themselves down to the earth before him. 
-He asked them of their welfare, and said, "Is your father well, the old man of whom you spoke? Is he yet alive?" 
-They said, "Your servant, our father, is well. He's still alive." They bowed down humbly. 
-He lifted up his eyes, and saw Benjamin, his brother, his mother's son, and said, "Is this your youngest brother, of whom you spoke to me?" He said, "God be gracious to you, my son." 
-Joseph hurried, for his heart yearned over his brother; and he sought a place to weep. He entered into his room, and wept there. 
-He washed his face, and came out. He controlled himself, and said, "Serve the meal." 
-They served him by himself, and them by themselves, and the Egyptians who ate with him by themselves, because the Egyptians don't eat with the Hebrews, for that's an abomination to the Egyptians. 
-They sat before him, the firstborn according to his birthright, and the youngest according to his youth, and the men marveled with one another. 
-He sent portions to them from before him, but Benjamin's portion was five times as much as any of theirs. They drank, and were merry with him. 
+When they had eaten the grain they had brought from Egypt, their father said to them, "Go back and buy us a little more food." 
+Judah said to him, "The man warned us straight out, 'You won't see my face unless your brother is with you.' 
+If you send our brother with us, we'll go down and buy you food. 
+But if you don't send him, we won't go, because the man told us, 'You won't see my face unless your brother is with you.'" 
+Israel said, "Why did you do that to me? Why tell the man you had another brother?" 
+They said, "The man questioned us closely about ourselves and our family. 'Is your father still alive?' he asked. 'Do you have another brother?' We just answered his questions. How could we know he would say, 'Bring your brother down'?" 
+Judah said to his father Israel, "Send the boy with me and we'll go, so we can stay alive instead of dying, we and you and our little ones. 
+I'll answer for him. You can hold me responsible. If I don't bring him back and put him in front of you, then I'll carry the blame for the rest of my life. 
+If we hadn't waited so long, we would have been there and back twice by now." 
+Their father Israel said to them, "If that's how it has to be, then do this. Take some of the best things the land grows and carry them down as a gift for the man. A little balm, a little honey, some spices and myrrh, nuts and almonds. 
+Take twice the money with you, and take back the money that was put in the mouths of your sacks. Maybe it was a mistake. 
+Take your brother too. Get up and go back to the man. 
+May God Almighty make him go easy on you, so he gives you back your other brother and Benjamin. If I lose my children, I lose them." 
+So the men took the gift, and twice the money, and Benjamin. They got up and went down to Egypt and stood in front of Joseph. 
+When Joseph saw Benjamin with them, he said to the manager of his house, "Bring the men into the house, kill an animal, and get it ready. They're eating with me at noon." 
+The man did as Joseph said and brought them into Joseph's house. 
+The men were afraid when they were taken into Joseph's house. "It's because of the money that was put back in our sacks last time," they said. "He's looking for an excuse to come down on us, attack us, and take us as slaves along with our donkeys." 
+So they went up to the manager at the door of the house 
+and said, "Sir, we came down here once before to buy food. 
+When we got to the place where we stopped for the night, we opened our sacks and there was each man's money in the mouth of his sack, all of it. So we've brought it back with us. 
+We've brought more money with us to buy food. We don't know who put our money in our sacks." 
+He said, "Relax. Don't be afraid. Your God, the God of your father, must have put treasure in your sacks for you. I already had your money." Then he brought Simeon out to them. 
+The man took them into Joseph's house, gave them water to wash their feet, and fed their donkeys. 
+They got the gift ready for Joseph's arrival at noon, because they had heard they were eating there. 
+When Joseph came home, they brought him the gift they had carried in and bowed down to the ground in front of him. 
+He asked how they were doing and said, "Is your father well, the old man you told me about? Is he still alive?" 
+They said, "Your servant our father is well. He's still alive." And they bowed down low. 
+He looked up and saw Benjamin, his own brother, his mother's son. "Is this your youngest brother, the one you told me about?" he said. "God bless you, my son." 
+Joseph hurried out, because he was overcome with feeling for his brother and needed somewhere to cry. He went into his room and wept there. 
+Then he washed his face, came out, and got himself under control. "Serve the meal," he said. 
+They served him by himself, them by themselves, and the Egyptians eating with him by themselves, because Egyptians won't eat with Hebrews. To them it's disgusting. 
+They were seated in front of him, the firstborn by his birthright and the youngest by his youth, and the men looked at each other in amazement. 
+He sent them portions from his own table, and Benjamin's portion was five times anyone else's. They drank and were happy with him. 

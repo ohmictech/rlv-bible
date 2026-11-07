@@ -10,7 +10,7 @@ Behold, the former things have happened and I declare new things. I tell you abo
 Sing to God a new song, and his praise from the end of the earth, you who go down to the sea, and all that is therein, the islands and their inhabitants. 
 Let the wilderness and its cities raise their voices, with the villages that Kedar inhabits. Let the inhabitants of Sela sing. Let them shout from the top of the mountains! 
 Let them give glory to God, and declare his praise in the islands. 
-God will go out like a mighty man. He will stir up zeal like a man of war. He will raise a war cry. Yes, he will shout aloud. He will triumph over his enemies. 
+God will go out like a mighty man. He will stir up passion like a man of war. He will raise a war cry. Yes, he will shout aloud. He will triumph over his enemies. 
 "I have been silent a long time. I have been quiet and restrained myself. Now I will cry out like a travailing woman. I will both gasp and pant. 
 I will destroy mountains and hills, and dry up all their herbs. I will make the rivers islands, and will dry up the pools. 
 I will bring the blind by a way that they don't know. I will lead them in paths that they don't know. I will make darkness light before them, and crooked places straight. I will do these things, and I will not forsake them. 

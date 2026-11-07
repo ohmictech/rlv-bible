@@ -17,7 +17,7 @@ and you take of their daughters to your sons, and their daughters play the prost
 "You shall make no cast idols for yourselves. 
 "You shall keep the feast of unleavened bread. Seven days you shall eat unleavened bread, as I commanded you, at the time appointed in the month Abib; for in the month Abib you came out of Egypt. 
 "All that opens the womb is mine; and all your livestock that is male, the firstborn of cow and sheep. 
-You shall redeem the firstborn of a donkey with a lamb. If you will not redeem it, then you shall break its neck. You shall redeem all the firstborn of your sons. No one shall appear before me empty. 
+You shall buy back the firstborn of a donkey with a lamb. If you will not buy it back, then you shall break its neck. You shall buy back all the firstborn of your sons. No one shall appear before me empty. 
 "Six days you shall work, but on the seventh day you shall rest: in plowing time and in harvest you shall rest. 
 "You shall observe the feast of weeks with the first fruits of wheat harvest, and the feast of harvest at the year's end. 
 Three times in the year all your males shall appear before the God of Israel. 

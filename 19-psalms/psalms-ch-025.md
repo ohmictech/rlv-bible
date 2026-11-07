@@ -19,4 +19,4 @@ Consider my affliction and my travail. Forgive all my sins.
 Consider my enemies, for they are many. They hate me with cruel hatred. 
 Oh keep my soul, and deliver me. Let me not be disappointed, for I take refuge in you. 
 Let integrity and uprightness preserve me, for I wait for you. 
-God, redeem Israel out of all his troubles. 
+God, buy back Israel out of all his troubles. 

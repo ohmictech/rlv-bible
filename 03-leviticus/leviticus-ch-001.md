@@ -1,7 +1,7 @@
 ﻿God called to Moses, and spoke to him from the Tent of Meeting, saying, 
 "Speak to the children of Israel, and tell them, 'When anyone of you offers an offering to God, you shall offer your offering of the livestock, from the herd and from the flock. 
 "'If his offering is a burnt offering from the herd, he shall offer a male without defect. He shall offer it at the door of the Tent of Meeting, that he may be accepted before God. 
-He shall lay his hand on the head of the burnt offering, and it shall be accepted for him to make atonement for him. 
+He shall lay his hand on the head of the burnt offering, and it shall be accepted for him to make things right for him. 
 He shall kill the bull before God. Aaron's sons, the priests, shall present the blood and sprinkle the blood around on the altar that is at the door of the Tent of Meeting. 
 He shall skin the burnt offering and cut it into pieces. 
 The sons of Aaron the priest shall put fire on the altar, and lay wood in order on the fire; 

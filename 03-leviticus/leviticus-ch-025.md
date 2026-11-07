@@ -6,7 +6,7 @@ What grows of itself in your harvest you shall not reap, and you shall not gathe
 The Sabbath of the land shall be for food for you; for yourself, for your servant, for your maid, for your hired servant, and for your stranger, who lives as a foreigner with you. 
 For your livestock also, and for the animals that are in your land, shall all its increase be for food. 
 "'You shall count off seven Sabbaths of years, seven times seven years; and there shall be to you the days of seven Sabbaths of years, even forty-nine years. 
-Then you shall sound the loud trumpet on the tenth day of the seventh month. On the Day of Atonement you shall sound the trumpet throughout all your land. 
+Then you shall sound the loud trumpet on the tenth day of the seventh month. On the Day of Making Right you shall sound the trumpet throughout all your land. 
 You shall make the fiftieth year holy, and proclaim liberty throughout the land to all its inhabitants. It shall be a jubilee to you; and each of you shall return to his own property, and each of you shall return to his family. 
 That fiftieth year shall be a jubilee to you. In it you shall not sow, neither reap that which grows of itself, nor gather from the undressed vines. 
 For it is a jubilee; it shall be holy to you. You shall eat of its increase out of the field. 
@@ -21,16 +21,16 @@ If you said, "What shall we eat the seventh year? Behold, we shall not sow, nor 
 then I will command my blessing on you in the sixth year, and it shall bear fruit for the three years. 
 You shall sow the eighth year, and eat of the fruits from the old store until the ninth year. Until its fruits come in, you shall eat the old store. 
 "'The land shall not be sold in perpetuity, for the land is mine; for you are strangers and live as foreigners with me. 
-In all the land of your possession you shall grant a redemption for the land. 
-"'If your brother becomes poor, and sells some of his possessions, then his kinsman who is next to him shall come, and redeem that which his brother has sold. 
-If a man has no one to redeem it, and he becomes prosperous and finds sufficient means to redeem it, 
+In all the land of your possession you shall grant a buying back for the land. 
+"'If your brother becomes poor, and sells some of his possessions, then his kinsman who is next to him shall come, and buy back that which his brother has sold. 
+If a man has no one to buy it back, and he becomes prosperous and finds sufficient means to buy it back, 
 then let him reckon the years since its sale, and restore the surplus to the man to whom he sold it; and he shall return to his property. 
 But if he isn't able to get it back for himself, then what he has sold shall remain in the hand of him who has bought it until the Year of Jubilee. In the Jubilee it shall be released, and he shall return to his property. 
-"'If a man sells a dwelling house in a walled city, then he may redeem it within a whole year after it has been sold. For a full year he shall have the right of redemption. 
-If it isn't redeemed within the space of a full year, then the house that is in the walled city shall be made sure in perpetuity to him who bought it, throughout his generations. It shall not be released in the Jubilee. 
-But the houses of the villages which have no wall around them shall be accounted for with the fields of the country: they may be redeemed, and they shall be released in the Jubilee. 
-"'Nevertheless, in the cities of the Levites, the Levites may redeem the houses in the cities of their possession at any time. 
-The Levites may redeem the house that was sold, and the city of his possession, and it shall be released in the Jubilee; for the houses of the cities of the Levites are their possession among the children of Israel. 
+"'If a man sells a dwelling house in a walled city, then he may buy it back within a whole year after it has been sold. For a full year he shall have the right of buying back. 
+If it isn't bought back within the space of a full year, then the house that is in the walled city shall be made sure in perpetuity to him who bought it, throughout his generations. It shall not be released in the Jubilee. 
+But the houses of the villages which have no wall around them shall be accounted for with the fields of the country: they may be bought back, and they shall be released in the Jubilee. 
+"'Nevertheless, in the cities of the Levites, the Levites may buy back the houses in the cities of their possession at any time. 
+The Levites may buy back the house that was sold, and the city of his possession, and it shall be released in the Jubilee; for the houses of the cities of the Levites are their possession among the children of Israel. 
 But the field of the pasture lands of their cities may not be sold, for it is their perpetual possession. 
 "'If your brother has become poor, and his hand can't support himself among you, then you shall uphold him. He shall live with you like an alien and a temporary resident. 
 Take no interest from him or profit; but fear your God, that your brother may live among you. 
@@ -45,11 +45,11 @@ You shall not rule over him with harshness, but shall fear your God.
 Moreover, of the children of the aliens who live among you, of them you may buy, and of their families who are with you, which they have conceived in your land; and they will be your property. 
 You may make them an inheritance for your children after you, to hold for a possession. Of them you may take your slaves for the eras, but over your brothers the children of Israel you shall not rule, one over another, with harshness. 
 "'If an alien or temporary resident with you becomes rich, and your brother beside him has grown poor, and sells himself to the stranger or foreigner living among you, or to a member of the stranger's family, 
-after he is sold he may be redeemed. One of his brothers may redeem him; 
-or his uncle, or his uncle's son, may redeem him, or any who is a close relative to him of his family may redeem him; or if he has grown rich, he may redeem himself. 
+after he is sold he may be bought back. One of his brothers may buy him back; 
+or his uncle, or his uncle's son, may buy him back, or any who is a close relative to him of his family may buy him back; or if he has grown rich, he may buy him backself. 
 He shall reckon with him who bought him from the year that he sold himself to him to the Year of Jubilee. The price of his sale shall be according to the number of years; he shall be with him according to the time of a hired servant. 
-If there are yet many years, according to them he shall give back the price of his redemption out of the money that he was bought for. 
-If there remain but a few years to the year of jubilee, then he shall reckon with him; according to his years of service he shall give back the price of his redemption. 
+If there are yet many years, according to them he shall give back the price of his buying back out of the money that he was bought for. 
+If there remain but a few years to the year of jubilee, then he shall reckon with him; according to his years of service he shall give back the price of his buying back. 
 As a servant hired year by year shall he be with him. He shall not rule with harshness over him in your sight. 
-If he isn't redeemed by these means, then he shall be released in the Year of Jubilee: he and his children with him. 
+If he isn't bought back by these means, then he shall be released in the Year of Jubilee: he and his children with him. 
 For to me the children of Israel are servants; they are my servants whom I brought out of the land of Egypt. I am your God. 

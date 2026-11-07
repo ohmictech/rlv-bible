@@ -8,7 +8,7 @@ They shall no more sacrifice their sacrifices to the goat idols, after which the
 "You shall say to them, 'Any man there is of the house of Israel, or of the strangers who live as foreigners among them, who offers a burnt offering or sacrifice, 
 and doesn't bring it to the door of the Tent of Meeting to sacrifice it to God, that man shall be cut off from his people. 
 "'Any man of the house of Israel, or of the strangers who live as foreigners among them, who eats any kind of blood, I will set my face against that soul who eats blood, and will cut him off from among his people. 
-For the life of the flesh is in the blood. I have given it to you on the altar to make atonement for your souls; for it is the blood that makes atonement by reason of the life. 
+For the life of the flesh is in the blood. I have given it to you on the altar to make things right for your souls; for it is the blood that makes things right by reason of the life. 
 Therefore I have said to the children of Israel, "No person among you may eat blood, nor may any stranger who lives as a foreigner among you eat blood." 
 "'Whatever man there is of the children of Israel, or of the strangers who live as foreigners among them, who takes in hunting any animal or bird that may be eaten, he shall pour out its blood, and cover it with dust. 
 For as to the life of all flesh, its blood is with its life. Therefore I said to the children of Israel, "You shall not eat the blood of any kind of flesh; for the life of all flesh is its blood. Whoever eats it shall be cut off." 

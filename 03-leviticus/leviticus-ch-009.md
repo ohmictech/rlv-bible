@@ -4,7 +4,7 @@ You shall speak to the children of Israel, saying, 'Take a male goat for a sin o
 and a bull and a ram for peace offerings, to sacrifice before God; and a meal offering mixed with oil: for today God appears to you.'" 
 They brought what Moses commanded before the Tent of Meeting. All the congregation came near and stood before God. 
 Moses said, "This is the thing which God commanded that you should do; and God's glory shall appear to you." 
-Moses said to Aaron, "Draw near to the altar, and offer your sin offering, and your burnt offering, and make atonement for yourself, and for the people; and offer the offering of the people, and make atonement for them, as God commanded." 
+Moses said to Aaron, "Draw near to the altar, and offer your sin offering, and your burnt offering, and make things right for yourself, and for the people; and offer the offering of the people, and make things right for them, as God commanded." 
 So Aaron came near to the altar, and killed the calf of the sin offering, which was for himself. 
 The sons of Aaron presented the blood to him; and he dipped his finger in the blood, and put it on the horns of the altar, and poured out the blood at the base of the altar; 
 but the fat, and the kidneys, and the cover from the liver of the sin offering, he burned upon the altar, as God commanded Moses. 

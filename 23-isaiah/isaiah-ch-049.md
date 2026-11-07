@@ -4,7 +4,7 @@ He said to me, "You are my servant, Israel, in whom I will be glorified."
 But I said, "I have labored in vain. I have spent my strength in vain for nothing; yet surely the justice due to me is with God, and my reward with my God." 
 Now God, he who formed me from the womb to be his servant, says to bring Jacob again to him, and to gather Israel to him, for I am honorable in God's eyes, and my God has become my strength. 
 Indeed, he says, "It is too light a thing that you should be my servant to raise up the tribes of Jacob, and to restore the preserved of Israel. I will also give you as a light to the nations, that you may be my salvation to the end of the earth." 
-God, the Redeemer of Israel, and his Holy One, says to him whom man despises, to him whom the nation abhors, to a servant of rulers: "Kings shall see and rise up, princes, and they shall worship, because of God who is faithful, even the Holy One of Israel, who has chosen you." 
+God, the the one who buys back of Israel, and his Holy One, says to him whom man despises, to him whom the nation abhors, to a servant of rulers: "Kings shall see and rise up, princes, and they shall worship, because of God who is faithful, even the Holy One of Israel, who has chosen you." 
 God says, "I have answered you in an acceptable time. I have helped you in a day of salvation. I will preserve you and give you for a covenant of the people, to raise up the land, to make them inherit the desolate heritage, 
 saying to those who are bound, 'Come out!'; to those who are in darkness, 'Show yourselves!' "They shall feed along the paths, and their pasture shall be on all treeless heights. 
 They shall not hunger nor thirst; neither shall the heat nor sun strike them, for he who has mercy on them will lead them. He will guide them by springs of water. 
@@ -23,4 +23,4 @@ The God says, "Behold, I will lift up my hand to the nations, and lift up my ban
 Kings shall be your foster fathers, and their queens your nursing mothers. They will bow down to you with their faces to the earth, and lick the dust of your feet. Then you will know that I am God; and those who wait for me won't be disappointed." 
 Shall the plunder be taken from the mighty, or the lawful captives be delivered? 
 But God says, "Even the captives of the mighty shall be taken away, and the plunder retrieved from the fierce, for I will contend with him who contends with you and I will save your children. 
-I will feed those who oppress you with their own flesh; and they will be drunk on their own blood, as with sweet wine. Then all flesh shall know that I, God, am your Savior and your Redeemer, the Mighty One of Jacob." 
+I will feed those who oppress you with their own flesh; and they will be drunk on their own blood, as with sweet wine. Then all flesh shall know that I, God, am your Savior and the one who buys you back, the Mighty One of Jacob." 

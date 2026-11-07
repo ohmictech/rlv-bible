@@ -7,7 +7,7 @@ But from those who were thought to be important (whatever they were makes no dif
 but to the contrary, when they saw that I had been trusted with the Good News for those who are not circumcised, just as Peter was for those who are circumcised, 
 for the one who worked through Peter as a sent one to the circumcised also worked through me to the nations, 
 and when they saw the gift given to me, James and Cephas and John, those who were thought to be pillars, gave Barnabas and me the right hand of partnership, that we should go to the nations and they to the circumcision. 
-They only asked us to remember the poor, which very thing I was also zealous to do. 
+They only asked us to remember the poor, which very thing I was also eager to do. 
 But when Peter came to Antioch, I opposed him to his face, because he was clearly in the wrong. 
 For before some people came from James, he ate with the nations. But when they came, he drew back and separated himself, afraid of those of the circumcision. 
 And the rest of the Jewish people joined him in his pretending, so that even Barnabas was carried away by their pretending. 

@@ -12,12 +12,12 @@ The ephah and the bath shall be of one measure, that the bath may contain one te
 The shekel shall be twenty gerahs. Twenty shekels plus twenty-five shekels plus fifteen shekels shall be your mina. 
 "'"This is the offering that you shall offer: the sixth part of an ephah from a homer of wheat, and you shall give the sixth part of an ephah from a homer of barley, 
 and the set portion of oil, of the bath of oil, one tenth of a bath out of the cor, which is ten baths, even a homer (for ten baths are a homer), 
-and one lamb of the flock out of two hundred, from the well-watered pastures of Israel, for a meal offering, for a burnt offering, and for peace offerings, to make atonement for them," says God. 
+and one lamb of the flock out of two hundred, from the well-watered pastures of Israel, for a meal offering, for a burnt offering, and for peace offerings, to make things right for them," says God. 
 "Everyone in the land shall give to this offering for the prince in Israel. 
-It shall be the prince's part to give the burnt offerings, the meal offerings, and the drink offerings, in the feasts, and on the new moons, and on the Sabbaths, in all the appointed feasts of the house of Israel. He shall prepare the sin offering, the meal offering, the burnt offering, and the peace offerings, to make atonement for the house of Israel." 
+It shall be the prince's part to give the burnt offerings, the meal offerings, and the drink offerings, in the feasts, and on the new moons, and on the Sabbaths, in all the appointed feasts of the house of Israel. He shall prepare the sin offering, the meal offering, the burnt offering, and the peace offerings, to make things right for the house of Israel." 
 "'The God says: "In the first month, on the first day of the month, you shall take a young bull without defect, and you shall cleanse the sanctuary. 
 The priest shall take of the blood of the sin offering and put it on the door posts of the house, and on the four corners of the ledge of the altar, and on the posts of the gate of the inner court. 
-So you shall do on the seventh day of the month for everyone who errs, and for him who is simple. So you shall make atonement for the house. 
+So you shall do on the seventh day of the month for everyone who errs, and for him who is simple. So you shall make things right for the house. 
 "'"In the first month, on the fourteenth day of the month, you shall have the Passover, a feast of seven days; unleavened bread shall be eaten. 
 On that day the prince shall prepare for himself and for everyone in the land a bull for a sin offering. 
 The seven days of the feast he shall prepare a burnt offering to God, seven bulls and seven rams without defect daily the seven days; and a male goat daily for a sin offering. 

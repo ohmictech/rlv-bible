@@ -4,7 +4,7 @@ or has found that which was lost, and lied about it, and swearing to a lie, in a
 then it shall be, if he has sinned, and is guilty, he shall restore that which he took by robbery, or the thing which he has gotten by oppression, or the deposit which was committed to him, or the lost thing which he found, 
 or any thing about which he has sworn falsely: he shall restore it in full, and shall add a fifth part more to it. He shall return it to him to whom it belongs in the day of his being found guilty. 
 He shall bring his trespass offering to God: a ram without defect from the flock, according to your estimation, for a trespass offering, to the priest. 
-The priest shall make atonement for him before God, and he will be forgiven concerning whatever he does to become guilty." 
+The priest shall make things right for him before God, and he will be forgiven concerning whatever he does to become guilty." 
 God spoke to Moses, saying, 
 "Command Aaron and his sons, saying, 'This is the law of the burnt offering: the burnt offering shall be on the hearth on the altar all night until the morning; and the fire of the altar shall be kept burning on it. 
 The priest shall put on his linen garment, and he shall put on his linen trousers upon his body; and he shall remove the ashes from where the fire has consumed the burnt offering on the altar, and he shall put them beside the altar. 
@@ -27,4 +27,4 @@ The priest who offers it for sin shall eat it. It shall be eaten in a holy place
 Whatever shall touch its flesh shall be holy. When there is any of its blood sprinkled on a garment, you shall wash that on which it was sprinkled in a holy place. 
 But the earthen vessel in which it is boiled shall be broken; and if it is boiled in a bronze vessel, it shall be scoured, and rinsed in water. 
 Every male among the priests shall eat of it. It is most holy. 
-No sin offering, of which any of the blood is brought into the Tent of Meeting to make atonement in the Holy Place, shall be eaten. It shall be burned with fire. 
+No sin offering, of which any of the blood is brought into the Tent of Meeting to make things right in the Holy Place, shall be eaten. It shall be burned with fire. 

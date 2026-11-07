@@ -13,7 +13,7 @@ For that nation and kingdom that will not serve you shall perish; yes, those nat
 "The glory of Lebanon shall come to you, the cypress tree, the pine, and the box tree together, to beautify the place of my sanctuary; and I will make the place of my feet glorious. 
 The sons of those who afflicted you will come bowing to you; and everyone who despised you will bow themselves down at the soles of your feet. They will call you God's City, the Zion of the Holy One of Israel. 
 "Whereas you have been forsaken and hated, so that no one passed through you, I will make you an eternal excellency, a joy of many generations. 
-You will also drink the milk of the nations, and will nurse from royal breasts. Then you will know that I, God, am your Savior, your Redeemer, the Mighty One of Jacob. 
+You will also drink the milk of the nations, and will nurse from royal breasts. Then you will know that I, God, am your Savior, the one who buys you back, the Mighty One of Jacob. 
 For bronze I will bring gold; for iron I will bring silver; for wood, bronze, and for stones, iron. I will also make peace your governor, and righteousness your ruler. 
 Violence shall no more be heard in your land, nor desolation or destruction within your borders; but you will call your walls Salvation, and your gates Praise. 
 The sun will be no more your light by day, nor will the brightness of the moon give light to you, but God will be your perpetual light, and your God will be your glory. 

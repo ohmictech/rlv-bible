@@ -55,7 +55,7 @@ Waters flowed over my head. I said, "I am cut off."
 I called on your name, God, out of the lowest dungeon. 
 You heard my voice: "Don't hide your ear from my sighing, and my cry." 
 You came near in the day that I called on you. You said, "Don't be afraid." 
-Lord, you have pleaded the causes of my soul. You have redeemed my life. 
+Lord, you have pleaded the causes of my soul. You have bought back my life. 
 God, you have seen my wrong. Judge my cause. 
 You have seen all their vengeance and all their plans against me. 
 You have heard their reproach, God, and all their plans against me, 

@@ -7,7 +7,7 @@ Indeed all the nations may walk in the name of their gods, but we will walk in t
 and I will make that which was lame a remnant, and that which was cast far off a strong nation: and God will reign over them on Mount Zion from then on, even for the eras." 
 You, tower of the flock, the hill of the daughter of Zion, to you it will come. Yes, the former dominion will come, the kingdom of the daughter of Jerusalem. 
 Now why do you cry out aloud? Is there no king in you? Has your counselor perished, that pains have taken hold of you as of a woman in travail? 
-Be in pain, and labor to give birth, daughter of Zion, like a woman in travail; for now you will go out of the city, and will dwell in the field, and will come even to Babylon. There you will be rescued. There God will redeem you from the hand of your enemies. 
+Be in pain, and labor to give birth, daughter of Zion, like a woman in travail; for now you will go out of the city, and will dwell in the field, and will come even to Babylon. There you will be rescued. There God will buy you back from the hand of your enemies. 
 Now many nations have assembled against you, that say, "Let her be defiled, and let our eye gloat over Zion." 
 But they don't know the thoughts of God, neither do they understand his counsel; for he has gathered them like the sheaves to the threshing floor. 
 Arise and thresh, daughter of Zion, for I will make your horn iron, and I will make your hoofs bronze. You will beat in pieces many peoples. I will devote their gain to God, and their substance to the Lord of the whole earth. 

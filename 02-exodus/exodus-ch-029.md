@@ -30,11 +30,11 @@ It shall be for Aaron and his sons as their portion for the eras from the childr
 Seven days shall the son who is priest in his place put them on, when he comes into the Tent of Meeting to minister in the holy place. 
 "You shall take the ram of consecration and boil its meat in a holy place. 
 Aaron and his sons shall eat the meat of the ram, and the bread that is in the basket, at the door of the Tent of Meeting. 
-They shall eat those things with which atonement was made, to consecrate and sanctify them; but a stranger shall not eat of it, because they are holy. 
+They shall eat those things with which things were made right, to consecrate and sanctify them; but a stranger shall not eat of it, because they are holy. 
 If anything of the meat of the consecration, or of the bread, remains to the morning, then you shall burn the remainder with fire. It shall not be eaten, because it is holy. 
 "You shall do so to Aaron and to his sons, according to all that I have commanded you. You shall consecrate them seven days. 
-Every day you shall offer the bull of sin offering for atonement. You shall cleanse the altar when you make atonement for it. You shall anoint it, to sanctify it. 
-Seven days you shall make atonement for the altar, and sanctify it; and the altar shall be most holy. Whatever touches the altar shall be holy. 
+Every day you shall offer the bull of sin offering for making things right. You shall cleanse the altar when you make things right for it. You shall anoint it, to sanctify it. 
+Seven days you shall make things right for the altar, and sanctify it; and the altar shall be most holy. Whatever touches the altar shall be holy. 
 "Now this is that which you shall offer on the altar: two lambs a year old day by day continually. 
 The one lamb you shall offer in the morning; and the other lamb you shall offer at evening; 
 and with the one lamb a tenth part of an ephah of fine flour mixed with the fourth part of a hin of beaten oil, and the fourth part of a hin of wine for a drink offering. 

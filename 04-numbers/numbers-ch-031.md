@@ -47,7 +47,7 @@ and sixteen thousand persons),
 even of the children of Israel's half, Moses took one drawn out of every fifty, both of man and of animal, and gave them to the Levites, who performed the duty of God's tabernacle, as God commanded Moses. 
 The officers who were over the thousands of the army, the captains of thousands, and the captains of hundreds, came near to Moses. 
 They said to Moses, "Your servants have taken the sum of the men of war who are under our command, and there lacks not one man of us. 
-We have brought God's offering, what every man found: gold ornaments, armlets, bracelets, signet rings, earrings, and necklaces, to make atonement for our souls before God." 
+We have brought God's offering, what every man found: gold ornaments, armlets, bracelets, signet rings, earrings, and necklaces, to make things right for our souls before God." 
 Moses and Eleazar the priest took their gold, even all worked jewels. 
 All the gold of the wave offering that they offered up to God, of the captains of thousands, and of the captains of hundreds, was sixteen thousand seven hundred fifty shekels. 
 The men of war had taken booty, every man for himself. 

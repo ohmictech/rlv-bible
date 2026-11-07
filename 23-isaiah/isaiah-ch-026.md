@@ -8,7 +8,7 @@ The way of the just is uprightness. You who are upright make the path of the rig
 Yes, in the way of your judgments, God, we have waited for you. Your name and your renown are the desire of our soul. 
 With my soul I have desired you in the night. Yes, with my spirit within me I will seek you earnestly; for when your judgments are on the earth, the inhabitants of the world learn righteousness. 
 Let favor be shown to the wicked, yet he will not learn righteousness. In the land of uprightness he will deal wrongfully, and will not see God's majesty. 
-God, your hand is lifted up, yet they don't see; but they will see your zeal for the people and be disappointed. Yes, fire will consume your adversaries. 
+God, your hand is lifted up, yet they don't see; but they will see your passion for the people and be disappointed. Yes, fire will consume your adversaries. 
 God, you will ordain peace for us, for you have also done all our work for us. 
 God our God, other lords besides you have had dominion over us, but we will only acknowledge your name. 
 The dead shall not live. The departed spirits shall not rise. Therefore you have visited and destroyed them, and caused all memory of them to perish. 

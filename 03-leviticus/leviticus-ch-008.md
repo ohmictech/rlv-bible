@@ -12,7 +12,7 @@ He sprinkled it on the altar seven times, and anointed the altar and all its ves
 He poured some of the anointing oil on Aaron's head, and anointed him, to sanctify him. 
 Moses brought Aaron's sons, and clothed them with tunics, and tied sashes on them, and put headbands on them, as God commanded Moses. 
 He brought the bull of the sin offering, and Aaron and his sons laid their hands on the head of the bull of the sin offering. 
-He killed it; and Moses took the blood, and put it around on the horns of the altar with his finger, and purified the altar, and poured out the blood at the base of the altar, and sanctified it, to make atonement for it. 
+He killed it; and Moses took the blood, and put it around on the horns of the altar with his finger, and purified the altar, and poured out the blood at the base of the altar, and sanctified it, to make things right for it. 
 He took all the fat that was on the innards, and the cover of the liver, and the two kidneys, and their fat; and Moses burned it on the altar. 
 But the bull, and its skin, and its meat, and its dung, he burned with fire outside the camp, as God commanded Moses. 
 He presented the ram of the burnt offering. Aaron and his sons laid their hands on the head of the ram. 
@@ -31,6 +31,6 @@ Moses took some of the anointing oil, and some of the blood which was on the alt
 Moses said to Aaron and to his sons, "Boil the meat at the door of the Tent of Meeting, and there eat it and the bread that is in the basket of consecration, as I commanded, saying, 'Aaron and his sons shall eat it.' 
 What remains of the meat and of the bread you shall burn with fire. 
 You shall not go out from the door of the Tent of Meeting for seven days, until the days of your consecration are fulfilled: for he shall consecrate you seven days. 
-What has been done today, so God has commanded to do, to make atonement for you. 
+What has been done today, so God has commanded to do, to make things right for you. 
 You shall stay at the door of the Tent of Meeting day and night seven days, and keep God's command, that you don't die: for so I am commanded." 
 Aaron and his sons did all the things which God commanded by Moses. 

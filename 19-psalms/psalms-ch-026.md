@@ -8,5 +8,5 @@ that I may make the voice of thanksgiving to be heard and tell of all your wondr
 God, I love the habitation of your house, the place where your glory dwells. 
 Don't gather my soul with sinners, nor my life with bloodthirsty men 
 in whose hands is wickedness; their right hand is full of bribes. 
-But as for me, I will walk in my integrity. Redeem me, and be merciful to me. 
+But as for me, I will walk in my integrity. Buy me back, and be merciful to me. 
 My foot stands in an even place. In the congregations I will bless God. 

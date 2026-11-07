@@ -17,19 +17,19 @@ The anointed priest shall bring some of the blood of the bull to the Tent of Mee
 The priest shall dip his finger in the blood and sprinkle it seven times before God, before the veil. 
 He shall put some of the blood on the horns of the altar which is before God, that is in the Tent of Meeting; and the rest of the blood he shall pour out at the base of the altar of burnt offering, which is at the door of the Tent of Meeting. 
 All its fat he shall take from it, and burn it on the altar. 
-He shall do this with the bull; as he did with the bull of the sin offering, so he shall do with this; and the priest shall make atonement for them, and they shall be forgiven. 
+He shall do this with the bull; as he did with the bull of the sin offering, so he shall do with this; and the priest shall make things right for them, and they shall be forgiven. 
 He shall carry the bull outside the camp, and burn it as he burned the first bull. It is the sin offering for the assembly. 
 "'When a ruler sins, and unwittingly does any one of all the things which his God has commanded not to be done, and is guilty, 
 if his sin in which he has sinned is made known to him, he shall bring as his offering a goat, a male without defect. 
 He shall lay his hand on the head of the goat, and kill it in the place where they kill the burnt offering before God. It is a sin offering. 
 The priest shall take some of the blood of the sin offering with his finger, and put it on the horns of the altar of burnt offering. He shall pour out the rest of its blood at the base of the altar of burnt offering. 
-All its fat he shall burn on the altar, like the fat of the sacrifice of peace offerings; and the priest shall make atonement for him concerning his sin, and he will be forgiven. 
+All its fat he shall burn on the altar, like the fat of the sacrifice of peace offerings; and the priest shall make things right for him concerning his sin, and he will be forgiven. 
 "'If anyone of the common people sins unwittingly, in doing any of the things which God has commanded not to be done, and is guilty, 
 if his sin which he has sinned is made known to him, then he shall bring for his offering a goat, a female without defect, for his sin which he has sinned. 
 He shall lay his hand on the head of the sin offering, and kill the sin offering in the place of burnt offering. 
 The priest shall take some of its blood with his finger, and put it on the horns of the altar of burnt offering; and the rest of its blood he shall pour out at the base of the altar. 
-All its fat he shall take away, like the fat is taken away from the sacrifice of peace offerings; and the priest shall burn it on the altar for a pleasant aroma to God; and the priest shall make atonement for him, and he will be forgiven. 
+All its fat he shall take away, like the fat is taken away from the sacrifice of peace offerings; and the priest shall burn it on the altar for a pleasant aroma to God; and the priest shall make things right for him, and he will be forgiven. 
 "'If he brings a lamb as his offering for a sin offering, he shall bring a female without defect. 
 He shall lay his hand on the head of the sin offering, and kill it for a sin offering in the place where they kill the burnt offering. 
 The priest shall take some of the blood of the sin offering with his finger, and put it on the horns of the altar of burnt offering; and all the rest of its blood he shall pour out at the base of the altar. 
-He shall remove all its fat, like the fat of the lamb is removed from the sacrifice of peace offerings. The priest shall burn them on the altar, on the offerings of God made by fire. The priest shall make atonement for him concerning his sin that he has sinned, and he will be forgiven. 
+He shall remove all its fat, like the fat of the lamb is removed from the sacrifice of peace offerings. The priest shall burn them on the altar, on the offerings of God made by fire. The priest shall make things right for him concerning his sin that he has sinned, and he will be forgiven. 

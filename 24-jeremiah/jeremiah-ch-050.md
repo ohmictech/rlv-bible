@@ -31,7 +31,7 @@ Therefore her young men will fall in her streets. All her men of war will be bro
 "Behold, I am against you, you proud one," says the Lord, GOD of Armies; "for your day has come, the time that I will visit you. 
 The proud one will stumble and fall, and no one will raise him up. I will kindle a fire in his cities, and it will devour everyone who is around him." 
 The God of Armies says: "The children of Israel and the children of Judah are oppressed together. Everyone who took them captive hold them fast. They refuse to let them go. 
-Their Redeemer is strong. The God of Armies is his name. He will thoroughly plead their cause, that he may give rest to the earth, and disquiet the inhabitants of Babylon. 
+the one who buys them back is strong. The God of Armies is his name. He will thoroughly plead their cause, that he may give rest to the earth, and disquiet the inhabitants of Babylon. 
 "A sword is on the Chaldeans," says God, "and on the inhabitants of Babylon, on her princes, and on her wise men. 
 A sword is on the boasters, and they will become fools. A sword is on her mighty men, and they will be dismayed. 
 A sword is on their horses, on their chariots, and on all the mixed people who are in the middle of her; and they will become as women. A sword is on her treasures, and they will be robbed. 

@@ -1,7 +1,7 @@
 ﻿Listen now to what God says: "Arise, plead your case before the mountains, and let the hills hear what you have to say. 
 Hear, you mountains, God's indictment, and you enduring foundations of the earth; for God has a case against his people, and he will contend with Israel. 
 My people, what have I done to you? How have I burdened you? Answer me! 
-For I brought you up out of the land of Egypt, and redeemed you out of the house of bondage. I sent before you Moses, Aaron, and Miriam. 
+For I brought you up out of the land of Egypt, and bought back you out of the house of bondage. I sent before you Moses, Aaron, and Miriam. 
 My people, remember now what Balak king of Moab devised, and what Balaam the son of Beor answered him from Shittim to Gilgal, that you may know the righteous acts of God." 
 How shall I come before God, and bow myself before the exalted God? Shall I come before him with burnt offerings, with calves a year old? 
 Will God be pleased with thousands of rams? With tens of thousands of rivers of oil? Shall I give my firstborn for my disobedience? The fruit of my body for the sin of my soul? 

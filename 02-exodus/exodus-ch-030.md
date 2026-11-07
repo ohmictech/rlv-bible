@@ -7,13 +7,13 @@ You shall put it before the veil that is by the ark of the covenant, before the 
 Aaron shall burn incense of sweet spices on it every morning. When he tends the lamps, he shall burn it. 
 When Aaron lights the lamps at evening, he shall burn it, a perpetual incense before God throughout your generations. 
 You shall offer no strange incense on it, nor burnt offering, nor meal offering; and you shall pour no drink offering on it. 
-Aaron shall make atonement on its horns once in the year; with the blood of the sin offering of atonement once in the year he shall make atonement for it throughout your generations. It is most holy to God." 
+Aaron shall make things right on its horns once in the year; with the blood of the sin offering that makes things right once in the year he shall make things right for it throughout your generations. It is most holy to God." 
 God spoke to Moses, saying, 
 "When you take a census of the children of Israel, according to those who are counted among them, then each man shall give a ransom for his soul to God when you count them, that there be no plague among them when you count them. 
 They shall give this, everyone who passes over to those who are counted, half a shekel according to the shekel of the sanctuary (the shekel is twenty gerahs); half a shekel for an offering to God. 
 Everyone who passes over to those who are counted, from twenty years old and upward, shall give the offering to God. 
-The rich shall not give more, and the poor shall not give less, than the half shekel, when they give the offering of God, to make atonement for your souls. 
-You shall take the atonement money from the children of Israel, and shall appoint it for the service of the Tent of Meeting; that it may be a memorial for the children of Israel before God, to make atonement for your souls." 
+The rich shall not give more, and the poor shall not give less, than the half shekel, when they give the offering of God, to make things right for your souls. 
+You shall take the making right money from the children of Israel, and shall appoint it for the service of the Tent of Meeting; that it may be a memorial for the children of Israel before God, to make things right for your souls." 
 God spoke to Moses, saying, 
 "You shall also make a basin of bronze, and its base of bronze, in which to wash. You shall put it between the Tent of Meeting and the altar, and you shall put water in it. 
 Aaron and his sons shall wash their hands and their feet in it. 

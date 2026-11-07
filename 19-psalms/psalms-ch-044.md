@@ -23,4 +23,4 @@ Yes, for your sake we are killed all day long. We are regarded as sheep for the 
 Wake up! Why do you sleep, Lord? Arise! Don't reject us for the eras. 
 Why do you hide your face, and forget our affliction and our oppression? 
 For our soul is bowed down to the dust. Our body clings to the earth. 
-Rise up to help us. Redeem us for your loving kindness' sake. 
+Rise up to help us. Buy us back for your loving kindness' sake. 

@@ -1,5 +1,5 @@
 ﻿It is really not necessary for me to write to you about the service to the set-apart ones, 
-for I know your readiness, of which I take pride in you to those of Macedonia, that Achaia has been prepared for the past year. Your zeal has stirred up very many of them. 
+for I know your readiness, of which I take pride in you to those of Macedonia, that Achaia has been prepared for the past year. Your passion has stirred up very many of them. 
 But I have sent the brothers so that our pride in you may not come to nothing in this respect, that, just as I said, you may be prepared, 
 lest by any means, if anyone from Macedonia comes there with me and finds you unprepared, we (to say nothing of you) would be disappointed in this confident pride. 
 So I thought it necessary to beg the brothers to go on ahead to you and arrange in advance the generous gift you promised, so that it would be ready as a gift of generosity and not of greed. 

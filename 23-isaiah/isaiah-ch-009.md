@@ -4,7 +4,7 @@ You have multiplied the nation. You have increased their joy. They rejoice befor
 For the yoke of his burden, and the staff of his shoulder, the rod of his oppressor, you have broken as in the day of Midian. 
 For all the armor of the armed man in the noisy battle, and the garments rolled in blood, will be for burning, fuel for the fire. 
 For a child is born to us. A son is given to us; and the government will be on his shoulders. His name will be called Wonderful Counselor, Mighty God, Father of the eras, Prince of Peace. 
-Of the increase of his government and of peace there shall be no end, on David's throne, and on his kingdom, to establish it, and to uphold it with justice and with righteousness from that time on, even for the eras. The zeal of the God of Armies will perform this. 
+Of the increase of his government and of peace there shall be no end, on David's throne, and on his kingdom, to establish it, and to uphold it with justice and with righteousness from that time on, even for the eras. The passion of the God of Armies will perform this. 
 The Lord sent a word into Jacob, and it falls on Israel. 
 Everyone will know, including Ephraim and the inhabitants of Samaria, who say in pride and in arrogance of heart, 
 "The bricks have fallen, but we will build with cut stone. The sycamore fig trees have been cut down, but we will put cedars in their place." 

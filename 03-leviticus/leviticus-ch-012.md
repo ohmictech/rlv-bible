@@ -4,5 +4,5 @@ In the eighth day the flesh of his foreskin shall be circumcised.
 She shall continue in the blood of purification thirty-three days. She shall not touch any holy thing, nor come into the sanctuary, until the days of her purifying are completed. 
 But if she bears a female child, then she shall be unclean two weeks, as in her period; and she shall continue in the blood of purification sixty-six days. 
 "'When the days of her purification are completed for a son or for a daughter, she shall bring to the priest at the door of the Tent of Meeting, a year old lamb for a burnt offering, and a young pigeon or a turtledove, for a sin offering. 
-He shall offer it before God, and make atonement for her; then she shall be cleansed from the fountain of her blood. "'This is the law for her who bears, whether a male or a female. 
-If she cannot afford a lamb, then she shall take two turtledoves or two young pigeons: the one for a burnt offering, and the other for a sin offering. The priest shall make atonement for her, and she shall be clean.'" 
+He shall offer it before God, and make things right for her; then she shall be cleansed from the fountain of her blood. "'This is the law for her who bears, whether a male or a female. 
+If she cannot afford a lamb, then she shall take two turtledoves or two young pigeons: the one for a burnt offering, and the other for a sin offering. The priest shall make things right for her, and she shall be clean.'" 

@@ -10,7 +10,7 @@ Strangers have devoured his strength, and he doesn't realize it. Indeed, gray ha
 The pride of Israel testifies to his face; yet they haven't returned to their God, nor sought him, for all this. 
 "Ephraim is like an easily deceived dove, without understanding. They call to Egypt. They go to Assyria. 
 When they go, I will spread my net on them. I will bring them down like the birds of the sky. I will chastise them, as their congregation has heard. 
-Woe to them! For they have wandered from me. Destruction to them! For they have trespassed against me. Though I would redeem them, yet they have spoken lies against me. 
+Woe to them! For they have wandered from me. Destruction to them! For they have trespassed against me. Though I would buy them back, yet they have spoken lies against me. 
 They haven't cried to me with their heart, but they howl on their beds. They assemble themselves for grain and new wine. They turn away from me. 
 Though I have taught and strengthened their arms, yet they plot evil against me. 
 They return, but not to the Most High. They are like a faulty bow. Their princes will fall by the sword for the rage of their tongue. This will be their derision in the land of Egypt. 

@@ -25,7 +25,7 @@ then God is gracious to him, and says, 'Deliver him from going down to the pit, 
 His flesh will be fresher than a child's. He returns to the days of his youth. 
 He prays to God, and he is favorable to him, so that he sees his face with joy. He restores to man his righteousness. 
 He sings before men, and says, 'I have sinned, and perverted that which was right, and it didn't profit me. 
-He has redeemed my soul from going into the pit. My life will see the light.' 
+He has bought back my soul from going into the pit. My life will see the light.' 
 "Behold, God does all these things, twice, yes three times, with a man, 
 to bring back his soul from the pit, that he may be enlightened with the light of the living. 
 Mark well, Job, and listen to me. Hold your peace, and I will speak. 

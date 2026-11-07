@@ -14,8 +14,8 @@ transgressing and denying God, and turning away from following our God, speaking
 Justice is turned away backward, and righteousness stands far away; for truth has fallen in the street, and uprightness can't enter. 
 Yes, truth is lacking; and he who departs from evil makes himself a prey. God saw it, and it displeased him that there was no justice. 
 He saw that there was no man, and wondered that there was no intercessor. Therefore his own arm brought salvation to him; and his righteousness sustained him. 
-He put on righteousness as a breastplate, and a helmet of salvation on his head. He put on garments of vengeance for clothing, and was clad with zeal as a mantle. 
+He put on righteousness as a breastplate, and a helmet of salvation on his head. He put on garments of vengeance for clothing, and was clad with passion as a mantle. 
 According to their deeds, he will repay as appropriate: wrath to his adversaries, recompense to his enemies. He will repay the islands their due. 
 So they will fear God's name from the west, and his glory from the rising of the sun; for he will come as a rushing stream, which God's breath drives. 
-"A Redeemer will come to Zion, and to those who turn from disobedience in Jacob," says God. 
+"A the one who buys back will come to Zion, and to those who turn from disobedience in Jacob," says God. 
 "As for me, this is my covenant with them," says God. "My Spirit who is on you, and my words which I have put in your mouth shall not depart out of your mouth, nor out of the mouth of your offspring, nor out of the mouth of your offspring's offspring," says God, "from now on and for the eras." 

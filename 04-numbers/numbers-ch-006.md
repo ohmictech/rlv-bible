@@ -8,7 +8,7 @@ He shall not make himself unclean for his father, or for his mother, for his bro
 All the days of his separation he is holy to God. 
 "'If any man dies very suddenly beside him, and he defiles the head of his separation, then he shall shave his head in the day of his cleansing. On the seventh day he shall shave it. 
 On the eighth day he shall bring two turtledoves or two young pigeons to the priest, to the door of the Tent of Meeting. 
-The priest shall offer one for a sin offering, and the other for a burnt offering, and make atonement for him, because he sinned by reason of the dead, and shall make his head holy that same day. 
+The priest shall offer one for a sin offering, and the other for a burnt offering, and make things right for him, because he sinned by reason of the dead, and shall make his head holy that same day. 
 He shall separate to God the days of his separation, and shall bring a male lamb a year old for a trespass offering; but the former days shall be void, because his separation was defiled. 
 "'This is the law of the Nazirite: when the days of his separation are fulfilled, he shall be brought to the door of the Tent of Meeting, 
 and he shall offer his offering to God: one male lamb a year old without defect for a burnt offering, one ewe lamb a year old without defect for a sin offering, one ram without defect for peace offerings, 

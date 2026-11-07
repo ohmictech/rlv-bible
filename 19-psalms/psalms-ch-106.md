@@ -7,7 +7,7 @@ We have sinned with our fathers. We have committed iniquity. We have done wicked
 Our fathers didn't understand your wonders in Egypt. They didn't remember the multitude of your loving kindnesses, but were rebellious at the sea, even at the Red Sea. 
 Nevertheless he saved them for his name's sake, that he might make his mighty power known. 
 He rebuked the Red Sea also, and it was dried up; so he led them through the depths, as through a desert. 
-He saved them from the hand of him who hated them, and redeemed them from the hand of the enemy. 
+He saved them from the hand of him who hated them, and bought back them from the hand of the enemy. 
 The waters covered their adversaries. There was not one of them left. 
 Then they believed his words. They sang his praise. 
 They soon forgot his works. They didn't wait for his counsel, 

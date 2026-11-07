@@ -10,7 +10,7 @@ The enemy said, 'I will pursue. I will overtake. I will divide the plunder. My d
 You blew with your wind. The sea covered them. They sank like lead in the mighty waters. 
 Who is like you, God, among the gods? Who is like you, glorious in holiness, fearful in praises, doing wonders? 
 You stretched out your right hand. The earth swallowed them. 
-"You, in your loving kindness, have led the people that you have redeemed. You have guided them in your strength to your holy habitation. 
+"You, in your loving kindness, have led the people that you have bought back. You have guided them in your strength to your holy habitation. 
 The peoples have heard. They tremble. Pangs have taken hold of the inhabitants of Philistia. 
 Then the chiefs of Edom were dismayed. Trembling takes hold of the mighty men of Moab. All the inhabitants of Canaan have melted away. 
 Terror and dread falls on them. By the greatness of your arm they are as still as a stone, until your people pass over, God, until the people you have purchased pass over. 

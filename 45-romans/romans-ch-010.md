@@ -1,5 +1,5 @@
 ﻿Brothers, my heart's desire and my prayer to God is for Israel, that they may be rescued. 
-For I testify about them that they have a zeal for God, but not according to knowledge. 
+For I testify about them that they have a passion for God, but not according to knowledge. 
 For being ignorant of God's rightness, and seeking to establish their own rightness, they didn't subject themselves to the rightness of God. 
 For Christ is the fulfillment of the law for rightness to everyone who trusts. 
 For Moses writes about the rightness of the law, "The one who does them will live by them." 

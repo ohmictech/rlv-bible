@@ -11,6 +11,6 @@ Where is your king now, that he may save you in all your cities? And your judges
 I have given you a king in my anger, and have taken him away in my wrath. 
 The guilt of Ephraim is stored up. His sin is stored up. 
 The sorrows of a travailing woman will come on him. He is an unwise son, for when it is time, he doesn't come to the opening of the womb. 
-I will ransom them from the power of Hades. I will redeem them from death! Death, where are your plagues? Hades, where is your destruction? "Compassion will be hidden from my eyes. 
+I will ransom them from the power of Hades. I will buy them back from death! Death, where are your plagues? Hades, where is your destruction? "Compassion will be hidden from my eyes. 
 Though he is fruitful among his brothers, an east wind will come, the breath of God coming up from the wilderness; and his spring will become dry, and his fountain will be dried up. He will plunder the storehouse of treasure. 
 Samaria will bear her guilt, for she has rebelled against her God. They will fall by the sword. Their infants will be dashed in pieces, and their pregnant women will be ripped open." 

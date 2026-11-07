@@ -6,7 +6,7 @@ A truthful witness will not lie, but a false witness pours out lies.
 A scoffer seeks wisdom, and doesn't find it, but knowledge comes easily to a discerning person. 
 Stay away from a foolish man, for you won't find knowledge on his lips. 
 The wisdom of the prudent is to think about his way, but the folly of fools is deceit. 
-Fools mock at making atonement for sins, but among the upright there is good will. 
+Fools mock at making things right for sins, but among the upright there is good will. 
 The heart knows its own bitterness and joy; he will not share these with a stranger. 
 The house of the wicked will be overthrown, but the tent of the upright will flourish. 
 There is a way which seems right to a man, but in the end it leads to death. 

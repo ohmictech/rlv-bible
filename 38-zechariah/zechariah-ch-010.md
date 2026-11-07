@@ -5,7 +5,7 @@ From him will come the cornerstone, from him the tent peg, from him the battle b
 They will be as mighty men, treading down muddy streets in the battle. They will fight, because God is with them. The riders on horses will be confounded. 
 "I will strengthen the house of Judah, and I will save the house of Joseph. I will bring them back, for I have mercy on them. They will be as though I had not cast them off, for I am their God, and I will hear them. 
 Ephraim will be like a mighty man, and their heart will rejoice as through wine. Yes, their children will see it and rejoice. Their heart will be glad in God. 
-I will signal for them and gather them, for I have redeemed them. They will increase as they were before. 
+I will signal for them and gather them, for I have bought back them. They will increase as they were before. 
 I will sow them among the peoples. They will remember me in far countries. They will live with their children and will return. 
 I will bring them again also out of the land of Egypt, and gather them out of Assyria. I will bring them into the land of Gilead and Lebanon; and there won't be room enough for them. 
 He will pass through the sea of affliction, and will strike the waves in the sea, and all the depths of the Nile will dry up; and the pride of Assyria will be brought down, and the scepter of Egypt will depart. 

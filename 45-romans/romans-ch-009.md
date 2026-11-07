@@ -29,5 +29,5 @@ for he will finish the work and cut it short in rightness, because the Lord will
 As Isaiah has said before, "Unless the Lord of Armies had left us a seed, we would have become like Sodom, and would have been made like Gomorrah." 
 What shall we say then? That the nations, who didn't follow after rightness, reached rightness, the rightness that comes by trust; 
 but Israel, following after a law of rightness, didn't arrive at the law of rightness. 
-Why? Because they didn't seek it by trust, but as it were by deeds of the law. They stumbled over the stumbling stone, 
+Why? Because they didn't seek it by trust, but as if it were by deeds of the law. They stumbled over the stumbling stone, 
 even as it is written, "Look, I lay in Zion a stumbling stone and a rock that trips people up; and no one who trusts in him will be disappointed." 

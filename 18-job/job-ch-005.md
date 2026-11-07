@@ -17,7 +17,7 @@ So the poor has hope, and injustice shuts her mouth.
 "Behold, happy is the man whom God corrects. Therefore do not despise the chastening of the Almighty. 
 For he wounds and binds up. He injures and his hands make whole. 
 He will deliver you in six troubles; yes, in seven no evil will touch you. 
-In famine he will redeem you from death; in war, from the power of the sword. 
+In famine he will buy you back from death; in war, from the power of the sword. 
 You will be hidden from the scourge of the tongue, neither will you be afraid of destruction when it comes. 
 You will laugh at destruction and famine, neither will you be afraid of the animals of the earth. 
 For you will be allied with the stones of the field. The animals of the field will be at peace with you. 

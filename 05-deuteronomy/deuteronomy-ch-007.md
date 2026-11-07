@@ -5,7 +5,7 @@ For that would turn away your sons from following me, that they may serve other 
 But you shall deal with them like this: you shall break down their altars, dash their pillars in pieces, cut down their Asherah poles, and burn their engraved images with fire. 
 For you are a holy people to your God. Your God has chosen you to be a people for his own possession, above all peoples who are on the face of the earth. 
 God didn't set his love on you nor choose you, because you were more in number than any people; for you were the fewest of all peoples; 
-but because God loves you, and because he desires to keep the oath which he swore to your fathers, God has brought you out with a mighty hand and redeemed you out of the house of bondage, from the hand of Pharaoh king of Egypt. 
+but because God loves you, and because he desires to keep the oath which he swore to your fathers, God has brought you out with a mighty hand and bought back you out of the house of bondage, from the hand of Pharaoh king of Egypt. 
 Know therefore that your God is the true the faithful God, who keeps covenant and loving kindness to a thousand generations with those who love him and keep his commandments, 
 and repays those who hate him to their face, to destroy them. He will not be slack to him who hates him. He will repay him to his face. 
 You shall therefore keep the commandments, the statutes, and the ordinances which I command you today, to do them. 

@@ -11,7 +11,7 @@ Don't you be afraid, for I am with you. Don't be dismayed, for I am your God. I 
 Behold, everyone who is incensed against you will be disappointed and confounded. Those who strive with you will be like nothing, and shall perish. 
 You will seek them, and won't find them, even those who contend with you. Those who war against you will be as nothing, as a nonexistent thing. 
 For I, your God, will hold your right hand, saying to you, 'Don't be afraid. I will help you.' 
-Don't be afraid, you worm Jacob, and you men of Israel. I will help you," says God. "Your Redeemer is the Holy One of Israel. 
+Don't be afraid, you worm Jacob, and you men of Israel. I will help you," says God. "Ythe one who buys us back is the Holy One of Israel. 
 Behold, I have made you into a new sharp threshing instrument with teeth. You will thresh the mountains, and beat them small, and will make the hills like chaff. 
 You will winnow them, and the wind will carry them away, and the whirlwind will scatter them. You will rejoice in God. You will glory in the Holy One of Israel. 
 The poor and needy seek water, and there is none. Their tongue fails for thirst. I, God, will answer them. I, the God of Israel, will not forsake them. 

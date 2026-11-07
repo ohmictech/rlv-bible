@@ -10,7 +10,7 @@ I will do in you that which I have not done, and which I will not do anything li
 Therefore the fathers will eat the sons within you, and the sons will eat their fathers. I will execute judgments on you; and I will scatter the whole remnant of you to all the winds. 
 Therefore as I live,' says God, 'surely, because you have defiled my sanctuary with all your detestable things, and with all your abominations, therefore I will also diminish you. My eye won't spare, and I will have no pity. 
 A third part of you will die with the pestilence, and they will be consumed with famine within you. A third part will fall by the sword around you. A third part I will scatter to all the winds, and will draw out a sword after them. 
-"'Thus my anger will be accomplished, and I will cause my wrath toward them to rest, and I will be comforted. They will know that I, God, have spoken in my zeal, when I have accomplished my wrath on them. 
+"'Thus my anger will be accomplished, and I will cause my wrath toward them to rest, and I will be comforted. They will know that I, God, have spoken in my passion, when I have accomplished my wrath on them. 
 "'Moreover I will make you a desolation and a reproach among the nations that are around you, in the sight of all that pass by. 
 So it will be a reproach and a taunt, an instruction and an astonishment, to the nations that are around you, when I execute judgments on you in anger and in wrath, and in wrathful rebukes, I, God, have spoken it 
 when I send on them the evil arrows of famine that are for destruction, which I will send to destroy you. I will increase the famine on you and will break your staff of bread. 

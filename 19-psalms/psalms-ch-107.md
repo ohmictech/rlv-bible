@@ -1,5 +1,5 @@
 ﻿Give thanks to God, for he is good, for his loving kindness endures for the eras. 
-Let the redeemed by God say so, whom he has redeemed from the hand of the adversary, 
+Let the bought back by God say so, whom he has bought back from the hand of the adversary, 
 and gathered out of the lands, from the east and from the west, from the north and from the south. 
 They wandered in the wilderness in a desert way. They found no city to live in. 
 Hungry and thirsty, their soul fainted in them. 

@@ -4,5 +4,5 @@ If you, God, kept a record of sins, Lord, who could stand?
 But there is forgiveness with you, therefore you are feared. 
 I wait for God. My soul waits. I hope in his word. 
 My soul longs for the Lord more than watchmen long for the morning, more than watchmen for the morning. 
-Israel, hope in God, for there is loving kindness with God. Abundant redemption is with him. 
-He will redeem Israel from all their sins. 
+Israel, hope in God, for there is loving kindness with God. Abundant buying back is with him. 
+He will buy back Israel from all their sins. 

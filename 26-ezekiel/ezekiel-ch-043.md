@@ -17,11 +17,11 @@ The altar hearth shall be twelve cubits long by twelve wide, square in its four 
 The ledge shall be fourteen cubits long by fourteen wide in its four sides; and the border about it shall be half a cubit; and its bottom shall be a cubit around; and its steps shall look toward the east." 
 He said to me, "Son of man, God says: 'These are the ordinances of the altar in the day when they make it, to offer burnt offerings on it, and to sprinkle blood on it. 
 You shall give to the Levitical priests who are of the offspring of Zadok, who are near to me, to minister to me,' says God, 'a young bull for a sin offering. 
-You shall take of its blood and put it on its four horns, and on the four corners of the ledge, and on the border all around. You shall cleanse it and make atonement for it that way. 
+You shall take of its blood and put it on its four horns, and on the four corners of the ledge, and on the border all around. You shall cleanse it and make things right for it that way. 
 You shall also take the bull of the sin offering, and it shall be burned in the appointed place of the house, outside of the sanctuary. 
 "On the second day you shall offer a male goat without defect for a sin offering; and they shall cleanse the altar, as they cleansed it with the bull. 
 When you have finished cleansing it, you shall offer a young bull without defect and a ram out of the flock without defect. 
 You shall bring them near to God, and the priests shall cast salt on them, and they shall offer them up for a burnt offering to God. 
 "Seven days you shall prepare every day a goat for a sin offering. They shall also prepare a young bull and a ram out of the flock, without defect. 
-Seven days shall they make atonement for the altar and purify it. So shall they consecrate it. 
+Seven days shall they make things right for the altar and purify it. So shall they consecrate it. 
 When they have accomplished the days, it shall be that on the eighth day and onward, the priests shall make your burnt offerings on the altar and your peace offerings. Then I will accept you,' says God." 

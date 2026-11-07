@@ -12,9 +12,9 @@ You shall eat of it like the most holy things. Every male shall eat of it. It sh
 "I have given to you all the best of the oil, all the best of the vintage, and of the grain, the first fruits of them which they give to God. 
 The first-ripe fruits of all that is in their land, which they bring to God, shall be yours. Everyone who is clean in your house shall eat of it. 
 "Everything devoted in Israel shall be yours. 
-Everything that opens the womb, of all flesh which they offer to God, both of man and animal, shall be yours. Nevertheless, you shall surely redeem the firstborn of man, and you shall redeem the firstborn of unclean animals. 
-You shall redeem those who are to be redeemed of them from a month old, according to your estimation, for five shekels of money, according to the shekel of the sanctuary, which weighs twenty gerahs. 
-"But you shall not redeem the firstborn of a cow, or the firstborn of a sheep, or the firstborn of a goat. They are holy. You shall sprinkle their blood on the altar, and shall burn their fat for an offering made by fire, for a pleasant aroma to God. 
+Everything that opens the womb, of all flesh which they offer to God, both of man and animal, shall be yours. Nevertheless, you shall surely buy back the firstborn of man, and you shall buy back the firstborn of unclean animals. 
+You shall buy back those who are to be bought back of them from a month old, according to your estimation, for five shekels of money, according to the shekel of the sanctuary, which weighs twenty gerahs. 
+"But you shall not buy back the firstborn of a cow, or the firstborn of a sheep, or the firstborn of a goat. They are holy. You shall sprinkle their blood on the altar, and shall burn their fat for an offering made by fire, for a pleasant aroma to God. 
 Their meat shall be yours, as the wave offering breast and as the right thigh, it shall be yours. 
 All the wave offerings of the holy things which the children of Israel offer to God, I have given you and your sons and your daughters with you, as a portion for the eras. It is a covenant of salt for the eras before God to you and to your offspring with you." 
 God said to Aaron, "You shall have no inheritance in their land, neither shall you have any portion among them. I am your portion and your inheritance among the children of Israel. 

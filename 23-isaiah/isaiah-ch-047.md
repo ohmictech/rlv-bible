@@ -1,7 +1,7 @@
 ﻿"Come down and sit in the dust, virgin daughter of Babylon. Sit on the ground without a throne, daughter of the Chaldeans. For you will no longer be called tender and delicate. 
 Take the millstones and grind flour. Remove your veil, lift up your skirt, uncover your legs, and wade through the rivers. 
 Your nakedness will be uncovered. Yes, your shame will be seen. I will take vengeance, and will spare no one." 
-Our Redeemer, the God of Armies is his name, is the Holy One of Israel. 
+the one who buys us back, the God of Armies is his name, is the Holy One of Israel. 
 "Sit in silence, and go into darkness, daughter of the Chaldeans. For you shall no longer be called the mistress of kingdoms. 
 I was angry with my people. I profaned my inheritance and gave them into your hand. You showed them no mercy. You laid a very heavy yoke on the aged. 
 You said, 'I will be a princess for the eras,' so that you didn't lay these things to your heart, nor did you remember the results. 

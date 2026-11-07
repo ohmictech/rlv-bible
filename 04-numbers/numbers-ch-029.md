@@ -2,13 +2,13 @@
 You shall offer a burnt offering for a pleasant aroma to God: one young bull, one ram, seven male lambs a year old without defect; 
 and their meal offering, fine flour mixed with oil: three tenths for the bull, two tenths for the ram, 
 and one tenth for every lamb of the seven lambs; 
-and one male goat for a sin offering, to make atonement for you; 
+and one male goat for a sin offering, to make things right for you; 
 in addition to the burnt offering of the new moon with its meal offering, and the continual burnt offering with its meal offering, and their drink offerings, according to their ordinance, for a pleasant aroma, an offering made by fire to God. 
 "'On the tenth day of this seventh month you shall have a holy convocation. You shall afflict your souls. You shall do no kind of work; 
 but you shall offer a burnt offering to God for a pleasant aroma: one young bull, one ram, seven male lambs a year old, all without defect; 
 and their meal offering, fine flour mixed with oil: three tenths for the bull, two tenths for the one ram, 
 one tenth for every lamb of the seven lambs; 
-one male goat for a sin offering, in addition to the sin offering of atonement, and the continual burnt offering, and its meal offering, and their drink offerings. 
+one male goat for a sin offering, in addition to the sin offering that makes things right, and the continual burnt offering, and its meal offering, and their drink offerings. 
 "'On the fifteenth day of the seventh month you shall have a holy convocation. You shall do no regular work. You shall keep a feast to God seven days. 
 You shall offer a burnt offering, an offering made by fire, of a pleasant aroma to God: thirteen young bulls, two rams, fourteen male lambs a year old, all without defect; 
 and their meal offering, fine flour mixed with oil: three tenths for every bull of the thirteen bulls, two tenths for each ram of the two rams, 

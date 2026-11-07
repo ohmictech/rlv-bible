@@ -1,5 +1,5 @@
 ﻿God says, "Where is the bill of your mother's divorce, with which I have put her away? Or to which of my creditors have I sold you? Behold, you were sold for your iniquities, and your mother was put away for your transgressions. 
-Why, when I came, was there no one? When I called, why was there no one to answer? Is my hand shortened at all, that it can't redeem? Or have I no power to deliver? Behold, at my rebuke I dry up the sea. I make the rivers a wilderness. Their fish stink because there is no water, and die of thirst. 
+Why, when I came, was there no one? When I called, why was there no one to answer? Is my hand shortened at all, that it can't buy back? Or have I no power to deliver? Behold, at my rebuke I dry up the sea. I make the rivers a wilderness. Their fish stink because there is no water, and die of thirst. 
 I clothe the heavens with blackness. I make sackcloth their covering." 
 The God has given me the tongue of those who are taught, that I may know how to sustain with words him who is weary. He awakens morning by morning, he awakens my ear to hear as those who are taught. 
 The God has opened my ear. I was not rebellious. I have not turned back. 

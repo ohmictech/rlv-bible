@@ -20,7 +20,7 @@ The caravans of Tema looked. The companies of Sheba waited for them.
 They were distressed because they were confident. They came there, and were confounded. 
 For now you are nothing. You see a terror, and are afraid. 
 Did I ever say, 'Give to me'? or, 'Offer a present for me from your substance'? 
-or, 'Deliver me from the adversary's hand'? or, 'Redeem me from the hand of the oppressors'? 
+or, 'Deliver me from the adversary's hand'? or, 'Buy me back from the hand of the oppressors'? 
 "Teach me, and I will hold my peace. Cause me to understand my error. 
 How forcible are words of uprightness! But your reproof, what does it reprove? 
 Do you intend to reprove words, since the speeches of one who is desperate are as wind? 

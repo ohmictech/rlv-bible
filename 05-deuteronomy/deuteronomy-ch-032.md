@@ -40,7 +40,7 @@ which ate the fat of their sacrifices, and drank the wine of their drink offerin
 For I lift up my hand to heaven and declare, as I live for the eras, 
 if I sharpen my glittering sword, my hand grasps it in judgment; I will take vengeance on my adversaries, and will repay those who hate me. 
 I will make my arrows drunk with blood. My sword shall devour flesh with the blood of the slain and the captives, from the head of the leaders of the enemy." 
-Rejoice, you nations, with his people, for he will avenge the blood of his servants. He will take vengeance on his adversaries, and will make atonement for his land and for his people. 
+Rejoice, you nations, with his people, for he will avenge the blood of his servants. He will take vengeance on his adversaries, and will make things right for his land and for his people. 
 Moses came and spoke all the words of this song in the ears of the people, he and Joshua the son of Nun. 
 Moses finished reciting all these words to all Israel. 
 He said to them, "Set your heart to all the words which I testify to you today, which you shall command your children to observe to do, all the words of this law. 

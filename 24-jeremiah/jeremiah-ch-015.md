@@ -18,4 +18,4 @@ I didn't sit in the assembly of those who make merry and rejoice. I sat alone be
 Why is my pain perpetual, and my wound incurable, which refuses to be healed? Will you indeed be to me as a deceitful brook, like waters that fail? 
 Therefore God says, "If you return, then I will bring you again, that you may stand before me; and if you take out the precious from the vile, you will be as my mouth. They will return to you, but you will not return to them. 
 I will make you to this people a fortified bronze wall. They will fight against you, but they will not prevail against you; for I am with you to save you and to deliver you," says God. 
-"I will deliver you out of the hand of the wicked, and I will redeem you out of the hand of the terrible." 
+"I will deliver you out of the hand of the wicked, and I will buy you back out of the hand of the terrible." 

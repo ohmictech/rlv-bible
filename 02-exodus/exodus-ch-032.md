@@ -27,7 +27,7 @@ then Moses stood in the gate of the camp, and said, "Whoever is on God's side, c
 He said to them, "The God of Israel, says, 'Every man put his sword on his thigh, and go back and forth from gate to gate throughout the camp, and every man kill his brother, and every man his companion, and every man his neighbor.'" 
 The sons of Levi did according to the word of Moses. About three thousand men fell of the people that day. 
 Moses said, "Consecrate yourselves today to God, for every man was against his son and against his brother, that he may give you a blessing today." 
-On the next day, Moses said to the people, "You have sinned a great sin. Now I will go up to God. Perhaps I shall make atonement for your sin." 
+On the next day, Moses said to the people, "You have sinned a great sin. Now I will go up to God. Perhaps I shall make things right for your sin." 
 Moses returned to God, and said, "Oh, this people have sinned a great sin, and have made themselves gods of gold. 
 Yet now, if you will, forgive their sin, and if not, please blot me out of your book which you have written." 
 God said to Moses, "Whoever has sinned against me, I will blot him out of my book. 

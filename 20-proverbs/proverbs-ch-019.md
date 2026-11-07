@@ -1,5 +1,5 @@
 ﻿Better is the poor who walks in his integrity than he who is perverse in his lips and is a fool. 
-It isn't good to have zeal without knowledge, nor to be hasty with one's feet and miss the way. 
+It isn't good to have passion without knowledge, nor to be hasty with one's feet and miss the way. 
 The foolishness of man subverts his way; his heart rages against God. 
 Wealth adds many friends, but the poor is separated from his friend. 
 A false witness shall not be unpunished. He who pours out lies shall not go free. 

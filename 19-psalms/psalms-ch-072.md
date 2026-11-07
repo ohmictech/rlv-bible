@@ -11,7 +11,7 @@ The kings of Tarshish and of the islands will bring tribute. The kings of Sheba 
 Yes, all kings shall fall down before him. All nations shall serve him. 
 For he will deliver the needy when he cries; the poor, who has no helper. 
 He will have pity on the poor and needy. He will save the souls of the needy. 
-He will redeem their soul from oppression and violence. Their blood will be precious in his sight. 
+He will buy back their soul from oppression and violence. Their blood will be precious in his sight. 
 He will live; and Sheba's gold will be given to him. Men will pray for him continually. They will bless him all day long. 
 Abundance of grain shall be throughout the land. Its fruit sways like Lebanon. Let it flourish, thriving like the grass of the field. 
 His name endures for the eras. His name continues as long as the sun. Men shall be blessed by him. All nations will call him blessed. 

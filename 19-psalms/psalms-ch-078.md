@@ -32,14 +32,14 @@ when the anger of God went up against them, killed some of their strongest, and 
 For all this they still sinned, and didn't believe in his wondrous works. 
 Therefore he consumed their days in vanity, and their years in terror. 
 When he killed them, then they inquired after him. They returned and sought God earnestly. 
-They remembered that God was their rock, the Most High God, their redeemer. 
+They remembered that God was their rock, the Most High God, the one who buys them back. 
 But they flattered him with their mouth, and lied to him with their tongue. 
 For their heart was not right with him, neither were they faithful in his covenant. 
 But he, being merciful, forgave iniquity, and didn't destroy them. Yes, many times he turned his anger away, and didn't stir up all his wrath. 
 He remembered that they were but flesh, a wind that passes away, and doesn't come again. 
 How often they rebelled against him in the wilderness, and grieved him in the desert! 
 They turned again and tempted God, and provoked the Holy One of Israel. 
-They didn't remember his hand, nor the day when he redeemed them from the adversary; 
+They didn't remember his hand, nor the day when he bought back them from the adversary; 
 how he set his signs in Egypt, his wonders in the field of Zoan, 
 he turned their rivers into blood, and their streams, so that they could not drink. 
 He sent among them swarms of flies, which devoured them; and frogs, which destroyed them. 

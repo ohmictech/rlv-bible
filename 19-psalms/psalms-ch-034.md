@@ -19,4 +19,4 @@ God is near to those who have a broken heart, and saves those who have a crushed
 Many are the afflictions of the righteous, but God delivers him out of them all. 
 He protects all of his bones. Not one of them is broken. 
 Evil shall kill the wicked. Those who hate the righteous shall be condemned. 
-God redeems the soul of his servants. None of those who take refuge in him shall be condemned. 
+God buys back the soul of his servants. None of those who take refuge in him shall be condemned. 

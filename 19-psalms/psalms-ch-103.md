@@ -1,7 +1,7 @@
 ﻿By David. Praise God, my soul! All that is within me, praise his holy name! 
 Praise God, my soul, and don't forget all his benefits, 
 who forgives all your sins, who heals all your diseases, 
-who redeems your life from destruction, who crowns you with loving kindness and tender mercies, 
+who buys back your life from destruction, who crowns you with loving kindness and tender mercies, 
 who satisfies your desire with good things, so that your youth is renewed like the eagle's. 
 God executes righteous acts, and justice for everyone who is oppressed. 
 He made known his ways to Moses, his deeds to the children of Israel. 

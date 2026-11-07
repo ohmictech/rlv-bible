@@ -5,7 +5,7 @@ The elders of that city shall bring the heifer down to a valley with running wat
 The priests the sons of Levi shall come near, for them your God has chosen to minister to him, and to bless in God's name; and according to their word shall every controversy and every assault be decided. 
 All the elders of that city which is nearest to the slain man shall wash their hands over the heifer whose neck was broken in the valley. 
 They shall answer and say, "Our hands have not shed this blood, neither have our eyes seen it. 
-Forgive, God, your people Israel, whom you have redeemed, and don't allow innocent blood among your people Israel." The blood shall be forgiven them. 
+Forgive, God, your people Israel, whom you have bought back, and don't allow innocent blood among your people Israel." The blood shall be forgiven them. 
 So you shall put away the innocent blood from among you, when you shall do that which is right in God's eyes. 
 When you go out to battle against your enemies, and your God delivers them into your hands and you carry them away captive, 
 and see among the captives a beautiful woman, and you are attracted to her, and desire to take her as your wife, 

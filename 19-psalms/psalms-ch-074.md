@@ -1,5 +1,5 @@
 ﻿A contemplation by Asaph. God, why have you rejected us for the eras? Why does your anger smolder against the sheep of your pasture? 
-Remember your congregation, which you purchased of old, which you have redeemed to be the tribe of your inheritance: Mount Zion, in which you have lived. 
+Remember your congregation, which you purchased of old, which you have bought back to be the tribe of your inheritance: Mount Zion, in which you have lived. 
 Lift up your feet to the perpetual ruins, all the evil that the enemy has done in the sanctuary. 
 Your adversaries have roared in the middle of your assembly. They have set up their standards as signs. 
 They behaved like men wielding axes, cutting through a thicket of trees. 

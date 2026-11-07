@@ -10,7 +10,7 @@ For we are God's fellow workers. You are God's field, God's building.
 According to the gift of God given to me, as a wise master builder I laid a foundation, and another builds on it. But let each person be careful how he builds on it. 
 For no one can lay any other foundation than that which has been laid, which is Jesus Christ. 
 But if anyone builds on the foundation with gold, silver, costly stones, wood, hay, or straw, 
-each person's work will be shown up. For the Day will make it clear, because it is unveiled in fire; and the fire itself will test what sort of work each person's work is. 
+each person's work will be revealed. For the Day will make it clear, because it is unveiled in fire; and the fire itself will test what sort of work each person's work is. 
 If anyone's work remains, the work he built on it, he will receive his earned result. 
 If anyone's work is burned up, he will suffer loss, but he himself will be made whole, but as through fire. 
 Don't you know that you are God's temple and that God's Spirit lives in you? 

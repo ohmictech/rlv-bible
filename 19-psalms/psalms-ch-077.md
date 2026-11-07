@@ -12,7 +12,7 @@ I will remember God's deeds; for I will remember your wonders of old.
 I will also meditate on all your work, and consider your doings. 
 Your way, God, is in the sanctuary. What god is great like God? 
 You are the God who does wonders. You have made your strength known among the peoples. 
-You have redeemed your people with your arm, the sons of Jacob and Joseph. Selah. 
+You have bought back your people with your arm, the sons of Jacob and Joseph. Selah. 
 The waters saw you, God. The waters saw you, and they writhed. The depths also convulsed. 
 The clouds poured out water. The skies resounded with thunder. Your arrows also flashed around. 
 The voice of your thunder was in the whirlwind. The lightnings lit up the world. The earth trembled and shook. 

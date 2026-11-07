@@ -19,6 +19,6 @@ In that day, the deaf will hear the words of the book, and the eyes of the blind
 The humble also will increase their joy in God, and the poor among men will rejoice in the Holy One of Israel. 
 For the ruthless is brought to nothing, and the scoffer ceases, and everyone who is alert to do evil are cut off 
 who cause a person to be indicted by a word, and lay a snare for one who reproves in the gate, and who deprive the innocent of justice with false testimony. 
-Therefore God, who redeemed Abraham, says concerning the house of Jacob: "Jacob shall no longer be ashamed, neither shall his face grow pale. 
+Therefore God, who bought back Abraham, says concerning the house of Jacob: "Jacob shall no longer be ashamed, neither shall his face grow pale. 
 But when he sees his children, the work of my hands, in the middle of him, they will sanctify my name. Yes, they will sanctify the Holy One of Jacob, and will stand in awe of the God of Israel. 
 They also who err in spirit will come to understanding, and those who grumble will receive instruction." 

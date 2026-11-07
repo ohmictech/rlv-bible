@@ -1,5 +1,5 @@
 ﻿Why do the nations rage, and the peoples plot a vain thing? 
-The kings of the earth take a stand, and the rulers take counsel together, against God, and against his Anointed, saying, 
+The kings of the land take a stand, and the rulers take counsel together, against God, and against his Christ, saying, 
 "Let's break their bonds apart, and cast their cords from us." 
 He who sits in the heavens will laugh. The Lord will have them in derision. 
 Then he will speak to them in his anger, and terrify them in his wrath: 

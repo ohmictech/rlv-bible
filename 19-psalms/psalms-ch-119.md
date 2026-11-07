@@ -131,12 +131,12 @@ The entrance of your words gives light. It gives understanding to the simple.
 I opened my mouth wide and panted, for I longed for your commandments. 
 Turn to me, and have mercy on me, as you always do to those who love your name. 
 Establish my footsteps in your word. Don't let any iniquity have dominion over me. 
-Redeem me from the oppression of man, so I will observe your precepts. 
+Buy me back from the oppression of man, so I will observe your precepts. 
 Make your face shine on your servant. Teach me your statutes. 
 Streams of tears run down my eyes, because they don't observe your law. TZADHE 
 You are righteous, God. Your judgments are upright. 
 You have commanded your statutes in righteousness. They are fully trustworthy. 
-My zeal wears me out, because my enemies ignore your words. 
+My passion wears me out, because my enemies ignore your words. 
 Your promises have been thoroughly tested, and your servant loves them. 
 I am small and despised. I don't forget your precepts. 
 Your righteousness is an perpetual righteousness. Your law is truth. 
@@ -151,7 +151,7 @@ They draw near who follow after wickedness. They are far from your law.
 You are near, God. All your commandments are truth. 
 Of old I have known from your testimonies, that you have founded them for the eras. RESH 
 Consider my affliction, and deliver me, for I don't forget your law. 
-Plead my cause, and redeem me! Revive me according to your promise. 
+Plead my cause, and buy me back! Revive me according to your promise. 
 Salvation is far from the wicked, for they don't seek your statutes. 
 Great are your tender mercies, God. Revive me according to your ordinances. 
 Many are my persecutors and my adversaries. I haven't swerved from your testimonies. 

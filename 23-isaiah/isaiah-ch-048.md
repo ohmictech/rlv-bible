@@ -14,9 +14,9 @@ Yes, my hand has laid the foundation of the earth, and my right hand has spread 
 "Assemble yourselves, all of you, and hear! Who among them has declared these things? He whom God loves will do what he likes to Babylon, and his arm will be against the Chaldeans. 
 I, even I, have spoken. Yes, I have called him. I have brought him and he shall make his way prosperous. 
 "Come near to me and hear this: "From the beginning I have not spoken in secret; from the time that it happened, I was there." Now God has sent me with his Spirit. 
-God, your Redeemer, the Holy One of Israel, says: "I am your God, who teaches you to profit, who leads you by the way that you should go. 
+God, the one who buys you back, the Holy One of Israel, says: "I am your God, who teaches you to profit, who leads you by the way that you should go. 
 Oh that you had listened to my commandments! Then your peace would have been like a river and your righteousness like the waves of the sea. 
 Your offspring also would have been as the sand and the descendants of your body like its grains. His name would not be cut off nor destroyed from before me." 
-Leave Babylon! Flee from the Chaldeans! With the sound of joyful shouting announce this, tell it even to the end of the earth; say, "God has redeemed his servant Jacob!" 
+Leave Babylon! Flee from the Chaldeans! With the sound of joyful shouting announce this, tell it even to the end of the earth; say, "God has bought back his servant Jacob!" 
 They didn't thirst when he led them through the deserts. He caused the waters to flow out of the rock for them. He also split the rock and the waters gushed out. 
 "There is no peace", says God, "for the wicked." 

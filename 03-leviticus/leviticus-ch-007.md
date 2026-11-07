@@ -4,7 +4,7 @@ He shall offer all of its fat: the fat tail, and the fat that covers the innards
 and he shall take away the two kidneys, and the fat that is on them, which is by the loins, and the cover on the liver, with the kidneys; 
 and the priest shall burn them on the altar for an offering made by fire to God: it is a trespass offering. 
 Every male among the priests may eat of it. It shall be eaten in a holy place. It is most holy. 
-"'As is the sin offering, so is the trespass offering; there is one law for them. The priest who makes atonement with them shall have it. 
+"'As is the sin offering, so is the trespass offering; there is one law for them. The priest who makes things right with them shall have it. 
 The priest who offers any man's burnt offering shall have for himself the skin of the burnt offering which he has offered. 
 Every meal offering that is baked in the oven, and all that is prepared in the pan and on the griddle, shall be the priest's who offers it. 
 Every meal offering, mixed with oil or dry, belongs to all the sons of Aaron, one as well as another. 

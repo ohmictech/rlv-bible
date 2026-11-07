@@ -8,7 +8,7 @@ For God says, "Sing with gladness for Jacob, and shout for the chief of the nati
 Behold, I will bring them from the north country, and gather them from the uttermost parts of the earth, along with the blind and the lame, the woman with child and her who travails with child together. They will return as a great company. 
 They will come with weeping. I will lead them with petitions. I will cause them to walk by rivers of waters, in a straight way in which they won't stumble; for I am a father to Israel. Ephraim is my firstborn. 
 "Hear God's word, you nations, and declare it in the distant islands. Say, 'He who scattered Israel will gather him, and keep him, as a shepherd does his flock.' 
-For God has ransomed Jacob, and redeemed him from the hand of him who was stronger than he. 
+For God has ransomed Jacob, and bought back him from the hand of him who was stronger than he. 
 They will come and sing in the height of Zion, and will flow to the goodness of God, to the grain, to the new wine, to the oil, and to the young of the flock and of the herd. Their soul will be as a watered garden. They will not sorrow any more at all. 
 Then the virgin will rejoice in the dance, the young men and the old together; for I will turn their mourning into joy, and will comfort them, and make them rejoice from their sorrow. 
 I will satiate the soul of the priests with fatness, and my people will be satisfied with my goodness," says God. 

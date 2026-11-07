@@ -13,7 +13,7 @@ He arose and departed, and went to Samaria. As he was at the shearing house of t
 Jehu met with the brothers of Ahaziah king of Judah, and said, "Who are you?" They answered, "We are the brothers of Ahaziah. We are going down to greet the children of the king and the children of the queen." 
 He said, "Take them alive!" They took them alive, and killed them at the pit of the shearing house, even forty-two men. He didn't leave any of them. 
 When he had departed from there, he met Jehonadab the son of Rechab coming to meet him. He greeted him, and said to him, "Is your heart right, as my heart is with your heart?" Jehonadab answered, "It is." "If it is, give me your hand." He gave him his hand; and he took him up to him into the chariot. 
-He said, "Come with me, and see my zeal for God." So they made him ride in his chariot. 
+He said, "Come with me, and see my passion for God." So they made him ride in his chariot. 
 When he came to Samaria, he struck everyone who remained to Ahab in Samaria, until he had destroyed them, according to God's word which he spoke to Elijah. 
 Jehu gathered everyone together, and said to them, "Ahab served Baal a little, but Jehu will serve him much. 
 Now therefore call to me all the spokesmen of Baal, all of his worshipers, and all of his priests. Let no one be absent, for I have a great sacrifice to Baal. Whoever is absent, he shall not live." But Jehu did deceptively, intending to destroy the worshipers of Baal. 

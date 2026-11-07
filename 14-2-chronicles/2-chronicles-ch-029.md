@@ -21,7 +21,7 @@ Then Hezekiah the king arose early, gathered the princes of the city, and went u
 They brought seven bulls, seven rams, seven lambs, and seven male goats, for a sin offering for the kingdom, for the sanctuary, and for Judah. He commanded the priests the sons of Aaron to offer them on God's altar. 
 So they killed the bulls, and the priests received the blood and sprinkled it on the altar. They killed the rams and sprinkled the blood on the altar. They also killed the lambs and sprinkled the blood on the altar. 
 They brought near the male goats for the sin offering before the king and the assembly; and they laid their hands on them. 
-Then the priests killed them, and they made a sin offering with their blood on the altar, to make atonement for all Israel; for the king commanded that the burnt offering and the sin offering should be made for all Israel. 
+Then the priests killed them, and they made a sin offering with their blood on the altar, to make things right for all Israel; for the king commanded that the burnt offering and the sin offering should be made for all Israel. 
 He set the Levites in God's house with cymbals, with stringed instruments, and with harps, according to the commandment of David, of Gad the king's seer, and Nathan the spokesman; for the commandment was from God by his spokesmen. 
 The Levites stood with David's instruments, and the priests with the trumpets. 
 Hezekiah commanded them to offer the burnt offering on the altar. When the burnt offering began, God's song also began, along with the trumpets and instruments of David king of Israel. 

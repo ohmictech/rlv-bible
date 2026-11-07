@@ -46,7 +46,7 @@ the son of Hashabiah, the son of Amaziah, the son of Hilkiah,
 the son of Amzi, the son of Bani, the son of Shemer, 
 the son of Mahli, the son of Mushi, the son of Merari, the son of Levi. 
 Their brothers the Levites were appointed for all the service of the tabernacle of God's house. 
-But Aaron and his sons offered on the altar of burnt offering, and on the altar of incense, for all the work of the most holy place, and to make atonement for Israel, according to all that Moses the servant of God had commanded. 
+But Aaron and his sons offered on the altar of burnt offering, and on the altar of incense, for all the work of the most holy place, and to make things right for Israel, according to all that Moses the servant of God had commanded. 
 These are the sons of Aaron: Eleazar his son, Phinehas his son, Abishua his son, 
 Bukki his son, Uzzi his son, Zerahiah his son, 
 Meraioth his son, Amariah his son, Ahitub his son, 

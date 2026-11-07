@@ -24,8 +24,8 @@ God spoke to Moses, saying,
 "Speak to the children of Israel, saying, 'In the seventh month, on the first day of the month, there shall be a solemn rest for you, a memorial of blowing of trumpets, a holy convocation. 
 You shall do no regular work. You shall offer an offering made by fire to God.'" 
 God spoke to Moses, saying, 
-"However on the tenth day of this seventh month is the day of atonement. It shall be a holy convocation to you. You shall afflict yourselves and you shall offer an offering made by fire to God. 
-You shall do no kind of work in that same day, for it is a day of atonement, to make atonement for you before your God. 
+"However on the tenth day of this seventh month is the day of making right. It shall be a holy convocation to you. You shall afflict yourselves and you shall offer an offering made by fire to God. 
+You shall do no kind of work in that same day, for it is a day of making right, to make things right for you before your God. 
 For whoever it is who shall not deny himself in that same day shall be cut off from his people. 
 Whoever does any kind of work in that same day, I will destroy that person from among his people. 
 You shall do no kind of work: it is a statute for the eras throughout your generations in all your dwellings. 

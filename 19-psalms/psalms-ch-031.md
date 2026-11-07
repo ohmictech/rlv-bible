@@ -2,7 +2,7 @@
 Bow down your ear to me. Deliver me speedily. Be to me a strong rock, a house of defense to save me. 
 For you are my rock and my fortress, therefore for your name's sake lead me and guide me. 
 Pluck me out of the net that they have laid secretly for me, for you are my stronghold. 
-Into your hand I commend my spirit. You redeem me, God, God of truth. 
+Into your hand I commend my spirit. You buy me back, God, God of truth. 
 I hate those who regard lying vanities, but I trust in God. 
 I will be glad and rejoice in your loving kindness, for you have seen my affliction. You have known my soul in adversities. 
 You have not shut me up into the hand of the enemy. You have set my feet in a large place. 

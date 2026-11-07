@@ -30,7 +30,7 @@ joined with their brothers, their nobles, and entered into a curse and into an o
 and that we would not give our daughters to the peoples of the land, nor take their daughters for our sons; 
 and if the peoples of the land bring wares or any grain on the Sabbath day to sell, that we would not buy from them on the Sabbath, or on a holy day; and that we would forego the seventh year crops and the exaction of every debt. 
 Also we made ordinances for ourselves, to charge ourselves yearly with the third part of a shekel for the service of the house of our God: 
-for the show bread, for the continual meal offering, for the continual burnt offering, for the Sabbaths, for the new moons, for the set feasts, for the holy things, for the sin offerings to make atonement for Israel, and for all the work of the house of our God. 
+for the show bread, for the continual meal offering, for the continual burnt offering, for the Sabbaths, for the new moons, for the set feasts, for the holy things, for the sin offerings to make things right for Israel, and for all the work of the house of our God. 
 We, the priests, the Levites, and the people, cast lots for the wood offering, to bring it into the house of our God, according to our fathers' houses, at times appointed year by year, to burn on our God's altar, as it is written in the law; 
 and to bring the first fruits of our ground and the first fruits of all fruit of all kinds of trees, year by year, to God's house; 
 also the firstborn of our sons and of our livestock, as it is written in the law, and the firstborn of our herds and of our flocks, to bring to the house of our God, to the priests who minister in the house of our God; 

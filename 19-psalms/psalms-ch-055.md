@@ -15,7 +15,7 @@ We took sweet fellowship together. We walked in God's house with company.
 Let death come suddenly on them. Let them go down alive into Hades. For wickedness is among them, in their dwelling. 
 As for me, I will call on God. God will save me. 
 Evening, morning, and at noon, I will cry out in distress. He will hear my voice. 
-He has redeemed my soul in peace from the battle that was against me, although there are many who oppose me. 
+He has bought back my soul in peace from the battle that was against me, although there are many who oppose me. 
 God, who is enthroned for the eras, will hear and answer them. Selah. They never change and don't fear God. 
 He raises his hands against his friends. He has violated his covenant. 
 His mouth was smooth as butter, but his heart was war. His words were softer than oil, yet they were drawn swords. 

@@ -22,7 +22,7 @@ My bones stick to my skin and to my flesh. I have escaped by the skin of my teet
 Why do you persecute me as God, and are not satisfied with my flesh? 
 "Oh that my words were now written! Oh that they were inscribed in a book! 
 That with an iron pen and lead they were engraved in the rock for the eras! 
-But as for me, I know that my Redeemer lives. In the end, he will stand upon the earth. 
+But as for me, I know that the one who buys me back lives. In the end, he will stand upon the earth. 
 After my skin is destroyed, then I will see God in my flesh, 
 whom I, even I, will see on my side. My eyes will see, and not as a stranger. "My heart is consumed within me. 
 If you say, 'How we will persecute him!' because the root of the matter is found in me, 

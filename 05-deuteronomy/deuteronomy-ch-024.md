@@ -15,7 +15,7 @@ You shall not oppress a hired servant who is poor and needy, whether he is one o
 In his day you shall give him his wages, neither shall the sun go down on it, for he is poor and sets his heart on it, lest he cry against you to God, and it be sin to you. 
 The fathers shall not be put to death for the children, neither shall the children be put to death for the fathers. Every man shall be put to death for his own sin. 
 You shall not deprive the foreigner or the fatherless of justice, nor take a widow's clothing in pledge; 
-but you shall remember that you were a slave in Egypt, and your God redeemed you there. Therefore I command you to do this thing. 
+but you shall remember that you were a slave in Egypt, and your God bought back you there. Therefore I command you to do this thing. 
 When you reap your harvest in your field, and have forgotten a sheaf in the field, you shall not go again to get it. It shall be for the foreigner, for the fatherless, and for the widow, that your God may bless you in all the work of your hands. 
 When you beat your olive tree, you shall not go over the boughs again. It shall be for the foreigner, for the fatherless, and for the widow. 
 When you harvest your vineyard, you shall not glean it after yourselves. It shall be for the foreigner, for the fatherless, and for the widow. 

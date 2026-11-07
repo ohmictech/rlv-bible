@@ -18,7 +18,7 @@ This was a small thing in your eyes, O God, but you have spoken of your servant'
 What can David say yet more to you concerning the honor which is done to your servant? For you know your servant. 
 God, for your servant's sake, and according to your own heart, you have done all this greatness, to make known all these great things. 
 God, there is no one like you, neither is there any God besides you, according to all that we have heard with our ears. 
-What one nation on the earth is like your people Israel, whom God went to redeem to himself for a people, to make you a name by great and awesome things, in driving out nations from before your people whom you redeemed out of Egypt? 
+What one nation on the earth is like your people Israel, whom God went to buy back to himself for a people, to make you a name by great and awesome things, in driving out nations from before your people whom you bought back out of Egypt? 
 For you made your people Israel your own people for the eras; and you, God, became their God. 
 Now, God, let the word that you have spoken concerning your servant, and concerning his house, be established for the eras, and do as you have spoken. 
 Let your name be established and magnified for the eras, saying, 'The God of Armies is the God of Israel, even a God to Israel. The house of David your servant is established before you.' 

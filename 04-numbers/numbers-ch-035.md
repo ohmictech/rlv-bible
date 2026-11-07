@@ -30,5 +30,5 @@ because he should have remained in his city of refuge until the death of the hig
 "'Whoever kills any person, the murderer shall be slain based on the testimony of witnesses; but one witness shall not testify alone against any person so that he dies. 
 "'Moreover you shall take no ransom for the life of a murderer who is guilty of death. He shall surely be put to death. 
 "'You shall take no ransom for him who has fled to his city of refuge, that he may come again to dwell in the land before the death of the priest. 
-"'So you shall not pollute the land where you live; for blood pollutes the land. No atonement can be made for the land for the blood that is shed in it, but by the blood of him who shed it. 
+"'So you shall not pollute the land where you live; for blood pollutes the land. Nothing can make things right for the land for the blood that is shed in it, but by the blood of him who shed it. 
 You shall not defile the land which you inhabit, where I dwell; for I, God, dwell among the children of Israel.'" 

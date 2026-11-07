@@ -10,9 +10,9 @@ It shall be for a sign to you on your hand, and for a memorial between your eyes
 You shall therefore keep this ordinance in its season from year to year. 
 "It shall be, when God brings you into the land of the Canaanite, as he swore to you and to your fathers, and will give it to you, 
 that you shall set apart to God all that opens the womb, and every firstborn that comes from an animal which you have. The males shall be God's. 
-Every firstborn of a donkey you shall redeem with a lamb; and if you will not redeem it, then you shall break its neck; and you shall redeem all the firstborn of man among your sons. 
+Every firstborn of a donkey you shall buy back with a lamb; and if you will not buy it back, then you shall break its neck; and you shall buy back all the firstborn of man among your sons. 
 It shall be, when your son asks you in time to come, saying, 'What is this?' that you shall tell him, 'By strength of hand God brought us out from Egypt, from the house of bondage. 
-When Pharaoh stubbornly refused to let us go, God killed all the firstborn in the land of Egypt, both the firstborn of man, and the firstborn of livestock. Therefore I sacrifice to God all that opens the womb, being males; but all the firstborn of my sons I redeem.' 
+When Pharaoh stubbornly refused to let us go, God killed all the firstborn in the land of Egypt, both the firstborn of man, and the firstborn of livestock. Therefore I sacrifice to God all that opens the womb, being males; but all the firstborn of my sons I buy back.' 
 It shall be for a sign on your hand, and for symbols between your eyes; for by strength of hand God brought us out of Egypt." 
 When Pharaoh had let the people go, God didn't lead them by the way of the land of the Philistines, although that was near; for God said, "Lest perhaps the people change their minds when they see war, and they return to Egypt"; 
 but God led the people around by the way of the wilderness by the Red Sea; and the children of Israel went up armed out of the land of Egypt. 

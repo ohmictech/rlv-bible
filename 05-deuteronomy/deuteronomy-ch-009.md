@@ -23,7 +23,7 @@ At Taberah, at Massah, and at Kibroth Hattaavah you provoked God to wrath.
 When God sent you from Kadesh Barnea, saying, "Go up and possess the land which I have given you," you rebelled against the commandment of your God, and you didn't believe him or listen to his voice. 
 You have been rebellious against God from the day that I knew you. 
 So I fell down before God the forty days and forty nights that I fell down, because God had said he would destroy you. 
-I prayed to God, and said, "God, don't destroy your people and your inheritance that you have redeemed through your greatness, that you have brought out of Egypt with a mighty hand. 
+I prayed to God, and said, "God, don't destroy your people and your inheritance that you have bought back through your greatness, that you have brought out of Egypt with a mighty hand. 
 Remember your servants, Abraham, Isaac, and Jacob. Don't look at the stubbornness of this people, nor at their wickedness, nor at their sin, 
 lest the land you brought us out from say, 'Because God was not able to bring them into the land which he promised to them, and because he hated them, he has brought them out to kill them in the wilderness.' 
 Yet they are your people and your inheritance, which you brought out by your great power and by your outstretched arm." 

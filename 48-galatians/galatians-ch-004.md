@@ -15,7 +15,7 @@ What was a test to you in my flesh, you didn't look down on or reject; you welco
 Where is the good you spoke of, then? For I testify to you that, if possible, you would have plucked out your eyes and given them to me. 
 So then, have I become your enemy by telling you the truth? 
 They are eager for you, but not in a good way. No, they want to shut you out, so that you will be eager for them. 
-But it is always good to be zealous in a good cause, and not only when I am present with you. 
+But it is always good to be eager in a good cause, and not only when I am present with you. 
 My little children, of whom I am again in travail until Christ is formed in you, 
 but I could wish to be present with you now, and to change my tone, for I am perplexed about you. 
 Tell me, you that desire to be under the law, don't you listen to the law? 

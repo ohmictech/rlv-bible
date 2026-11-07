@@ -22,10 +22,10 @@ Of the first of your dough, you shall give to God a wave offering throughout you
 "'When you err, and don't observe all these commandments which God has spoken to Moses 
 even all that God has commanded you by Moses, from the day that God gave commandment and onward throughout your generations 
 then it shall be, if it was done unwittingly, without the knowledge of the congregation, that all the congregation shall offer one young bull for a burnt offering, for a pleasant aroma to God, with its meal offering and its drink offering, according to the ordinance, and one male goat for a sin offering. 
-The priest shall make atonement for all the congregation of the children of Israel, and they shall be forgiven; for it was an error, and they have brought their offering, an offering made by fire to God, and their sin offering before God, for their error. 
+The priest shall make things right for all the congregation of the children of Israel, and they shall be forgiven; for it was an error, and they have brought their offering, an offering made by fire to God, and their sin offering before God, for their error. 
 All the congregation of the children of Israel shall be forgiven, as well as the stranger who lives as a foreigner among them; for with regard to everyone, it was done unwittingly. 
 "'If a person sins unwittingly, then he shall offer a female goat a year old for a sin offering. 
-The priest shall make atonement for the soul who errs when he sins unwittingly before God. He shall make atonement for him; and he shall be forgiven. 
+The priest shall make things right for the soul who errs when he sins unwittingly before God. He shall make things right for him; and he shall be forgiven. 
 You shall have one law for him who does anything unwittingly, for him who is native-born among the children of Israel, and for the stranger who lives as a foreigner among them. 
 "'But the soul who does anything with a high hand, whether he is native-born or a foreigner, blasphemes God. That soul shall be cut off from among his people. 
 Because he has despised God's word, and has broken his commandment, that soul shall be utterly cut off. His iniquity shall be on him.'" 

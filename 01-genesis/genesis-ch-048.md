@@ -13,7 +13,7 @@ Joseph brought them out from between his knees, and he bowed himself with his fa
 Joseph took them both, Ephraim in his right hand toward Israel's left hand, and Manasseh in his left hand toward Israel's right hand, and brought them near to him. 
 Israel stretched out his right hand, and laid it on Ephraim's head, who was the younger, and his left hand on Manasseh's head, guiding his hands knowingly, for Manasseh was the firstborn. 
 He blessed Joseph, and said, "The God before whom my fathers Abraham and Isaac walked, the God who has fed me all my life long to this day, 
-the messenger who has redeemed me from all evil, bless the lads, and let my name be named on them, and the name of my fathers Abraham and Isaac. Let them grow into a multitude upon the earth." 
+the messenger who has bought back me from all evil, bless the lads, and let my name be named on them, and the name of my fathers Abraham and Isaac. Let them grow into a multitude upon the earth." 
 When Joseph saw that his father laid his right hand on the head of Ephraim, it displeased him. He held up his father's hand, to remove it from Ephraim's head to Manasseh's head. 
 Joseph said to his father, "Not so, my father, for this is the firstborn. Put your right hand on his head." 
 His father refused, and said, "I know, my son, I know. He also will become a people, and he also will be great. However, his younger brother will be greater than he, and his offspring will become a multitude of nations." 

@@ -19,7 +19,7 @@ In the first day shall be a holy convocation. You shall do no regular work,
 but you shall offer an offering made by fire, a burnt offering to God: two young bulls, one ram, and seven male lambs a year old. They shall be without defect, 
 with their meal offering, fine flour mixed with oil. You shall offer three tenths for a bull, and two tenths for the ram. 
 You shall offer one tenth for every lamb of the seven lambs; 
-and one male goat for a sin offering, to make atonement for you. 
+and one male goat for a sin offering, to make things right for you. 
 You shall offer these in addition to the burnt offering of the morning, which is for a continual burnt offering. 
 In this way you shall offer daily, for seven days, the food of the offering made by fire, of a pleasant aroma to God. It shall be offered in addition to the continual burnt offering and its drink offering. 
 On the seventh day you shall have a holy convocation. You shall do no regular work. 
@@ -27,5 +27,5 @@ On the seventh day you shall have a holy convocation. You shall do no regular wo
 but you shall offer a burnt offering for a pleasant aroma to God: two young bulls, one ram, seven male lambs a year old; 
 and their meal offering, fine flour mixed with oil, three tenths for each bull, two tenths for the one ram, 
 one tenth for every lamb of the seven lambs; 
-and one male goat, to make atonement for you. 
+and one male goat, to make things right for you. 
 Besides the continual burnt offering and its meal offering, you shall offer them and their drink offerings. See that they are without defect. 

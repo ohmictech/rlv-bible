@@ -4,8 +4,8 @@ For Zedekiah king of Judah had shut him up, saying, "Why do you prophesy, and sa
 and Zedekiah king of Judah won't escape out of the hand of the Chaldeans, but will surely be delivered into the hand of the king of Babylon, and will speak with him mouth to mouth, and his eyes will see his eyes; 
 and he will bring Zedekiah to Babylon, and he will be there until I visit him," says God, "though you fight with the Chaldeans, you will not prosper"'?" 
 Jeremiah said, "God's word came to me, saying, 
-'Behold, Hanamel the son of Shallum your uncle will come to you, saying, "Buy my field that is in Anathoth; for the right of redemption is yours to buy it."'" 
-"So Hanamel my uncle's son came to me in the court of the guard according to God's word, and said to me, 'Please buy my field that is in Anathoth, which is in the land of Benjamin; for the right of inheritance is yours, and the redemption is yours. Buy it for yourself.' "Then I knew that this was God's word. 
+'Behold, Hanamel the son of Shallum your uncle will come to you, saying, "Buy my field that is in Anathoth; for the right of buying back is yours to buy it."'" 
+"So Hanamel my uncle's son came to me in the court of the guard according to God's word, and said to me, 'Please buy my field that is in Anathoth, which is in the land of Benjamin; for the right of inheritance is yours, and the buying back is yours. Buy it for yourself.' "Then I knew that this was God's word. 
 I bought the field that was in Anathoth of Hanamel my uncle's son, and weighed him the money, even seventeen shekels of silver. 
 I signed the deed, sealed it, called witnesses, and weighed the money in the balances to him. 
 So I took the deed of the purchase, both that which was sealed, containing the terms and conditions, and that which was open; 

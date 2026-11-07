@@ -3,7 +3,7 @@ God spoke to Moses, and said to him, "I am God.
 I appeared to Abraham, to Isaac, and to Jacob, as God Almighty; but by my name God I was not known to them. 
 I have also established my covenant with them, to give them the land of Canaan, the land of their travels, in which they lived as aliens. 
 Moreover I have heard the groaning of the children of Israel, whom the Egyptians keep in bondage, and I have remembered my covenant. 
-Therefore tell the children of Israel, 'I am God, and I will bring you out from under the burdens of the Egyptians, and I will rid you out of their bondage, and I will redeem you with an outstretched arm, and with great judgments. 
+Therefore tell the children of Israel, 'I am God, and I will bring you out from under the burdens of the Egyptians, and I will rid you out of their bondage, and I will buy you back with an outstretched arm, and with great judgments. 
 I will take you to myself for a people. I will be your God; and you shall know that I am your God, who brings you out from under the burdens of the Egyptians. 
 I will bring you into the land which I swore to give to Abraham, to Isaac, and to Jacob; and I will give it to you for a heritage: I am God.'" 
 Moses spoke so to the children of Israel, but they didn't listen to Moses for anguish of spirit, and for cruel bondage. 

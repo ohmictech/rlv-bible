@@ -11,4 +11,4 @@ They are more to be desired than gold, yes, than much fine gold, sweeter also th
 Moreover your servant is warned by them. In keeping them there is great reward. 
 Who can discern his errors? Forgive me from hidden errors. 
 Keep back your servant also from presumptuous sins. Let them not have dominion over me. Then I will be upright. I will be blameless and innocent of great transgression. 
-Let the words of my mouth and the meditation of my heart be acceptable in your sight, God, my rock, and my redeemer. 
+Let the words of my mouth and the meditation of my heart be acceptable in your sight, God, my rock, and the one who buys me back. 

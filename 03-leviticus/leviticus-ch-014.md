@@ -15,10 +15,10 @@ The priest shall take some of the blood of the trespass offering, and the priest
 The priest shall take some of the log of oil, and pour it into the palm of his own left hand. 
 The priest shall dip his right finger in the oil that is in his left hand, and shall sprinkle some of the oil with his finger seven times before God. 
 The priest shall put some of the rest of the oil that is in his hand on the tip of the right ear of him who is to be cleansed, and on the thumb of his right hand, and on the big toe of his right foot, upon the blood of the trespass offering. 
-The rest of the oil that is in the priest's hand he shall put on the head of him who is to be cleansed, and the priest shall make atonement for him before God. 
-"The priest shall offer the sin offering, and make atonement for him who is to be cleansed because of his uncleanness. Afterward he shall kill the burnt offering; 
-then the priest shall offer the burnt offering and the meal offering on the altar. The priest shall make atonement for him, and he shall be clean. 
-"If he is poor, and can't afford so much, then he shall take one male lamb for a trespass offering to be waved, to make atonement for him, and one tenth of an ephah of fine flour mixed with oil for a meal offering, and a log of oil; 
+The rest of the oil that is in the priest's hand he shall put on the head of him who is to be cleansed, and the priest shall make things right for him before God. 
+"The priest shall offer the sin offering, and make things right for him who is to be cleansed because of his uncleanness. Afterward he shall kill the burnt offering; 
+then the priest shall offer the burnt offering and the meal offering on the altar. The priest shall make things right for him, and he shall be clean. 
+"If he is poor, and can't afford so much, then he shall take one male lamb for a trespass offering to be waved, to make things right for him, and one tenth of an ephah of fine flour mixed with oil for a meal offering, and a log of oil; 
 and two turtledoves, or two young pigeons, such as he is able to afford; and the one shall be a sin offering, and the other a burnt offering. 
 "On the eighth day he shall bring them for his cleansing to the priest, to the door of the Tent of Meeting, before God. 
 The priest shall take the lamb of the trespass offering, and the log of oil, and the priest shall wave them for a wave offering before God. 
@@ -26,9 +26,9 @@ He shall kill the lamb of the trespass offering. The priest shall take some of t
 The priest shall pour some of the oil into the palm of his own left hand; 
 and the priest shall sprinkle with his right finger some of the oil that is in his left hand seven times before God. 
 Then the priest shall put some of the oil that is in his hand on the tip of the right ear of him who is to be cleansed, and on the thumb of his right hand, and on the big toe of his right foot, on the place of the blood of the trespass offering. 
-The rest of the oil that is in the priest's hand he shall put on the head of him who is to be cleansed, to make atonement for him before God. 
+The rest of the oil that is in the priest's hand he shall put on the head of him who is to be cleansed, to make things right for him before God. 
 He shall offer one of the turtledoves, or of the young pigeons, which ever he is able to afford, 
-of the kind he is able to afford, the one for a sin offering, and the other for a burnt offering, with the meal offering. The priest shall make atonement for him who is to be cleansed before God." 
+of the kind he is able to afford, the one for a sin offering, and the other for a burnt offering, with the meal offering. The priest shall make things right for him who is to be cleansed before God." 
 This is the law for him in whom is the plague of leprosy, who is not able to afford the sacrifice for his cleansing. 
 God spoke to Moses and to Aaron, saying, 
 "When you have come into the land of Canaan, which I give to you for a possession, and I put a spreading mildew in a house in the land of your possession, 
@@ -50,7 +50,7 @@ To cleanse the house he shall take two birds, cedar wood, scarlet, and hyssop.
 He shall kill one of the birds in an earthen vessel over running water. 
 He shall take the cedar wood, the hyssop, the scarlet, and the living bird, and dip them in the blood of the slain bird, and in the running water, and sprinkle the house seven times. 
 He shall cleanse the house with the blood of the bird, and with the running water, with the living bird, with the cedar wood, with the hyssop, and with the scarlet; 
-but he shall let the living bird go out of the city into the open field. So shall he make atonement for the house; and it shall be clean." 
+but he shall let the living bird go out of the city into the open field. So shall he make things right for the house; and it shall be clean." 
 This is the law for any plague of leprosy, and for an itch, 
 and for the destructive mildew of a garment, and for a house, 
 and for a swelling, and for a scab, and for a bright spot; 

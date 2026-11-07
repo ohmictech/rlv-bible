@@ -26,7 +26,7 @@ For he has gone down today, and has slain cattle, fatlings, and sheep in abundan
 But he hasn't called me, even me your servant, Zadok the priest, Benaiah the son of Jehoiada, and your servant Solomon. 
 Was this thing done by my lord the king, and you haven't shown to your servants who should sit on the throne of my lord the king after him?" 
 Then King David answered, "Call Bathsheba in to me." She came into the king's presence and stood before the king. 
-The king vowed and said, "As God lives, who has redeemed my soul out of all adversity, 
+The king vowed and said, "As God lives, who has bought back my soul out of all adversity, 
 most certainly as I swore to you by the God of Israel, saying, 'Assuredly Solomon your son shall reign after me, and he shall sit on my throne in my place;' I will most certainly do this today." 
 Then Bathsheba bowed with her face to the earth and showed respect to the king, and said, "Let my lord King David live for the eras!" 
 King David said, "Call to me Zadok the priest, Nathan the spokesman, and Benaiah the son of Jehoiada." They came before the king. 

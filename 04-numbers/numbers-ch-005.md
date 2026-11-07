@@ -5,7 +5,7 @@ The children of Israel did so, and put them outside of the camp; as God spoke to
 God spoke to Moses, saying, 
 "Speak to the children of Israel: 'When a man or woman commits any sin that men commit, so as to trespass against God, and that soul is guilty, 
 then he shall confess his sin which he has done; and he shall make restitution for his guilt in full, add to it the fifth part of it, and give it to him in respect of whom he has been guilty. 
-But if the man has no kinsman to whom restitution may be made for the guilt, the restitution for guilt which is made to God shall be the priest's, in addition to the ram of the atonement, by which atonement shall be made for him. 
+But if the man has no kinsman to whom restitution may be made for the guilt, the restitution for guilt which is made to God shall be the priest's, in addition to the ram of the making right, by which things shall be made right for him. 
 Every heave offering of all the holy things of the children of Israel, which they present to the priest, shall be his. 
 Every man's holy things shall be his; whatever any man gives the priest, it shall be his.'" 
 God spoke to Moses, saying, 

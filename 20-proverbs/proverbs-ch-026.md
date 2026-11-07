@@ -20,7 +20,7 @@ is the man who deceives his neighbor and says, "Am I not joking?"
 Lack of wood a fire goes out. Without gossip, a quarrel dies down. 
 As coals are to hot embers, and wood to fire, so is a contentious man to kindling strife. 
 The words of a whisperer are as dainty morsels, they go down into the innermost parts. 
-Like silver dross on an earthen vessel are the lips of a fervent one with an bad heart. 
+Like silver dross on an earthen vessel are the lips of a fervent one with a bad heart. 
 A malicious man disguises himself with his lips, but he harbors bad in his heart. 
 When his speech is charming, don't believe him, for there are seven abominations in his heart. 
 His malice may be concealed by deception, but his guilt will be exposed in the assembly. 

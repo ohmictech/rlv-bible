@@ -1,8 +1,8 @@
-﻿Dead flies cause the oil of the perfumer to produce an bad odor; so does a little folly outweigh wisdom and honor. 
+﻿Dead flies cause the oil of the perfumer to produce a bad odor; so does a little folly outweigh wisdom and honor. 
 A wise man's heart is at his right hand, but a fool's heart at his left. 
 Yes also when the fool walks by the way, his understanding fails him, and he says to everyone that he's a fool. 
 If the spirit of the ruler rises up against you, don't leave your place; for gentleness lays great offenses to rest. 
-There's an bad which I have seen under the sun, the sort of error which proceeds from the ruler. 
+There's a bad which I have seen under the sun, the sort of error which proceeds from the ruler. 
 Folly is set in great dignity, and the rich sit in a low place. 
 I have seen servants on horses, and princes walking like servants on the earth. 
 He who digs a pit may fall into it; and whoever breaks through a wall may be bitten by a snake. 

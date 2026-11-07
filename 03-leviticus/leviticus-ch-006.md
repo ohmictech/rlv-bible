@@ -1,6 +1,6 @@
 ﻿God spoke to Moses, saying, 
 "If anyone drifts, and commits a trespass against God, and deals falsely with his neighbor in a matter of deposit, or of bargain, or of robbery, or has oppressed his neighbor, 
-or has found that which was lost, and lied about it, and swearing to a lie, in any of these things that a a man drifts in his actions 
+or has found that which was lost, and lied about it, and swearing to a lie, in any of these things that a man drifts in his actions 
 then it will be, if he has drifted, and is guilty, he will restore that which he took by robbery, or the thing which he has gotten by oppression, or the deposit which was committed to him, or the lost thing which he found, 
 or any thing about which he has sworn falsely: he will restore it in full, and will add a fifth part more to it. He will return it to him to whom it belongs in the day of his being found guilty. 
 He will bring his trespass offering to God: a ram without defect from the flock, according to your estimation, for a trespass offering, to the priest. 

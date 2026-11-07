@@ -8,7 +8,7 @@ Excellent speech isn't fitting for a fool, much less do lying lips fit a prince.
 A bribe is a precious stone in the eyes of him who gives it; wherever he turns, he prospers. 
 He who covers an offense promotes love; but he who repeats a matter separates best friends. 
 A rebuke enters deeper into one who has understanding than a hundred lashes into a fool. 
-An bad man seeks only rebellion; a cruel messenger will be sent against him. 
+A bad man seeks only rebellion; a cruel messenger will be sent against him. 
 Let a bear robbed of her cubs meet a man, rather than a fool in his folly. 
 Whoever rewards bad for good, bad won't depart from his house. 
 The beginning of strife is like breaching a dam, stop contention before quarreling breaks out. 

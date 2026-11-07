@@ -3,7 +3,7 @@ When the righteous thrive, the people rejoice; but when the guilty rule, the peo
 Whoever loves wisdom brings joy to his father; but a companion of prostitutes squanders his wealth. 
 The king by justice makes the land stable, but he who takes bribes tears it down. 
 A man who flatters his neighbor spreads a net for his feet. 
-An bad man is snared by his wrongdoing, but the righteous can sing and be glad. 
+A bad man is snared by his wrongdoing, but the righteous can sing and be glad. 
 The righteous care about justice for the poor. The guilty aren't concerned about knowledge. 
 Mockers stir up a city, but wise men turn away anger. 
 If a wise man goes to court with a foolish man, the fool rages or scoffs, and there's no peace. 

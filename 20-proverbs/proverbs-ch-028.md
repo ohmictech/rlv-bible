@@ -7,7 +7,7 @@ Better is the poor who walks in his integrity than he who's perverse in his ways
 Whoever keeps the law is a wise son; but he who's a companion of gluttons shames his father. 
 He who increases his wealth by excessive interest gathers it for one who has pity on the poor. 
 He who turns away his ear from hearing the law, even his prayer is an abomination. 
-Whoever causes the upright to go astray in an bad way, he'll fall into his own trap; but the blameless will inherit good. 
+Whoever causes the upright to go astray in a bad way, he'll fall into his own trap; but the blameless will inherit good. 
 The rich man is wise in his own eyes; but the poor who has understanding sees through him. 
 When the righteous triumph, there's great glory; but when the guilty rise, men hide themselves. 
 He who conceals his mistakes doesn't prosper, but whoever confesses and renounces them finds mercy. 

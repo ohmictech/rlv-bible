@@ -10,7 +10,7 @@ They all would have made us afraid, saying, "Their hands will be weakened from t
 I went to the house of Shemaiah the son of Delaiah the son of Mehetabel, who was shut in at his home; and he said, "Let's meet together in God's house, within the temple, and let's shut the doors of the temple; for they'll come to kill you. Yes, in the night they'll come to kill you." 
 I said, "Should a man like me flee? Who's there that, being such as I, would go into the temple to save his life? I won't go in." 
 I discerned, and look, God hadn't sent him, but he pronounced this prophecy against me. Tobiah and Sanballat had hired him. 
-He was hired so that I'd be afraid, do so, and drifts, and that they might have material for an bad report, that they might reproach me. 
+He was hired so that I'd be afraid, do so, and drifts, and that they might have material for a bad report, that they might reproach me. 
 "Remember, my God, Tobiah and Sanballat according to these their works, and also the prophetess Noadiah and the rest of the spokesmen that would have put me in fear." 
 So the wall was finished in the twenty-fifth day of Elul, in fifty-two days. 
 When all our enemies heard of it, all the nations that were around us were afraid, and they lost their confidence; for they perceived that this work was done by our God. 

@@ -1,6 +1,6 @@
 ﻿Woe to those who devise guilt and work bad on their beds! When the morning is light, they practice it, because it's in the power of their hand. 
 They covet fields and seize them, and houses, then take them away. They oppress a man and his house, even a man and his heritage. 
-So God says: "Look, I'm planning against these people a disaster, from which you won't remove your necks, neither will you walk haughtily, for it's an bad time. 
+So God says: "Look, I'm planning against these people a disaster, from which you won't remove your necks, neither will you walk haughtily, for it's a bad time. 
 In that day they'll take up a parable against you, and lament with a doleful lamentation, saying, 'We're utterly ruined! My people's possession is divided up. Indeed he takes it from me and assigns our fields to traitors!'" 
 So you'll have no one who divides the land by lot in God's assembly. 
 "Don't prophesy!", they prophesy, "Don't prophesy about these things. Disgrace won't overtake us." 

@@ -8,6 +8,6 @@ God, the Lord, the strength of my salvation, you have covered my head in the day
 God, don't grant the desires of the guilty. Don't let their bad plans succeed, or they'll become proud. Selah. 
 As for the head of those who surround me, let the mischief of their own lips cover them. 
 Let burning coals fall on them. Let them be thrown into the fire, into miry pits, from where they never rise. 
-An bad speaker won't be established on the earth. Bad will hunt the violent man to overthrow him. 
+A bad speaker won't be established on the earth. Bad will hunt the violent man to overthrow him. 
 I know that God will maintain the cause of the afflicted, and justice for the needy. 
 Surely the righteous will give thanks to your name. The upright will dwell in your presence. 

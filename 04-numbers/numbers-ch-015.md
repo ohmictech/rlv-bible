@@ -24,7 +24,7 @@ even all that God has commanded you by Moses, from the day that God gave command
 then it will be, if it was done unwittingly, without the knowledge of the congregation, that all the congregation will offer one young bull for a burnt offering, for a pleasant aroma to God, with its meal offering and its drink offering, according to the ordinance, and one male goat for an offering for wrongdoing. 
 The priest will make things right for all the congregation of the children of Israel, and they will be forgiven; for it was an error, and they have brought their offering, an offering made by fire to God, and their offering for wrongdoing before God, for their error. 
 All the congregation of the children of Israel will be forgiven, as well as the stranger who lives as a foreigner among them; for with regard to everyone, it was done unwittingly. 
-"'If a a person drifts unwittingly, then he will offer a female goat a year old for an offering for wrongdoing. 
+"'If a person drifts unwittingly, then he will offer a female goat a year old for an offering for wrongdoing. 
 The priest will make things right for the soul who errs when he drifts unwittingly before God. He will make things right for him; and he will be forgiven. 
 You will have one law for him who does anything unwittingly, for him who's native-born among the children of Israel, and for the stranger who lives as a foreigner among them. 
 "'But the soul who does anything defiantly, whether he's native-born or a foreigner, blasphemes God. That soul will be cut off from among his people. 

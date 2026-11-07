@@ -33,8 +33,8 @@ But as for you, your dead bodies will fall in this wilderness.
 Your children will be wanderers in the wilderness forty years, and will bear your prostitution, until your dead bodies are consumed in the wilderness. 
 After the number of the days in which you spied out the land, even forty days, for every day a year, you'll bear your guilt, even forty years, and you'll know my alienation.' 
 I, God, have spoken. I'll surely do this to all this bad congregation who are gathered together against me. In this wilderness they will be consumed, and there they will die." 
-The men whom Moses sent to spy out the land, who returned and made all the congregation to murmur against him by bringing up an bad report against the land, 
-even those men who brought up an bad report of the land, died by the plague before God. 
+The men whom Moses sent to spy out the land, who returned and made all the congregation to murmur against him by bringing up a bad report against the land, 
+even those men who brought up a bad report of the land, died by the plague before God. 
 But Joshua the son of Nun and Caleb the son of Jephunneh remained alive of those men who went to spy out the land. 
 Moses told these words to all the children of Israel, and the people mourned greatly. 
 They rose up early in the morning and went up to the top of the mountain, saying, "Look, we're here, and will go up to the place which God has promised; for we have drifted." 

@@ -1,5 +1,5 @@
-﻿There's an bad which I have seen under the sun, and it's heavy on men: 
-a man to whom God gives riches, wealth, and honor, so that he lacks nothing for his soul of all that he desires, yet God gives him no power to eat of it, but an alien eats it. This is vanity, and it's an bad disease. 
+﻿There's a bad which I have seen under the sun, and it's heavy on men: 
+a man to whom God gives riches, wealth, and honor, so that he lacks nothing for his soul of all that he desires, yet God gives him no power to eat of it, but an alien eats it. This is vanity, and it's a bad disease. 
 If a man fathers a hundred children, and lives many years, so that the days of his years are many, but his soul isn't filled with good, and moreover he has no burial, I say that a stillborn child is better than he; 
 for it comes in vanity, and departs in darkness, and its name is covered with darkness. 
 Moreover it hasn't seen the sun nor known it. This has rest rather than the other. 

@@ -1,36 +1,36 @@
-﻿Jacob lived in the land of his father's travels, in the land of Canaan. 
-This is the history of the generations of Jacob. Joseph, being seventeen years old, was feeding the flock with his brothers. He was a boy with the sons of Bilhah and Zilpah, his father's wives. Joseph brought an bad report of them to their father. 
-Now Israel loved Joseph more than all his children, because he was the son of his old age, and he made him a tunic of many colors. 
-His brothers saw that their father loved him more than all his brothers, and they hated him, and couldn't speak peaceably to him. 
-Joseph dreamed a dream, and he told it to his brothers, and they hated him all the more. 
-He said to them, "Please hear this dream which I have dreamed: 
-look, we were binding sheaves in the field, and look, my sheaf arose and also stood upright; and look, your sheaves came around, and bowed down to my sheaf." 
-His brothers asked him, "Will you indeed reign over us? Will you indeed have dominion over us?" They hated him all the more for his dreams and for his words. 
-He dreamed yet another dream, and told it to his brothers, and said, "Look, I have dreamed yet another dream: and look, the sun and the moon and eleven stars bowed down to me." 
-He told it to his father and to his brothers. His father rebuked him, and said to him, "What's this dream that you have dreamed? Will I and your mother and your brothers indeed come to bow ourselves down to the earth before you?" 
-His brothers envied him, but his father kept this saying in mind. 
-His brothers went to feed their father's flock in Shechem. 
-Israel said to Joseph, "Aren't your brothers feeding the flock in Shechem? Come, and I'll send you to them." He said to him, "Here I am." 
-He said to him, "Go now, see whether it's well with your brothers, and well with the flock; and bring me word again." So he sent him out of the valley of Hebron, and he came to Shechem. 
-A certain man found him, and look, he was wandering in the field. The man asked him, "What are you looking for?" 
-He said, "I'm looking for my brothers. Tell me, please, where they're feeding the flock." 
-The man said, "They have left here, for I heard them say, 'Let's go to Dothan.'" Joseph went after his brothers, and found them in Dothan. 
-They saw him afar off, and before he came near to them, they conspired against him to kill him. 
-They said to one another, "Look, this dreamer comes. 
-Come now, and let's kill him, and cast him into one of the pits, and we'll say, 'An bad animal has devoured him.' We'll see what will become of his dreams." 
-Reuben heard it, and delivered him out of their hand, and said, "Let's not take his life." 
-Reuben said to them, "Shed no blood. Throw him into this pit that's in the wilderness, but lay no hand on him", that he might deliver him out of their hand, to restore him to his father. 
-When Joseph came to his brothers, they stripped Joseph of his tunic, the tunic of many colors that was on him; 
-and they took him, and threw him into the pit. The pit was empty. There was no water in it. 
-They sat down to eat bread, and they lifted up their eyes and looked, and saw a caravan of Ishmaelites coming from Gilead, with their camels bearing spices and balm and myrrh, going to carry it down to Egypt. 
-Judah said to his brothers, "What profit is it if we kill our brother and conceal his blood? 
-Come, and let's sell him to the Ishmaelites, and not let our hand be on him; for he's our brother, our flesh." His brothers listened to him. 
-Midianites who were merchants passed by, and they drew and lifted up Joseph out of the pit, and sold Joseph to the Ishmaelites for twenty pieces of silver. The merchants brought Joseph into Egypt. 
-Reuben returned to the pit, and saw that Joseph wasn't in the pit; and he tore his clothes. 
-He returned to his brothers, and said, "The child is no more; and I, where will I go?" 
-They took Joseph's tunic, and killed a male goat, and dipped the tunic in the blood. 
-They took the tunic of many colors, and they brought it to their father, and said, "We have found this. Examine it, now, and see if it's your son's tunic or not." 
-He recognized it, and said, "It's my son's tunic. An bad animal has devoured him. Joseph is without doubt torn in pieces." 
-Jacob tore his clothes, and put sackcloth on his waist, and mourned for his son many days. 
-All his sons and all his daughters rose up to comfort him, but he refused to be comforted. He said, "I'll go down to Hades to my son, mourning." His father wept for him. 
-The Midianites sold him into Egypt to Potiphar, an officer of Pharaoh's, the captain of the guard. 
+﻿Jacob lived in the land of Canaan, where his father had lived as a foreigner. 
+This is the family record of Jacob. Joseph was seventeen and was out shepherding with his brothers. He was young, working alongside the sons of Bilhah and Zilpah, his father's wives, and he brought their father a bad report about them. 
+Israel loved Joseph more than any of his other children, because Joseph was the son of his old age, and he made him a long, richly colored robe. 
+When his brothers saw that their father loved him more than any of them, they hated him and couldn't say a civil word to him. 
+Joseph had a dream, and when he told his brothers about it, they hated him even more. 
+He said to them, "Listen to the dream I had. 
+We were out in the field tying bundles of grain, and suddenly my bundle stood up, and your bundles gathered around it and bowed down to mine." 
+His brothers said to him, "So you think you're going to be king over us?" And they hated him even more because of his dreams and what he said. 
+Then he had another dream and told it to his brothers. He said, "Look, I had another dream. This time the sun and the moon and eleven stars were bowing down to me." 
+He told his father and his brothers, and his father scolded him. He said, "What kind of dream is that? Are your mother and I and your brothers really going to come and bow down to the ground in front of you?" 
+His brothers were jealous of him, but his father kept thinking about it. 
+His brothers went to Shechem to pasture their father's flock. 
+Israel said to Joseph, "Your brothers are over in Shechem with the flock, aren't they? Come on, I'll send you to them." Joseph answered, "Here I am." 
+Israel said, "Go and see how your brothers and the flock are doing, and come back and tell me." So he sent him off from the valley of Hebron, and Joseph arrived at Shechem. 
+A man found him wandering around in the fields and asked, "What are you looking for?" 
+He said, "I'm looking for my brothers. Can you tell me where they're pasturing the flock?" 
+The man said, "They've moved on. I heard them say, 'Let's go to Dothan.'" So Joseph went after his brothers and found them at Dothan. 
+They saw him coming while he was still a long way off, and before he got near them they plotted to kill him. 
+They said to each other, "Here comes the dreamer. 
+Come on, let's kill him and throw him into one of these cisterns. We'll say a wild animal ate him. Then we'll see what becomes of those dreams." 
+When Reuben heard this, he tried to rescue Joseph from them. He said, "Let's not take his life." 
+Reuben said, "Don't shed blood. Throw him into this cistern out here in the wilderness, but don't lay a hand on him." He was planning to rescue Joseph from them and take him back to his father. 
+When Joseph reached his brothers, they stripped him of his long, richly colored robe. 
+Then they grabbed him and threw him into the cistern. It was empty, with no water in it. 
+Then they sat down to eat, and when they looked up they saw a caravan of Ishmaelites coming from Gilead, their camels loaded with spices, balm, and myrrh, on their way down to Egypt. 
+Judah said to his brothers, "What do we gain by killing our brother and hiding his blood? 
+Come on, let's sell him to the Ishmaelites. Then we won't have to lay a hand on him, because he's our brother, our own flesh and blood." His brothers agreed. 
+When the Midianite traders came by, they pulled Joseph up out of the cistern and sold him to the Ishmaelites for twenty pieces of silver, and the traders took Joseph to Egypt. 
+When Reuben came back to the cistern and saw that Joseph wasn't in it, he tore his clothes. 
+He went back to his brothers and said, "The boy is gone. What am I going to do?" 
+Then they took Joseph's robe, killed a male goat, and dipped the robe in the blood. 
+They took the long, richly colored robe back to their father and said, "We found this. Take a look and see whether it's your son's robe or not." 
+He recognized it and said, "It's my son's robe. A wild animal has eaten him. Joseph has surely been torn to pieces." 
+Jacob tore his clothes and put on sackcloth, and he mourned for his son for many days. 
+All his sons and daughters tried to comfort him, but he would not be comforted. He said, "I'll go down to Hades mourning for my son." And his father wept for him. 
+The Midianites sold him in Egypt to Potiphar, one of Pharaoh's officials, the captain of the guard. 

@@ -19,7 +19,7 @@ He will put some of the blood on the horns of the altar which is before God, tha
 All its fat he will take from it, and burn it on the altar. 
 He will do this with the bull; as he did with the bull of the offering for wrongdoing, so he will do with this; and the priest will make things right for them, and they will be forgiven. 
 He will carry the bull outside the camp, and burn it as he burned the first bull. It's the offering for wrongdoing for the assembly. 
-"'When a a ruler drifts, and unwittingly does any one of all the things which his God has commanded not to be done, and is guilty, 
+"'When a ruler drifts, and unwittingly does any one of all the things which his God has commanded not to be done, and is guilty, 
 if the wrong he has done is made known to him, he will bring as his offering a goat, a male without defect. 
 He will lay his hand on the head of the goat, and kill it in the place where they kill the burnt offering before God. It's an offering for wrongdoing. 
 The priest will take some of the blood of the offering for wrongdoing with his finger, and put it on the horns of the altar of burnt offering. He will pour out the rest of its blood at the base of the altar of burnt offering. 

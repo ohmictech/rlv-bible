@@ -10,7 +10,7 @@ Better is he who's little known, and has a servant, than he who honors himself a
 A righteous man respects the life of his animal, but the tender mercies of the guilty are cruel. 
 He who tills his land will have plenty of bread, but he who chases fantasies is void of understanding. 
 The guilty desires the plunder of bad men, but the root of the righteous flourishes. 
-An bad man is trapped by sinfulness of lips, but the righteous will come out of trouble. 
+A bad man is trapped by sinfulness of lips, but the righteous will come out of trouble. 
 A man will be satisfied with good by the fruit of his mouth. The work of a man's hands will be rewarded to him. 
 The way of a fool is right in his own eyes, but he who's wise listens to counsel. 
 A fool shows his annoyance the same day, but one who overlooks an insult is prudent. 

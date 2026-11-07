@@ -16,7 +16,7 @@ The young lions have roared at him and raised their voices. They have made his l
 The children also of Memphis and Tahpanhes have broken the crown of your head. 
 "Haven't you brought this on yourself, in that you have forsaken your God, when he led you by the way? 
 Now what do you gain by going to Egypt, to drink the waters of the Shihor? Or why do you go on the way to Assyria, to drink the waters of the River? 
-"Your own guilt will correct you, and your backsliding will rebuke you. Know and see that it's an bad and bitter thing, that you have forsaken your God, and that my fear isn't in you," says the Lord, GOD of Armies. 
+"Your own guilt will correct you, and your backsliding will rebuke you. Know and see that it's a bad and bitter thing, that you have forsaken your God, and that my fear isn't in you," says the Lord, GOD of Armies. 
 "Long ago I broke off your yoke, and burst your bonds. You said, 'I won't serve;' for on every high hill and under every green tree you bowed yourself, playing the prostitute. 
 Yet I had planted you a noble vine, a pure and faithful seed. How then have you turned into the degenerate branches of a foreign vine to me? 
 Though you wash yourself with lye, and use much soap, yet your guilt is marked before me," says God. 

@@ -17,7 +17,7 @@ Some of the students from Caesarea also went with us, bringing one Mnason of Cyp
 When we had come to Jerusalem, the brothers received us gladly. 
 The day following, Paul went in with us to James; and all the elders were present. 
 When he had greeted them, he reported one by one the things which God had worked among the nations through his work. 
-They, when they heard it, gave weight to God. They said to him, "You see, brother, how many thousands there are among the Jewish people of those who have trusted, and they are all devoted to the law. 
+They, when they heard it, gave honor to God. They said to him, "You see, brother, how many thousands there are among the Jewish people of those who have trusted, and they are all devoted to the law. 
 They have been informed about you, that you teach all the Jewish people who are among the nations to forsake Moses, telling them not to circumcise their children and not to walk after the customs. 
 What then? The gathering must certainly meet, for they will hear that you have come. 
 Therefore do what we tell you. We have four men who have taken a vow. 

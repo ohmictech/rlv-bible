@@ -45,7 +45,7 @@ The next Sabbath, almost the whole city was gathered together to hear the word o
 But when the Jewish people saw the crowds, they were filled with jealousy, and contradicted the things which were spoken by Paul, and slandered. 
 Paul and Barnabas spoke out boldly, and said, "It was necessary that God's word should be spoken to you first. Since indeed you thrust it from yourselves, and judge yourselves unworthy of the real life of the era, look, we turn to the nations. 
 For so has the Lord commanded us, saying, 'I have set you as a light for the nations, that you should bring rescue to the uttermost parts of the land.'" 
-As the nations heard this, they were glad and gave weight to the word of God. As many as were appointed to the real life of the era trusted. 
+As the nations heard this, they were glad and gave honor to the word of God. As many as were appointed to the real life of the era trusted. 
 The Lord's word was spread abroad throughout all the region. 
 But the Jewish people stirred up the devout and prominent women and the chief men of the city, and stirred up a persecution against Paul and Barnabas, and threw them out of their borders. 
 But they shook off the dust of their feet against them, and came to Iconium. 

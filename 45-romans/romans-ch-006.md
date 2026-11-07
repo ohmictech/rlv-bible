@@ -6,13 +6,13 @@ For if we have become united with him in the likeness of his death, we will also
 knowing this, that our old man was crucified with him, that the body of the drift might be put out of work, so that we would no longer be slaves to the drift. 
 For he who has died has been freed from the drift. 
 But if we died with Christ, we trust that we will also live with him, 
-knowing that Christ, being raised from the dead, dies no more. Death no longer has dominion over him! 
+knowing that Christ, being raised from the dead, dies no more. Death no dominates him! 
 For the death that he died, he died to the drift once; but the life that he lives, he lives to God. 
 Thus consider yourselves also to be dead to the drift, but alive to God in Christ Jesus our Lord. 
 Therefore don't let the drift reign in your mortal body, that you should obey it in its cravings. 
 Also, do not present your members to the drift as instruments of wrong, but present yourselves to God as alive from the dead, and your members as instruments of rightness to God. 
-For the drift will not have dominion over you, for you are not under law, but under favor. 
-What then? Shall we drift because we are not under law but under favor? May it never be! 
+For the drift will not dominate you, for you are not under law, but under favor. 
+What then? Should we drift because we are not under law but under favor? May it never be! 
 Don't you know that when you present yourselves as slaves and obey someone, you are the slaves of whomever you obey, whether of the drift to death, or of obedience to rightness? 
 But thanks be to God that, whereas you were slaves of the drift, you became obedient from the heart to that form of teaching to which you were handed over. 
 Being made free from the drift, you became slaves of rightness. 

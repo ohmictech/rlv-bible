@@ -1,7 +1,7 @@
 ﻿Now a certain man was sick, Lazarus from Bethany, of the village of Mary and her sister, Martha. 
 It was that Mary who had put perfume on the Lord and wiped his feet with her hair, whose brother Lazarus was sick. 
 The sisters therefore sent to him, saying, "Lord, look, he for whom you have great affection is sick." 
-But when Jesus heard it, he said, "This sickness will not end in death. It is for the weight of God, so that God's Son may be given weight through it." 
+But when Jesus heard it, he said, "This sickness will not end in death. It is for God's honor, so that God's Son may be honored through it." 
 Now Jesus loved Martha, and her sister, and Lazarus. 
 When therefore he heard that he was sick, he stayed two days in the place where he was. 
 Then after this he said to his students, "Let's go into Judea again." 

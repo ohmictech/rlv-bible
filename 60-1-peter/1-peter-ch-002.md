@@ -9,7 +9,7 @@ and, "a stone that makes people trip and a rock that brings them down." They tri
 But you are a chosen people, a royal priesthood, a set-apart nation, a people who are his very own, so that you may tell of the great things done by the one who called you out of darkness into his wonderful light. 
 Once you were not a people; now you are God's people. Once you had not been shown mercy; now you have been shown mercy. 
 My truly loved friends, I beg you as foreigners and travelers: keep away from the cravings of the flesh, which are at war against your life. 
-Live good lives among the nations, so that even though they speak against you as if you were doing wrong, they may see your good deeds and give weight to God on the day he comes to visit. 
+Live good lives among the nations, so that even though they speak against you as if you were doing wrong, they may see your good deeds and give honor to God on the day he comes to visit. 
 For the Lord's sake, submit to every human authority: to the king, as the highest, 
 and to governors, as those he sends to bring payback on those who do wrong and to praise those who do right. 
 For it is God's will that by doing good you should silence the ignorant talk of foolish people. 

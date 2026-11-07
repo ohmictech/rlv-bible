@@ -12,7 +12,7 @@ and, 'On their hands they will bear you up, lest perhaps you dash your foot agai
 Jesus answered him, "It has been said, 'You shall not test the Lord your God.'" 
 When the Slanderer had completed every testing, he departed from him until another time. 
 Jesus returned in the power of the Spirit into Galilee, and news about him spread through all the surrounding region. 
-He taught in their gathering places, being given weight by all. 
+He taught in their gathering places, being given honor by all. 
 He came to Nazareth, where he had been brought up. As was his custom, he entered into the gathering place on the Sabbath day, and stood up to read. 
 The book of the spokesman Isaiah was handed to him. He opened the book, and found the place where it was written, 
 "The Spirit of the Lord is on me, because he has anointed me to preach good news to the poor. He has sent me to heal the brokenhearted, to proclaim release to the captives, and recovery of sight to the blind, to set free those who are crushed, 

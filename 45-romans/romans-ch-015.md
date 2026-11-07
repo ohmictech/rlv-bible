@@ -3,10 +3,10 @@ Let each one of us please his neighbor for that which is good, to be building hi
 For even Christ didn't please himself. But, as it is written, "The reproaches of those who reproached you fell on me." 
 For whatever things were written before were written for our learning, that through perseverance and through encouragement of the Scriptures we might have expectation. 
 Now the God of perseverance and of encouragement grant you to be of the same mind with one another according to Christ Jesus, 
-that with one accord you may with one mouth give weight to the God and Father of our Lord Jesus Christ. 
+that with one accord you may with one mouth give honor to the God and Father of our Lord Jesus Christ. 
 Therefore accept one another, even as Christ also accepted you, to the weight of God. 
 Now I say that Christ has become a servant of the circumcision for God's truth, to confirm the promises given to the ancestors, 
-and that the nations might give weight to God for his mercy. As it is written, "Therefore I will give praise to you among the nations and sing to your name." 
+and that the nations might give honor to God for his mercy. As it is written, "Therefore I will give praise to you among the nations and sing to your name." 
 Again he says, "Celebrate, you nations, with his people." 
 Again, "Praise the Lord, all you nations! Let everyones praise him." 
 Again, Isaiah says, "There will be the root of Jesse, he who arises to rule over the nations; in him the nations will put their expectation." 

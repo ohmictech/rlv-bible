@@ -28,8 +28,8 @@ After the piece of bread, then the Adversary entered into him. Then Jesus said t
 Now nobody at the table knew why he said this to him. 
 For some thought, because Judas had the money box, that Jesus said to him, "Buy what things we need for the feast," or that he should give something to the poor. 
 So after receiving the piece of bread, he went out immediately. It was night. 
-When he had gone out, Jesus said, "Now the Human One has been given weight, and God has been given weight in him. 
-If God has been given weight in him, God will also give him weight in himself, and he will give him weight immediately. 
+When he had gone out, Jesus said, "Now the Human One has been honored, and God has been honored in him. 
+If God has been honored in him, God will also honor him in himself, and he will honor him immediately. 
 Little children, I will be with you a little while longer. You will seek me, and as I said to the Jewish leaders, 'Where I am going, you can't come,' so now I tell you. 
 A new commandment I give to you, that you love one another. Just as I have loved you, you also love one another. 
 By this everyone will know that you are my students, if you have love for one another." 

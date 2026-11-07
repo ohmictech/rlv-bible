@@ -12,10 +12,10 @@ As he was on his way to Jerusalem, he was passing along the borders of Samaria a
 As he entered into a certain village, ten men who had leprosy met him, who stood at a distance. 
 They lifted up their voices, saying, "Jesus, Master, have mercy on us!" 
 When he saw them, he said to them, "Go and show yourselves to the priests." As they went, they were made clean. 
-One of them, when he saw that he was healed, turned back, giving weight to God with a loud voice. 
+One of them, when he saw that he was healed, turned back, giving honor to God with a loud voice. 
 He fell on his face at Jesus' feet, giving him thanks; and he was a Samaritan. 
 Jesus answered, "Weren't the ten made clean? But where are the nine? 
-Were there none found who returned to give weight to God, except this foreigner?" 
+Were there none found who returned to give honor to God, except this foreigner?" 
 Then he said to him, "Get up, and go your way. Your trust has healed you and made you whole." 
 Being asked by the strict religious ones when God's reign would come, he answered them, "God's reign doesn't come with visible signs; 
 neither will they say, 'Look, here!' or, 'Look, there!' for look, God's reign is within you." 

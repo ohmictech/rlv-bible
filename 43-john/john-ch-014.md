@@ -10,7 +10,7 @@ Jesus said to him, "Have I been with you all this time, and do you not know me, 
 Don't you trust that I am in the Father, and the Father in me? The words that I tell you, I speak not from myself; but the Father who makes his home in me does his deeds. 
 Trust me that I am in the Father, and the Father in me; or else trust me for the very deeds' sake. 
 Truly I tell you, whoever trusts in me, the deeds that I do, they will do also; and they will do greater deeds than these, because I am going to my Father. 
-Whatever you will ask in my name, I will do it, that the Father may be given weight in the Son. 
+Whatever you will ask in my name, I will do it, that the Father may be honored in the Son. 
 If you will ask anything in my name, I will do it. 
 If you love me, keep my commandments. 
 I will ask the Father, and he will give you another one who comes alongside, that he may be with you forever: 

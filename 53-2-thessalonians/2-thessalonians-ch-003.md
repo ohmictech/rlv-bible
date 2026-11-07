@@ -1,4 +1,4 @@
-﻿Finally, brothers and sisters, pray for us, that the word of the Lord may run fast and be given weight, just as it has with you, 
+﻿Finally, brothers and sisters, pray for us, that the word of the Lord may run fast and be honored, just as it has with you, 
 and that we may be rescued from twisted and bad people, because not everyone has trust. 
 But the Lord is trustworthy. He will make you strong and guard you from the Slanderer. 
 We are confident in the Lord about you, that you are doing and will go on doing what we tell you. 

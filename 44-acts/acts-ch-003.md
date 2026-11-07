@@ -10,7 +10,7 @@ Everyone saw him walking and praising God.
 They recognized him, that it was he who used to sit begging for gifts for the needy at the Beautiful Gate of the temple. They were filled with wonder and amazement at what had happened to him. 
 As the lame man who was healed held on to Peter and John, everyone ran together to them in the covered walkway that is called Solomon's, greatly wondering. 
 When Peter saw it, he responded to the people, "Men of Israel, why are you amazed at this? Why are you staring at us, as though by our own power or devotion to God we had made him walk? 
-The God of Abraham, Isaac, and Jacob, the God of our fathers, has given weight to his Servant Jesus, whom you handed over and disowned in the presence of Pilate, when he had determined to release him. 
+The God of Abraham, Isaac, and Jacob, the God of our fathers, has given honor to his Servant Jesus, whom you handed over and disowned in the presence of Pilate, when he had determined to release him. 
 But you disowned the Holy and Upright One and asked for a murderer to be granted to you, 
 and killed the Author of life, whom God raised from the dead, to which we are witnesses. 
 By trust in his name, his name has made this man strong, whom you see and know. Yes, the trust which is through him has given him this complete healing in the presence of you all. 

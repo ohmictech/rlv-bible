@@ -44,7 +44,7 @@ Jesus said to him, "Truly I tell you, today you will be with me in paradise."
 It was now about noon, and darkness came over the whole land until mid-afternoon. 
 The sun was darkened, and the curtain of the temple was torn in two. 
 Jesus, crying with a loud voice, said, "Father, into your hands I commit my spirit!" Having said this, he breathed his last. 
-When the centurion saw what was done, he gave weight to God, saying, "Certainly this was an upright man." 
+When the centurion saw what was done, he gave honor to God, saying, "Certainly this was an upright man." 
 All the crowds that came together to see this, when they saw the things that were done, returned home beating their chests. 
 All his acquaintances and the women who followed with him from Galilee stood at a distance, watching these things. 
 Look, there was a man named Joseph, who was a member of the council, a good and upright man 

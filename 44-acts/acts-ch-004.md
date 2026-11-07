@@ -18,7 +18,7 @@ But so that this spreads no further among the people, let's threaten them, that 
 They called them, and commanded them not to speak at all nor teach in the name of Jesus. 
 But Peter and John answered them, "Whether it is right in the sight of God to listen to you rather than to God, judge for yourselves, 
 for we can't help telling the things which we saw and heard." 
-When they had further threatened them, they let them go, finding no way to correct them, because of the people; for everyone gave weight to God for that which was done. 
+When they had further threatened them, they let them go, finding no way to correct them, because of the people; for everyone gave honor to God for that which was done. 
 For the man on whom this sign of healing was performed was more than forty years old. 
 Being let go, they came to their own company and reported all that the chief priests and the elders had said to them. 
 When they heard it, they lifted up their voice to God with one accord and said, "Master, you are God, who made the sky, the land, the sea, and all that is in them; 

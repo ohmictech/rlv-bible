@@ -14,7 +14,7 @@ For if you live after the flesh, you must die; but if by the Spirit you put to d
 For as many as are led by the Spirit of God, these are children of God. 
 For you didn't receive the spirit of bondage again to fear, but you received the Spirit of adoption, by whom we cry, "Abba! Father!" 
 The Spirit himself testifies with our spirit that we are children of God; 
-and if children, then heirs, heirs of God and joint heirs with Christ, if indeed we suffer with him, that we may also be given weight with him. 
+and if children, then heirs, heirs of God and joint heirs with Christ, if indeed we suffer with him, that we may also be honored with him. 
 For I consider that the hard times of this present time are not worthy to be compared with the weight which will be revealed toward us. 
 For the creation waits with eager expectation for the children of God to be revealed. 
 For the creation was subjected to vanity, not of its own will, but because of him who subjected it, in expectation 
@@ -27,7 +27,7 @@ In the same way, the Spirit also helps our weaknesses, for we don't know how to 
 He who searches the hearts knows what is on the Spirit's mind, because he speaks on behalf of the set-apart ones according to God. 
 We know that all things work together for good for those who love God, for those who are called according to his purpose. 
 For those he knew ahead of time, he also marked out ahead of time to be shaped like the image of his Son, so that he might be the firstborn among many brothers and sisters. 
-Those he marked out ahead of time, he also called. Those he called, he also made right. Those he made right, he also gave weight. 
+Those he marked out ahead of time, he also called. Those he called, he also made right. Those he made right, he also honored. 
 What then shall we say about these things? If God is for us, who can be against us? 
 He who didn't spare his own Son, but delivered him up for us all, how would he not also with him freely give us all things? 
 Who could bring a charge against God's chosen ones? It is God who justifies. 

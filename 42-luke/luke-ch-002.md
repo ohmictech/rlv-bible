@@ -11,13 +11,13 @@ The messenger said to them, "Don't be afraid, for look, I bring you good news of
 For there is born to you today, in David's city, a Restorer, who is Christ the Lord. 
 This is the sign to you: you will find a baby wrapped in strips of cloth, lying in a feeding trough." 
 Suddenly there was with the messenger a crowd of the sky's army, praising God and saying, 
-"Weight to God in the highest, and on land wholeness, good will toward people." 
+"Honor to God in the highest, and on earth wholeness, good will toward people." 
 When the messengers went away from them into the sky, the shepherds said to one another, "Let's go to Bethlehem, now, and see this thing that has happened, which the Lord has made known to us." 
 They hurried and found both Mary and Joseph, and the baby was lying in the feeding trough. 
 When they saw it, they made widely known what was spoken to them about this child. 
 Everyone who heard it were amazed at the things which were spoken to them by the shepherds. 
 But Mary treasured all these sayings, pondering them in her heart. 
-The shepherds returned, giving weight to God and praising him for all the things that they had heard and seen, just as it was told them. 
+The shepherds returned, giving honor to God and praising him for all the things that they had heard and seen, just as it was told them. 
 When eight days had passed for the circumcision of the child, he was named Jesus, the name given by the messenger before he was conceived in the womb. 
 When the days of their purification according to the law of Moses were over, they brought him up to Jerusalem to present him to the Lord 
 (as it is written in the law of the Lord, "Every male who opens the womb will be called set apart to the Lord"), 

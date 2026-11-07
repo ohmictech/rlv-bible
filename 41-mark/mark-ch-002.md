@@ -9,7 +9,7 @@ Immediately Jesus, knowing in his spirit that they were reasoning this way among
 Which is easier, to tell the paralyzed man, 'Your mistakes are released,' or to say, 'Get up, take your mat, and walk'? 
 But so that you may know that the Human One has authority on earth to release mistakes" (he said to the paralyzed man), 
 "I tell you, get up, take your mat, and go to your house." 
-He got up, and immediately took the mat and went out in front of them all, so that they were all amazed and gave weight to God, saying, "We never saw anything like this!" 
+He got up, and immediately took the mat and went out in front of them all, so that they were all amazed and gave honor to God, saying, "We never saw anything like this!" 
 He went out again by the seashore. All the crowd came to him, and he taught them. 
 As he passed by, he saw Levi the son of Alphaeus sitting at the tax collection office. He said to him, "Follow me." And he got up and followed him. 
 He was at the table in his house, and many tax collectors and those who have drifted sat down with Jesus and his students, for there were many, and they followed him. 

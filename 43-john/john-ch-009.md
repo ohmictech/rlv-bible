@@ -21,7 +21,7 @@ His parents answered them, "We know that this is our son, and that he was born b
 but how he now sees, we don't know; or who opened his eyes, we don't know. He is of age. Ask him. He will speak for himself." 
 His parents said these things because they feared the Jewish leaders; for the Jewish leaders had already agreed that if any man would confess him as Christ, he would be put out of the gathering place. 
 Therefore his parents said, "He is of age. Ask him." 
-So they called the man who was blind a second time, and said to him, "Give weight to God. We know that this man has drifted." 
+So they called the man who was blind a second time, and said to him, "Give honor to God. We know that this man has drifted." 
 He therefore answered, "I don't know if he has drifted. One thing I do know: that though I was blind, now I see." 
 They said to him again, "What did he do to you? How did he open your eyes?" 
 He answered them, "I told you already, and you didn't listen. Why do you want to hear it again? You don't also want to become his students, do you?" 

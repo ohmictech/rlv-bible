@@ -13,7 +13,7 @@ Now when he came near to the gate of the city, look, one who was dead was carrie
 When the Lord saw her, he had deep compassion on her and said to her, "Don't cry." 
 He came near and touched the coffin, and the bearers stood still. He said, "Young man, I tell you, get up!" 
 He who was dead sat up and began to speak. Then he gave him to his mother. 
-Fear took hold of all, and they gave weight to God, saying, "A great spokesman has arisen among us!" and, "God has come to his people!" 
+Fear took hold of all, and they gave honor to God, saying, "A great spokesman has arisen among us!" and, "God has come to his people!" 
 This news about him went out in the whole of Judea and in all the surrounding region. 
 The students of John told him about all these things. 
 John, calling to himself two of his students, sent them to Jesus, asking, "Are you the one who is coming, or should we look for another?" 

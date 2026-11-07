@@ -5,7 +5,7 @@ Make your home in me, and I in you. As the branch can't bear fruit by itself unl
 I am the vine. You are the branches. Whoever makes their home in me and I in them bears much fruit, for apart from me you can do nothing. 
 If anyone doesn't make their home in me, they are thrown out as a branch and is withered; and they gather them, throw them into the fire, and they are burned. 
 If you make your home in me, and my words make their home in you, you will ask whatever you desire, and it will be done for you. 
-"In this my Father is given weight, that you bear much fruit; and so you will be my students. 
+"In this my Father is honored, that you bear much fruit; and so you will be my students. 
 Even as the Father has loved me, I also have loved you. Make your home in my love. 
 If you keep my commandments, you will make your home in my love, even as I have kept my Father's commandments and make my home in his love. 
 I have spoken these things to you, that my joy may make its home in you, and that your joy may be made complete. 

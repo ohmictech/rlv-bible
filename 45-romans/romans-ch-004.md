@@ -17,7 +17,7 @@ For this cause it is of trust, that it may be according to favor, to the end tha
 As it is written, "I have made you a father of many nations." This is in the presence of him whom he trusted: God, who gives life to the dead, and calls the things that are not, as though they were. 
 Against expectation, Abraham in expectation trusted, to the end that he might become a father of many nations, according to that which had been spoken, "So will your offspring be." 
 Without being weakened in trust, he didn't consider his own body, already having been worn out, (he being about a hundred years old), and the deadness of Sarah's womb. 
-Yet, looking to the promise of God, he didn't waver through lack of trust, but grew strong through trust, giving weight to God, 
+Yet, looking to the promise of God, he didn't waver through lack of trust, but grew strong through trust, giving honor to God, 
 and being fully assured that what he had promised, he was also able to perform. 
 Therefore it also was "credited to him for rightness." 
 Now it was not written that it was accounted to him for his sake alone, 

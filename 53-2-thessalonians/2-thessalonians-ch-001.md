@@ -7,6 +7,6 @@ God does what is right when he pays back hard times to those who give you hard t
 and gives relief to you who are in hard times, along with us. This will happen when the Lord Jesus is unveiled from the sky with his powerful messengers in blazing fire, 
 bringing payback on those who don't know God and on those who won't listen to the Good News of our Lord Jesus. 
 They will pay the penalty: the ruin of the era, coming from the face of the Lord and from the weight of his might, 
-when he comes on that day to be given weight among his set-apart ones and to be admired by everyone who has trusted, and you trusted our witness to you. 
+when he comes on that day to be honored among his set-apart ones and to be admired by everyone who has trusted, and you trusted our witness to you. 
 That is what we always pray for you: that our God may count you worthy of the calling he gave you, and may bring to completion with power every good intent and every work of trust, 
-so that the name of our Lord Jesus may be given weight in you, and you in him, by the favor of our God and the Lord Jesus Christ. 
+so that the name of our Lord Jesus may be honored in you, and you in him, by the favor of our God and the Lord Jesus Christ. 

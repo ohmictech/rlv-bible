@@ -13,19 +13,19 @@ On the next day a great crowd had come to the feast. When they heard that Jesus 
 they took the branches of the palm trees and went out to meet him, and cried out, "Hosanna! Flourishing is he who comes in the name of the Lord, the King of Israel!" 
 Jesus, having found a young donkey, sat on it. As it is written, 
 "Don't be afraid, daughter of Zion. Look, your King comes, sitting on a donkey's colt." 
-His students didn't understand these things at first, but when Jesus was given weight, then they remembered that these things were written about him, and that they had done these things to him. 
+His students didn't understand these things at first, but when Jesus was honored, then they remembered that these things were written about him, and that they had done these things to him. 
 The crowd therefore that was with him when he called Lazarus out of the tomb and raised him from the dead was testifying about it. 
 For this cause also the crowd went and met him, because they heard that he had done this sign. 
 The strict religious ones therefore said among themselves, "You can see you are getting nowhere. Look, the world has gone after him." 
 Now there were certain Greeks among those who went up to worship at the feast. 
 Therefore, these came to Philip, who was from Bethsaida of Galilee, and asked him, saying, "Sir, we want to see Jesus." 
 Philip came and told Andrew, and in turn, Andrew came with Philip, and they told Jesus. 
-Jesus answered them, "The time has come for the Human One to be given weight. 
+Jesus answered them, "The time has come for the Human One to be honored. 
 Truly I tell you, unless a grain of wheat falls into the earth and dies, it remains by itself alone. But if it dies, it bears much fruit. 
 Whoever loves their life will lose it. Whoever hates their life in this world will keep it to the real life of the era. 
 If anyone serves me, let them follow me. Where I am, there my servant will also be. If anyone serves me, the Father will honor them. 
 "Now my life is troubled. What can I say? 'Father, rescue me from this time'? But this is why I came to this hour. 
-Father, give weight to your name!" Then a voice came out of the sky, saying, "I have both given it weight and will give it weight again." 
+Father, give honor to your name!" Then a voice came out of the sky, saying, "I have both given it honor and will give it honor again." 
 Therefore the crowd who stood by and heard it said that it had thundered. Others said, "A messenger has spoken to him." 
 Jesus answered, "This voice hasn't come for my sake, but for your sakes. 
 Now is the verdict on this world. Now the ruler of this world will be cast out. 

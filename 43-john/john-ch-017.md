@@ -1,13 +1,13 @@
-﻿Jesus said these things, then lifting up his eyes to the sky, he said, "Father, the time has come. Give weight to your Son, that your Son may also give weight to you; 
+﻿Jesus said these things, then lifting up his eyes to the sky, he said, "Father, the time has come. Give honor to your Son, that your Son may also give honor to you; 
 even as you gave him authority over all flesh, so he will give the real life of the era to all whom you have given him. 
 This is the real life of the era, that they should know you, the only true God, and him whom you sent, Jesus Christ. 
 I gave you weight on the land. I have accomplished the deed which you have given me to do. 
-Now, Father, give weight to me with your own self with the weight which I had with you before the world existed. 
+Now, Father, give honor to me with your own self, with the splendor I had with you before the world existed. 
 "I revealed your name to the people whom you have given me out of the world. They were yours, and you have given them to me. They have kept your word. 
 Now they have known that all things whatever you have given me are from you, 
 for the words which you have given me I have given to them; and they received them, and knew for sure that I came from you. They have trusted that you sent me. 
 I pray for them. I don't pray for the world, but for those whom you have given me, for they are yours. 
-All things that are mine are yours, and yours are mine, and I am given weight in them. 
+All things that are mine are yours, and yours are mine, and I am honored in them. 
 I am no more in the world, but these are in the world, and I am coming to you. Holy Father, keep them through your name which you have given me, that they may be one, even as we are. 
 While I was with them in the world, I kept them in your name. I have kept those whom you have given me. None of them is lost except the one headed for ruin, that the Scripture might be fulfilled. 
 But now I come to you, and I say these things in the world, that they may have my joy made complete in themselves. 

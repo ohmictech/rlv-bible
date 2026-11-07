@@ -38,10 +38,10 @@ The Father himself, who sent me, has testified about me. You have neither heard 
 You don't have his word making a home in you, because you don't trust him whom he sent. 
 "You search the Scriptures, because you think that in them you have the real life of the era; and these are they which testify about me. 
 Yet you refuse to come to me, that you may have life. 
-I don't receive weight from people. 
+I don't receive honor from people. 
 But I know you, that you don't have God's love in yourselves. 
 I have come in my Father's name, and you don't welcome me. If another comes in his own name, you will welcome him. 
-How can you trust, who receive weight from one another, and you don't seek the weight that comes from the only God? 
+How can you trust, who receive honor from one another, and you don't seek the honor that comes from the only God? 
 "Don't think that I will accuse you to the Father. There is one who accuses you, even Moses, on whom you have set your hope. 
 For if you trusted Moses, you would trust me; for he wrote about me. 
 But if you don't trust his writings, how will you trust my words?" 

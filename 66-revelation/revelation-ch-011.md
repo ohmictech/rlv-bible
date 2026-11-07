@@ -10,7 +10,7 @@ For three and a half days, people from every tribe, language, and nation will st
 Those who live on the land will celebrate over them and be glad. They will send each other gifts, because these two spokesmen had caused anguish to those who live on the land. 
 But after the three and a half days, the breath of life from God entered them, and they stood up on their feet. Great fear fell on everyone who saw them. 
 Then I heard a loud voice from the sky saying to them, "Come up here!" And they went up into the sky in a cloud while their enemies watched. 
-At that same hour there was a great earthquake, and a tenth of the city fell. Seven thousand people were killed in the earthquake, and the rest were terrified and gave weight to the God of the sky. 
+At that same hour there was a great earthquake, and a tenth of the city fell. Seven thousand people were killed in the earthquake, and the rest were terrified and gave honor to the God of the sky. 
 The second how terrible has passed. Look, the third how terrible is coming soon. 
 The seventh messenger sounded, and loud voices in the sky said, "The kingdom of the world has become the kingdom of our Lord and of his Christ, and he will reign through all the eras!" 
 The twenty-four elders, who sit on their thrones in front of God's throne, fell on their faces and bowed down to God, 

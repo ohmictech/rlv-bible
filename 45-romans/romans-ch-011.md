@@ -10,7 +10,7 @@ David says, "Let their table be made a snare, a trap, a stone in their way, and 
 Let their eyes be darkened, that they may not see. Always keep their backs bent." 
 I ask then, did they stumble that they might fall? Not a chance! But by their fall rescue has come to the nations, to provoke them to jealousy. 
 Now if their fall is the riches of the world, and their loss the riches of the nations, how much more their fullness! 
-I am speaking to you who are nations. Since I am a sent one to the nations, I give weight to my work, 
+I am speaking to you who are nations. Since I am a sent one to the nations, I make much of my work, 
 if by any means I may provoke to jealousy those who are my flesh, and may rescue some of them. 
 For if the rejection of them is the bringing back of the world, what would their acceptance be, but real life from the dead? 
 If the first fruit is set apart, so is the lump. If the root is set apart, so are the branches. 

@@ -40,4 +40,4 @@ Those who led the way rebuked him, that he should be quiet; but he cried out all
 Jesus stood still and commanded him to be brought to him. When he had come near, he asked him, 
 "What do you want me to do?" He said, "Lord, that I may see again." 
 Jesus said to him, "Receive your sight. Your trust has healed you and made you whole." 
-Immediately he received his sight and followed him, giving weight to God. Everyone, when they saw it, praised God. 
+Immediately he received his sight and followed him, giving honor to God. Everyone, when they saw it, praised God. 

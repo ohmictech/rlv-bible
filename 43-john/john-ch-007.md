@@ -36,7 +36,7 @@ The Jewish leaders therefore said among themselves, "Where will this man go that
 What is this word that he said, 'You will seek me and won't find me,' and 'Where I am, you can't come'?" 
 Now on the last and greatest day of the feast, Jesus stood and cried out, "If anyone is thirsty, let them come to me and drink! 
 Whoever trusts in me, as the Scripture has said, from within them will flow rivers of living water." 
-But he said this about the Spirit, which those trusting in him were to receive. For the Holy Spirit was not yet given, because Jesus wasn't yet given weight. 
+But he said this about the Spirit, which those trusting in him were to receive. For the Holy Spirit was not yet given, because Jesus wasn't yet given honor. 
 Many of the crowd therefore, when they heard these words, said, "This is truly the spokesman." 
 Others said, "This is the Christ." But some said, "What, does the Christ come out of Galilee? 
 Hasn't the Scripture said that the Christ comes of the offspring of David, and from Bethlehem, the village where David was?" 

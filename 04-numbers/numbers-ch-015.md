@@ -3,7 +3,7 @@
 and will make an offering by fire to God, a burnt offering, or a sacrifice, to accomplish a vow, or as a free will offering, or in your set feasts, to make a pleasant aroma to God, of the herd, or of the flock 
 then he who offers his offering will offer to God a meal offering of one tenth of an ephah of fine flour mixed with one fourth of a hin of oil. 
 You will prepare wine for the drink offering, one fourth of a hin, with the burnt offering or for the sacrifice, for each lamb. 
-"'For a ram, you will prepare for a meal offering two tenths of an ephah of fine flour mixed with the third part of a hin of oil; 
+"'A ram, you will prepare for a meal offering two tenths of an ephah of fine flour mixed with the third part of a hin of oil; 
 and for the drink offering you will offer the third part of a hin of wine, of a pleasant aroma to God. 
 When you prepare a bull for a burnt offering or for a sacrifice, to accomplish a vow, or for offerings for wholeness to God, 
 then he will offer with the bull a meal offering of three tenths of an ephah of fine flour mixed with half a hin of oil; 

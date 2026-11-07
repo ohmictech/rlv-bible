@@ -1,7 +1,7 @@
 ﻿This was the lot for the tribe of Manasseh, for he was the firstborn of Joseph. As for Machir the firstborn of Manasseh, the father of Gilead, because he was a man of war, he had Gilead and Bashan. 
 So this was for the rest of the children of Manasseh according to their families: for the children of Abiezer, for the children of Helek, for the children of Asriel, for the children of Shechem, for the children of Hepher, and for the children of Shemida. These were the male children of Manasseh the son of Joseph according to their families. 
 But Zelophehad, the son of Hepher, the son of Gilead, the son of Machir, the son of Manasseh, had no sons, but daughters. These are the names of his daughters: Mahlah, Noah, Hoglah, Milcah, and Tirzah. 
-They came to Eleazar the priest, and to Joshua the son of Nun, and to the princes, saying, "God commanded Moses to give us an inheritance among our brothers." Therefore according to the commandment of God he gave them an inheritance among the brothers of their father. 
+They came to Eleazar the priest, and to Joshua the son of Nun, and to the princes, saying, "God commanded Moses to give us an inheritance among our brothers." So according to the commandment of God he gave them an inheritance among the brothers of their father. 
 Ten parts fell to Manasseh, in addition to the land of Gilead and Bashan, which is beyond the Jordan; 
 because the daughters of Manasseh had an inheritance among his sons. The land of Gilead belonged to the rest of the sons of Manasseh. 
 The border of Manasseh was from Asher to Michmethath, which is before Shechem. The border went along to the right hand, to the inhabitants of En Tappuah. 

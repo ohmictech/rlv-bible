@@ -7,7 +7,7 @@ knowing this, that the person we used to be was crucified with him, so that the 
 The person who died has been freed from the drift. 
 If we died with Christ, we trust that we'll also truly live with him, 
 knowing that Christ, being raised from the dead, dies no more. Death no longer dominates him! 
-For the death he died, he died to the drift once; but the life he lives, he truly lives for God. 
+The death he died, he died to the drift once; but the life he lives, he truly lives for God. 
 So consider yourselves dead to the drift, but truly alive to God in Christ Jesus our Lord. 
 So don't let the drift reign in your mortal body, to obey it in its cravings. 
 Also, don't give your hands and feet to the drift as tools of wrong, but show yourselves to God as alive from the dead, and your limbs as tools of rightness to God. 

@@ -15,7 +15,7 @@ His fellow answered, "This is nothing other than the sword of Gideon the son of 
 It was so, when Gideon heard the telling of the dream and its interpretation, that he worshiped. Then he returned into the camp of Israel and said, "Arise, for God has delivered the army of Midian into your hand!" 
 He divided the three hundred men into three companies, and he put into the hands of everyone trumpets and empty pitchers, with torches within the pitchers. 
 He said to them, "Watch me, and do likewise. Look, when I come to the outermost part of the camp, it will be that, as I do, so you will do. 
-When I blow the trumpet, I and everyone who's with me, then blow the trumpets also on every side of all the camp, and shout, 'For God and for Gideon!'" 
+When I blow the trumpet, I and everyone who's with me, then blow the trumpets also on every side of all the camp, and shout, 'God and for Gideon!'" 
 So Gideon and the hundred men who were with him came to the outermost part of the camp in the beginning of the middle watch, when they had but newly set the watch. Then they blew the trumpets and broke in pieces the pitchers that were in their hands. 
 The three companies blew the trumpets, broke the pitchers, and held the torches in their left hands and the trumpets in their right hands with which to blow; and they shouted, "The sword of God and of Gideon!" 
 They each stood in his place around the camp, and all the army ran; and they shouted, and put them to flight. 

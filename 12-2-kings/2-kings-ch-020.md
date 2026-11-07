@@ -14,7 +14,7 @@ Hezekiah listened to them, and showed them all the storehouse of his precious th
 Then Isaiah the spokesman came to King Hezekiah, and said to him, "What did these men say? From where did they come to you?" Hezekiah said, "They have come from a far country, even from Babylon." 
 He said, "What have they seen in your house?" Hezekiah answered, "They have seen all that's in my house. There's nothing among my treasures that I haven't shown them." 
 Isaiah said to Hezekiah, "Hear God's word. 
-'Look, the days come that all that's in your house, and that which your fathers have laid up in store to this day, will be carried to Babylon. Nothing will be left,' says God. 
+'The days are coming that all that's in your house, and that which your fathers have laid up in store to this day, will be carried to Babylon. Nothing will be left,' says God. 
 'They'll take away some of your sons who will issue from you, whom you'll father; and they'll be eunuchs in the palace of the king of Babylon.'" 
 Then Hezekiah said to Isaiah, "God's word which you have spoken is good." He said moreover, "Isn't it so, if peace and truth will be in my days?" 
 Now the rest of the acts of Hezekiah, and all his might, and how he made the pool, and the conduit, and brought water into the city, aren't they written in the book of the chronicles of the kings of Judah? 

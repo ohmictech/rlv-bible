@@ -19,7 +19,7 @@ He said, 'This is what I'll do. I'll pull down my barns, build bigger ones, and 
 I'll say to my life, "Life, you have plenty stored up for many years. Take it easy, eat, drink, and be merry."' 
 "But God said to him, 'You foolish one, tonight your life is required of you. The things which you have prepared, whose will they be?' 
 So is he who lays up treasure for himself, and isn't rich toward God." 
-He said to his students, "Therefore I tell you, don't be anxious for your life, what you'll eat, nor yet for your body, what you'll wear. 
+He said to his students, "So I tell you, don't be anxious for your life, what you'll eat, nor yet for your body, what you'll wear. 
 Life is more than food, and the body is more than clothing. 
 Consider the ravens: they don't sow, they don't reap, they have no warehouse or barn, and God feeds them. How much more valuable are you than birds! 
 Which of you by being anxious can add a cubit to his height? 

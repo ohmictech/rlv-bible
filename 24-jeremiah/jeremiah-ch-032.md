@@ -12,7 +12,7 @@ So I took the deed of the purchase, both that which was sealed, containing the t
 and I delivered the deed of the purchase to Baruch the son of Neriah, the son of Mahseiah, in the presence of Hanamel my uncle's son, and in the presence of the witnesses who signed the deed of the purchase, before all the Jews who sat in the court of the guard. 
 "I commanded Baruch before them, saying, 
 the God of Armies, the God of Israel says: 'Take these deeds, this deed of the purchase which is sealed, and this deed which is open, and put them in an earthen vessel, that they can last many days.' 
-For the God of Armies, the God of Israel says: 'Houses and fields and vineyards will yet again be bought in this land.' 
+The God of Armies, the God of Israel says: 'Houses and fields and vineyards will yet again be bought in this land.' 
 Now after I had delivered the deed of the purchase to Baruch the son of Neriah, I prayed to God, saying, 
 "Ah God! Look, you have made the sky and the earth by your great power and by your outstretched arm. There's nothing too hard for you. 
 You show loving kindness to thousands, and repay the guilt of the fathers into the bosom of their children after them. The great, the mighty God of Armies is your name: 

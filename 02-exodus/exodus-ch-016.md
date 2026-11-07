@@ -12,7 +12,7 @@ God spoke to Moses, saying,
 "I have heard the murmurings of the children of Israel. Speak to them, saying, 'At evening you will eat meat, and in the morning you will be filled with bread. Then you'll know that I'm your God.'" 
 In the evening, quail came up and covered the camp; and in the morning the dew lay around the camp. 
 When the dew that lay had gone, look, on the surface of the wilderness was a small round thing, small as the frost on the ground. 
-When the children of Israel saw it, they said to one another, "What's it?" For they didn't know what it was. Moses said to them, "It's the bread which God has given you to eat. 
+When the children of Israel saw it, they said to one another, "What's it?" They didn't know what it was. Moses said to them, "It's the bread which God has given you to eat. 
 This is the thing which God has commanded: 'Gather of it everyone according to his eating; an omer a head, according to the number of your persons, you will take it, every man for those who are in his tent.'" 
 The children of Israel did so, and some gathered more, some less. 
 When they measured it with an omer, he who gathered much had nothing over, and he who gathered little had no lack. They each gathered according to his eating. 

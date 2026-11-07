@@ -1,11 +1,11 @@
 ﻿Then the strict religious ones and some of the Bible teachers gathered to him, having come from Jerusalem. 
 They saw that some of his students were eating bread with unclean hands, that's, unwashed hands, and they found fault. 
-(For the strict religious ones and all the Jews don't eat unless they wash their hands and forearms, holding to the tradition of the elders. 
+(The strict religious ones and all the Jews don't eat unless they wash their hands and forearms, holding to the tradition of the elders. 
 They don't eat when they come from the marketplace unless they immerse themselves, and there are many other things they have received to hold to: dippings of cups, pitchers, bronze pots, and couches.) 
 The strict religious ones and the Bible teachers asked him, "Why don't your students walk according to the tradition of the elders, but eat their bread with unwashed hands?" 
 He answered them, "Isaiah spoke well about you pretenders, as it's written, 'This people honors me with their lips, but their heart is far from me. 
 They worship me for nothing, teaching as their teaching the rules made by people.'" 
-"For you set aside the commandment of God and hold tightly to the tradition of people (the dipping of pitchers and cups), and you do many other things like this." 
+"You set aside the commandment of God and hold tightly to the tradition of people (the dipping of pitchers and cups), and you do many other things like this." 
 He said to them, "You have a fine way of rejecting the commandment of God in order to keep your tradition. 
 Moses said, 'Honor your father and your mother,' and, 'Whoever speaks maliciously of father or mother must be put to death.' 
 But you say, 'If someone tells his father or his mother, "Whatever help you might have received from me is Corban, that's, given to God;"' 

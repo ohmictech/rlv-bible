@@ -6,7 +6,7 @@ Now the God of perseverance and of encouragement grant you to be of the same min
 that with one accord you can with one mouth give honor to the God and Father of our Lord Jesus Christ. 
 So accept one another, even as Christ also accepted you, to the weight of God. 
 Now I say that Christ has become a servant of the circumcision for God's truth, to confirm the promises given to the ancestors, 
-so that the nations would give honor to God for his mercy. As it's written, "Therefore I'll give praise to you among the nations and sing to your name." 
+so that the nations would give honor to God for his mercy. As it's written, "So I'll give praise to you among the nations and sing to your name." 
 Again he says, "Celebrate, you nations, with his people." 
 Again, "Praise the Lord, all you nations! Let everyones praise him." 
 Again, Isaiah says, "There will be the root of Jesse, he who arises to rule over the nations; in him the nations will put their expectation." 

@@ -8,7 +8,7 @@ God has sworn by the pride of Jacob, "Surely I'll never forget any of their work
 Won't the land tremble for this, and everyone mourn who dwells in it? Yes, it'll rise up wholly like the River; and it'll be stirred up and driftsk again, like the River of Egypt. 
 It'll happen in that day," says God, "that I'll cause the sun to go down at noon, and I'll darken the earth in the clear day. 
 I'll turn your feasts into mourning, and all your songs into lamentation; and I'll make you wear sackcloth on all your bodies, and baldness on every head. I'll make it like the mourning for an only son, and its end like a bitter day. 
-Look, the days come," says God, "that I'll send a famine in the land, not a famine of bread, nor a thirst for water, but of hearing God's words. 
+The days are coming," says God, "that I'll send a famine in the land, not a famine of bread, nor a thirst for water, but of hearing God's words. 
 They'll wander from sea to sea, and from the north even to the east; they'll run back and forth to seek God's word, and won't find it. 
 In that day the beautiful virgins and the young men will faint for thirst. 
 Those who swear by the wrongdoing of Samaria, and say, 'As your god, Dan, lives,' and, 'As the way of Beersheba lives,' they'll fall, and never rise up again." 

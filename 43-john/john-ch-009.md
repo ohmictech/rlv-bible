@@ -38,4 +38,4 @@ Jesus said to him, "You have both seen him, and it's he who speaks with you."
 He said, "Lord, I trust!" and he worshiped him. 
 Jesus said, "I came into this world for a verdict, that those who don't see may see; and that those who see may become blind." 
 Those of the strict religious ones who were with him heard these things, and said to him, "Are we also blind?" 
-Jesus said to them, "If you were blind, you'd have no mistakes; but now you say, 'We see.' Therefore your mistakes remain. 
+Jesus said to them, "If you were blind, you'd have no mistakes; but now you say, 'We see.' So your mistakes remain. 

@@ -1,5 +1,5 @@
 ﻿In those days, the Philistines gathered their armies together for warfare, to fight with Israel. Achish said to David, "Know assuredly that you'll go out with me in the army, you and your men." 
-David said to Achish, "Therefore you'll know what your servant can do." Achish said to David, "Therefore I'll make you my bodyguard for the eras." 
+David said to Achish, "So you'll know what your servant can do." Achish said to David, "So I'll make you my bodyguard for the eras." 
 Now Samuel was dead, and all Israel had mourned for him and buried him in Ramah, even in his own city. Saul had sent away those who had familiar spirits and the wizards out of the land. 
 The Philistines gathered themselves together, and came and encamped in Shunem; and Saul gathered all Israel together, and they encamped in Gilboa. 
 When Saul saw the army of the Philistines, he was afraid, and his heart trembled greatly. 

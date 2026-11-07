@@ -23,7 +23,7 @@ for I feared you, because you're a hard man. You take up that which you didn't l
 Then why didn't you deposit my money in the bank, so that at my coming I'd have earned interest on it?' 
 He said to those who stood by, 'Take the silver coin away from him and give it to him who has the ten.' 
 "They said to him, 'Lord, he has ten already!' 
-'For I tell you that to everyone who has, more will be given; but from him who doesn't have, even that which he has will be taken away from him. 
+'I tell you that to everyone who has, more will be given; but from him who doesn't have, even that which he has will be taken away from him. 
 But bring those enemies of mine who didn't want me to reign over them here, and kill them before me.'" 
 Having said these things, he went on ahead, going up to Jerusalem. 
 When he came near to Bethsphage and Bethany, at the mountain that's called Olivet, he sent two of his students, 

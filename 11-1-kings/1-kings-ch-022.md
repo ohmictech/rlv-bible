@@ -16,7 +16,7 @@ When he had come to the king, the king said to him, "Micaiah, will we go to Ramo
 The king said to him, "How many times do I have to adjure you that you speak to me nothing but the truth in God's name?" 
 He said, "I saw all Israel scattered on the mountains, as sheep that have no shepherd. God said, 'These have no master. Let them each return to his house in peace.'" 
 The king of Israel said to Jehoshaphat, "Didn't I tell you that he wouldn't prophesy good concerning me, but bad?" 
-Micaiah said, "Therefore hear God's word. I saw God sitting on his throne, and all the army of the sky standing by him on his right hand and on his left. 
+Micaiah said, "So hear God's word. I saw God sitting on his throne, and all the army of the sky standing by him on his right hand and on his left. 
 God said, 'Who will entice Ahab, that he can go up and fall at Ramoth Gilead?' One said one thing, and another said another. 
 A spirit came out and stood before God, and said, 'I'll entice him.' 
 God said to him, 'How?' He said, 'I'll go out and will be a lying spirit in the mouth of all his spokesmen.' He said, 'You'll entice him, and will also prevail. Go out and do so.' 

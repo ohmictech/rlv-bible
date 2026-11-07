@@ -42,7 +42,7 @@ The Jewish crowd grumbled concerning him, because he said, "I am the bread which
 They said, "Isn't this Jesus, the son of Joseph, whose father and mother we know? How then does he say, 'I have come down out of the sky'?" 
 So Jesus answered them, "Don't grumble among yourselves. 
 No one can come to me unless the Father who sent me draws them; and I'll raise them up at the last day. 
-It's written in the spokesmen, 'They'll all be taught by God.' Therefore everyone who hears from the Father and has learned, comes to me. 
+It's written in the spokesmen, 'They'll all be taught by God.' So everyone who hears from the Father and has learned, comes to me. 
 Not that anyone has seen the Father, except he who's from God. He has seen the Father. 
 Truly I tell you, whoever trusts in me has the real life of the era. 
 I am the bread of life. 
@@ -61,7 +61,7 @@ So many of his students, when they heard this, said, "This is a hard saying! Who
 But Jesus knowing in himself that his students grumbled at this, said to them, "Does this trap you? 
 Then what if you'd see the Human One ascending to where he was before? 
 It's the spirit who gives life. The flesh profits nothing. The words that I speak to you're spirit, and are life. 
-But there are some of you who don't trust." For Jesus knew from the beginning who they were who didn't trust, and who it was who would hand him over. 
+But there are some of you who don't trust." Jesus knew from the beginning who they were who didn't trust, and who it was who would hand him over. 
 He said, "That's why I have said to you that no one can come to me, unless it's given to them by my Father." 
 At this, many of his students went back and walked no more with him. 
 Jesus said to the twelve, "You don't also want to go away, do you?" 

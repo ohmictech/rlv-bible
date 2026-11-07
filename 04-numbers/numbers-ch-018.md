@@ -27,6 +27,6 @@ God spoke to Moses, saying,
 Your wave offering will be credited to you, as though it were the grain of the threshing floor, and as the fullness of the wine press. 
 Thus you also will offer a wave offering to God of all your tithes, which you receive of the children of Israel; and of it you will give God's wave offering to Aaron the priest. 
 Out of all your gifts, you will offer every wave offering to God, of all its best parts, even the holy part of it.' 
-"Therefore you will tell them, 'When you heave its best from it, then it will be credited to the Levites as the increase of the threshing floor, and as the increase of the wine press. 
+"So you will tell them, 'When you heave its best from it, then it will be credited to the Levites as the increase of the threshing floor, and as the increase of the wine press. 
 You can eat it anywhere, you and your households, for it's your reward in return for your service in the Tent of Meeting. 
 You will bear no guilt by reason of it, when you have heaved from it its best. You won't profane the holy things of the children of Israel, that you not die.'" 

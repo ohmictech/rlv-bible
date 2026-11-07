@@ -1,9 +1,9 @@
-﻿God says: "For three rebellion of Moab, yes, for four, I won't turn away its punishment, because he burned the bones of the king of Edom into lime; 
+﻿God says: "Three rebellion of Moab, yes, for four, I won't turn away its punishment, because he burned the bones of the king of Edom into lime; 
 but I'll send a fire on Moab, and it'll devour the palaces of Kerioth; and Moab will die with tumult, with shouting, and with the sound of the trumpet; 
 and I'll cut off the judge from among them, and will kill all its princes with him," says God. 
-God says: "For three rebellion of Judah, yes, for four, I won't turn away its punishment, because they have rejected God's law, and haven't kept his statutes, and their lies have led them astray, after which their fathers walked; 
+God says: "Three rebellion of Judah, yes, for four, I won't turn away its punishment, because they have rejected God's law, and haven't kept his statutes, and their lies have led them astray, after which their fathers walked; 
 but I'll send a fire on Judah, and it'll devour the palaces of Jerusalem." 
-God says: "For three rebellion of Israel, yes, for four, I won't turn away its punishment, because they have sold the righteous for silver, and the needy for a pair of sandals; 
+God says: "Three rebellion of Israel, yes, for four, I won't turn away its punishment, because they have sold the righteous for silver, and the needy for a pair of sandals; 
 They trample the heads of the poor into the dust of the earth and deny justice to the oppressed. A man and his father use the same maiden, to profane my holy name. 
 They lay themselves down beside every altar on clothes taken in pledge. In the house of their God they drink the wine of those who have been fined. 
 Yet I destroyed the Amorite before them, whose height was like the height of the cedars, and he was strong as the oaks; yet I destroyed his fruit from above, and his roots from beneath. 

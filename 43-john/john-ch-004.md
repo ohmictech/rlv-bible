@@ -6,7 +6,7 @@ So he came to a city of Samaria called Sychar, near the parcel of ground that Ja
 Jacob's well was there. Jesus, being tired from his journey, sat down by the well. It was about noon. 
 A woman of Samaria came to draw water. Jesus said to her, "Give me a drink." 
 His students had gone away into the city to buy food. 
-The Samaritan woman said to him, "How is it that you, being a Jew, ask for a drink from me, a Samaritan woman?" (For Jews have no dealings with Samaritans.) 
+The Samaritan woman said to him, "How is it that you, being a Jew, ask for a drink from me, a Samaritan woman?" (Jews have no dealings with Samaritans.) 
 Jesus answered her, "If you knew the gift of God, and who it's who says to you, 'Give me a drink,' you'd have asked him, and he'd have given you living water." 
 The woman said to him, "Sir, you have nothing to draw with, and the well is deep. So where do you get that living water? 
 Are you greater than our father Jacob, who gave us the well and drank from it himself, as did his children and his livestock?" 

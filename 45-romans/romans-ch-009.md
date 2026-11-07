@@ -14,7 +14,7 @@ Even as it's written, "Jacob I loved, but Esau I hated."
 What will we say then? Is there unrighteousness with God? Not a chance! 
 He said to Moses, "I'll have mercy on whom I have mercy, and I'll have compassion on whom I have compassion." 
 So then it isn't of him who wills, nor of him who runs, but of God who has mercy. 
-The Scripture says to Pharaoh, "For this very purpose I caused you to be raised up, so that I could show my power in you, and so that my name would be announced in all the land." 
+The Scripture says to Pharaoh, "This very purpose I caused you to be raised up, so that I could show my power in you, and so that my name would be announced in all the land." 
 So then, he has mercy on whom he desires, and he hardens whom he desires. 
 You'll say then to me, "Why does he still find fault? Who withstands his will?" 
 But indeed, O man, who are you to reply against God? Will the thing formed ask him who formed it, "Why did you make me like this?" 

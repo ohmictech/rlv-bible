@@ -15,7 +15,7 @@ When he had come to the king, the king said to him, "Micaiah, will we go to Ramo
 The king said to him, "How many times will I adjure you that you speak to me nothing but the truth in God's name?" 
 He said, "I saw all Israel scattered on the mountains, as sheep that have no shepherd. God said, 'These have no master. Let them each return to his house in peace.'" 
 The king of Israel said to Jehoshaphat, "Didn't I tell you that he wouldn't prophesy good concerning me, but bad?" 
-Micaiah said, "Therefore hear God's word: I saw God sitting on his throne, and all the army of the sky standing on his right hand and on his left. 
+Micaiah said, "So hear God's word: I saw God sitting on his throne, and all the army of the sky standing on his right hand and on his left. 
 God said, 'Who will entice Ahab king of Israel, that he can go up and fall at Ramoth Gilead?' One spoke saying in this way, and another saying in that way. 
 A spirit came out, stood before God, and said, 'I'll entice him.' "God said to him, 'How?' 
 "He said, 'I'll go, and will be a lying spirit in the mouth of all his spokesmen.' "He said, 'You'll entice him, and will prevail also. Go and do so.' 
@@ -28,7 +28,7 @@ Micaiah said, "If you return at all in peace, God hasn't spoken by me." He said,
 So the king of Israel and Jehoshaphat the king of Judah went up to Ramoth Gilead. 
 The king of Israel said to Jehoshaphat, "I'll disguise myself, and go into the battle; but you put on your robes." So the king of Israel disguised himself; and they went into the battle. 
 Now the king of Syria had commanded the captains of his chariots, saying, "Don't fight with small nor great, except only with the king of Israel." 
-When the captains of the chariots saw Jehoshaphat, they said, "It's the king of Israel!" Therefore they turned around to fight against him. But Jehoshaphat cried out, and God helped him; and God moved them to depart from him. 
+When the captains of the chariots saw Jehoshaphat, they said, "It's the king of Israel!" So they turned around to fight against him. But Jehoshaphat cried out, and God helped him; and God moved them to depart from him. 
 When the captains of the chariots saw that it wasn't the king of Israel, they turned back from pursuing him. 
 A certain man drew his bow at random, and struck the king of Israel between the joints of the armor. So he said to the driver of the chariot, "Turn around and carry me out of the battle, for I'm severely wounded." 
 The battle increased that day. However, the king of Israel propped himself up in his chariot against the Syrians until the evening; and at about sunset, he died. 

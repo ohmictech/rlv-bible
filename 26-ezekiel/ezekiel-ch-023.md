@@ -25,7 +25,7 @@ They'll come against you with weapons, chariots, and wagons, and with a company 
 I'll set my jealousy against you, and they'll deal with you in fury. They'll take away your nose and your ears. Your remnant will fall by the sword. They'll take your sons and your daughters; and the rest of you'll be devoured by the fire. 
 They'll also strip you of your clothes and take away your beautiful jewels. 
 Thus I'll make your lewdness to cease from you, and remove your prostitution from the land of Egypt, so that you won't lift up your eyes to them, nor remember Egypt any more.' 
-"For God says: 'Look, I'll deliver you into the hand of them whom you hate, into the hand of them from whom your soul is alienated. 
+"God says: 'Look, I'll deliver you into the hand of them whom you hate, into the hand of them from whom your soul is alienated. 
 They'll deal with you in hatred, and will take away all your labor, and will leave you naked and bare. The nakedness of your prostitution will be uncovered, both your lewdness and your prostitution. 
 These things will be done to you because you have played the prostitute after the nations, and because you're polluted with their idols. 
 You have walked in the way of your sister; I'll give her cup into your hand.' 

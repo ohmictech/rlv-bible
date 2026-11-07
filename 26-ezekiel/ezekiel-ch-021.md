@@ -3,7 +3,7 @@
 Tell the land of Israel, 'God says: "Look, I'm against you, and will draw my sword out of its sheath, and will cut off from you the righteous and the guilty. 
 Seeing then that I'll cut off from you the righteous and the guilty, my sword will go out of its sheath against all flesh from the south to the north. 
 All flesh will know that I, God, have drawn my sword out of its sheath. It won't return any more."' 
-"Therefore sigh, you son of man. You will sigh before their eyes with a broken heart and with bitterness. 
+"So sigh, you son of man. You will sigh before their eyes with a broken heart and with bitterness. 
 It will be, when they ask you, 'Why do you sigh?' that you will say, 'Because of the news, for it comes! Every heart will melt, all hands will be feeble, every spirit will faint, and all knees will be weak as water. Look, it comes, and it will be done, says God.'" 
 God's word came to me, saying, 
 "Son of man, prophesy, and say, 'God says: "A sword! A sword! It's sharpened, and also polished. 

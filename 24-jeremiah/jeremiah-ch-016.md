@@ -11,7 +11,7 @@ It'll happen, when you tell this people all these words, and they ask you, 'Why 
 then you will tell them, 'Because your fathers have forsaken me,' says God, 'and have walked after other gods, have served them, have worshiped them, have forsaken me, and haven't kept my law. 
 You have done bad more than your fathers, look, you each walk after the stubbornness of his bad heart, so that you don't listen to me. 
 So I'll cast you out of this land into the land that you haven't known, neither you nor your fathers. There you'll serve other gods day and night, for I'll show you no favor.' 
-"Therefore look, the days come," says God, "that it'll no more be said, 'As God lives, who brought up the children of Israel out of the land of Egypt;' 
+"The days are coming," says God, "that it'll no more be said, 'As God lives, who brought up the children of Israel out of the land of Egypt;' 
 but, 'As God lives, who brought up the children of Israel from the land of the north, and from all the countries where he had driven them.' I'll bring them again into their land that I gave to their fathers. 
 "Look, I'll send for many fishermen," says God, "and they'll fish them up. Afterward I'll send for many hunters, and they'll hunt them from every mountain, from every hill, and out of the clefts of the rocks. 
 My eyes are on all their ways. They aren't hidden from my face. Their guilt isn't concealed from my eyes. 

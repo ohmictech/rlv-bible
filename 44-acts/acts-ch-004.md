@@ -24,7 +24,7 @@ Being let go, they came to their own company and reported all that the chief pri
 When they heard it, they lifted up their voice to God with one accord and said, "Master, you're God, who made the sky, the land, the sea, and all that's in them; 
 who by the mouth of your servant David said, 'Why do the nations rage, and the peoples plot an empty thing? 
 The kings of the land take a stand, and the rulers plot together, against the Lord, and against his Christ.' 
-"For truly, both Herod and Pontius Pilate, with the nations and the people of Israel, were gathered together against your set-apart servant Jesus, whom you anointed, 
+"Truly, both Herod and Pontius Pilate, with the nations and the people of Israel, were gathered together against your set-apart servant Jesus, whom you anointed, 
 to do whatever your hand and your counsel foreordained to happen. 
 Now, Lord, look at their threats, and give your slaves boldness to speak your word, 
 while you stretch out your hand to heal; and that signs and wonders may be done through the name of your set-apart Servant Jesus." 

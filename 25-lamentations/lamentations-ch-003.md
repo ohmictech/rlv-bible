@@ -21,7 +21,7 @@ My soul still remembers them, and is bowed down within me.
 This I recall to my mind; I have hope. 
 It's because of God's loving kindnesses that we aren't consumed, because his mercies don't fail. 
 They're new every morning. Great is your faithfulness. 
-"God is my portion," says my soul. "Therefore I'll hope in him." 
+"God is my portion," says my soul. "So I'll hope in him." 
 God is good to those who wait for him, to the soul who seeks him. 
 It's good that a man should hope and quietly wait for the salvation of God. 
 It's good for a man that he bear the yoke in his youth. 

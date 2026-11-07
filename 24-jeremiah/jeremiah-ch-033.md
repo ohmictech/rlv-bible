@@ -1,7 +1,7 @@
 ﻿Moreover God's word came to Jeremiah the second time, while he was still locked up in the court of the guard, saying, 
 "God who does it, God who forms it to establish it, God is his name, says: 
 'Call to me, and I'll answer you, and will show you great and difficult things, which you don't know.' 
-For the God of Israel says concerning the houses of this city and concerning the houses of the kings of Judah, which are broken down to make a defense against the mounds and against the sword: 
+The God of Israel says concerning the houses of this city and concerning the houses of the kings of Judah, which are broken down to make a defense against the mounds and against the sword: 
 'While men come to fight with the Chaldeans, and to fill them with the dead bodies of men, whom I have killed in my anger and in my wrath, and for all whose guilt I have hidden my face from this city, 
 Look, I'll bring it health and healing, and I'll cure them; and I'll reveal to them abundance of peace and truth. 
 I'll restore the fortunes of Judah and Israel, and will build them as at the first. 
@@ -11,7 +11,7 @@ God says: "Yet again there will be heard in this place, about which you say, 'It
 the voice of joy and the voice of gladness, the voice of the bridegroom and the voice of the bride, the voice of those who say, 'Give thanks to the God of Armies, for God is good, for his loving kindness endures for the eras;' who bring thanksgiving into God's house. I'll cause the captivity of the land to be reversed as at the first," says God. 
 The God of Armies says: "Yet again there will be in this place, which is waste, without man and without animal, and in all its cities, a habitation of shepherds causing their flocks to lie down. 
 In the cities of the hill country, in the cities of the lowland, in the cities of the South, in the land of Benjamin, in the places around Jerusalem, and in the cities of Judah, the flocks will again pass under the hands of him who counts them," says God. 
-"Look, the days come," says God, "that I'll perform that good word which I have spoken concerning the house of Israel and concerning the house of Judah. 
+"The days are coming," says God, "that I'll perform that good word which I have spoken concerning the house of Israel and concerning the house of Judah. 
 "In those days and at that time, I'll cause a Branch of righteousness to grow up to David. He'll execute justice and righteousness in the land. 
 In those days Judah will be saved, and Jerusalem will dwell safely. This is the name by which she'll be called: God our righteousness." 
 God says: "David will never lack a man to sit on the throne of the house of Israel. 

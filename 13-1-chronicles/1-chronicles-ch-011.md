@@ -16,7 +16,7 @@ Three of the thirty chief men went down to the rock to David, into the cave of A
 David was then in the stronghold, and the garrison of the Philistines was in Bethlehem at that time. 
 David longed, and said, "Oh, that someone would give me water to drink from the well of Bethlehem, which is by the gate!" 
 The three broke through the army of the Philistines, and drew water out of the well of Bethlehem that was by the gate, took it, and brought it to David; but David wouldn't drink any of it, but poured it out to God, 
-and said, "My God forbid me, that I should do this! Will I drink the blood of these men who have put their lives in jeopardy?" For they risked their lives to bring it. So he wouldn't drink it. The three mighty men did these things. 
+and said, "My God forbid me, that I should do this! Will I drink the blood of these men who have put their lives in jeopardy?" They risked their lives to bring it. So he wouldn't drink it. The three mighty men did these things. 
 Abishai, the brother of Joab, was chief of the three; for he lifted up his spear against three hundred and killed them, and had a name among the three. 
 Of the three, he was more honorable than the two, and was made their captain; however he wasn't included in the three. 
 Benaiah the son of Jehoiada, the son of a valiant man of Kabzeel, who had done mighty deeds, killed the two sons of Ariel of Moab. He also went down and killed a lion in the middle of a pit on a snowy day. 

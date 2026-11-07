@@ -13,7 +13,7 @@ Manoah said, "Now let your words happen. What will the child's way of life and m
 God's messenger said to Manoah, "Of all that I said to the woman let her beware. 
 She can't eat of anything that comes of the vine, neither let her drink wine or strong drink, nor eat any unclean thing. Let her observe all that I commanded her." 
 Manoah said to God's messenger, "Please stay with us, that we can make a young goat ready for you." 
-God's messenger said to Manoah, "Though you detain me, I won't eat your bread. If you'll prepare a burnt offering, you must offer it to God." For Manoah didn't know that he was God's messenger. 
+God's messenger said to Manoah, "Though you detain me, I won't eat your bread. If you'll prepare a burnt offering, you must offer it to God." Manoah didn't know that he was God's messenger. 
 Manoah said to God's messenger, "What's your name, that when your words happen, we can honor you?" 
 God's messenger said to him, "Why do you ask about my name, since it's incomprehensible?" 
 So Manoah took the young goat with the meal offering, and offered it on the rock to God. Then the messenger did an amazing thing as Manoah and his wife watched. 

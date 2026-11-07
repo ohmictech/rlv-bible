@@ -14,7 +14,7 @@ Elisha said to the king of Israel, "What have I to do with you? Go to the spokes
 Elisha said, "As the God of Armies lives, before whom I stand, surely, were it not that I respect the presence of Jehoshaphat the king of Judah, I wouldn't look toward you, nor see you. 
 But now bring me a musician." When the musician played, God's hand came on him. 
 He said, "God says, 'Make this valley full of trenches.' 
-For God says, 'You won't see wind, neither will you see rain, yet that valley will be filled with water, and you'll drink, both you and your livestock and your other animals. 
+God says, 'You won't see wind, neither will you see rain, yet that valley will be filled with water, and you'll drink, both you and your livestock and your other animals. 
 This is an easy thing in God's sight. He'll also deliver the Moabites into your hand. 
 You will strike every fortified city and every choice city, and will fell every good tree, and stop all springs of water, and mar every good piece of land with stones.'" 
 In the morning, about the time of offering the sacrifice, look, water came by the way of Edom, and the country was filled with water. 

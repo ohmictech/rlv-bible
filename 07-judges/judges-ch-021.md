@@ -2,7 +2,7 @@
 The people came to Bethel and sat there until evening before God, and lifted up their voices, and wept severely. 
 They said, "The God of Israel, why has this happened in Israel, that there should be one tribe lacking in Israel today?" 
 On the next day, the people rose early and built an altar there, and offered burnt offerings and offerings for wholeness. 
-The children of Israel said, "Who's there among all the tribes of Israel who didn't come up in the assembly to God?" For they had made a great oath concerning him who didn't come up to God to Mizpah, saying, "He will surely be put to death." 
+The children of Israel said, "Who's there among all the tribes of Israel who didn't come up in the assembly to God?" They had made a great oath concerning him who didn't come up to God to Mizpah, saying, "He will surely be put to death." 
 The children of Israel grieved for Benjamin their brother, and said, "There's one tribe cut off from Israel today. 
 How will we provide wives for those who remain, since we have sworn by God that we won't give them of our daughters to wives?" 
 They said, "What one is there of the tribes of Israel who didn't come up to God to Mizpah?" Look, no one came from Jabesh Gilead to the camp to the assembly. 

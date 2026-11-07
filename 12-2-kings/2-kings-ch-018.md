@@ -28,7 +28,7 @@ But Rabshakeh said to them, "Has my master sent me to your master and to you, to
 Then Rabshakeh stood and cried with a loud voice in the Jews' language, and spoke, saying, "Hear the word of the great king, the king of Assyria. 
 The king says, 'Don't let Hezekiah deceive you, for he won't be able to deliver you out of his hand. 
 Don't let Hezekiah make you trust in God, saying, "God will surely deliver us, and this city won't be given into the hand of the king of Assyria." 
-Don't listen to Hezekiah.' For the king of Assyria says, 'Make your peace with me, and come out to me; and everyone of you eat from his own vine, and everyone from his own fig tree, and everyone drink water from his own cistern; 
+Don't listen to Hezekiah.' The king of Assyria says, 'Make your peace with me, and come out to me; and everyone of you eat from his own vine, and everyone from his own fig tree, and everyone drink water from his own cistern; 
 until I come and take you away to a land like your own land, a land of grain and new wine, a land of bread and vineyards, a land of olive trees and of honey, that you can live and not die. Don't listen to Hezekiah when he persuades you, saying, "God will deliver us." 
 Has any of the gods of the nations ever delivered his land out of the hand of the king of Assyria? 
 Where are the gods of Hamath and of Arpad? Where are the gods of Sepharvaim, of Hena, and Ivvah? Have they delivered Samaria out of my hand? 

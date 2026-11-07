@@ -4,7 +4,7 @@ You will take a small number of these and bind them in the folds of your robe.
 Of these again you will take, and cast them into the middle of the fire, and burn them in the fire. From it a fire will come out into all the house of Israel. 
 "The God says: 'This is Jerusalem. I have set her in the middle of the nations, and countries are around her. 
 She has rebelled against my ordinances in doing guilt more than the nations, and against my statutes more than the countries that are around her; for they have rejected my ordinances, and as for my statutes, they haven't walked in them.' 
-"Therefore God says: 'Because you're more turbulent than the nations that are around you, and haven't walked in my statutes, neither have kept my ordinances, neither have followed the ordinances of the nations that are around you; 
+"So God says: 'Because you're more turbulent than the nations that are around you, and haven't walked in my statutes, neither have kept my ordinances, neither have followed the ordinances of the nations that are around you; 
 So God says: 'Look, I, even I, am against you; and I'll execute judgments among you in the sight of the nations. 
 I'll do in you that which I haven't done, and which I won't do anything like it any more, because of all your abominations. 
 So the fathers will eat the sons within you, and the sons will eat their fathers. I'll execute judgments on you; and I'll scatter the whole remnant of you to all the winds. 

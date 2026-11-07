@@ -14,7 +14,7 @@ He also took up Elijah's mantle that fell from him, and went back and stood by t
 He took Elijah's mantle that fell from him, and struck the waters, and said, "Where is the God of Elijah?" When he also had struck the waters, they were divided apart, and Elisha went over. 
 When the sons of the spokesmen who were at Jericho facing him saw him, they said, "The spirit of Elijah rests on Elisha." They came to meet him, and bowed themselves to the ground before him. 
 They said to him, "See now, there are with your servants fifty strong men. Please let them go and seek your master. Perhaps God's Spirit has taken him up, and put him on some mountain or into some valley." He said, "Don't send them." 
-When they urged him until he was ashamed, he said, "Send them." Therefore they sent fifty men; and they searched for three days, but didn't find him. 
+When they urged him until he was ashamed, he said, "Send them." So they sent fifty men; and they searched for three days, but didn't find him. 
 They came back to him while he stayed at Jericho; and he said to them, "Didn't I tell you, 'Don't go'?" 
 The men of the city said to Elisha, "Look, please, the situation of this city is pleasant, as my lord sees; but the water is bad, and the land is barren." 
 He said, "Bring me a new jar, and put salt in it." Then they brought it to him. 

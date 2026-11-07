@@ -1,6 +1,6 @@
 ﻿God's word came again to me, saying, 
 "Son of man, prophesy, and say, 'The God says: "Wail, 'Alas for the day!' 
-For the day is near, even God's day is near. It'll be a day of clouds, a time of the nations. 
+The day is near, even God's day is near. It'll be a day of clouds, a time of the nations. 
 A sword will come on Egypt, and anguish will be in Ethiopia, when the slain fall in Egypt. They take away her multitude, and her foundations are broken down. 
 "'"Ethiopia, Put, Lud, all the mixed people, Cub, and the children of the land that's allied with them, will fall with them by the sword." 
 "'God says: "They also who uphold Egypt will fall. The pride of her power will come down. They'll fall by the sword in it from the tower of Seveneh," says God. 

@@ -14,7 +14,7 @@ So Saul removed him from his presence, and made him his captain over a thousand;
 David behaved himself wisely in all his ways; and God was with him. 
 When Saul saw that he behaved himself very wisely, he stood in awe of him. 
 But all Israel and Judah loved David; for he went out and came in before them. 
-Saul said to David, "Look, my elder daughter Merab. I'll give her to you as wife. Only be valiant for me, and fight God's battles." For Saul said, "Don't let my hand be on him, but let the hand of the Philistines be on him." 
+Saul said to David, "Look, my elder daughter Merab. I'll give her to you as wife. Only be valiant for me, and fight God's battles." Saul said, "Don't let my hand be on him, but let the hand of the Philistines be on him." 
 David said to Saul, "Who am I, and what's my life, or my father's family in Israel, that I should be son-in-law to the king?" 
 But at the time when Merab, Saul's daughter, should have been given to David, she was given to Adriel the Meholathite as wife. 
 Michal, Saul's daughter, loved David; and they told Saul, and the thing pleased him. 

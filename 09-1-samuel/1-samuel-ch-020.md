@@ -26,7 +26,7 @@ The king sat on his seat, as at other times, even on the seat by the wall; and J
 Nevertheless Saul didn't say anything that day, for he thought, "Something has happened to him. He isn't clean. Surely he isn't clean." 
 On the next day after the new moon, the second day, David's place was empty. Saul said to Jonathan his son, "Why didn't the son of Jesse come to eat, either yesterday, or today?" 
 Jonathan answered Saul, "David earnestly asked permission of me to go to Bethlehem. 
-He said, 'Please let me go, for our family has a sacrifice in the city. My brother has commanded me to be there. Now, if I have found favor in your eyes, please let me go away and see my brothers.' Therefore he hasn't come to the king's table." 
+He said, 'Please let me go, for our family has a sacrifice in the city. My brother has commanded me to be there. Now, if I have found favor in your eyes, please let me go away and see my brothers.' So he hasn't come to the king's table." 
 Then Saul's anger burned against Jonathan, and he said to him, "You son of a perverse rebellious woman, don't I know that you have chosen the son of Jesse to your own shame, and to the shame of your mother's nakedness? 
 As long as the son of Jesse lives on the earth, you won't be established, nor will your kingdom. So now send and bring him to me, for he will surely die!" 
 Jonathan answered Saul his father, and said to him, "Why should he be put to death? What has he done?" 

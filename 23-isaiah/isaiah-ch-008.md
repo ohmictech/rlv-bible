@@ -1,7 +1,7 @@
-﻿God said to me, "Take a large tablet, and write on it with a man's pen, 'For Maher Shalal Hash Baz'; 
+﻿God said to me, "Take a large tablet, and write on it with a man's pen, 'Maher Shalal Hash Baz'; 
 and I'll take for myself faithful witnesses to testify: Uriah the priest, and Zechariah the son of Jeberechiah." 
 I went to the prophetess, and she conceived, and bore a son. Then God said to me, "Call his name 'Maher Shalal Hash Baz.' 
-For before the child knows how to say, 'My father' and 'My mother,' the riches of Damascus and the plunder of Samaria will be carried away by the king of Assyria." 
+Before the child knows how to say, 'My father' and 'My mother,' the riches of Damascus and the plunder of Samaria will be carried away by the king of Assyria." 
 God spoke to me yet again, saying, 
 "Because this people has refused the waters of Shiloah that go softly, and rejoice in Rezin and Remaliah's son; 
 now, look, the Lord brings upon them the mighty flood waters of the River: the king of Assyria and all his glory. It'll come up over all its channels, and go over all its banks. 

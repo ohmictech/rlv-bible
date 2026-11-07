@@ -26,5 +26,5 @@ When she was brought out, she sent to her father-in-law, saying, "I'm with child
 Judah acknowledged them, and said, "She's more righteous than I, because I didn't give her to Shelah, my son." He knew her again no more. 
 In the time of her travail, look, twins were in her womb. 
 When she travailed, one put out a hand, and the midwife took and tied a scarlet thread on his hand, saying, "This came out first." 
-As he drew back his hand, look, his brother came out, and she said, "Why have you made a breach for yourself?" Therefore his name was called Perez. 
+As he drew back his hand, look, his brother came out, and she said, "Why have you made a breach for yourself?" So his name was called Perez. 
 Afterward his brother came out, who had the scarlet thread on his hand, and his name was called Zerah. 

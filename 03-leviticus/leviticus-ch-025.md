@@ -15,7 +15,7 @@ It's a jubilee; it will be holy to you. You will eat of its increase out of the 
 According to the number of years after the Jubilee you will buy from your neighbor. According to the number of years of the crops he will sell to you. 
 According to the length of the years you will increase its price, and according to the shortness of the years you will diminish its price; for he's selling the number of the crops to you. 
 Don't wrong one another, but you will fear your God; for I'm your God. 
-"'Therefore you will do my statutes, and keep my ordinances and do them; and you will dwell in the land in safety. 
+"'So you will do my statutes, and keep my ordinances and do them; and you will dwell in the land in safety. 
 The land will yield its fruit, and you will eat your fill, and dwell therein in safety. 
 If you said, "What will we eat the seventh year? Look, we won't sow, nor gather in our increase;" 
 then I'll command my blessing on you in the sixth year, and it will bear fruit for the three years. 

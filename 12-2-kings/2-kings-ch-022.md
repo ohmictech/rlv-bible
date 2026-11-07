@@ -17,4 +17,4 @@ She said to them, "God the God of Israel says, 'Tell the man who sent you to me,
 Because they have forsaken me and have burned incense to other gods, that they might provoke me to anger with all the work of their hands, my wrath will be kindled against this place, and it won't be quenched.'" 
 But to the king of Judah, who sent you to inquire of God, tell him, "God the God of Israel says, 'Concerning the words which you have heard, 
 because your heart was tender, and you humbled yourself before God when you heard what I spoke against this place and against its inhabitants, that they should become a desolation and a curse, and have torn your clothes and wept before me, I also have heard you,' says God. 
-'Therefore look, I'll gather you to your fathers, and you'll be gathered to your grave in peace. Your eyes won't see all the bad which I'll bring on this place.'"'" So they brought this message back to the king. 
+'So look, I'll gather you to your fathers, and you'll be gathered to your grave in peace. Your eyes won't see all the bad which I'll bring on this place.'"'" So they brought this message back to the king. 

@@ -27,7 +27,7 @@ and all the kings of the north, far and near, one with another; and all the king
 "You will tell them, 'The God of Armies, the God of Israel says: "Drink, and be drunk, vomit, fall, and rise no more, because of the sword which I'll send among you."' 
 It will be, if they refuse to take the cup at your hand to drink, then you will tell them, 'The God of Armies says: "You will surely drink. 
 For, look, I begin to work bad at the city which is called by my name; and should you be utterly unpunished? You won't be unpunished; for I'll call for a sword on all the inhabitants of the earth, says the God of Armies."' 
-"Therefore prophesy against them all these words, and tell them, "'God will roar from on high, and utter his voice from his holy habitation. He'll mightily roar against his fold. He'll give a shout, as those who tread grapes, against all the inhabitants of the earth. 
+"So prophesy against them all these words, and tell them, "'God will roar from on high, and utter his voice from his holy habitation. He'll mightily roar against his fold. He'll give a shout, as those who tread grapes, against all the inhabitants of the earth. 
 A noise will come even to the end of the earth; for God has a controversy with the nations. He'll enter into judgment with all flesh. As for the guilty, he'll give them to the sword,"' says God." 
 The God of Armies says, "Look, bad will go out from nation to nation, and a great storm will be raised up from the uttermost parts of the earth." 
 The slain of God will be at that day from one end of the earth even to the other end of the earth. They won't be lamented. They won't be gathered or buried. They'll be dung on the surface of the ground. 

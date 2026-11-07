@@ -1,5 +1,5 @@
 ﻿Then Zophar the Naamathite answered, 
-"Therefore my thoughts answer me, even by reason of my haste that's in me. 
+"So my thoughts answer me, even by reason of my haste that's in me. 
 I have heard the reproof which puts me to shame. The spirit of my understanding answers me. 
 Don't you know this from old time, since man was placed on earth, 
 that the triumphing of the guilty is short, the joy of the godless but for a moment? 

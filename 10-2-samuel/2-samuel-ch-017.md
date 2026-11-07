@@ -11,7 +11,7 @@ Even he who's valiant, whose heart is as the heart of a lion, will utterly melt;
 But I counsel that all Israel be gathered together to you, from Dan even to Beersheba, as the sand that's by the sea for multitude; and that you go to battle in your own person. 
 So we'll come on him in some place where he'll be found, and we'll light on him as the dew falls on the ground, then we won't leave so much as one of him and of all the men who are with him. 
 Moreover, if he has gone into a city, then all Israel will bring ropes to that city, and we'll draw it into the river, until there isn't one small stone found there." 
-Absalom and all the men of Israel said, "The counsel of Hushai the Archite is better than the counsel of Ahithophel." For God had ordained to defeat the good counsel of Ahithophel, to the intent that God might bring bad on Absalom. 
+Absalom and all the men of Israel said, "The counsel of Hushai the Archite is better than the counsel of Ahithophel." God had ordained to defeat the good counsel of Ahithophel, to the intent that God might bring bad on Absalom. 
 Then Hushai said to Zadok and to Abiathar the priests, "Ahithophel counseled Absalom and the elders of Israel that way; and I have counseled this way. 
 Now send quickly, and tell David, saying, 'Don't lodge tonight at the fords of the wilderness, but by all means pass over, lest the king be swallowed up, and everyone who's with him.'" 
 Now Jonathan and Ahimaaz were staying by En Rogel; and a female servant used to go and report to them, and they went and told King David; for they couldn't risk being seen coming into the city. 

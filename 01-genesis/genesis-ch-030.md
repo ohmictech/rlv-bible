@@ -3,7 +3,7 @@ Jacob's anger burned against Rachel, and he said, "Am I in God's place, who has 
 She said, "Look, my maid Bilhah. Go in to her, that she can bear on my knees, and I also may obtain children by her." 
 She gave him Bilhah her servant as wife, and Jacob went in to her. 
 Bilhah conceived, and bore Jacob a son. 
-Rachel said, "God has judged me, and has also heard my voice, and has given me a son." Therefore she called his name Dan. 
+Rachel said, "God has judged me, and has also heard my voice, and has given me a son." So she called his name Dan. 
 Bilhah, Rachel's servant, conceived again, and bore Jacob a second son. 
 Rachel said, "I have wrestled with my sister with mighty wrestlings, and have prevailed." She named him Naphtali. 
 When Leah saw that she had finished bearing, she took Zilpah, her servant, and gave her to Jacob as a wife. 
@@ -12,7 +12,7 @@ Leah said, "How fortunate!" She named him Gad.
 Zilpah, Leah's servant, bore Jacob a second son. 
 Leah said, "Happy am I, for the daughters will call me happy." She named him Asher. 
 Reuben went in the days of wheat harvest, and found mandrakes in the field, and brought them to his mother, Leah. Then Rachel said to Leah, "Please give me some of your son's mandrakes." 
-Leah said to her, "Is it a small matter that you have taken away my husband? Would you take away my son's mandrakes, also?" Rachel said, "Therefore he'll lie with you tonight for your son's mandrakes." 
+Leah said to her, "Is it a small matter that you have taken away my husband? Would you take away my son's mandrakes, also?" Rachel said, "So he'll lie with you tonight for your son's mandrakes." 
 Jacob came from the field in the evening, and Leah went out to meet him, and said, "You must come in to me; for I have surely hired you with my son's mandrakes." He lay with her that night. 
 God listened to Leah, and she conceived, and bore Jacob a fifth son. 
 Leah said, "God has given me my hire, because I gave my servant to my husband." She named him Issachar. 

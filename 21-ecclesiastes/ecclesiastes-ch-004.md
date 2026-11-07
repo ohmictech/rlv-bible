@@ -5,7 +5,7 @@ Then I saw all the labor and achievement that's the envy of a man's neighbor. Th
 The fool folds his hands together and ruins himself. 
 Better is a handful, with quietness, than two handfuls with labor and chasing after wind. 
 Then I returned and saw vanity under the sun. 
-There's one who's alone, and he has neither son nor brother. There's no end to all of his labor, neither are his eyes satisfied with wealth. "For whom then do I labor and deprive my soul of enjoyment?" This also is vanity. Yes, it's a miserable business. 
+There's one who's alone, and he has neither son nor brother. There's no end to all of his labor, neither are his eyes satisfied with wealth. "Whom then do I labor and deprive my soul of enjoyment?" This also is vanity. Yes, it's a miserable business. 
 Two are better than one, because they have a good reward for their labor. 
 If they fall, the one will lift up his fellow; but woe to him who's alone when he falls, and doesn't have another to lift him up. 
 Again, if two lie together, then they have warmth; but how can one keep warm alone? 

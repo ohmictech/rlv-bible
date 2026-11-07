@@ -5,4 +5,4 @@ Then he asked, "What have they seen in your house?" Hezekiah answered, "They hav
 Then Isaiah said to Hezekiah, "Hear the word of the God of Armies: 
 'Look, the days are coming when all that's in your house, and that which your fathers have stored up until today, will be carried to Babylon. Nothing will be left,' says God. 
 'They'll take away your sons who will issue from you, whom you will father, and they'll be eunuchs in the king of Babylon's palace.'" 
-Then Hezekiah said to Isaiah, "God's word which you have spoken is good." He said moreover, "For there will be peace and truth in my days." 
+Then Hezekiah said to Isaiah, "God's word which you have spoken is good." He said moreover, "There will be peace and truth in my days." 

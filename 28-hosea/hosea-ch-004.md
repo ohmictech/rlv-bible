@@ -13,7 +13,7 @@ My people consult with their wooden idol, and answer to a stick of wood. Indeed 
 They sacrifice on the tops of the mountains, and burn incense on the hills, under oaks, poplars, and terebinths, because its shade is good. So your daughters play the prostitute, and your brides commit adultery. 
 I won't punish your daughters when they play the prostitute, nor your brides when they commit adultery; because the men consort with prostitutes, and they sacrifice with the shrine prostitutes; so the people without understanding will come to ruin. 
 "Though you, Israel, play the prostitute, yet don't let Judah offend; and don't come to Gilgal, neither go up to Beth Aven, nor swear, 'As God lives.' 
-For Israel has behaved extremely stubbornly, like a stubborn heifer. Then how will God feed them like a lamb in a meadow? 
+Israel has behaved extremely stubbornly, like a stubborn heifer. Then how will God feed them like a lamb in a meadow? 
 Ephraim is joined to idols. Leave him alone! 
 Their drink has become sour. They play the prostitute continually. Her rulers dearly love their shameful way. 
 The wind has wrapped her up in its wings; and they will be disappointed because of their sacrifices. 

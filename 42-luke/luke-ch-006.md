@@ -33,14 +33,14 @@ Give to everyone who asks you, and don't demand back from him who takes away you
 If you do good to those who do good to you, what credit is that to you? Even those who have drifted do the same. 
 If you lend to those from whom you hope to receive, what credit is that to you? Even those who have drifted lend to those who have drifted, to receive back as much. 
 But love your enemies, and do good, and lend, expecting nothing back; and your earned result will be great, and you'll be children of the Most High; for he's kind toward the unthankful and the malicious. 
-"Therefore be merciful, even as your Father is also merciful. 
+"So be merciful, even as your Father is also merciful. 
 Don't pass a verdict, and you won't be judged. Don't sentence, and you won't be sentenced. Set free, and you'll be set free. 
 "Give, and it'll be given to you: good measure, pressed down, shaken together, and running over, will be given to you. With the same measure you measure it'll be measured back to you." 
 He spoke a story to them. "Can the blind guide the blind? Won't they both fall into a pit? 
 A student isn't above his teacher, but everyone when he's fully trained will be like his teacher. 
 Why do you see the speck of chaff that's in your brother's eye, but don't consider the beam that's in your own eye? 
 Or how can you tell your brother, 'Brother, let me remove the speck of chaff that's in your eye,' when you yourself don't see the beam that's in your own eye? You pretender! First remove the beam from your own eye, and then you can see clearly to remove the speck of chaff that's in your brother's eye. 
-"For there's no good tree that produces rotten fruit, nor again a rotten tree that produces good fruit. 
+"There's no good tree that produces rotten fruit, nor again a rotten tree that produces good fruit. 
 Each tree is known by its own fruit. People don't gather figs from thorns, nor do they gather grapes from a bramble bush. 
 The good man out of the good treasure of his heart brings out that which is good, and the malicious man out of the malicious treasure of his heart brings out that which is malicious, for out of the overflow of the heart, his mouth speaks. 
 "Why do you call me, 'Lord, Lord,' and don't do the things which I say? 

@@ -15,7 +15,7 @@ saying, "No, but we'll go into the land of Egypt, where we'll see no war, nor he
 now hear God's word, O remnant of Judah! The God of Armies, the God of Israel says, 'If you indeed set your faces to enter into Egypt, and go to live there, 
 then it'll happen that the sword, which you fear, will overtake you there in the land of Egypt; and the famine, about which you're afraid, will follow close behind you there in Egypt; and you'll die there. 
 So will it be with all the men who set their faces to go into Egypt to live there. They'll die by the sword, by the famine, and by the pestilence. None of them will remain or escape from the bad that I'll bring on them.' 
-For the God of Armies, the God of Israel says: 'As my anger and my wrath has been poured out on the inhabitants of Jerusalem, so my wrath will be poured out on you, when you enter into Egypt; and you'll be an object of horror, an astonishment, a curse, and a reproach; and you'll see this place no more.' 
+The God of Armies, the God of Israel says: 'As my anger and my wrath has been poured out on the inhabitants of Jerusalem, so my wrath will be poured out on you, when you enter into Egypt; and you'll be an object of horror, an astonishment, a curse, and a reproach; and you'll see this place no more.' 
 "God has spoken concerning you, remnant of Judah, 'Don't go into Egypt!' Know certainly that I have testified to you today. 
 You have dealt deceitfully against your own souls; for you sent me to your God, saying, 'Pray for us to our God; and according to all that our God says, so declare to us, and we'll do it.' 
 I have declared it to you today; but you haven't obeyed your God's voice in anything for which he has sent me to you. 

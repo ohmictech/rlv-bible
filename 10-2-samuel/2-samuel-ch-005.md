@@ -5,7 +5,7 @@ David was thirty years old when he began to reign, and he reigned forty years.
 In Hebron he reigned over Judah seven years and six months, and in Jerusalem he reigned thirty-three years over all Israel and Judah. 
 The king and his men went to Jerusalem against the Jebusites, the inhabitants of the land, who spoke to David, saying, "The blind and the lame will keep you out of here," thinking, "David can't come in here." 
 Nevertheless David took the stronghold of Zion. This is David's city. 
-David said on that day, "Whoever strikes the Jebusites, let him go up to the watercourse and strike those lame and blind, who are hated by David's soul." Therefore they say, "The blind and the lame can't come into the house." 
+David said on that day, "Whoever strikes the Jebusites, let him go up to the watercourse and strike those lame and blind, who are hated by David's soul." So they say, "The blind and the lame can't come into the house." 
 David lived in the stronghold, and called it David's city. David built around from Millo and inward. 
 David grew greater and greater, for the God of Armies was with him. 
 Hiram king of Tyre sent messengers to David, with cedar trees, carpenters, and masons; and they built David a house. 
@@ -17,7 +17,7 @@ Elishama, Eliada, and Eliphelet.
 When the Philistines heard that they had anointed David king over Israel, all the Philistines went up to seek David, but David heard about it and went down to the stronghold. 
 Now the Philistines had come and spread themselves in the valley of Rephaim. 
 David inquired of God, saying, "Will I go up against the Philistines? Will you deliver them into my hand?" God said to David, "Go up; for I'll certainly deliver the Philistines into your hand." 
-David came to Baal Perazim, and David struck them there. Then he said, "God has broken my enemies before me, like the breach of waters." Therefore he called the name of that place Baal Perazim. 
+David came to Baal Perazim, and David struck them there. Then he said, "God has broken my enemies before me, like the breach of waters." So he called the name of that place Baal Perazim. 
 They left their images there, and David and his men took them away. 
 The Philistines came up yet again and spread themselves in the valley of Rephaim. 
 When David inquired of God, he said, "You won't go up. Circle around behind them, and attack them in front of the mulberry trees. 

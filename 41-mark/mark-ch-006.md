@@ -28,7 +28,7 @@ Immediately the king sent a guard and commanded him to bring John's head, and he
 and brought his head on a platter and gave it to the girl, and the girl gave it to her mother. 
 When his students heard this, they came and took his body and laid it in a tomb. 
 The ones sent out gathered around Jesus and told him everything they had done and everything they had taught. 
-He said to them, "Come away by yourselves to an empty place and rest a while." For there were many coming and going, and they had no time even to eat. 
+He said to them, "Come away by yourselves to an empty place and rest a while." There were many coming and going, and they had no time even to eat. 
 They went away in the boat to an empty place by themselves. 
 The crowds saw them going, and many recognized him and ran there on foot from all the cities, and they got there ahead of them and gathered to him. 
 Jesus came out and saw a great crowd, and he had deep compassion on them because they were like sheep without a shepherd, and he began to teach them many things. 

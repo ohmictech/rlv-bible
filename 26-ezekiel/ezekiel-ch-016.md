@@ -32,7 +32,7 @@ in that you build your vaulted place at the head of every way, and make your lof
 "'"Adulterous wife, who takes strangers instead of her husband! 
 People give gifts to all prostitutes; but you give your gifts to all your lovers, and bribe them, that they can come to you on every side for your prostitution. 
 You're different from other women in your prostitution, in that no one follows you to play the prostitute; and whereas you give hire, and no hire is given to you, you're different."' 
-"Therefore, prostitute, hear God's word: 
+"So, prostitute, hear God's word: 
 'The God says, "Because your filthiness was poured out, and your nakedness uncovered through your prostitution with your lovers; and because of all the idols of your abominations, and for the blood of your children, that you gave to them; 
 So see, I'll gather all your lovers, with whom you have taken pleasure, and all those whom you have loved, with all those whom you have hated. I'll even gather them against you on every side, and will uncover your nakedness to them, that they can see all your nakedness. 
 I'll judge you as women who break wedlock and shed blood are judged; and I'll bring on you the blood of wrath and jealousy. 
@@ -56,7 +56,7 @@ Your sisters, Sodom and her daughters, will return to their former estate; and S
 Your sister Sodom wasn't mentioned by your mouth in the day of your pride, 
 before your guilt was uncovered, as at the time of the reproach of the daughters of Syria, and of everyone who's around her, the daughters of the Philistines, who despise you all around. 
 You have borne your lewdness and your abominations," says God. 
-"'For God says: "I'll also deal with you as you have done, who have despised the oath in breaking the covenant. 
+"'God says: "I'll also deal with you as you have done, who have despised the oath in breaking the covenant. 
 Nevertheless I'll remember my covenant with you in the days of your youth, and I'll establish an perpetual covenant with you. 
 Then you'll remember your ways and be ashamed when you receive your sisters, your elder sisters and your younger; and I'll give them to you for daughters, but not by your covenant. 
 I'll establish my covenant with you. Then you'll know that I'm God; 

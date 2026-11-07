@@ -8,7 +8,7 @@ Joseph went up to bury his father; and with him went up all the servants of Phar
 all the house of Joseph, his brothers, and his father's house. Only their little ones, their flocks, and their herds, they left in the land of Goshen. 
 Both chariots and horsemen went up with him. It was a very great company. 
 They came to the threshing floor of Atad, which is beyond the Jordan, and there they lamented with a very great and severe lamentation. He mourned for his father seven days. 
-When the inhabitants of the land, the Canaanites, saw the mourning in the floor of Atad, they said, "This is a grievous mourning by the Egyptians." Therefore its name was called Abel Mizraim, which is beyond the Jordan. 
+When the inhabitants of the land, the Canaanites, saw the mourning in the floor of Atad, they said, "This is a grievous mourning by the Egyptians." So its name was called Abel Mizraim, which is beyond the Jordan. 
 His sons did to him just as he commanded them, 
 for his sons carried him into the land of Canaan, and buried him in the cave of the field of Machpelah, which Abraham bought with the field, as a possession for a burial site, from Ephron the Hittite, near Mamre. 
 Joseph returned into Egypt, he, and his brothers, and all that went up with him to bury his father, after he had buried his father. 

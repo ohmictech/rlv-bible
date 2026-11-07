@@ -27,8 +27,8 @@ The child Samuel grew on, and increased in favor both with God and also with men
 A man of God came to Eli and said to him, "God says, 'Did I reveal myself to the house of your father when they were in Egypt in bondage to Pharaoh's house? 
 Didn't I choose him out of all the tribes of Israel to be my priest, to go up to my altar, to burn incense, to wear an ephod before me? Didn't I give to the house of your father all the offerings of the children of Israel made by fire? 
 Why do you kick at my sacrifice and at my offering, which I have commanded in my habitation, and honor your sons above me, to make yourselves fat with the best of all the offerings of Israel my people?' 
-"Therefore the God of Israel says, 'I said indeed that your house and the house of your father should walk before me for the eras.' But now God says, 'Far be it from me; for those who honor me I'll honor, and those who despise me will be cursed. 
-Look, the days come that I'll cut off your arm and the arm of your father's house, that there won't be an old man in your house. 
+"So the God of Israel says, 'I said indeed that your house and the house of your father should walk before me for the eras.' But now God says, 'Far be it from me; for those who honor me I'll honor, and those who despise me will be cursed. 
+The days are coming that I'll cut off your arm and the arm of your father's house, that there won't be an old man in your house. 
 You'll see the affliction of my habitation, in all the wealth which I'll give Israel. There won't be an old man in your house for the eras. 
 The man of yours whom I don't cut off from my altar will consume your eyes and grieve your heart. All the increase of your house will die in the flower of their age. 
 This will be the sign to you that will come on your two sons, on Hophni and Phinehas: in one day they'll both die. 

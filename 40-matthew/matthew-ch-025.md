@@ -11,7 +11,7 @@ While they went away to buy, the bridegroom came, and those who were ready went 
 Afterward the other bridesmaids also came, saying, 'Lord, Lord, open the door to us.' 
 But he answered, 'Truly I tell you, I don't know you.' 
 Stay awake, then, for you don't know the day or the hour when the Human One is coming. 
-"For it's like a man going to another country, who called his own slaves and handed over to them what he owned. 
+"It's like a man going to another country, who called his own slaves and handed over to them what he owned. 
 To one he gave five bags of silver, to another two, to another one, to each according to his own ability. Then he went on his journey. 
 Immediately the one who had received the five bags of silver went and traded with them, and gained another five. 
 In the same way, the one who had received the two gained another two. 

@@ -12,7 +12,7 @@ The guard stood, every man with his weapons in his hand, from the right side of 
 Then he brought out the king's son, and put the crown on him, and gave him the covenant; and they made him king and anointed him; and they clapped their hands, and said, "Long live the king!" 
 When Athaliah heard the noise of the guard and of the people, she came to the people into God's house; 
 and she looked, and look, the king stood by the pillar, as the tradition was, with the captains and the trumpets by the king; and everyone in the land rejoiced, and blew trumpets. Then Athaliah tore her clothes and cried, "Treason! Treason!" 
-Jehoiada the priest commanded the captains of hundreds who were set over the army, and said to them, "Bring her out between the ranks. Kill anyone who follows her with the sword." For the priest said, "Don't let her be slain in God's house." 
+Jehoiada the priest commanded the captains of hundreds who were set over the army, and said to them, "Bring her out between the ranks. Kill anyone who follows her with the sword." The priest said, "Don't let her be slain in God's house." 
 So they seized her; and she went by the way of the horses' entry to the king's house, and she was slain there. 
 Jehoiada made a covenant between God and the king and the people, that they should be God's people; also between the king and the people. 
 Everyone in the land went to the house of Baal, and broke it down. They broke his altars and his images in pieces thoroughly, and killed Mattan the priest of Baal before the altars. The priest appointed officers over God's house. 

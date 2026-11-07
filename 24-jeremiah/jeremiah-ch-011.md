@@ -11,7 +11,7 @@ They have turned back to the guilt of their forefathers, who refused to hear my 
 So God says, 'Look, I'll bring bad on them which they won't be able to escape; and they'll cry to me, but I won't listen to them. 
 Then the cities of Judah and the inhabitants of Jerusalem will go and cry to the gods to which they offer incense, but they won't save them at all in the time of their trouble. 
 According to the number of your cities are your gods, Judah; and according to the number of the streets of Jerusalem you have set up altars to the shameful thing, even altars to burn incense to Baal.' 
-"Therefore don't pray for this people. Don't lift up cry or prayer for them; for I won't hear them in the time that they cry to me because of their trouble. 
+"So don't pray for this people. Don't lift up cry or prayer for them; for I won't hear them in the time that they cry to me because of their trouble. 
 What has my beloved to do in my house, since she has behaved lewdly with many, and the holy flesh has passed from you? When you do bad things, then you rejoice." 
 God called your name, "A green olive tree, beautiful with goodly fruit." With the noise of a great roar he has kindled fire on it, and its branches are broken. 
 The God of Armies, who planted you, has pronounced bad against you, because of the bad of the house of Israel and of the house of Judah, which they have done to themselves in provoking me to anger by offering incense to Baal. 

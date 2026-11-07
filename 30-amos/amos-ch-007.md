@@ -14,4 +14,4 @@ but don't prophesy again any more at Bethel; for it's the king's sanctuary, and 
 Then Amos answered Amaziah, "I was no spokesman, neither was I a spokesman's son, but I was a herdsman, and a farmer of sycamore figs; 
 and God took me from following the flock, and God said to me, 'Go, prophesy to my people Israel.' 
 Now listen to God's word: 'You say, Don't prophesy against Israel, and don't preach against the house of Isaac.' 
-Therefore God says: 'Your wife will be a prostitute in the city, and your sons and your daughters will fall by the sword, and your land will be divided by line; and you yourself will die in a land that's unclean, and Israel will surely be led away captive out of his land.'" 
+So God says: 'Your wife will be a prostitute in the city, and your sons and your daughters will fall by the sword, and your land will be divided by line; and you yourself will die in a land that's unclean, and Israel will surely be led away captive out of his land.'" 

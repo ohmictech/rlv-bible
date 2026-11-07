@@ -3,7 +3,7 @@ You who hate the good, and love the bad; who tear off their skin, and their fles
 who also eat the flesh of my people, and peel their skin from off them, and break their bones, and chop them in pieces, as for the pot, and as meat within the cauldron. 
 Then they'll cry to God, but he won't answer them. Yes, he'll hide his face from them at that time, because they made their deeds bad." 
 God says concerning the spokesmen who lead my people astray, for those who feed their teeth, they proclaim, "Peace!" and whoever doesn't provide for their mouths, they prepare war against him: 
-"Therefore night is over you, with no vision, and it's dark to you, that you can't divine; and the sun will go down on the spokesmen, and the day will be black over them. 
+"So night is over you, with no vision, and it's dark to you, that you can't divine; and the sun will go down on the spokesmen, and the day will be black over them. 
 The seers will be disappointed, and the diviners confounded. Yes, they will all cover their lips, for there's no answer from God." 
 But as for me, I'm full of power by God's Spirit, and of judgment, and of might, to declare to Jacob his disobedience, and to Israel his wrongdoing. 
 Please listen to this, you heads of the house of Jacob, and rulers of the house of Israel, who abhor justice, and pervert all equity, 

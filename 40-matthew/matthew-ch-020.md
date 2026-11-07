@@ -1,4 +1,4 @@
-﻿"For the reign of the sky is like a man who was the master of a house, who went out early in the morning to hire workers for his vineyard. 
+﻿"The reign of the sky is like a man who was the master of a house, who went out early in the morning to hire workers for his vineyard. 
 When he had agreed with the workers for a silver coin a day, he sent them into his vineyard. 
 He went out about mid-morning, and saw others standing idle in the marketplace. 
 He said to them, 'You also go into the vineyard, and whatever is right I'll give you.' So they went their way. 

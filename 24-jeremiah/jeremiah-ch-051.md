@@ -44,12 +44,12 @@ Her cities have become a desolation, a dry land, and a desert, a land in which n
 I'll execute judgment on Bel in Babylon, and I'll bring out of his mouth that which he has swallowed up. The nations won't flow any more to him. Yes, the wall of Babylon will fall. 
 "My people, go away from the middle of her, and each of you save yourselves from God's fierce anger. 
 Don't let your heart faint. Don't fear for the news that will be heard in the land. News will come one year, and after that in another year news will come, and violence in the land, ruler against ruler. 
-Look, the days come that I'll execute judgment on the engraved images of Babylon; and her whole land will be confounded. All her slain will fall in the middle of her. 
+The days are coming that I'll execute judgment on the engraved images of Babylon; and her whole land will be confounded. All her slain will fall in the middle of her. 
 Then the sky and the earth, and all that's therein, will sing for joy over Babylon; for the destroyers will come to her from the north," says God. 
 "As Babylon has caused the slain of Israel to fall, so the slain of all the land will fall at Babylon. 
 You who have escaped the sword, go! Don't stand still! Remember God from afar, and let Jerusalem come into your mind." 
 "We're confounded because we have heard reproach. Confusion has covered our faces, for strangers have come into the sanctuaries of God's house." 
-"Look, the days come," says God, "that I'll execute judgment on her engraved images; and through all her land the wounded will groan. 
+"The days are coming," says God, "that I'll execute judgment on her engraved images; and through all her land the wounded will groan. 
 Though Babylon should mount up to the sky, and though she should fortify the height of her strength, yet destroyers will come to her from me," says God. 
 "The sound of a cry comes from Babylon, and of great destruction from the land of the Chaldeans! 
 God lays Babylon waste, and destroys out of her the great voice! Their waves roar like many waters. The noise of their voice is uttered. 

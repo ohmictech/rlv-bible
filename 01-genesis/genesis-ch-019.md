@@ -19,7 +19,7 @@ Lot said to them, "Oh, not so, my lord.
 See now, your servant has found favor in your sight, and you have magnified your loving kindness, which you have shown to me in saving my life. I can't escape to the mountain, lest bad overtake me, and I die. 
 See now, this city is near to flee to, and it's a little one. Oh let me escape there (isn't it a little one?), and my soul will live." 
 He said to him, "Look, I have granted your request concerning this thing also, that I won't overthrow the city of which you have spoken. 
-Hurry, escape there, for I can't do anything until you get there." Therefore the name of the city was called Zoar. 
+Hurry, escape there, for I can't do anything until you get there." So the name of the city was called Zoar. 
 The sun had risen on the earth when Lot came to Zoar. 
 Then God rained on Sodom and on Gomorrah sulfur and fire from God out of the sky. 
 He overthrew those cities, all the plain, all the inhabitants of the cities, and that which grew on the ground. 

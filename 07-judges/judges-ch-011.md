@@ -5,7 +5,7 @@ After a while, the children of Ammon made war against Israel.
 When the children of Ammon made war against Israel, the elders of Gilead went to get Jephthah out of the land of Tob. 
 They said to Jephthah, "Come and be our chief, that we can fight with the children of Ammon." 
 Jephthah said to the elders of Gilead, "Didn't you hate me, and drive me out of my father's house? Why have you come to me now when you're in distress?" 
-The elders of Gilead said to Jephthah, "Therefore we have turned again to you now, that you can go with us and fight with the children of Ammon. You'll be our head over all the inhabitants of Gilead." 
+The elders of Gilead said to Jephthah, "So we have turned again to you now, that you can go with us and fight with the children of Ammon. You'll be our head over all the inhabitants of Gilead." 
 Jephthah said to the elders of Gilead, "If you bring me home again to fight with the children of Ammon, and God delivers them before me, will I be your head?" 
 The elders of Gilead said to Jephthah, "God will be witness between us. Surely we'll do what you say." 
 Then Jephthah went with the elders of Gilead, and the people made him head and chief over them. Jephthah spoke all his words before God in Mizpah. 

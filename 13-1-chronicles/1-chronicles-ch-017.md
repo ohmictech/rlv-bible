@@ -22,6 +22,6 @@ What one nation on the earth is like your people Israel, whom God went to buy ba
 You made your people Israel your own people for the eras; and you, God, became their God. 
 Now, God, let the word that you have spoken concerning your servant, and concerning his house, be established for the eras, and do as you have spoken. 
 Let your name be established and magnified for the eras, saying, 'The God of Armies is the God of Israel, even a God to Israel. The house of David your servant is established before you.' 
-For you, my God, have revealed to your servant that you'll build him a house. So your servant has found courage to pray before you. 
+You, my God, have revealed to your servant that you'll build him a house. So your servant has found courage to pray before you. 
 Now, God, you're God, and have promised this good thing to your servant. 
 Now it has pleased you to bless the house of your servant, that it may continue for the eras before you; for you, God, have blessed, and it's blessed for the eras." 

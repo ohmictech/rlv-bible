@@ -1,6 +1,6 @@
 ﻿The word that came to Jeremiah from God, saying, 
 "The God of Israel says, 'Write all the words that I have spoken to you in a book. 
-For, look, the days come,' says God, 'that I'll reverse the captivity of my people Israel and Judah,' says God. 'I'll cause them to return to the land that I gave to their fathers, and they'll possess it.'" 
+The days are coming,' says God, 'that I'll reverse the captivity of my people Israel and Judah,' says God. 'I'll cause them to return to the land that I gave to their fathers, and they'll possess it.'" 
 These are the words that God spoke concerning Israel and concerning Judah. 
 God says: "We have heard a voice of trembling; a voice of fear, and not of peace. 
 Ask now, and see whether a man travails with child. Why do I see every man with his hands on his waist, as a woman in travail, and all faces are turned pale? 

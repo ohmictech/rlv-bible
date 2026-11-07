@@ -24,10 +24,10 @@ Moreover I swore to them in the wilderness, that I'd scatter them among the nati
 because they hadn't executed my ordinances, but had rejected my statutes, and had profaned my Sabbaths, and their eyes were after their fathers' idols. 
 Moreover also I gave them statutes that weren't good, and ordinances in which they couldn't live. 
 I polluted them in their own gifts, in that they caused all that opens the womb to pass through the fire, that I might make them desolate, to the end that they might know that I'm God."' 
-"Therefore, son of man, speak to the house of Israel, and tell them, 'The God says: "Moreover, in this your fathers have blasphemed me, in that they have committed a trespass against me. 
+"So, son of man, speak to the house of Israel, and tell them, 'The God says: "Moreover, in this your fathers have blasphemed me, in that they have committed a trespass against me. 
 When I had brought them into the land which I swore to give to them, then they saw every high hill and every thick tree, and they offered there their sacrifices, and there they presented the provocation of their offering. There they also made their pleasant aroma, and there they poured out their drink offerings. 
 Then I said to them, 'What does the high place where you go mean?' So its name is called Bamah to this day."' 
-"Therefore tell the house of Israel, 'The God says: "Do you pollute yourselves in the way of your fathers? Do you play the prostitute after their abominations? 
+"So tell the house of Israel, 'The God says: "Do you pollute yourselves in the way of your fathers? Do you play the prostitute after their abominations? 
 When you offer your gifts, when you make your sons pass through the fire, do you pollute yourselves with all your idols to this day? Should I be inquired of by you, house of Israel? As I live, says God, I won't be inquired of by you! 
 "'"That which comes into your mind won't be at all, in that you say, 'We'll be as the nations, as the families of the countries, to serve wood and stone.' 
 As I live," says God, "surely with a mighty hand, with an outstretched arm, and with wrath poured out, I'll be king over you. 

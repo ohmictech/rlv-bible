@@ -31,6 +31,6 @@ As you in time past were disobedient to God, but now have obtained mercy by thei
 even so these also have now been disobedient, that by the mercy shown to you they can also obtain mercy. 
 God has locked everyone into disobedience, so that he could have mercy on everyone. 
 Oh the depth of the riches both of the wisdom and the knowledge of God! How unsearchable are his verdicts, and his ways past tracing out! 
-"For who has known the mind of the Lord? Or who has been his counselor?" 
+"Who has known the mind of the Lord? Or who has been his counselor?" 
 "Or who has first given to him, and it'll be repaid to him again?" 
 Of him and through him and to him are all things. To him be the weight for all the eras! Amen. 

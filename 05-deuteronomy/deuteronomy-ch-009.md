@@ -1,7 +1,7 @@
 ﻿Hear, Israel! You're to pass over the Jordan today, to go in to dispossess nations greater and mightier than yourself, cities great and fortified up to the sky, 
 a people great and tall, the sons of the Anakim, whom you know, and of whom you have heard say, "Who can stand before the sons of Anak?" 
 Know today that your God is he who goes over before you as a devouring fire. He'll destroy them and he'll bring them down before you. So you will drive them out and make them perish quickly, as God has spoken to you. 
-Don't say in your heart, after your God has thrust them out from before you, "For my righteousness God has brought me in to possess this land;" because God drives them out before you because of the guilt of these nations. 
+Don't say in your heart, after your God has thrust them out from before you, "My righteousness God has brought me in to possess this land;" because God drives them out before you because of the guilt of these nations. 
 Not for your righteousness or for the uprightness of your heart do you go in to possess their land; but for the guilt of these nations your God does drive them out from before you, and that he can establish the word which God swore to your fathers, to Abraham, to Isaac, and to Jacob. 
 Know that your God doesn't give you this good land to possess for your righteousness, for you're a stiff-necked people. 
 Remember, and don't forget, how you provoked your God to wrath in the wilderness. From the day that you left the land of Egypt until you came to this place, you have been rebellious against God. 

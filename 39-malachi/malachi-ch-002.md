@@ -13,5 +13,5 @@ God will cut off the man who does this, him who wakes and him who answers, out o
 "This again you do: you cover God's altar with tears, with weeping, and with sighing, because he doesn't regard the offering any more, neither receives it with good will at your hand. 
 Yet you say, 'Why?' Because God has been witness between you and the wife of your youth, against whom you have dealt treacherously, though she's your companion and the wife of your covenant. 
 Did he not make you one, although he had the residue of the Spirit? Why one? He sought godly offspring. So take heed to your spirit, and let no one deal treacherously against the wife of his youth. 
-One who hates and divorces", says the God of Israel, "covers his garment with violence!" says the God of Armies. "Therefore pay attention to your spirit, that you don't be unfaithful. 
+One who hates and divorces", says the God of Israel, "covers his garment with violence!" says the God of Armies. "So pay attention to your spirit, that you don't be unfaithful. 
 You have wearied God with your words. Yet you say, 'How have we wearied him?' In that you say, 'Everyone who does bad is good in God's sight, and he delights in them;' or 'Where is the God of justice?' 

@@ -18,8 +18,8 @@ Hades, the barren womb, the earth that isn't satisfied with water, and the fire 
 "There are three things which are too amazing for me, four which I don't understand: 
 The way of an eagle in the air, the way of a serpent on a rock, the way of a ship in the middle of the sea, and the way of a man with a maiden. 
 "So is the way of an adulterous woman: She eats and wipes her mouth, and says, 'I have done nothing wrong.' 
-"For three things the earth trembles, and under four, it can't bear up: 
-For a servant when he's king, a fool when he's filled with food, 
+"Three things the earth trembles, and under four, it can't bear up: 
+A servant when he's king, a fool when he's filled with food, 
 for an unloved woman when she's married, and a servant who's heir to her mistress. 
 "There are four things which are little on the earth, but they're exceedingly wise: 
 The ants aren't a strong people, yet they provide their food in the summer. 

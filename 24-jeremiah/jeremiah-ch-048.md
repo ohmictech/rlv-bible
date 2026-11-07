@@ -9,7 +9,7 @@ The destroyer will come on every city, and no city will escape; the valley also 
 Give wings to Moab, that she can fly and get herself away: and her cities will become a desolation, without anyone to dwell in them. 
 "Cursed is he who does the work of God negligently; and cursed is he who keeps back his sword from blood. 
 "Moab has been at ease from his youth, and he has settled on his dregs, and hasn't been emptied from vessel to vessel, neither has he gone into captivity; his taste remains in him, and his scent isn't changed. 
-Look, the days come," says God, "that I'll send to him those who pour off, and they'll pour him off; and they'll empty his vessels, and break their containers in pieces. 
+The days are coming," says God, "that I'll send to him those who pour off, and they'll pour him off; and they'll empty his vessels, and break their containers in pieces. 
 Moab will be ashamed of Chemosh, as the house of Israel was ashamed of Bethel, their confidence. 
 "How do you say, 'We're mighty men, and valiant men for the war'? 
 Moab is laid waste, and they have gone up into his cities, and his chosen young men have gone down to the slaughter," says the King, whose name is the God of Armies. 

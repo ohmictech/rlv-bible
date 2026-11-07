@@ -3,7 +3,7 @@
 then your south quarter will be from the wilderness of Zin along by the side of Edom, and your south border will be from the end of the Salt Sea eastward. 
 Your border will turn about southward of the ascent of Akrabbim, and pass along to Zin; and it will pass southward of Kadesh Barnea; and it will go from there to Hazar Addar, and pass along to Azmon. 
 The border will turn about from Azmon to the brook of Egypt, and it will end at the sea. 
-"'For the western border, you will have the great sea and its border. This will be your west border. 
+"'The western border, you will have the great sea and its border. This will be your west border. 
 "'This will be your north border: from the great sea you will mark out for yourselves Mount Hor. 
 From Mount Hor you will mark out to the entrance of Hamath; and the border will pass by Zedad. 
 Then the border will go to Ziphron, and it will end at Hazar Enan. This will be your north border. 

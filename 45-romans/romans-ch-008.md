@@ -33,7 +33,7 @@ He who didn't spare his own Son, but delivered him up for us all, how would he n
 Who could bring a charge against God's chosen ones? It's God who justifies. 
 Who's he who condemns? It's Christ who died, yes rather, who was raised from the dead, who's at the right hand of God, who also makes intercession for us. 
 Who will separate us from the love of Christ? Could oppression, or anguish, or persecution, or famine, or nakedness, or peril, or sword? 
-Even as it's written, "For your sake we're killed all day long. We were accounted as sheep for the slaughter." 
+Even as it's written, "Your sake we're killed all day long. We were accounted as sheep for the slaughter." 
 No, in all these things we're more than conquerors through him who loved us. 
 I'm persuaded that neither death, nor life, nor messengers, nor ruling powers, nor things present, nor things to come, nor powers, 
 nor height, nor depth, nor any other created thing will be able to separate us from God's love which is in Christ Jesus our Lord. 

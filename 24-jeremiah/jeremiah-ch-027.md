@@ -7,7 +7,7 @@ Now I have given all these lands into the hand of Nebuchadnezzar the king of Bab
 All the nations will serve him, his son, and his son's son, until the time of his own land comes. Then many nations and great kings will make him their bondservant. 
 "'"'It'll happen that I'll punish the nation and the kingdom which won't serve the same Nebuchadnezzar king of Babylon, and that won't put their neck under the yoke of the king of Babylon,' says God, 'with the sword, with famine, and with pestilence, until I have consumed them by his hand. 
 But as for you, don't listen to your spokesmen, to your diviners, to your dreams, to your soothsayers, or to your sorcerers, who speak to you, saying, "You won't serve the king of Babylon;" 
-For they prophesy a lie to you, to remove you far from your land, so that I'd drive you out, and you'd perish. 
+They prophesy a lie to you, to remove you far from your land, so that I'd drive you out, and you'd perish. 
 But the nation that brings their neck under the yoke of the king of Babylon and serves him, that nation I'll let remain in their own land,' says God; 'and they'll till it and dwell in it.'"'" 
 I spoke to Zedekiah king of Judah according to all these words, saying, "Bring your necks under the yoke of the king of Babylon, and serve him and his people, and live. 
 Why will you die, you and your people, by the sword, by the famine, and by the pestilence, as God has spoken concerning the nation that won't serve the king of Babylon? 

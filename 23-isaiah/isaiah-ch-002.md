@@ -1,6 +1,6 @@
 ﻿This is what Isaiah the son of Amoz saw concerning Judah and Jerusalem. 
 It will happen in the latter days, that the mountain of God's house will be established on the top of the mountains, and will be raised above the hills; and all nations will flow to it. 
-Many peoples will go and say, "Come, let's go up to the mountain of God, to the house of the God of Jacob; and he'll teach us of his ways, and we'll walk in his paths." For the law will go out of Zion, and God's word from Jerusalem. 
+Many peoples will go and say, "Come, let's go up to the mountain of God, to the house of the God of Jacob; and he'll teach us of his ways, and we'll walk in his paths." The law will go out of Zion, and God's word from Jerusalem. 
 He'll judge between the nations, and will decide concerning many peoples. They will beat their swords into plowshares, and their spears into pruning hooks. Nation won't lift up sword against nation, neither will they learn war any more. 
 House of Jacob, come, and let's walk in the light of God. 
 You have forsaken your people, the house of Jacob, because they're filled from the east, with those who practice divination like the Philistines, and they clasp hands with the children of foreigners. 

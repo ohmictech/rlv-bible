@@ -15,7 +15,7 @@ They have healed also the hurt of my people superficially, saying, 'Peace, peace
 Were they ashamed when they had committed abomination? No, they weren't at all ashamed, neither could they blush. So they'll fall among those who fall. When I visit them, they'll be cast down," says God. 
 God says, "Stand in the ways and see, and ask for the old paths, 'Where is the good way?' and walk in it, and you'll find rest for your souls. But they said, 'We won't walk in it.' 
 I set watchmen over you, saying, 'Listen to the sound of the trumpet!' But they said, 'We won't listen!' 
-Therefore hear, you nations, and know, congregation, what's among them. 
+So hear, you nations, and know, congregation, what's among them. 
 Hear, earth! Look, I'll bring bad on this people, even the fruit of their thoughts, because they haven't listened to my words; and as for my law, they have rejected it. 
 To what purpose does frankincense from Sheba come to me, and the sweet cane from a far country? Your burnt offerings aren't acceptable, and your sacrifices aren't pleasing to me." 
 So God says, "Look, I'll lay stumbling blocks before this people. The fathers and the sons together will stumble against them. The neighbor and his friend will perish." 

@@ -3,10 +3,10 @@
 Utter a parable to the rebellious house, and tell them, 'The God says, "Put the cauldron on the fire. Put it on, and also pour water into it. 
 Gather its pieces into it, even every good piece: the thigh and the shoulder. Fill it with the choice bones. 
 Take the choice of the flock, and also a pile of wood for the bones under the cauldron. Make it boil well. Yes, let its bones be boiled within it." 
-"'Therefore God says: "Woe to the bloody city, to the cauldron whose rust is in it, and whose rust hasn't gone out of it! Take out of it piece after piece without casting lots for it. 
-"'"For the blood she shed is in the middle of her. She set it on the bare rock. She didn't pour it on the ground, to cover it with dust. 
+"'So God says: "Woe to the bloody city, to the cauldron whose rust is in it, and whose rust hasn't gone out of it! Take out of it piece after piece without casting lots for it. 
+"'"The blood she shed is in the middle of her. She set it on the bare rock. She didn't pour it on the ground, to cover it with dust. 
 That it may cause wrath to come up to take vengeance, I have set her blood on the bare rock, that it shouldn't be covered." 
-"'Therefore God says: "Woe to the bloody city! I also will make the pile great. 
+"'So God says: "Woe to the bloody city! I also will make the pile great. 
 Heap on the wood. Make the fire hot. Boil the meat well. Make the broth thick, and let the bones be burned. 
 Then set it empty on its coals, that it might be hot, and its bronze may burn, and that its filthiness may be molten in it, that its rust may be consumed. 
 She's weary with toil; yet her great rust, rust by fire, doesn't leave her. 

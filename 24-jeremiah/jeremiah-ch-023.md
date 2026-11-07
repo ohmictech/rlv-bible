@@ -2,9 +2,9 @@
 So the God of Israel says against the shepherds who feed my people: "You have scattered my flock, driven them away, and haven't visited them. Look, I'll visit on you the bad of your doings," says God. 
 "I'll gather the remnant of my flock out of all the countries where I have driven them, and will bring them again to their folds; and they'll be fruitful and multiply. 
 I'll set up shepherds over them who will feed them. They'll no longer be afraid or dismayed, neither will any be lacking," says God. 
-"Look, the days come," says God, "that I'll raise to David a righteous Branch; and he'll reign as king and deal wisely, and will execute justice and righteousness in the land. 
+"The days are coming," says God, "that I'll raise to David a righteous Branch; and he'll reign as king and deal wisely, and will execute justice and righteousness in the land. 
 In his days Judah will be saved, and Israel will dwell safely. This is his name by which he'll be called: God our righteousness. 
-"So, look, the days come," says God, "that they'll no more say, 'As God lives, who brought up the children of Israel out of the land of Egypt;' 
+"The days are coming," says God, "that they'll no more say, 'As God lives, who brought up the children of Israel out of the land of Egypt;' 
 but, 'As God lives, who brought up and who led the offspring of the house of Israel out of the north country, and from all the countries where I had driven them.' Then they'll dwell in their own land." 
 Concerning the spokesmen: My heart within me is broken. All my bones shake. I'm like a drunken man, and like a man whom wine has overcome, because of God, and because of his holy words. 
 "The land is full of adulterers; for because of the curse the land mourns. The pastures of the wilderness have dried up. Their course is bad, and their might isn't right; 
@@ -15,7 +15,7 @@ In the spokesmen of Jerusalem I have also seen a horrible thing: they commit adu
 So the God of Armies says concerning the spokesmen: "Look, I'll feed them with wormwood, and make them drink poisoned water; for from the spokesmen of Jerusalem ungodliness has gone out into all the land." 
 The God of Armies says, "Don't listen to the words of the spokesmen who prophesy to you. They teach you vanity. They speak a vision of their own heart, and not out of the mouth of God. 
 They say continually to those who despise me, 'God has said, "You'll have peace;"' and to everyone who walks in the stubbornness of his own heart they say, 'No bad will come on you.' 
-For who has stood in the council of God, that he should perceive and hear his word? Who has listened to my word, and heard it? 
+Who has stood in the council of God, that he should perceive and hear his word? Who has listened to my word, and heard it? 
 Look, God's storm, his wrath, has gone out. Yes, a whirling storm! It'll burst on the head of the guilty. 
 God's anger won't return until he has executed and performed the intents of his heart. In the latter days, you'll understand it perfectly. 
 I didn't send these spokesmen, yet they ran. I didn't speak to them, yet they prophesied. 

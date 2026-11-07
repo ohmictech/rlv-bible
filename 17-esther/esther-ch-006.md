@@ -4,7 +4,7 @@ The king said, "What honor and dignity has been given to Mordecai for this?" The
 The king said, "Who's in the court?" Now Haman had come into the outer court of the king's house, to speak to the king about hanging Mordecai on the gallows that he had prepared for him. 
 The king's servants said to him, "Look, Haman stands in the court." The king said, "Let him come in." 
 So Haman came in. The king said to him, "What will be done to the man whom the king delights to honor?" Now Haman said in his heart, "Who would the king delight to honor more than myself?" 
-Haman said to the king, "For the man whom the king delights to honor, 
+Haman said to the king, "The man whom the king delights to honor, 
 let royal clothing be brought which the king uses to wear, and the horse that the king rides on, and on the head of which a royal crown is set. 
 Let the clothing and the horse be delivered to the hand of one of the king's most noble princes, that they can array the man whom the king delights to honor with them, and have him ride on horseback through the city square, and proclaim before him, 'Thus it will be done to the man whom the king delights to honor!'" 
 Then the king said to Haman, "Hurry and take the clothing and the horse, as you have said, and do this for Mordecai the Jew, who sits at the king's gate. Let nothing fail of all that you have spoken." 

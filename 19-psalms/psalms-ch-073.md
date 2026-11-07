@@ -11,7 +11,7 @@ So their people return to them, and they drink up waters of abundance.
 They say, "How does God know? Is there knowledge in the Most High?" 
 Look, these are the guilty. Being always at ease, they increase in riches. 
 Surely I have cleansed my heart in vain, and washed my hands in innocence, 
-For all day long I have been plagued, and punished every morning. 
+All day long I have been plagued, and punished every morning. 
 If I had said, "I'll speak thus", look, I'd have betrayed the generation of your children. 
 When I tried to understand this, it was too painful for me 
 until I entered God's sanctuary, and considered their latter end. 

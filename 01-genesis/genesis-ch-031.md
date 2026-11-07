@@ -29,7 +29,7 @@ and didn't allow me to kiss my sons and my daughters? Now you have done foolishl
 It's in the power of my hand to hurt you, but the God of your father spoke to me last night, saying, 'Be careful that you don't speak to Jacob either good or bad.' 
 Now, you want to be gone, because you greatly longed for your father's house, but why have you stolen my gods?" 
 Jacob answered Laban, "Because I was afraid, for I said, 'Lest you should take your daughters from me by force.' 
-Anyone you find your gods with won't live. Before our relatives, discern what's yours with me, and take it." For Jacob didn't know that Rachel had stolen them. 
+Anyone you find your gods with won't live. Before our relatives, discern what's yours with me, and take it." Jacob didn't know that Rachel had stolen them. 
 Laban went into Jacob's tent, into Leah's tent, and into the tent of the two female servants; but he didn't find them. He went out of Leah's tent, and entered into Rachel's tent. 
 Now Rachel had taken the teraphim, put them in the camel's saddle, and sat on them. Laban felt around all the tent, but didn't find them. 
 She said to her father, "Don't let my lord be angry that I can't rise up before you; for I'm having my period." He searched, but didn't find the teraphim. 
@@ -45,7 +45,7 @@ Now come, let's make a covenant, you and I. Let it be for a witness between me a
 Jacob took a stone, and set it up for a pillar. 
 Jacob said to his relatives, "Gather stones." They took stones, and made a heap. They ate there by the heap. 
 Laban called it Jegar Sahadutha, but Jacob called it Galeed. 
-Laban said, "This heap is witness between me and you today." Therefore it was named Galeed 
+Laban said, "This heap is witness between me and you today." So it was named Galeed 
 and Mizpah, for he said, "God watch between me and you, when we're absent one from another. 
 If you afflict my daughters, or if you take wives in addition to my daughters, no man is with us; look, God is witness between me and you." 
 Laban said to Jacob, "See this heap, and see the pillar, which I have set between me and you. 

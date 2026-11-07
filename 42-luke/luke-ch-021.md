@@ -5,7 +5,7 @@ for all these put in gifts for God out of what they had to spare, but she, out o
 As some were talking about the temple and how it was decorated with beautiful stones and gifts, he said, 
 "As for these things which you see, the days will come in which there won't be left here one stone on another that won't be thrown down." 
 They asked him, "Teacher, so when will these things be? What's the sign that these things are about to happen?" 
-He said, "Watch out that you don't get led astray, for many will come in my name, saying, 'I'm he,' and, 'The time is near.' Therefore don't follow them. 
+He said, "Watch out that you don't get led astray, for many will come in my name, saying, 'I'm he,' and, 'The time is near.' So don't follow them. 
 When you hear of wars and disturbances, don't be terrified, for these things must happen first, but the end won't come immediately." 
 Then he said to them, "Nation will rise against nation, and reign against reign. 
 There will be great earthquakes, famines, and plagues in various places. There will be terrors and great signs from the sky. 

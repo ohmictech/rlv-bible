@@ -25,7 +25,7 @@ When John's messengers had departed, he began to tell the crowds about John, "Wh
 But what did you go out to see? A man clothed in soft clothing? Look, those who are gorgeously dressed and live delicately are in kings' courts. 
 But what did you go out to see? A spokesman? Yes, I tell you, and much more than a spokesman. 
 This is he of whom it's written, 'Look, I send my messenger before your face, who will prepare your way before you.' 
-"For I tell you, among those who are born of women there isn't a greater spokesman than John the Baptist; yet he who's least in God's reign is greater than he." 
+"I tell you, among those who are born of women there isn't a greater spokesman than John the Baptist; yet he who's least in God's reign is greater than he." 
 When everyone and the tax collectors heard this, they acknowledged that God was right, having been immersed with John's immersion. 
 But the strict religious ones and the experts in the law rejected God's purpose for them, not having been immersed by him. 
 "To what then should I compare the people of this generation? What are they like? 

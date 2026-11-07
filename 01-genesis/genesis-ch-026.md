@@ -19,7 +19,7 @@ Isaac dug again the wells of water, which they had dug in the days of Abraham hi
 Isaac's servants dug in the valley, and found there a well of flowing water. 
 The herdsmen of Gerar argued with Isaac's herdsmen, saying, "The water is ours." So he called the name of the well Esek, because they contended with him. 
 They dug another well, and they argued over that, also. So he called its name Sitnah. 
-He left that place, and dug another well. They didn't argue over that one. So he called it Rehoboth. He said, "For now God has made room for us, and we'll be fruitful in the land." 
+He left that place, and dug another well. They didn't argue over that one. So he called it Rehoboth. He said, "Now God has made room for us, and we'll be fruitful in the land." 
 He went up from there to Beersheba. 
 God appeared to him the same night, and said, "I'm the God of Abraham your father. Don't be afraid, for I'm with you, and will bless you, and multiply your offspring for my servant Abraham's sake." 
 He built an altar there, and called on God's name, and pitched his tent there. There Isaac's servants dug a well. 

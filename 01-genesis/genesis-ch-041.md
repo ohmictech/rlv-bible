@@ -49,7 +49,7 @@ He gathered up all the food of the seven years which were in the land of Egypt, 
 Joseph laid up grain as the sand of the sea, very much, until he stopped counting, for it was without number. 
 To Joseph were born two sons before the year of famine came, whom Asenath, the daughter of Potiphera priest of On, bore to him. 
 Joseph called the name of the firstborn Manasseh, "For", he said, "God has made me forget all my toil, and all my father's house." 
-The name of the second, he called Ephraim: "For God has made me fruitful in the land of my affliction." 
+The name of the second, he called Ephraim: "God has made me fruitful in the land of my affliction." 
 The seven years of plenty, that were in the land of Egypt, came to an end. 
 The seven years of famine began to come, just as Joseph had said. There was famine in all lands, but in all the land of Egypt there was bread. 
 When all the land of Egypt was famished, the people cried to Pharaoh for bread, and Pharaoh said to all the Egyptians, "Go to Joseph. What he says to you, do." 

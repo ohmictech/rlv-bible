@@ -1,5 +1,5 @@
 ﻿Of the children of Ammon. God says: "Has Israel no sons? Has he no heir? Why then does Malcam possess Gad, and his people dwell in its cities? 
-Look, the days come," says God, "that I'll cause an alarm of war to be heard against Rabbah of the children of Ammon, and it'll become a desolate heap, and her daughters will be burned with fire; then Israel will possess those who possessed him," says God. 
+The days are coming," says God, "that I'll cause an alarm of war to be heard against Rabbah of the children of Ammon, and it'll become a desolate heap, and her daughters will be burned with fire; then Israel will possess those who possessed him," says God. 
 "Wail, Heshbon, for Ai is laid waste! Cry, you daughters of Rabbah! Clothe yourself in sackcloth. Lament, and run back and forth among the fences; for Malcam will go into captivity, his priests and his princes together. 
 Why do you boast in the valleys, your flowing valley, backsliding daughter? You trusted in her treasures, saying, 'Who will come to me?' 
 Look, I'll bring a terror on you," says the Lord, GOD of Armies, "from everyone who's around you. All of you'll be driven completely out, and there will be no one to gather together the fugitives. 

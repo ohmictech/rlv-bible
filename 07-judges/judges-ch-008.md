@@ -4,7 +4,7 @@ God has delivered into your hand the princes of Midian, Oreb and Zeeb! What was 
 Gideon came to the Jordan and passed over, he and the three hundred men who were with him, faint, yet pursuing. 
 He said to the men of Succoth, "Please give loaves of bread to the people who follow me; for they're faint, and I'm pursuing after Zebah and Zalmunna, the kings of Midian." 
 The princes of Succoth said, "Are the hands of Zebah and Zalmunna now in your hand, that we should give bread to your army?" 
-Gideon said, "Therefore when God has delivered Zebah and Zalmunna into my hand, then I'll tear your flesh with the thorns of the wilderness and with briers." 
+Gideon said, "So when God has delivered Zebah and Zalmunna into my hand, then I'll tear your flesh with the thorns of the wilderness and with briers." 
 He went up there to Penuel, and spoke to them in the same way; and the men of Penuel answered him as the men of Succoth had answered. 
 He spoke also to the men of Penuel, saying, "When I come again in peace, I'll break down this tower." 
 Now Zebah and Zalmunna were in Karkor, and their armies with them, about fifteen thousand men, everyone who was left of all the army of the children of the east; for there fell one hundred twenty thousand men who drew sword. 
@@ -21,7 +21,7 @@ He said to Jether his firstborn, "Get up and kill them!" But the youth didn't dr
 Then Zebah and Zalmunna said, "You rise and fall on us; for as the man is, so is his strength." Gideon arose, and killed Zebah and Zalmunna, and took the crescents that were on their camels' necks. 
 Then the men of Israel said to Gideon, "Rule over us, both you, your son, and your son's son also; for you have saved us out of the hand of Midian." 
 Gideon said to them, "I won't rule over you, neither will my son rule over you. God will rule over you." 
-Gideon said to them, "I do have a request: that you'd each give me the earrings of his plunder." (For they had golden earrings, because they were Ishmaelites.) 
+Gideon said to them, "I do have a request: that you'd each give me the earrings of his plunder." (They had golden earrings, because they were Ishmaelites.) 
 They answered, "We'll willingly give them." They spread a garment, and every man threw the earrings of his plunder into it. 
 The weight of the golden earrings that he requested was one thousand and seven hundred shekels of gold, in addition to the crescents, and the pendants, and the purple clothing that was on the kings of Midian, and in addition to the chains that were about their camels' necks. 
 Gideon made an ephod out of it, and put it in Ophrah, his city. Then all Israel played the prostitute with it there; and it became a snare to Gideon and to his house. 

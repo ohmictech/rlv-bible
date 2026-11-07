@@ -8,7 +8,7 @@ We haven't listened to your servants the spokesmen, who spoke in your name to ou
 Lord, to us belongs confusion of face, to our kings, to our princes, and to our fathers, because we have wronged you. 
 To the Lord our God belong mercies and forgiveness, for we have rebelled against him. 
 We haven't obeyed our God's voice, to walk in his laws, which he set before us by his servants the spokesmen. 
-Yes, all Israel have transgressed your law, turning aside, and not obeying your voice. "Therefore the curse and the oath written in the law of Moses the servant of God has been poured out on us, for we have wronged him. 
+Yes, all Israel have transgressed your law, turning aside, and not obeying your voice. "So the curse and the oath written in the law of Moses the servant of God has been poured out on us, for we have wronged him. 
 He has confirmed his words, which he spoke against us and against our judges who judged us, by bringing on us a great bad; for under the whole sky, such hasn't been done as has been done to Jerusalem. 
 As it's written in the law of Moses, all this bad has come on us. Yet we haven't entreated the favor of our God, that we should turn from our guilt and have discernment in your truth. 
 So God has watched over the bad, and brought it on us; for our God is righteous in all his works which he does, and we haven't obeyed his voice. 

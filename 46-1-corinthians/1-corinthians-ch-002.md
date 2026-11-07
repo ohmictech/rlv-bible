@@ -13,4 +13,4 @@ But we didn't receive the spirit of the world, but the Spirit who's from God, so
 We also speak these things, not in words that human wisdom teaches, but in words the Holy Spirit teaches, comparing spiritual things with spiritual things. 
 Now the natural person doesn't receive the things of God's Spirit, for they're foolishness to him, and he can't know them, because they're spiritually examined. 
 But the one who's spiritual examines all things, and he himself is examined by no one. 
-"For who has known the mind of the Lord that he should instruct him?" But we have Christ's mind. 
+"Who has known the mind of the Lord that he should instruct him?" But we have Christ's mind. 

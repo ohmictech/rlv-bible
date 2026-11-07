@@ -34,7 +34,7 @@ He said to him, "Lord, I'm ready to go with you both to prison and to death!"
 He said, "I tell you, Peter, the rooster will by no means crow today until you have disowned me three times." 
 He said to them, "When I sent you out without purse, bag, and sandals, did you lack anything?" They said, "Nothing." 
 Then he said to them, "But now, whoever has a purse, let him take it, and likewise a bag. Whoever has none, let him sell his cloak, and buy a sword. 
-I tell you that this which is written must still be fulfilled in me: 'He was counted with those who break the law.' For that which concerns me is being fulfilled." 
+I tell you that this which is written must still be fulfilled in me: 'He was counted with those who break the law.' That which concerns me is being fulfilled." 
 They said, "Lord, look, here are two swords." He said to them, "That's enough." 
 He came out and went, as his custom was, to the Mount of Olives. His students also followed him. 
 When he was at the place, he said to them, "Pray that you don't enter into testing." 

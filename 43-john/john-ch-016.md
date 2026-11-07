@@ -29,5 +29,5 @@ I came from the Father and have come into the world. Again, I leave the world an
 His students said to him, "Look, now you're speaking plainly, and using no figures of speech. 
 Now we know that you know all things, and don't need for anyone to question you. By this we trust that you came from God." 
 Jesus answered them, "Do you now trust? 
-Look, the time is coming, yes, and has now come, that you'll be scattered, everyone to his own place, and you'll leave me alone. Yet I'm not alone, because the Father is with me. 
+The time is coming, yes, and has now come, that you'll be scattered, everyone to his own place, and you'll leave me alone. Yet I'm not alone, because the Father is with me. 
 I have told you these things, that in me you can have wholeness. In the world you have trouble; but cheer up! I have overcome the world." 

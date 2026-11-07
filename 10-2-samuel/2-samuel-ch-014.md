@@ -13,7 +13,7 @@ Then the woman said, "Please let your servant speak a word to my lord the king."
 The woman said, "Why then have you devised such a thing against the people of God? In speaking this word the king is as one who's guilty, in that the king doesn't bring home again his banished one. 
 We must die, and are like water spilled on the ground, which can't be gathered up again; neither does God take away life, but devises means, that he who's banished not be an outcast from him. 
 Now, seeing that I have come to speak this word to my lord the king, it's because the people have made me afraid. Your servant said, 'I'll now speak to the king; it might be that the king will perform the request of his servant.' 
-For the king will hear, to deliver his servant out of the hand of the man who would destroy me and my son together out of the inheritance of God. 
+The king will hear, to deliver his servant out of the hand of the man who would destroy me and my son together out of the inheritance of God. 
 Then your servant said, 'Please let the word of my lord the king bring rest; for as an messenger of God, so is my lord the king to discern good and bad. May God, your God, be with you.'" 
 Then the king answered the woman, "Please don't hide anything from me that I ask you." The woman said, "Let my lord the king now speak." 
 The king said, "Is the hand of Joab with you in all this?" The woman answered, "As your soul lives, my lord the king, no one can turn to the right hand or to the left from anything that my lord the king has spoken; for your servant Joab urged me, and he put all these words in the mouth of your servant. 

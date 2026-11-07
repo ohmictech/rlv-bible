@@ -31,5 +31,5 @@ He went in also to Rachel, and he loved also Rachel more than Leah, and served w
 God saw that Leah was hated, and he opened her womb, but Rachel was barren. 
 Leah conceived, and bore a son, and she named him Reuben. She said, "Because God has looked at my affliction; for now my husband will love me." 
 She conceived again, and bore a son, and said, "Because God has heard that I'm hated, he has given me this son also." She named him Simeon. 
-She conceived again, and bore a son. She said, "Now this time my husband will be joined to me, because I have borne him three sons." Therefore his name was called Levi. 
-She conceived again, and bore a son. She said, "This time I'll praise God." Therefore she named him Judah. Then she stopped bearing. 
+She conceived again, and bore a son. She said, "Now this time my husband will be joined to me, because I have borne him three sons." So his name was called Levi. 
+She conceived again, and bore a son. She said, "This time I'll praise God." So she named him Judah. Then she stopped bearing. 

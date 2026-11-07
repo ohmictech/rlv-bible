@@ -6,7 +6,7 @@ Ezra opened the book in the sight of everyone (for he was above everyone), and w
 Then Ezra blessed the great God. Everyone answered, "Amen, Amen," with the lifting up of their hands. They bowed their heads, and worshiped God with their faces to the ground. 
 Also Jeshua, Bani, Sherebiah, Jamin, Akkub, Shabbethai, Hodiah, Maaseiah, Kelita, Azariah, Jozabad, Hanan, Pelaiah, and the Levites, caused the people to understand the law; and the people stayed in their place. 
 They read in the book, in the law of God, distinctly; and they gave the sense, so that they understood the reading. 
-Nehemiah, who was the governor, Ezra the priest and Bible teacher, and the Levites who taught the people said to everyone, "Today is holy to your God. Don't mourn, nor weep." For everyone wept when they heard the words of the law. 
+Nehemiah, who was the governor, Ezra the priest and Bible teacher, and the Levites who taught the people said to everyone, "Today is holy to your God. Don't mourn, nor weep." Everyone wept when they heard the words of the law. 
 Then he said to them, "Go your way. Eat the fat, drink the sweet, and send portions to him for whom nothing is prepared, for today is holy to our Lord. Don't be grieved, for the joy of God is your strength." 
 So the Levites calmed everyone, saying, "Hold your peace, for the day is holy. Don't be grieved." 
 Everyone went their way to eat, to drink, to send portions, and to celebrate, because they had understood the words that were declared to them. 

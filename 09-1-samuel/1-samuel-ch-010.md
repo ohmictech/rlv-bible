@@ -9,7 +9,7 @@ Let it be, when these signs have come to you, that you do what's appropriate for
 It was so, that when he had turned his back to go from Samuel, God gave him another heart; and all those signs happened that day. 
 When they came there to the hill, look, a band of spokesmen met him; and the Spirit of God came mightily on him, and he prophesied among them. 
 When everyone who knew him before saw that, look, he prophesied with the spokesmen, then the people said to one another, "What's this that has come to the son of Kish? Is Saul also among the spokesmen?" 
-One from the same place answered, "Who's their father?" Therefore it became a proverb, "Is Saul also among the spokesmen?" 
+One from the same place answered, "Who's their father?" So it became a proverb, "Is Saul also among the spokesmen?" 
 When he had finished prophesying, he came to the high place. 
 Saul's uncle said to him and to his servant, "Where did you go?" He said, "To seek the donkeys. When we saw that they weren't found, we came to Samuel." 
 Saul's uncle said, "Please tell me what Samuel said to you." 

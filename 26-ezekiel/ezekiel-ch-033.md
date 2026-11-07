@@ -22,7 +22,7 @@ In the twelfth year of our captivity, in the tenth month, in the fifth day of th
 Now God's hand had been on me in the evening, before he who had escaped came; and he had opened my mouth until he came to me in the morning; and my mouth was opened, and I was no longer mute. 
 God's word came to me, saying, 
 "Son of man, those who inhabit the waste places in the land of Israel speak, saying, 'Abraham was one, and he inherited the land; but we're many. The land is given us for inheritance.' 
-Therefore tell them, 'The God says: "You eat with the blood, and lift up your eyes to your idols, and shed blood. So should you possess the land? 
+So tell them, 'The God says: "You eat with the blood, and lift up your eyes to your idols, and shed blood. So should you possess the land? 
 You stand on your sword, you work abomination, and every one of you defiles his neighbor's wife. So should you possess the land?"' 
 "You will tell them, 'The God says: "As I live, surely those who are in the waste places will fall by the sword. I'll give whoever is in the open field to the animals to be devoured, and those who are in the strongholds and in the caves will die of the pestilence. 
 I'll make the land a desolation and an astonishment. The pride of her power will cease. The mountains of Israel will be desolate, so that no one will pass through. 

@@ -16,7 +16,7 @@ When we had all fallen to the earth, I heard a voice saying to me in the Hebrew 
 But arise, and stand on your feet, for I have appeared to you for this purpose: to appoint you a servant and a witness both of the things which you have seen and of the things which I'll reveal to you; 
 delivering you from the people and from the nations, to whom I send you, 
 to open their eyes, that they can turn from darkness to light and from the power of the Adversary to God, that they can receive release of mistakes and an inheritance among those who are set apart by trust in me.' 
-"Therefore, King Agrippa, I wasn't disobedient to the vision from the sky, 
+"So, King Agrippa, I wasn't disobedient to the vision from the sky, 
 but declared first to them of Damascus, at Jerusalem, and throughout all the country of Judea, and also to the nations, that they should have a change of heart and turn to God, doing deeds that go with a change of heart. 
 That's why the Jewish people seized me in the temple courts and tried to kill me. 
 Having obtained the help that's from God, I stand to this day testifying both to small and great, saying nothing but what the spokesmen and Moses said would happen, 

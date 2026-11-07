@@ -7,7 +7,7 @@ As the crackling of thorns under a pot, so is the laughter of the fool. This als
 Surely extortion makes the wise man foolish; and a bribe destroys the understanding. 
 Better is the end of a thing than its beginning. The patient in spirit is better than the proud in spirit. 
 Don't be hasty in your spirit to be angry, for anger rests in the bosom of fools. 
-Don't say, "Why were the former days better than these?" For you don't ask wisely about this. 
+Don't say, "Why were the former days better than these?" You don't ask wisely about this. 
 Wisdom is as good as an inheritance. Yes, it's more excellent for those who see the sun. 
 Wisdom is a defense, even as money is a defense; but the excellency of knowledge is that wisdom preserves the life of him who has it. 
 Consider the work of God, for who can make that straight which he has made crooked? 

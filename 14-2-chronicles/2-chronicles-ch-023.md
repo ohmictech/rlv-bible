@@ -11,7 +11,7 @@ He set everyone, every man with his weapon in his hand, from the right side of t
 Then they brought out the king's son, put the crown on him, gave him the covenant, and made him king. Jehoiada and his sons anointed him, and they said, "Long live the king!" 
 When Athaliah heard the noise of the people running and praising the king, she came to the people into God's house. 
 Then she looked, and look, the king stood by his pillar at the entrance, with the captains and the trumpeters by the king. Everyone in the land rejoiced and blew trumpets. The singers also played musical instruments, and led the singing of praise. Then Athaliah tore her clothes, and said, "Treason! treason!" 
-Jehoiada the priest brought out the captains of hundreds who were set over the army, and said to them, "Bring her out between the ranks; and whoever follows her, let him be slain with the sword." For the priest said, "Don't kill her in God's house." 
+Jehoiada the priest brought out the captains of hundreds who were set over the army, and said to them, "Bring her out between the ranks; and whoever follows her, let him be slain with the sword." The priest said, "Don't kill her in God's house." 
 So they made way for her. She went to the entrance of the horse gate to the king's house; and they killed her there. 
 Jehoiada made a covenant between himself, everyone, and the king, that they should be God's people. 
 Everyone went to the house of Baal, broke it down, broke his altars and his images in pieces, and killed Mattan the priest of Baal before the altars. 

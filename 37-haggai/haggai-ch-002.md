@@ -3,7 +3,7 @@
 'Who's left among you who saw this house in its former glory? How do you see it now? Isn't it in your eyes as nothing? 
 Yet now be strong, Zerubbabel,' says God. 'Be strong, Joshua son of Jehozadak, the high priest. Be strong, all you people of the land,' says God, 'and work, for I'm with you,' says the God of Armies. 
 This is the word that I covenanted with you when you came out of Egypt, and my Spirit lived among you. 'Don't be afraid.' 
-For this is what the God of Armies says: 'Yet once more, it's a little while, and I'll shake the sky, the earth, the sea, and the dry land; 
+This is what the God of Armies says: 'Yet once more, it's a little while, and I'll shake the sky, the earth, the sea, and the dry land; 
 and I'll shake all nations. The treasure of all nations will come, and I'll fill this house with glory, says the God of Armies. 
 The silver is mine, and the gold is mine,' says the God of Armies. 
 'The latter glory of this house will be greater than the former,' says the God of Armies; 'and in this place I'll give peace,' says the God of Armies." 

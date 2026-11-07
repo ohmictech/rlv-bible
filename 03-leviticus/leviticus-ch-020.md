@@ -6,7 +6,7 @@ then I'll set my face against that man and against his family, and will cut him 
 "'The person that turns to those who are mediums and wizards, to play the prostitute after them, I'll even set my face against that person, and will cut him off from among his people. 
 "'Sanctify yourselves, and be holy; for I'm your God. 
 You will keep my statutes, and do them. I'm God who sanctifies you. 
-"'For everyone who curses his father or his mother will surely be put to death. He has cursed his father or his mother. His blood will be upon himself. 
+"'Everyone who curses his father or his mother will surely be put to death. He has cursed his father or his mother. His blood will be upon himself. 
 "'The man who commits adultery with another man's wife, even he who commits adultery with his neighbor's wife, the adulterer and the adulteress will surely be put to death. 
 "'The man who lies with his father's wife has uncovered his father's nakedness. Both of them will surely be put to death. Their blood will be upon themselves. 
 "'If a man lies with his daughter-in-law, both of them will surely be put to death. They have committed a perversion. Their blood will be upon themselves. 

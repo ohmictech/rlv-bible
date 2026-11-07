@@ -2,7 +2,7 @@
 "Stand in the gate of God's house, and proclaim this word there, and say, 'Hear God's word, all you of Judah, who enter in at these gates to worship God.'" 
 The God of Armies, the God of Israel says, "Amend your ways and your doings, and I'll cause you to dwell in this place. 
 Don't trust in lying words, saying, 'God's temple, God's temple, God's temple, are these.' 
-For if you thoroughly amend your ways and your doings, if you thoroughly execute justice between a man and his neighbor; 
+If you thoroughly amend your ways and your doings, if you thoroughly execute justice between a man and his neighbor; 
 if you don't oppress the foreigner, the fatherless, and the widow, and don't shed innocent blood in this place, and don't walk after other gods to your own hurt, 
 then I'll cause you to dwell in this place, in the land that I gave to your fathers, from of old even for the eras more. 
 Look, you trust in lying words that can't profit. 
@@ -29,6 +29,6 @@ You will tell them, 'This is the nation that hasn't listened to their God's voic
 Cut off your hair, and throw it away, and take up a lamentation on the bare heights; for God has rejected and forsaken the generation of his wrath. 
 "The children of Judah have done that which is bad in my sight," says God. "They have set their abominations in the house which is called by my name, to defile it. 
 They have built the high places of Topheth, which is in the valley of the son of Hinnom, to burn their sons and their daughters in the fire, which I didn't command, nor did it come into my mind. 
-Look, the days come", says God, "that it'll no more be called 'Topheth' or 'The valley of the son of Hinnom', but 'The valley of Slaughter'; for they'll bury in Topheth until there's no place to bury. 
+The days are coming", says God, "that it'll no more be called 'Topheth' or 'The valley of the son of Hinnom', but 'The valley of Slaughter'; for they'll bury in Topheth until there's no place to bury. 
 The dead bodies of this people will be food for the birds of the sky, and for the animals of the earth. No one will frighten them away. 
 Then I'll cause to cease from the cities of Judah and from the streets of Jerusalem the voice of mirth and the voice of gladness, the voice of the bridegroom and the voice of the bride; for the land will become a waste." 

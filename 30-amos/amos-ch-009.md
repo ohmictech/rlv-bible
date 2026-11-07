@@ -10,6 +10,6 @@ Look, the eyes of God are on the sinful kingdom, and I'll destroy it from off th
 All the those who have drifted of my people will die by the sword, who say, 'Bad won't overtake nor meet us.' 
 In that day I'll raise up the tent of David who's fallen and close up its breaches, and I'll raise up its ruins, and I'll build it as in the days of old, 
 that they can possess the remnant of Edom and all the nations who are called by my name," says God who does this. 
-"Look, the days come," says God, "that the plowman will overtake the reaper, and the one treading grapes him who sows seed; and sweet wine will drip from the mountains, and flow from the hills. 
+"The days are coming," says God, "that the plowman will overtake the reaper, and the one treading grapes him who sows seed; and sweet wine will drip from the mountains, and flow from the hills. 
 I'll bring my people Israel back from captivity, and they'll rebuild the ruined cities, and inhabit them; and they'll plant vineyards, and drink wine from them. They will also make gardens, and eat their fruit. 
 I'll plant them on their land, and they'll no more be plucked up out of their land which I have given them," says your God. 

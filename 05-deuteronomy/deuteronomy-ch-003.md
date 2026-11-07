@@ -8,7 +8,7 @@ But all the livestock, and the plunder of the cities, we took for plunder for ou
 We took the land at that time out of the hand of the two kings of the Amorites who were beyond the Jordan, from the valley of the Arnon to Mount Hermon. 
 (The Sidonians call Hermon Sirion, and the Amorites call it Senir.) 
 We took all the cities of the plain, and all Gilead, and all Bashan, to Salecah and Edrei, cities of the kingdom of Og in Bashan. 
-(For only Og king of Bashan remained of the remnant of the Rephaim. Look, his bedstead was a bedstead of iron. Isn't it in Rabbah of the children of Ammon? Nine cubits was its length, and four cubits its width, after the cubit of a man.) 
+(Only Og king of Bashan remained of the remnant of the Rephaim. Look, his bedstead was a bedstead of iron. Isn't it in Rabbah of the children of Ammon? Nine cubits was its length, and four cubits its width, after the cubit of a man.) 
 This land we took in possession at that time: from Aroer, which is by the valley of the Arnon, and half the hill country of Gilead with its cities, I gave to the Reubenites and to the Gadites; 
 and the rest of Gilead, and all Bashan, the kingdom of Og, I gave to the half-tribe of Manasseh, all the region of Argob, even all Bashan. (The same is called the land of Rephaim. 
 Jair the son of Manasseh took all the region of Argob, to the border of the Geshurites and the Maacathites, and called them, even Bashan, after his own name, Havvoth Jair, to this day.) 

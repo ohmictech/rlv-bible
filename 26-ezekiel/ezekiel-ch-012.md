@@ -25,4 +25,4 @@ There will be no more any false vision nor flattering divination within the hous
 I'm God. I'll speak, and the word that I speak will be performed. It'll be no more deferred; for in your days, rebellious house, I'll speak the word and will perform it," says God.'" 
 Again God's word came to me, saying, 
 "Son of man, look, they of the house of Israel say, 'The vision that he sees is for many days to come, and he prophesies of times that are far off.' 
-"Therefore tell them, 'The God says: "None of my words will be deferred any more, but the word which I speak will be performed," says God.'" 
+"So tell them, 'The God says: "None of my words will be deferred any more, but the word which I speak will be performed," says God.'" 

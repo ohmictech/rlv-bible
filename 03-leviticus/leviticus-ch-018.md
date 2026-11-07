@@ -26,5 +26,5 @@ The land was defiled. So I punished its guilt, and the land vomited out her inha
 You will keep my statutes and my ordinances, and won't do any of these abominations; neither the native-born, nor the stranger who lives as a foreigner among you 
 (for the men of the land that were before you had done all these abominations, and the land became defiled), 
 that the land not vomit you out also, when you defile it, as it vomited out the nation that was before you. 
-"'For whoever will do any of these abominations, even the souls that do them will be cut off from among their people. 
+"'Whoever will do any of these abominations, even the souls that do them will be cut off from among their people. 
 So you will keep my requirements, that you don't practice any of these abominable customs which were practiced before you, and that you don't defile yourselves with them. I'm your God.'" 

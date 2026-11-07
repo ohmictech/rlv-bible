@@ -15,7 +15,7 @@ That first slaughter, which Jonathan and his armor bearer made, was about twenty
 There was a trembling in the camp, in the field, and among everyone; the garrison and the raiders also trembled; and the earth quaked, so there was an exceedingly great trembling. 
 The watchmen of Saul in Gibeah of Benjamin looked; and look, the multitude melted away and scattered. 
 Then Saul said to the people who were with him, "Count now, and see who's missing from us." When they had counted, look, Jonathan and his armor bearer weren't there. 
-Saul said to Ahijah, "Bring God's ark here." For God's ark was with the children of Israel at that time. 
+Saul said to Ahijah, "Bring God's ark here." God's ark was with the children of Israel at that time. 
 While Saul talked to the priest, the tumult that was in the camp of the Philistines went on and increased; and Saul said to the priest, "Withdraw your hand!" 
 Saul and everyone who was with him were gathered together, and came to the battle; and look, they were all striking each other with their swords in very great confusion. 
 Now the Hebrews who were with the Philistines before and who went up with them into the camp from all around, even they also turned to be with the Israelites who were with Saul and Jonathan. 

@@ -27,7 +27,7 @@ After that, his brother came out, and his hand had hold on Esau's heel. He was n
 The boys grew. Esau was a skillful hunter, a man of the field. Jacob was a quiet man, living in tents. 
 Now Isaac loved Esau, because he ate his venison. Rebekah loved Jacob. 
 Jacob boiled stew. Esau came in from the field, and he was famished. 
-Esau said to Jacob, "Please feed me with some of that red stew, for I'm famished." Therefore his name was called Edom. 
+Esau said to Jacob, "Please feed me with some of that red stew, for I'm famished." So his name was called Edom. 
 Jacob said, "First, sell me your birthright." 
 Esau said, "Look, I'm about to die. What good is the birthright to me?" 
 Jacob said, "Swear to me first." He swore to him. He sold his birthright to Jacob. 

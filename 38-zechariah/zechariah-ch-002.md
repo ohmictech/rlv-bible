@@ -5,7 +5,7 @@ and said to him, "Run, speak to this young man, saying, 'Jerusalem will be inhab
 I,' says God, 'will be to her a wall of fire around it, and I'll be the glory in the middle of her. 
 Come! Come! Flee from the land of the north,' says God; 'for I have spread you abroad as the four winds of the sky,' says God. 
 'Come, Zion! Escape, you who dwell with the daughter of Babylon.' 
-For the God of Armies says: 'For honor he has sent me to the nations which plundered you; for he who touches you touches the apple of his eye. 
+The God of Armies says: 'Honor he has sent me to the nations which plundered you; for he who touches you touches the apple of his eye. 
 For, look, I'll shake my hand over them, and they'll be a plunder to those who served them; and you'll know that the God of Armies has sent me. 
 Sing and rejoice, daughter of Zion! Look, I come and I'll dwell within you,' says God. 
 Many nations will join themselves to God in that day, and will be my people; and I'll dwell among you, and you will know that the God of Armies has sent me to you. 

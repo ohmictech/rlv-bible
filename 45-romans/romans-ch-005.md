@@ -3,9 +3,9 @@ through whom we also have a way in by trust into this favor, in which we stand. 
 Not only this, but we also take pride in our hard times, knowing that hard times produce endurance; 
 and endurance, proven character; and proven character, expectation; 
 and expectation doesn't disappoint us, because God's love has been poured into our hearts through the Holy Spirit who was given to us. 
-For while we were yet weak, at the right time Christ died for those with no regard for God. 
+For while we were still weak, at the right time Christ died for those with no regard for God. 
 For one will hardly die for a right person. Yet perhaps for a good person someone would even dare to die. 
-But God commends his own love toward us, in that while we were yet those who miss the mark, Christ died for us. 
+But God demonstrates his own love toward us, like this: while we were still those who miss the mark, Christ died for us. 
 Much more then, being now made right by his blood, we will be rescued from God's heat through him. 
 For if while we were enemies, we were brought back to God through the death of his Son, much more, being brought back, we will be rescued by his life. 
 Not only so, but we also take pride in God through our Lord Jesus Christ, through whom we have now received the bringing back together. 

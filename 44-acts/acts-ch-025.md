@@ -8,7 +8,7 @@ When he had come, the Jewish people who had come down from Jerusalem stood aroun
 while he said in his defense, "Neither against the law of the Jewish people, nor against the temple courts, nor against Caesar, have I drifted at all." 
 But Festus, desiring to gain favor with the Jewish people, answered Paul and said, "Are you willing to go up to Jerusalem and be judged by me there concerning these things?" 
 But Paul said, "I am standing before Caesar's judge's seat, where I ought to be tried. I have done no wrong to the Jewish people, as you also know very well. 
-For if I have done wrong and have committed anything worthy of death, I don't refuse to die; but if none of those things is true that they accuse me of, no one can give me up to them. I appeal to Caesar!" 
+If I have done wrong and have committed anything worthy of death, I don't refuse to die; but if none of those things is true that they accuse me of, no one can give me up to them. I appeal to Caesar!" 
 Then Festus, when he had conferred with the council, answered, "You have appealed to Caesar. To Caesar you shall go." 
 Now when some days had passed, King Agrippa and Bernice arrived at Caesarea and greeted Festus. 
 As he stayed there many days, Festus laid Paul's case before the king, saying, "There is a certain man left a prisoner by Felix; 
@@ -23,5 +23,5 @@ Agrippa said to Festus, "I also would like to hear the man myself." "Tomorrow," 
 So on the next day, when Agrippa and Bernice had come with great pomp, and they had entered into the place of hearing with the commanding officers and the principal men of the city, at the command of Festus, Paul was brought in. 
 Festus said, "King Agrippa, and everyone who is here present with us, you see this man about whom all the crowd of the Jewish people petitioned me, both at Jerusalem and here, crying that he ought not to live any longer. 
 But when I found that he had committed nothing worthy of death, and as he himself appealed to the emperor, I determined to send him, 
-of whom I have no certain thing to write to my lord. Therefore I have brought him out before you, and especially before you, King Agrippa, that, after examination I may have something to write. 
-For it seems to me unreasonable, in sending a prisoner, not to also specify the charges against him." 
+of whom I have no certain thing to write to my lord. So I have brought him out before you, and especially before you, King Agrippa, that, after examination I may have something to write. 
+It seems to me unreasonable, in sending a prisoner, not to also specify the charges against him." 

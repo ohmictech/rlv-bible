@@ -22,7 +22,7 @@ From that time, Jesus began to show his students that he must go to Jerusalem an
 Peter took him aside and began to rebuke him, saying, "Never, Lord! This will never happen to you." 
 But he turned and said to Peter, "Get behind me, Adversary! You are a trap to me, for you are not setting your mind on the things of God, but on the things of people." 
 Then Jesus said to his students, "If anyone wants to come after me, let him disown himself, take up his cross, and follow me. 
-For whoever wants to rescue his life will lose it, and whoever loses his life for my sake will find it. 
-For what will it profit a person if he gains the whole world and loses his life? Or what will a person give in exchange for his life? 
-For the Human One will come in the weight of his Father with his messengers, and then he will give to everyone according to his deeds. 
+Whoever wants to rescue his life will lose it, and whoever loses his life for my sake will find it. 
+What will it profit a person if he gains the whole world and loses his life? Or what will a person give in exchange for his life? 
+The Human One will come in the weight of his Father with his messengers, and then he will give to everyone according to his deeds. 
 Truly I tell you, there are some standing here who will in no way taste of death until they see the Human One coming in his reign." 

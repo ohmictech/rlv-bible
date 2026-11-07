@@ -5,7 +5,7 @@ Jesus answered him, saying, "It is written, 'People do not live on bread alone, 
 The Slanderer, leading him up on a high mountain, showed him all the realms of the world in a moment of time. 
 The Slanderer said to him, "I will give you all this authority and their weight, for it has been handed over to me, and I give it to whomever I want. 
 If you therefore will worship before me, it will all be yours." 
-Jesus answered him, "Get behind me, Adversary! For it is written, 'You shall worship the Lord your God, and you shall serve him only.'" 
+Jesus answered him, "Get behind me, Adversary! It is written, 'You shall worship the Lord your God, and you shall serve him only.'" 
 He led him to Jerusalem and set him on the highest point of the temple, and said to him, "If you are the Son of God, throw yourself down from here, 
 for it is written, 'He will put his messengers in charge of you, to guard you;' 
 and, 'On their hands they will bear you up, lest perhaps you dash your foot against a stone.'" 
@@ -33,7 +33,7 @@ and they were astonished at his teaching, for his word was with authority.
 In the gathering place there was a man who had an unclean spirit; and he cried out with a loud voice, 
 saying, "Ah! what have we to do with you, Jesus of Nazareth? Have you come to kill us? I know who you are: the Holy One of God!" 
 Jesus rebuked him, saying, "Be quiet and come out of him!" When the unclean spirit had thrown him down in the middle of them, it came out of him without harming him. 
-Amazement came on everyone, and they said to one another, "What is this message? For with authority and power he commands the unclean spirits, and they come out!" 
+Amazement came on everyone, and they said to one another, "What is this message? With authority and power he commands the unclean spirits, and they come out!" 
 News about him went out into every place of the surrounding region. 
 He rose up from the gathering place and entered into Simon's house. Simon's mother-in-law was suffering from a high fever, and they begged him to help her. 
 He stood over her and rebuked the fever, and it left her. Immediately she rose up and served them. 

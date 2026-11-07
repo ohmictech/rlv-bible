@@ -9,7 +9,7 @@ And God is able to make every gift overflow to you, so that you always have enou
 As it is written, "He has scattered abroad. He has given to the poor. His rightness remains forever." 
 Now may he who supplies seed to the sower and bread for food, supply and multiply your seed for sowing, and increase the fruits of your rightness, 
 you being made rich in everything for all generosity, which produces thanksgiving to God through us. 
-For this service you perform not only makes up what the set-apart ones lack, but also overflows in much thanksgiving to God, 
+This service you perform not only makes up what the set-apart ones lack, but also overflows in much thanksgiving to God, 
 because through the proof of this service, they give God weight for your obedience in agreeing to the Good News of Christ and for the generosity of what you share with them and with everyone, 
 while they also, praying for you, long for you because of the great favor of God in you. 
 Thanks be to God for his gift beyond words! 

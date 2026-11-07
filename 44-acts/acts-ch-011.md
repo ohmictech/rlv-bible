@@ -21,9 +21,9 @@ But there were some of them, men of Cyprus and Cyrene, who, when they had come t
 The hand of the Lord was with them, and a great number trusted and turned to the Lord. 
 The report concerning them came to the ears of the gathering which was in Jerusalem. They sent out Barnabas to go as far as Antioch, 
 who, when he had come and seen the favor of God, was glad. He urged them all to remain near to the Lord with purpose of heart. 
-For he was a good man, and full of the Holy Spirit and of trust, and many people were added to the Lord. 
+He was a good man, and full of the Holy Spirit and of trust, and many people were added to the Lord. 
 Barnabas went out to Tarsus to look for Saul. 
-When he had found him, he brought him to Antioch. For a whole year they met together with the gathering, and taught many people. The students were first called Christians in Antioch. 
+When he had found him, he brought him to Antioch. A whole year they met together with the gathering, and taught many people. The students were first called Christians in Antioch. 
 Now in these days, spokesmen came down from Jerusalem to Antioch. 
 One of them named Agabus stood up and indicated by the Spirit that a great famine would spread over the whole world, which also happened in the days of Claudius. 
 As any of the students had plenty, each determined to send relief to the brothers who lived in Judea; 

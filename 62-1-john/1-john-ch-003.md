@@ -8,7 +8,7 @@ Dear children, do not let anyone lead you astray. Whoever does what is right is 
 Whoever keeps drifting belongs to the Slanderer, because the Slanderer has been drifting from the beginning. The Son of God appeared for this reason: to undo the deeds of the Slanderer. 
 No one who has been born of God keeps on drifting, because God's seed makes its home in them, and they cannot keep on drifting, because they have been born of God. 
 This is how God's children and the Slanderer's children are shown for what they are. Anyone who does not do what is right is not God's child, and neither is anyone who does not love their brother or sister. 
-For this is the message which you heard from the beginning: we should love one another. 
+This is the message which you heard from the beginning: we should love one another. 
 Do not be like Cain, who belonged to the Slanderer and murdered his brother. Why did he murder him? Because his own deeds were bad and his brother's were right. 
 Brothers and sisters, do not be surprised if the world hates you. 
 We know that we have moved out of death into real life, because we love our brothers and sisters. Anyone who does not love makes their home in death. 

@@ -4,7 +4,7 @@ This is what loving God means: keeping his commands. And his commands are not a 
 Everything born of God wins the victory over the world. And this is the victory that has won over the world: your trust. 
 Who is it that wins the victory over the world? The one who trusts that Jesus is the Son of God. 
 This is the one who came by water and blood: Jesus Christ. He did not come by water only, but by water and blood. And it is the Spirit who bears witness, because the Spirit is the truth. 
-For there are three that bear witness: 
+There are three that bear witness: 
 the Spirit, the water, and the blood; and the three agree as one. 
 If we accept what people bear witness to, what God bears witness to is greater, because this is God's own witness, which he has given about his Son. 
 Whoever trusts in the Son of God has that witness in themselves. Whoever does not trust God has made God out to be a liar, because they have not trusted the witness God gave about his Son. 

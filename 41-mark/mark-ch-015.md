@@ -7,7 +7,7 @@ Now at the feast he used to release to them one prisoner, whomever they asked fo
 There was one called Barabbas, tied up with his fellow rebels, men who had committed murder in the uprising. 
 The crowd came up and began to ask him to do as he always did for them. 
 Pilate answered them, saying, "Do you want me to release to you the King of the Jews?" 
-For he knew that the chief priests had handed him over out of envy. 
+He knew that the chief priests had handed him over out of envy. 
 But the chief priests stirred up the crowd to have him release Barabbas instead. 
 Pilate again asked them, "What then should I do with the one you call the King of the Jews?" 
 They cried out again, "Crucify him!" 

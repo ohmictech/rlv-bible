@@ -14,9 +14,9 @@ The hired hand flees because he is a hired hand and doesn't care for the sheep.
 I am the good shepherd. I know my own, and I'm known by my own; 
 even as the Father knows me, and I know the Father. I lay down my life for the sheep. 
 I have other sheep which are not of this fold. I must bring them also, and they will hear my voice. They will become one flock with one shepherd. 
-Therefore the Father loves me, because I lay down my life, that I may take it again. 
+So the Father loves me, because I lay down my life, that I may take it again. 
 No one takes it away from me, but I lay it down by myself. I have authority to lay it down, and I have authority to take it again. I received this commandment from my Father." 
-Therefore a division arose again among the Jewish leaders because of these words. 
+So a division arose again among the Jewish leaders because of these words. 
 Many of them said, "He has an unclean spirit and is out of his mind! Why do you listen to him?" 
 Others said, "These are not the sayings of one with an unclean spirit. It isn't possible for an unclean spirit to open the eyes of the blind, is it?" 
 It was the Feast of the Dedication at Jerusalem. 
@@ -28,8 +28,8 @@ My sheep hear my voice, and I know them, and they follow me.
 I give them the real life of the era. They will never be lost, and no one will snatch them out of my hand. 
 My Father who has given them to me is greater than all. No one is able to snatch them out of my Father's hand. 
 I and the Father are one." 
-Therefore the Jewish leaders took up stones again to stone him. 
-Jesus answered them, "I have shown you many good deeds from my Father. For which of those deeds do you stone me?" 
+So the Jewish leaders took up stones again to stone him. 
+Jesus answered them, "I have shown you many good deeds from my Father. Which of those deeds do you stone me?" 
 The Jewish leaders answered him, "We don't stone you for a good deed, but for slander, because you, being a man, make yourself God." 
 Jesus answered them, "Isn't it written in your law, 'I said, you are gods'? 
 If he called them gods, to whom the word of God came (and the Scripture can't be broken), 

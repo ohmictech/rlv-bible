@@ -19,10 +19,10 @@ Others are those who are sown among the thorns. These are those who have heard t
 but the worries of this era, the deceitfulness of riches, and the desires for other things come in and choke the word, and it bears no fruit. 
 Those sown on the good ground are those who hear the word, accept it, and bear fruit, some thirty times, some sixty times, and some a hundred times." 
 He said to them, "Is a lamp brought to be put under a basket or under a bed? Isn't it put on a stand? 
-For there is nothing hidden except to be made known, and nothing was made secret except to come to light. 
+There is nothing hidden except to be made known, and nothing was made secret except to come to light. 
 If anyone has ears to hear, let him hear." 
 He said to them, "Pay attention to what you hear. With the measure you use, it will be measured to you, and more will be given to you who hear. 
-For whoever has, more will be given to him, and whoever doesn't have, even what he has will be taken away from him." 
+Whoever has, more will be given to him, and whoever doesn't have, even what he has will be taken away from him." 
 He said, "God's reign is like a man who scatters seed on the ground, 
 and sleeps and rises night and day, and the seed springs up and grows, though he doesn't know how. 
 The ground bears fruit by itself: first the blade, then the head, then the full grain in the head. 

@@ -26,11 +26,11 @@ When Peter entered, Cornelius met him, fell down at his feet, and worshiped him.
 But Peter raised him up, saying, "Stand up! I myself am also a man." 
 As he talked with him, he went in and found many gathered together. 
 He said to them, "You yourselves know how it is unlawful for a Jewish man to associate with or visit someone of another nation, but God has shown me that I shouldn't call any person unholy or unclean. 
-Therefore I also came without complaint when I was sent for. I ask therefore, why did you send for me?" 
+So I also came without complaint when I was sent for. I ask therefore, why did you send for me?" 
 Cornelius said, "Four days ago, I was fasting until this hour, and at mid-afternoon I was praying in my house, and look, a man stood before me in bright clothing 
 and said, 'Cornelius, your prayer is heard, and your gifts to the needy are remembered in the sight of God. 
 Send therefore to Joppa and summon Simon, who is also called Peter. He is staying in the house of a tanner named Simon, by the seaside. When he comes, he will speak to you.' 
-Therefore I sent to you at once, and it was good of you to come. Now therefore we are all here present in the sight of God to hear all things that have been commanded you by God." 
+So I sent to you at once, and it was good of you to come. Now therefore we are all here present in the sight of God to hear all things that have been commanded you by God." 
 Peter began to speak: "Truly I perceive that God doesn't show favoritism; 
 but in every nation he who fears him and does what is right is acceptable to him. 
 The word which he sent to the children of Israel, announcing good news of wholeness by Jesus Christ, he is Lord of all, 
@@ -43,6 +43,6 @@ He commanded us to announce to the people and to witness that this is he who is 
 All the spokesmen testify about him, that through his name everyone who trusts in him will receive release of mistakes." 
 While Peter was still speaking these words, the Holy Spirit fell on everyone who heard the word. 
 The Jewish believers who had come with Peter were amazed, because the gift of the Holy Spirit was also poured out on the nations. 
-For they heard them speaking in other languages and magnifying God. Then Peter answered, 
+They heard them speaking in other languages and magnifying God. Then Peter answered, 
 "Can anyone forbid these people from being immersed with water? They have received the Holy Spirit just like us." 
 He commanded them to be immersed in the name of Jesus Christ. Then they asked him to stay some days. 

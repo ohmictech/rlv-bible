@@ -1,17 +1,17 @@
 ﻿Now about spiritual things, brothers, I don't want you to be unaware. 
 You know that when you were outsiders, you were led away to those speechless idols, however you were led. 
-Therefore I want you to know that no one speaking by God's Spirit says, "Jesus is cursed." And no one can say, "Jesus is Lord," except by the Holy Spirit. 
+So I want you to know that no one speaking by God's Spirit says, "Jesus is cursed." And no one can say, "Jesus is Lord," except by the Holy Spirit. 
 Now there are various kinds of gifts, but the same Spirit. 
 There are various kinds of service, and the same Lord. 
 There are various kinds of workings, but the same God who works all things in all. 
 But to each one is given the visible showing of the Spirit for the good of all. 
-For to one is given through the Spirit the word of wisdom, and to another the word of knowledge according to the same Spirit, 
+To one is given through the Spirit the word of wisdom, and to another the word of knowledge according to the same Spirit, 
 to another trust by the same Spirit, and to another gifts of healing by the same Spirit, 
 and to another powerful works, and to another speaking for God, and to another telling spirits apart, to another different kinds of languages, and to another the interpretation of languages. 
 But the one and the same Spirit produces all of these, distributing to each one separately as he desires. 
-For as the body is one and has many members, and all the members of the body, being many, are one body; so also is Christ. 
-For in one Spirit we were all immersed into one body, whether Jewish people or Greeks, whether slaves or free; and we were all given one Spirit to drink. 
-For the body is not one member, but many. 
+As the body is one and has many members, and all the members of the body, being many, are one body; so also is Christ. 
+In one Spirit we were all immersed into one body, whether Jewish people or Greeks, whether slaves or free; and we were all given one Spirit to drink. 
+The body is not one member, but many. 
 If the foot would say, "Because I'm not the hand, I'm not part of the body," it is not therefore not part of the body. 
 If the ear would say, "Because I'm not the eye, I'm not part of the body," it's not therefore not part of the body. 
 If the whole body were an eye, where would the hearing be? If the whole were hearing, where would the smelling be? 

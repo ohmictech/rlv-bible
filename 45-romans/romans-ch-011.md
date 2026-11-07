@@ -1,4 +1,4 @@
-﻿I ask then, did God reject his people? Not a chance! For I also am an Israelite, a descendant of Abraham, of the tribe of Benjamin. 
+﻿I ask then, did God reject his people? Not a chance! I also am an Israelite, a descendant of Abraham, of the tribe of Benjamin. 
 God didn't reject his people, whom he foreknew. Or don't you know what the Scripture says about Elijah? How he pleads with God against Israel: 
 "Lord, they have killed your spokesmen. They have broken down your altars. I am left alone, and they seek my life." 
 But how does God answer him? "I have reserved for myself seven thousand men who have not bowed their knees to Baal." 
@@ -12,7 +12,7 @@ I ask then, did they stumble so that they would fall? Not a chance! But by their
 Now if their fall is the riches of the world, and their loss the riches of the nations, how much more their fullness! 
 I am speaking to you who are nations. Since I am a sent one to the nations, I make much of my work, 
 if by any means I may provoke to jealousy those who are my flesh, and may rescue some of them. 
-For if the rejection of them is the bringing back of the world, what would their acceptance be, but real life from the dead? 
+If the rejection of them is the bringing back of the world, what would their acceptance be, but real life from the dead? 
 If the first fruit is set apart, so is the lump. If the root is set apart, so are the branches. 
 But if some of the branches were broken off, and you, being a wild olive, were grafted in among them and became partaker with them of the root and of the richness of the olive tree, 
 don't boast over the branches. But if you boast, remember that it is not you who support the root, but the root supports you. 
@@ -21,16 +21,16 @@ True; by their lack of trust they were broken off, and you stand by your trust. 
 for if God didn't spare the natural branches, neither will he spare you. 
 See then the goodness and severity of God. Toward those who fell, severity; but toward you, goodness, if you continue in his goodness; otherwise you also will be cut off. 
 They also, if they don't continue in their lack of trust, will be grafted in, for God is able to graft them in again. 
-For if you were cut out of that which is by nature a wild olive tree, and were grafted contrary to nature into a good olive tree, how much more will these, which are the natural branches, be grafted into their own olive tree? 
-For I don't desire you to be ignorant, brothers, of this secret, so that you won't be wise in your own conceits, that a partial hardening has happened to Israel, until the fullness of the nations has come in, 
+If you were cut out of that which is by nature a wild olive tree, and were grafted contrary to nature into a good olive tree, how much more will these, which are the natural branches, be grafted into their own olive tree? 
+I don't desire you to be ignorant, brothers, of this secret, so that you won't be wise in your own conceits, that a partial hardening has happened to Israel, until the fullness of the nations has come in, 
 and so all Israel will be rescued. Even as it is written, "There will come out of Zion the Rescuer, and he will turn away disregard for God from Jacob. 
 This is my binding arrangement with them, when I will take away their mistakes." 
 Concerning the Good News, they are enemies for your sake. But concerning the choosing, they are truly loved for the ancestors' sake. 
-For the gifts and the calling of God can never be backtracked. 
-For as you in time past were disobedient to God, but now have obtained mercy by their disobedience, 
+The gifts and the calling of God can never be backtracked. 
+As you in time past were disobedient to God, but now have obtained mercy by their disobedience, 
 even so these also have now been disobedient, that by the mercy shown to you they may also obtain mercy. 
-For God has locked everyone into disobedience, so that he could have mercy on everyone. 
+God has locked everyone into disobedience, so that he could have mercy on everyone. 
 Oh the depth of the riches both of the wisdom and the knowledge of God! How unsearchable are his verdicts, and his ways past tracing out! 
 "For who has known the mind of the Lord? Or who has been his counselor?" 
 "Or who has first given to him, and it will be repaid to him again?" 
-For of him and through him and to him are all things. To him be the weight for all the eras! Amen. 
+Of him and through him and to him are all things. To him be the weight for all the eras! Amen. 

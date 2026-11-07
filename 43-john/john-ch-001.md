@@ -14,7 +14,7 @@ who were born, not of blood, nor of the will of the flesh, nor of the will of ma
 The Word became flesh and made his home among us. We saw his weight, the weight of the one and only Son of the Father, full of favor and truth. 
 John testified about him. He cried out, saying, "This was he of whom I said, 'He who comes after me has surpassed me, for he was before me.'" 
 From his fullness we have all received favor upon favor. 
-For the law was given through Moses. Favor and truth came through Jesus Christ. 
+The law was given through Moses. Favor and truth came through Jesus Christ. 
 No one has seen God at any time. The one and only Son, who is at the Father's side, has made him known. 
 This is John's testimony, when the Jewish leaders sent priests and Levites from Jerusalem to ask him, "Who are you?" 
 He declared it openly and didn't deny it: "I am not the Christ." 

@@ -6,7 +6,7 @@ You are all children of light and children of the day. We don't belong to night 
 So then let us not sleep like the others do, but let us stay awake and keep a clear head. 
 Those who sleep, sleep at night, and those who get drunk, get drunk at night. 
 But since we belong to the day, let us keep a clear head, putting on the breastplate of trust and love, and the helmet of the expectation of rescue. 
-For God did not appoint us to heat, but to receive rescue through our Lord Jesus Christ, 
+God did not appoint us to heat, but to receive rescue through our Lord Jesus Christ, 
 He died for us so that, whether we are awake or asleep, we might live together with him. 
 So encourage one another and build each other up, just as you are already doing. 
 We ask you, brothers and sisters, to recognize those who work hard among you, who lead you in the Lord and warn you. 

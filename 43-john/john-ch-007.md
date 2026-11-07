@@ -1,8 +1,8 @@
 ﻿After these things, Jesus was walking in Galilee, for he wouldn't walk in Judea, because the Jewish leaders sought to kill him. 
 Now the Jewish Feast of Booths was near. 
 His brothers therefore said to him, "Depart from here and go into Judea, that your students also may see your deeds which you do. 
-For no one does anything in secret while he seeks to be known openly. If you do these things, reveal yourself to the world." 
-For even his brothers didn't trust in him. 
+No one does anything in secret while he seeks to be known openly. If you do these things, reveal yourself to the world." 
+Even his brothers didn't trust in him. 
 Jesus therefore said to them, "My time has not yet come, but your time is always ready. 
 The world can't hate you, but it hates me, because I testify about it, that its deeds are bad. 
 You go up to the feast. I am not yet going up to this feast, because my time is not yet fulfilled." 
@@ -22,7 +22,7 @@ Jesus answered them, "I did one deed, and you are all amazed because of it.
 Moses has given you circumcision (not that it is of Moses, but of the fathers), and on the Sabbath you circumcise a boy. 
 If a boy receives circumcision on the Sabbath, that the law of Moses may not be broken, are you angry with me because I made a whole man healthy on the Sabbath? 
 Don't pass a verdict by appearances, but pass a right verdict." 
-Therefore some of them of Jerusalem said, "Isn't this he whom they seek to kill? 
+So some of them of Jerusalem said, "Isn't this he whom they seek to kill? 
 Look, he speaks openly, and they say nothing to him. Can it be that the rulers indeed know that this is truly the Christ? 
 However, we know where this man comes from, but when the Christ comes, no one will know where he comes from." 
 Jesus therefore cried out in the temple courts, teaching and saying, "You both know me, and know where I am from. I have not come of myself, but he who sent me is true, whom you don't know. 
@@ -36,7 +36,7 @@ The Jewish leaders therefore said among themselves, "Where will this man go that
 What is this word that he said, 'You will seek me and won't find me,' and 'Where I am, you can't come'?" 
 Now on the last and greatest day of the feast, Jesus stood and cried out, "If anyone is thirsty, let them come to me and drink! 
 Whoever trusts in me, as the Scripture has said, from within them will flow rivers of living water." 
-But he said this about the Spirit, which those trusting in him were to receive. For the Holy Spirit was not yet given, because Jesus wasn't yet given honor. 
+But he said this about the Spirit, which those trusting in him were to receive. The Holy Spirit was not yet given, because Jesus wasn't yet given honor. 
 Many of the crowd therefore, when they heard these words, said, "This is truly the spokesman." 
 Others said, "This is the Christ." But some said, "What, does the Christ come out of Galilee? 
 Hasn't the Scripture said that the Christ comes of the offspring of David, and from Bethlehem, the village where David was?" 

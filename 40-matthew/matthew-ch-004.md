@@ -7,7 +7,7 @@ and said to him, "If you are the Son of God, throw yourself down, for it is writ
 Jesus said to him, "Again, it is written, 'You shall not test the Lord, your God.'" 
 Again, the Slanderer took him to a very high mountain, and showed him all the kingdoms of the world and their weight. 
 He said to him, "I will give you all of these things, if you will fall down and worship me." 
-Then Jesus said to him, "Get behind me, Adversary! For it is written, 'You shall worship the Lord your God, and you shall serve him only.'" 
+Then Jesus said to him, "Get behind me, Adversary! It is written, 'You shall worship the Lord your God, and you shall serve him only.'" 
 Then the Slanderer left him, and suddenly, messengers came and served him. 
 Now when Jesus heard that John was arrested, he withdrew into Galilee. 
 Leaving Nazareth, he came and lived in Capernaum, which is by the sea, in the region of Zebulun and Naphtali, 

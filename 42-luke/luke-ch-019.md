@@ -7,7 +7,7 @@ He hurried, came down, and received him joyfully.
 When they saw it, they all grumbled, saying, "He has gone in to lodge with a man who drifts." 
 Zacchaeus stood and said to the Lord, "Look, Lord, half of my goods I give to the poor. If I have cheated anyone out of anything, I pay it back four times over." 
 Jesus said to him, "Today, rescue has come to this house, because he also is a son of Abraham. 
-For the Human One came to seek and to rescue that which was lost." 
+The Human One came to seek and to rescue that which was lost." 
 As they heard these things, he went on and told a story, because he was near Jerusalem, and they supposed that God's reign would be revealed immediately. 
 He said therefore, "A certain nobleman went into a far country to receive for himself a reign and to return. 
 He called ten slaves of his and gave them ten large silver coins, and told them, 'Do business until I come.' 
@@ -40,7 +40,7 @@ Some of the strict religious ones from the crowd said to him, "Teacher, rebuke y
 He answered them, "I tell you that if these were silent, the stones would cry out." 
 When he came near, he saw the city and cried over it, 
 saying, "If you, even you, had known today the things which belong to your wholeness! But now, they are hidden from your eyes. 
-For the days will come on you when your enemies will throw up a barricade against you, surround you, hem you in on every side, 
+The days will come on you when your enemies will throw up a barricade against you, surround you, hem you in on every side, 
 and will dash you and your children within you to the ground. They will not leave in you one stone on another, because you didn't recognize the time when God came to you." 
 He entered into the temple courts and began to drive out those who bought and sold in it, 
 saying to them, "It is written, 'My house shall be a house of prayer,' but you have made it a 'den of robbers'!" 

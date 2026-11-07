@@ -1,5 +1,5 @@
 ﻿Some men came down from Judea and taught the brothers, "Unless you are circumcised after the custom of Moses, you can't be made whole." 
-Therefore when Paul and Barnabas had no small discord and discussion with them, they appointed Paul, Barnabas, and some others of them to go up to Jerusalem to the sent ones and elders about this question. 
+So when Paul and Barnabas had no small discord and discussion with them, they appointed Paul, Barnabas, and some others of them to go up to Jerusalem to the sent ones and elders about this question. 
 They, being sent on their way by the gathering, passed through both Phoenicia and Samaria, declaring the turning of the nations. They caused great joy to all the brothers. 
 When they had come to Jerusalem, they were received by the gathering and the sent ones and the elders, and they reported everything that God had done with them. 
 But some of the faction of the strict religious ones who had trusted rose up, saying, "It is necessary to circumcise them, and to command them to keep the law of Moses." 
@@ -16,16 +16,16 @@ This agrees with the words of the spokesmen. As it is written,
 'After these things I will return. I will again build the tent of David, which has fallen. I will again build its ruins. I will set it up 
 that the rest of people may seek after the Lord: all the nations who are called by my name, says the Lord, who does all these things.' 
 "All of God's works are known to him from eternity. 
-Therefore my verdict is that we don't trouble those from among the nations who turn to God, 
+So my verdict is that we don't trouble those from among the nations who turn to God, 
 but that we write to them that they abstain from the pollution of idols, from sleeping around, from what is strangled, and from blood. 
-For Moses from generations of old has in every city those who announce him, being read in the gathering places every Sabbath." 
+Moses from generations of old has in every city those who announce him, being read in the gathering places every Sabbath." 
 Then it seemed good to the sent ones and the elders, with the whole gathering, to choose men out of their company, and send them to Antioch with Paul and Barnabas: Judas called Barsabbas, and Silas, chief men among the brothers. 
 They wrote these things by their hand: "The sent ones, the elders, and the brothers, to the brothers who are of the nations in Antioch, Syria, and Cilicia: greetings. 
 Because we have heard that some who went out from us have troubled you with words, unsettling your lives, saying, 'You must be circumcised and keep the law,' to whom we gave no commandment; 
 it seemed good to us, having come to one accord, to choose out men and send them to you with Barnabas and Paul, whom we truly love, 
 men who have risked their lives for the name of our Lord Jesus Christ. 
 We have sent therefore Judas and Silas, who themselves will also tell you the same things by word of mouth. 
-For it seemed good to the Holy Spirit, and to us, to lay no greater burden on you than these necessary things: 
+It seemed good to the Holy Spirit, and to us, to lay no greater burden on you than these necessary things: 
 that you abstain from food sacrificed to idols, from blood, from things strangled, and from sleeping around. If you keep yourselves from these, it will be well with you. Farewell." 
 So, when they were sent off, they came to Antioch. Having gathered the crowd together, they delivered the letter. 
 When they had read it, they celebrated over the encouragement. 

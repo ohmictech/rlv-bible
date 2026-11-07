@@ -6,7 +6,7 @@ When he came into Capernaum, a centurion came to him, asking him for help,
 saying, "Lord, my servant lies in the house paralyzed, in terrible pain." 
 Jesus said to him, "I will come and heal him." 
 The centurion answered, "Lord, I'm not worthy for you to come under my roof. Just say the word, and my servant will be healed. 
-For I am also a man under authority, with soldiers under me. I tell this one, 'Go,' and he goes. I tell another, 'Come,' and he comes. I tell my servant, 'Do this,' and he does it." 
+I am also a man under authority, with soldiers under me. I tell this one, 'Go,' and he goes. I tell another, 'Come,' and he comes. I tell my servant, 'Do this,' and he does it." 
 When Jesus heard it, he was amazed and said to those who followed, "Truly I tell you, I haven't found such great trust, not even in Israel. 
 I tell you that many will come from the east and the west, and will sit at the table with Abraham, Isaac, and Jacob in the reign of the sky, 
 but the children of the reign will be thrown out into the outer darkness. There will be crying and grinding of teeth." 

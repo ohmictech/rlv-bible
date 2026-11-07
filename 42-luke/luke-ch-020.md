@@ -30,10 +30,10 @@ There were therefore seven brothers. The first took a wife, and died childless.
 The second took her as wife, and he died childless. 
 The third took her, and likewise the seven all left no children, and died. 
 Afterward the woman also died. 
-Therefore in the rising from the dead whose wife of them will she be? For all seven had her as a wife." 
+So in the rising from the dead whose wife of them will she be? All seven had her as a wife." 
 Jesus said to them, "The children of this era marry and are given in marriage. 
 But those who are considered worthy to attain to that era and the rising from the dead neither marry nor are given in marriage. 
-For they can't die any more, for they are like the messengers and are children of God, being children of the rising. 
+They can't die any more, for they are like the messengers and are children of God, being children of the rising. 
 But that the dead are raised, even Moses showed at the burning bush, when he called the Lord 'The God of Abraham, the God of Isaac, and the God of Jacob.' 
 Now he is not the God of dead bodies, but of the living, for all are alive to him." 
 Some of the Bible teachers answered, "Teacher, you speak well." 

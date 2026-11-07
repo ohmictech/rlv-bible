@@ -11,8 +11,8 @@ He was teaching in one of the gathering places on the Sabbath day.
 Look, there was a woman who had been crippled by a spirit of sickness for eighteen years. She was bent over and could in no way straighten herself up. 
 When Jesus saw her, he called her and said to her, "Woman, you are freed from your sickness." 
 He laid his hands on her, and immediately she stood up straight and gave honor to God. 
-The ruler of the gathering place, being indignant because Jesus had healed on the Sabbath, said to the crowd, "There are six days in which men ought to work. Therefore come on those days and be healed, and not on the Sabbath day!" 
-Therefore the Lord answered him, "You pretenders! Doesn't each one of you free his ox or his donkey from the stall on the Sabbath and lead him away to water? 
+The ruler of the gathering place, being indignant because Jesus had healed on the Sabbath, said to the crowd, "There are six days in which men ought to work. So come on those days and be healed, and not on the Sabbath day!" 
+So the Lord answered him, "You pretenders! Doesn't each one of you free his ox or his donkey from the stall on the Sabbath and lead him away to water? 
 Ought not this woman, being a daughter of Abraham whom the Adversary had bound eighteen long years, be freed from this bondage on the Sabbath day?" 
 As he said these things, all his adversaries were put to shame; and all the crowd celebrated for all the wonderful things that were done by him. 
 He said, "What is God's reign like? What can I compare it to? 

@@ -11,7 +11,7 @@ Humble yourselves before the Lord, and he will lift you up.
 Brothers and sisters, don't speak against one another. Anyone who speaks against a brother or sister, or passes a verdict on them, speaks against the law and passes a verdict on the law. And if you pass a verdict on the law, you are not doing the law; you are setting yourself up as its judge. 
 There is only one lawgiver, the one who is able to rescue and to destroy. But who are you to pass a verdict on your neighbor? 
 Now listen, you who say, "Today or tomorrow we will go to this city, spend a year there, do business, and make money." 
-You don't even know what will happen tomorrow. For what is your life? You are a mist that appears for a little time and then disappears. 
+You don't even know what will happen tomorrow. What is your life? You are a mist that appears for a little time and then disappears. 
 Instead, you ought to say, "If the Lord wills it, we will live, and do this or that." 
 But as it is, you brag and take pride in it. All such bragging is evil. 
 So anyone who knows the good they ought to do, and does not do it, that is their wrongdoing. 

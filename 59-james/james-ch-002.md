@@ -7,10 +7,10 @@ But you have shamed the poor man. Isn't it the rich who oppress you and drag you
 Isn't it they who slander the good name that was given to you? 
 If you really keep the royal law the Scripture gives, "You shall love your neighbor as yourself," you are doing well. 
 But if you play favorites, you are doing wrong, and the law finds you guilty as a lawbreaker. 
-For whoever keeps the whole law but trips up on one point has become guilty of breaking all of it. 
+Whoever keeps the whole law but trips up on one point has become guilty of breaking all of it. 
 The one who said, "Do not commit adultery," also said, "Do not commit murder." So if you don't commit adultery but do commit murder, you have become a lawbreaker. 
 So speak and act like people who are going to be judged by the law of freedom. 
-For the verdict will be without mercy for anyone who has shown no mercy. Mercy wins over the verdict. 
+The verdict will be without mercy for anyone who has shown no mercy. Mercy wins over the verdict. 
 What good is it, my brothers and sisters, if someone says they have trust but has no deeds? Can that kind of trust rescue them? 
 Suppose a brother or sister has no clothes and nothing to eat for the day, 
 and one of you says to them, "Go, and may all be well with you. Stay warm and eat well," but does not give them what their body needs; what good is that? 
@@ -23,4 +23,4 @@ You can see that his trust was working along with his deeds, and his trust was m
 And the Scripture was fulfilled that says, "Abraham trusted God, and it was counted to him as rightness," and he was called God's friend. 
 You see that a person is made right by deeds, and not by trust alone. 
 In the same way, wasn't Rahab the prostitute also made right by deeds when she took the messengers in and sent them out by another road? 
-For just as a body without a spirit is dead, so trust without deeds is dead. 
+Just as a body without a spirit is dead, so trust without deeds is dead. 

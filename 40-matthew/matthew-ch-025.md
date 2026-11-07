@@ -26,7 +26,7 @@ I was afraid, and went away and hid your bag of silver in the ground. Look, you 
 "But his lord answered him, 'You malicious and lazy slave. You knew that I reap where I didn't sow, and gather where I didn't scatter. 
 So you ought to have given my money to the bankers, and when I came I would have received back my own with interest. 
 So take the bag of silver away from him and give it to the one who has the ten. 
-For to everyone who has, more will be given, and he will have plenty, but from the one who doesn't have, even what he has will be taken away. 
+To everyone who has, more will be given, and he will have plenty, but from the one who doesn't have, even what he has will be taken away. 
 Throw the useless slave out into the outer darkness, where there will be crying and grinding of teeth.' 
 "But when the Human One comes in his weight, and all the set-apart messengers with him, then he will sit on the throne of his weight. 
 All the nations will be gathered before him, and he will separate them from one another, the way a shepherd separates the sheep from the goats. 
@@ -39,7 +39,7 @@ When did we see you as a stranger and take you in, or naked and clothe you?
 When did we see you sick or in prison and come to you?' 
 "The King will answer them, 'Truly I tell you, because you did it to one of the least of these brothers and sisters of mine, you did it to me.' 
 Then he will also say to those on the left, 'Get away from me, you who are cursed, into the fire of the era, which is prepared for the Slanderer and his messengers. 
-For I was hungry, and you didn't give me food. I was thirsty, and you gave me nothing to drink. 
+I was hungry, and you didn't give me food. I was thirsty, and you gave me nothing to drink. 
 I was a stranger, and you didn't take me in. Naked, and you didn't clothe me. Sick, and in prison, and you didn't visit me.' 
 "Then they will also answer, 'Lord, when did we see you hungry, or thirsty, or a stranger, or naked, or sick, or in prison, and didn't help you?' 
 "Then he will answer them, 'Truly I tell you, because you didn't do it to one of the least of these, you didn't do it to me.' 

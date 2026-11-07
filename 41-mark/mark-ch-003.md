@@ -7,7 +7,7 @@ The strict religious ones went out, and immediately conspired with the Herodians
 Jesus withdrew to the sea with his students, and a great crowd followed him from Galilee, from Judea, 
 from Jerusalem, from Idumaea, from beyond the Jordan, and from around Tyre and Sidon. Hearing what great things he was doing, a great crowd came to him. 
 He told his students to keep a little boat ready for him because of the crowd, so that they wouldn't crush him. 
-For he had healed many, so that everyone who had diseases pressed in on him to touch him. 
+He had healed many, so that everyone who had diseases pressed in on him to touch him. 
 The unclean spirits, whenever they saw him, fell down before him and cried, "You are the Son of God!" 
 He sternly warned them that they should not make him known. 
 He went up into the mountain and called to himself those whom he wanted, and they went to him. 
@@ -32,4 +32,4 @@ His mother and his brothers came and stood outside and sent someone in to call h
 A crowd was sitting around him, and they told him, "Look, your mother, your brothers, and your sisters are outside looking for you." 
 He answered them, "Who are my mother and my brothers?" 
 Looking around at those seated in a circle around him, he said, "Look, my mother and my brothers! 
-For whoever does what God wants is my brother, my sister, and mother." 
+Whoever does what God wants is my brother, my sister, and mother." 

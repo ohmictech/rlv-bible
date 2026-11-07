@@ -14,15 +14,15 @@ and make straight paths for your feet, so that what is lame is not dislocated, b
 Chase wholeness with everyone, and the setting apart without which no one will see the Lord. 
 See to it that no one falls short of God's favor, and that no root of bitterness springs up to trouble you and make many of you unclean by it. 
 See that no one is someone who sleeps around or treats what is set apart as common, like Esau, who sold his birthright for one meal. 
-For you know that afterward, when he wanted to receive the blessing, he was turned down, and he could not find room for a change of heart, even though he looked for it with tears. 
-For you have not come to a mountain that can be touched, that burned with fire, and to blackness, darkness, and storm, 
+You know that afterward, when he wanted to receive the blessing, he was turned down, and he could not find room for a change of heart, even though he looked for it with tears. 
+You have not come to a mountain that can be touched, that burned with fire, and to blackness, darkness, and storm, 
 the sound of a trumpet, and a voice speaking words; and those who heard it begged that not one more word should be spoken to them, 
 for they could not stand what was commanded, "If even an animal touches the mountain, it shall be stoned". 
 The sight was so terrifying that Moses said, "I am terrified and trembling." 
 But you have come to Mount Zion and to the city of the living God, the Jerusalem in the sky, and to thousands upon thousands of messengers, 
 to the joyful celebration and gathering of the firstborn whose names are written in the sky, to God the Judge of all, to the spirits of the upright who have been made complete, 
 to Jesus, the mediator of a new binding arrangement, and to the sprinkled blood that speaks better than Abel's. 
-See that you do not refuse the one who is speaking. For if they did not escape when they refused the one who warned them on earth, how much less will we escape if we turn away from the one who warns from the sky? 
+See that you do not refuse the one who is speaking. If they did not escape when they refused the one who warned them on earth, how much less will we escape if we turn away from the one who warns from the sky? 
 whose voice shook the earth then, but now he has promised, saying, "Once more I will shake not only the earth, but the skies as well." 
 The words "Once more" mean that what can be shaken, that is, what has been made, will be removed, so that what cannot be shaken will remain. 
 So, since we are receiving a reign that cannot be shaken, let us hold on to the favor, and through it serve God in a way that pleases him, with reverence and awe, 

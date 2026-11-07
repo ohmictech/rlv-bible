@@ -12,7 +12,7 @@ Cretans and Arabians, we hear them speaking in our languages the mighty deeds of
 Everyone was amazed and confused, saying to one another, "What does this mean?" 
 Others, mocking, said, "They have had too much new wine." 
 But Peter, standing up with the eleven, lifted up his voice and spoke out to them, "Men of Judea and all you who dwell at Jerusalem, let this be known to you, and listen carefully to my words. 
-For these aren't drunken, as you suppose, since it is only mid-morning. 
+These aren't drunken, as you suppose, since it is only mid-morning. 
 But this is what has been spoken through the spokesman Joel: 
 'It will be in the last days, says God, that I will pour out my Spirit on all flesh. Your sons and your daughters will speak for God. Your young men will see visions. Your old men will dream dreams. 
 Yes, and on my slaves, both men and women, in those days, I will pour out my Spirit, and they will speak for God. 
@@ -22,21 +22,21 @@ It will be that whoever will call on the name of the Lord will be made whole.'
 "Men of Israel, hear these words! Jesus of Nazareth, a man whom God approved for you by powerful deeds and wonders and signs which God did through him among you, even as you yourselves know, 
 him, being handed over by the determined counsel and foreknowledge of God, you have taken by the hand of people who live as if there were no law, and you crucified and killed him; 
 whom God raised up, having freed him from the agony of death, because it was not possible that he should be held by it. 
-For David says concerning him, 'I saw the Lord always before my face, for he is on my right hand, that I should not be moved. 
-Therefore my heart was glad, and my tongue celebrated. Moreover my flesh also will dwell in hope, 
+David says concerning him, 'I saw the Lord always before my face, for he is on my right hand, that I should not be moved. 
+So my heart was glad, and my tongue celebrated. Moreover my flesh also will dwell in hope, 
 because you will not leave my life in Hades, neither will you allow your Holy One to see decay. 
 You made known to me the ways of life. You will make me full of gladness with your presence.' 
 "Brothers and sisters, I may tell you freely of the patriarch David, that he both died and was buried, and his tomb is with us to this day. 
-Therefore, being a spokesman, and knowing that God had sworn with an oath to him that of the fruit of his body, according to the flesh, he would raise up the Christ to sit on his throne, 
+So, being a spokesman, and knowing that God had sworn with an oath to him that of the fruit of his body, according to the flesh, he would raise up the Christ to sit on his throne, 
 he foreseeing this, spoke about the rising of the Christ, that his life wasn't left in Hades, and his flesh didn't see decay. 
 This Jesus God raised up, to which we all are witnesses. 
 Being therefore exalted by the right hand of God, and having received from the Father the promise of the Holy Spirit, he has poured out this which you now see and hear. 
-For David didn't ascend into the sky, but he says himself, 'The Lord said to my Lord, "Sit by my right hand 
+David didn't ascend into the sky, but he says himself, 'The Lord said to my Lord, "Sit by my right hand 
 until I make your enemies a footstool for your feet."' 
 "Let all the house of Israel therefore know certainly that God has made him both Lord and Christ, this Jesus whom you crucified." 
 Now when they heard this, they were cut to the heart, and said to Peter and the rest of the sent ones, "Brothers and sisters, what should we do?" 
 Peter said to them, "Have a change of heart and be immersed, every one of you, in the name of Jesus Christ, so that your mistakes are released, and you will receive the gift of the Holy Spirit. 
-For the promise is to you and to your children, and to everyone who is far off, even as many as the Lord our God will call to himself." 
+The promise is to you and to your children, and to everyone who is far off, even as many as the Lord our God will call to himself." 
 With many other words he testified and urged them, saying, "Rescue yourselves from this crooked generation!" 
 Then those who gladly received his word were immersed. There were added that day about three thousand people. 
 They continued steadfastly in the teaching of the sent ones and in sharing, in the breaking of bread, and prayer. 

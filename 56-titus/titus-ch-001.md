@@ -7,7 +7,7 @@ An elder must be above reproach, faithful to one wife, with children who trust a
 The overseer, since he manages God's household, must be above reproach: not self-willed, not quick-tempered, not a heavy drinker, not a fighter, not out for shameful gain, 
 but welcoming to strangers, a lover of what is good, sensible, right, set apart, and self-controlled, 
 He must hold firmly to the trustworthy word just as he was taught, so that he can encourage others with healthy teaching and show those who argue against it where they are wrong. 
-For there are many who refuse to be told what to do, who talk empty nonsense and lead people astray, especially those from the circumcision group. 
+There are many who refuse to be told what to do, who talk empty nonsense and lead people astray, especially those from the circumcision group. 
 They must be silenced, because they are wrecking whole households by teaching what they should not, for the sake of shameful gain. 
 One of their own spokesmen said, "Cretans are always liars, vicious animals, and lazy bellies." 
 That witness is true. So correct them sharply, so that they may be healthy in the trust, 

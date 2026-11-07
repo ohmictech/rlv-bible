@@ -4,7 +4,7 @@ Favor and wholeness to you from God our Father and the Lord Jesus Christ.
 I always give thanks to my God when I mention you in my prayers, 
 because I hear of your love and of the trust you have toward the Lord Jesus and toward all the set-apart ones, 
 I pray that the sharing that comes from your trust may become active as you know every good thing that is in us, in Christ Jesus. 
-For your love has given me much joy and comfort, because the hearts of the set-apart ones have been given relief through you, brother. 
+Your love has given me much joy and comfort, because the hearts of the set-apart ones have been given relief through you, brother. 
 So although I have plenty of boldness in Christ to tell you what you should do, 
 still, for love's sake I would rather ask you (I, Paul, an old man, and now a prisoner of Jesus Christ as well). 
 I am asking you on behalf of my child Onesimus, whose father I became while I was in chains. 

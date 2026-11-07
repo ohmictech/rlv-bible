@@ -1,7 +1,7 @@
 ﻿Then some strict religious ones and Bible teachers came to Jesus from Jerusalem, saying, 
-"Why do your students disobey the tradition of the elders? For they don't wash their hands when they eat bread." 
+"Why do your students disobey the tradition of the elders? They don't wash their hands when they eat bread." 
 He answered them, "Why do you also disobey the command of God because of your tradition? 
-For God commanded, 'Honor your father and your mother,' and, 'He who speaks maliciously of father or mother, let him be put to death.' 
+God commanded, 'Honor your father and your mother,' and, 'He who speaks maliciously of father or mother, let him be put to death.' 
 But you say, 'Anyone who tells his father or his mother, "What I could have given you is a gift devoted to God," 
 doesn't have to honor his father or mother.' You have set aside the command of God because of your tradition. 
 You pretenders! Isaiah spoke well for God about you, saying, 
@@ -16,7 +16,7 @@ Peter answered him, "Explain the story to us."
 So Jesus said, "Do you also still not understand? 
 Don't you understand that whatever goes into the mouth passes into the belly and then out of the body? 
 But the things which come out of the mouth come out of the heart, and they make a person unclean. 
-For out of the heart come malicious thoughts, murders, cheating, sleeping around, thefts, false witness, and slander. 
+Out of the heart come malicious thoughts, murders, cheating, sleeping around, thefts, false witness, and slander. 
 These are the things which make a person unclean, but to eat with unwashed hands doesn't make a person unclean." 
 Jesus went out from there and withdrew into the region of Tyre and Sidon. 
 Suddenly, a Canaanite woman came out from those borders and cried, saying, "Have mercy on me, Lord, Son of David! My daughter is badly possessed by an unclean spirit!" 

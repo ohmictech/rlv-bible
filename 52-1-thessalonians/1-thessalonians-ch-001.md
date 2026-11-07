@@ -6,5 +6,5 @@ and that our Good News did not come to you in words only, but also in power and 
 You took us and the Lord as your example, receiving the word in the middle of much hard times, with joy from the Holy Spirit, 
 so that you became a pattern for everyone in Macedonia and Achaia who trusts. 
 From you the word of the Lord has rung out, not only in Macedonia and Achaia, but everywhere your trust in God has become known, so that we don't need to say a thing. 
-For they themselves report what kind of welcome we had from you, and how you turned to God from idols to serve a living and true God, 
+They themselves report what kind of welcome we had from you, and how you turned to God from idols to serve a living and true God, 
 and to wait for his Son from the sky, whom he raised from the dead, Jesus, who rescues us from the heat that is coming. 

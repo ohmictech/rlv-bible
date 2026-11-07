@@ -14,8 +14,8 @@ They drove out many unclean spirits, and anointed many sick people with oil and 
 King Herod heard about it, for his name had become known, and he said, "John the Baptist has been raised from the dead, and that is why these powers are at work in him." 
 But others said, "He is Elijah." Others said, "He is a spokesman, or like one of the spokesmen." 
 But Herod, when he heard this, said, "This is John, whom I beheaded. He has been raised from the dead." 
-For Herod himself had sent out and arrested John and tied him up in prison because of Herodias, his brother Philip's wife, for he had married her. 
-For John had said to Herod, "It isn't allowed for you to have your brother's wife." 
+Herod himself had sent out and arrested John and tied him up in prison because of Herodias, his brother Philip's wife, for he had married her. 
+John had said to Herod, "It isn't allowed for you to have your brother's wife." 
 Herodias held a grudge against him and wanted to kill him, but she couldn't, 
 for Herod feared John, knowing that he was an upright and set-apart man, and kept him safe. When he heard him, he did many things, and he liked listening to him. 
 Then an opportunity came when Herod, on his birthday, gave a dinner for his nobles, his commanders, and the leading men of Galilee. 

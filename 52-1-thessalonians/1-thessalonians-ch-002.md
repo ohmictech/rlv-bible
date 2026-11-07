@@ -11,7 +11,7 @@ You are witnesses, and so is God, of how set apart, right, and without fault we 
 As you know, we treated each one of you the way a father treats his own children, urging you, encouraging you, and insisting, 
 that you should live in a way that is worthy of God, who calls you into his own reign and weight. 
 And we never stop thanking God for this: when you received the word of God that we brought you, you accepted it not as a human word but as what it truly is, God's word, which is at work in you who trust. 
-For you, brothers and sisters, took the gatherings of God in Judea, in Christ Jesus, as your example. You suffered the same things from your own people that they suffered from the Jewish people, 
+You, brothers and sisters, took the gatherings of God in Judea, in Christ Jesus, as your example. You suffered the same things from your own people that they suffered from the Jewish people, 
 who killed the Lord Jesus and their own spokesmen, and drove us out, and don't please God, and are against everyone. 
 They try to stop us from speaking to the nations so that they can be rescued, and in doing that they keep filling up the measure of their mistakes. And now the heat has come on them at last. 
 But we, brothers and sisters, were torn away from you for a short while, away in person, not in heart, and we tried all the harder to see you face to face, because we wanted it so much. 

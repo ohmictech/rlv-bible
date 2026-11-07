@@ -17,8 +17,8 @@ as you hold firmly to the word of life. Then on the day of Christ I will have so
 But even if I am poured out on the sacrifice and service that your trust brings, I am glad and I celebrate with all of you. 
 In the same way you too should be glad and celebrate with me. 
 I expect in the Lord Jesus to send Timothy to you soon, so that I too may be cheered up when I learn how you are doing. 
-For I have no one else of the same heart, who will genuinely care about you. 
-For everyone else looks out for their own interests, not for the interests of Jesus Christ. 
+I have no one else of the same heart, who will genuinely care about you. 
+Everyone else looks out for their own interests, not for the interests of Jesus Christ. 
 But you know what he is worth: as a child serves a father, so he has served with me in the Good News. 
 So I expect to send him as soon as I see how things turn out for me. 
 And I am confident in the Lord that I myself will come soon too. 

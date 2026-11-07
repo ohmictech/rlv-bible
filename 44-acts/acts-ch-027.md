@@ -20,9 +20,9 @@ On the third day, they threw out the ship's tackle with their own hands.
 When neither sun nor stars shone on us for many days, and no small storm pressed on us, all hope that we would be made whole was now taken away. 
 When they had been long without food, Paul stood up in the middle of them and said, "Sirs, you should have listened to me, and not have set sail from Crete and have gotten this injury and loss. 
 Now I urge you to cheer up, for there will be no loss of life among you, but only of the ship. 
-For there stood by me this night a messenger, belonging to the God whose I am and whom I serve, 
+There stood by me this night a messenger, belonging to the God whose I am and whom I serve, 
 saying, 'Don't be afraid, Paul. You must stand before Caesar. Look, God has granted you everyone who sails with you.' 
-Therefore, sirs, cheer up! For I trust God, that it will be just as it has been spoken to me. 
+So, sirs, cheer up! I trust God, that it will be just as it has been spoken to me. 
 But we must run aground on a certain island." 
 But when the fourteenth night had come, as we were driven back and forth in the Adriatic Sea, about midnight the sailors surmised that they were drawing near to some land. 
 They took soundings and found twenty fathoms. After a little while, they took soundings again, and found fifteen fathoms. 
@@ -31,7 +31,7 @@ As the sailors were trying to flee out of the ship and had lowered the boat into
 Paul said to the centurion and to the soldiers, "Unless these stay in the ship, you can't be made whole." 
 Then the soldiers cut away the ropes of the boat and let it fall off. 
 While the day was coming on, Paul begged them all to take some food, saying, "Today is the fourteenth day that you wait and continue fasting, having taken nothing. 
-Therefore I beg you to take some food, for this is for your safety; for not a hair will be lost from any of your heads." 
+So I beg you to take some food, for this is for your safety; for not a hair will be lost from any of your heads." 
 When he had said this and had taken bread, he gave thanks to God in the presence of all; then he broke it and began to eat. 
 Then they all cheered up, and they also took food. 
 In all, we were two hundred seventy-six people on the ship. 

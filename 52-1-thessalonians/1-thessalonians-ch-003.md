@@ -5,7 +5,7 @@ When we were with you, we told you ahead of time that we would have to face hard
 That is why, when I could not stand it any longer, I sent him, so that I might know how your trust was holding up, afraid that the tempter had tripped you up and our labor had come to nothing. 
 But Timothy has just come back to us from you, and he brought us good news about your trust and love, and about how you always remember us kindly and long to see us, just as we long to see you. 
 That is why, brothers and sisters, in all our distress and hard times we were encouraged about you, because of your trust. 
-For now we really live, if you are standing firm in the Lord. 
+Now we really live, if you are standing firm in the Lord. 
 How can we thank God enough for you, for all the joy we celebrate in before our God because of you? 
 Night and day we pray as hard as we can that we may see you face to face and make up what is still missing in your trust. 
 Now may our God and Father himself, and our Lord Jesus Christ, clear the road for us to come to you. 

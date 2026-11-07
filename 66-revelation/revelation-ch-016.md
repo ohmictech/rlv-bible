@@ -3,7 +3,7 @@ The first went and poured out his bowl on the land, and a painful, running sore 
 The second messenger poured out his bowl into the sea, and it turned into blood like that of a dead person. Every living thing in the sea died. 
 The third poured out his bowl into the rivers and the springs of water, and they turned into blood. 
 Then I heard the messenger of the waters saying, "You are right, you who are and who were, you who are set apart, because you have passed this verdict. 
-For they poured out the blood of the set-apart ones and of the spokesmen, and you have given them blood to drink. That is what they deserve." 
+They poured out the blood of the set-apart ones and of the spokesmen, and you have given them blood to drink. That is what they deserve." 
 Then I heard the altar say, "Yes, Lord God, the one who holds sway over all, your verdicts are true and right." 
 The fourth poured out his bowl on the sun, and it was allowed to scorch people with fire. 
 People were scorched by terrible heat, and they slandered the name of God, who has power over these plagues. They did not have a change of heart and give him weight. 

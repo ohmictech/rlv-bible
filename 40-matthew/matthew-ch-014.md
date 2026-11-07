@@ -1,7 +1,7 @@
 ﻿At that time, Herod the district ruler heard the report about Jesus, 
 and said to his servants, "This is John the Baptist. He has been raised from the dead. That is why these powerful works are happening through him." 
-For Herod had arrested John, tied him up, and put him in prison because of Herodias, his brother Philip's wife. 
-For John said to him, "It is not allowed for you to have her." 
+Herod had arrested John, tied him up, and put him in prison because of Herodias, his brother Philip's wife. 
+John said to him, "It is not allowed for you to have her." 
 When he wanted to put him to death, he feared the crowd, because they counted him as a spokesman. 
 But when Herod's birthday came, the daughter of Herodias danced among them and pleased Herod. 
 So he swore to give her whatever she would ask for. 

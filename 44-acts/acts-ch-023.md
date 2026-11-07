@@ -2,10 +2,10 @@
 The high priest, Ananias, commanded those who stood by him to strike him on the mouth. 
 Then Paul said to him, "God will strike you, you whitewashed wall! Do you sit to judge me according to the law, and command me to be struck contrary to the law?" 
 Those who stood by said, "Do you malign God's high priest?" 
-Paul said, "I didn't know, brothers, that he was high priest. For it is written, 'You shall not speak badly of a ruler of your people.'" 
+Paul said, "I didn't know, brothers, that he was high priest. It is written, 'You shall not speak badly of a ruler of your people.'" 
 But when Paul perceived that the one part were of the religious elite and the other strict religious ones, he cried out in the council, "Men and brothers, I am a strict religious man, a son of strict religious ones. Concerning the hope and rising of the dead I am being judged!" 
 When he had said this, an argument arose between the strict religious ones and the religious elite, and the crowd was divided. 
-For the religious elite say that there is no rising, and no messenger, and no spirit; but the strict religious ones agree with all of these. 
+The religious elite say that there is no rising, and no messenger, and no spirit; but the strict religious ones agree with all of these. 
 A great clamor arose, and some of the Bible teachers of the strict religious ones' side stood up, and contended, saying, "We find nothing wrong with this man. But if a spirit or messenger has spoken to him, let's not fight against God!" 
 When a great argument arose, the commanding officer, fearing that Paul would be torn in pieces by them, commanded the soldiers to go down and take him by force from among them and bring him into the barracks. 
 The following night, the Lord stood by him and said, "Cheer up, Paul, for as you have testified about me at Jerusalem, so you must testify also at Rome." 
@@ -18,7 +18,7 @@ Paul summoned one of the centurions and said, "Bring this young man to the comma
 So he took him and brought him to the commanding officer and said, "Paul, the prisoner, summoned me and asked me to bring this young man to you. He has something to tell you." 
 The commanding officer took him by the hand, and going aside, asked him privately, "What is it that you have to tell me?" 
 He said, "The Jewish leaders have agreed to ask you to bring Paul down to the council tomorrow, as though intending to inquire somewhat more accurately concerning him. 
-Therefore don't yield to them, for more than forty men lie in wait for him, who have bound themselves under a curse to neither eat nor drink until they have killed him. Now they are ready, looking for the promise from you." 
+So don't yield to them, for more than forty men lie in wait for him, who have bound themselves under a curse to neither eat nor drink until they have killed him. Now they are ready, looking for the promise from you." 
 So the commanding officer let the young man go, charging him, "Tell no one that you have revealed these things to me." 
 He called to himself two of the centurions, and said, "Prepare two hundred soldiers to go as far as Caesarea, with seventy horsemen and two hundred men armed with spears, at nine at night." 
 He asked them to provide mounts, so that they could put Paul on one, and bring him safely to Felix the governor. 

@@ -10,15 +10,15 @@ Pray, then, like this: Our Father in the sky, let your name be held in honor.
 Let your reign come. Let your will be done on earth as it is in the sky. 
 Give us today our bread for the coming day. 
 Release us from what we owe, as we also release those who owe us. 
-And do not bring us into the test, but rescue us from the Slanderer. For yours is the reign and the power and the honor, into the eras. Amen. 
-For if you release people from their false steps, your Father in the sky will release you too. 
+And do not bring us into the test, but rescue us from the Slanderer. Yours is the reign and the power and the honor, into the eras. Amen. 
+If you release people from their false steps, your Father in the sky will release you too. 
 But if you do not release people, your Father will not release your false steps." 
 "And when you go without food, do not put on a gloomy face the way the pretenders do, because they make their faces look miserable so that people will see that they are going without food. Truly I tell you: they already have their pay in full. 
 When you go without food, wash your face and anoint your head, 
 so that your going without food is seen not by people but by your Father in secret. And your Father, who sees in secret, will repay you out in the open. 
 Do not store up treasures for yourselves on the land, where moth and rust ruin and where thieves break in and steal. 
 Store up treasures for yourselves in the sky, where neither moth nor rust ruins and where thieves do not break in and steal. 
-For where your treasure is, there your heart will be too. 
+Where your treasure is, there your heart will be too. 
 The lamp of the body is the eye. So if your eye is healthy, your whole body will be full of light. 
 But if your eye is sick, your whole body will be full of darkness. If the light in you is darkness, how great that darkness is. 
 No one can serve two masters. He will either hate the one and love the other, or stand by the one and look down on the other. You cannot serve God and Money. 

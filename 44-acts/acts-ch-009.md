@@ -8,12 +8,12 @@ The men who traveled with him stood speechless, hearing the sound, but seeing no
 Saul got up from the ground, and when his eyes were opened, he saw no one. They led him by the hand and brought him into Damascus. 
 He was without sight for three days, and neither ate nor drank. 
 Now there was a certain student at Damascus named Ananias. The Lord said to him in a vision, "Ananias!" He said, "Look, it's me, Lord." 
-The Lord said to him, "Get up and go to the street called Straight, and inquire in the house of Judah for one named Saul, a man of Tarsus. For look, he is praying, 
+The Lord said to him, "Get up and go to the street called Straight, and inquire in the house of Judah for one named Saul, a man of Tarsus. Look, he is praying, 
 and in a vision he has seen a man named Ananias coming in and laying his hands on him, so that he could receive his sight." 
 But Ananias answered, "Lord, I have heard from many about this man, how much harm he did to your set-apart ones at Jerusalem. 
 Here he has authority from the chief priests to bind everyone who calls on your name." 
 But the Lord said to him, "Go your way, for he is my chosen vessel to bear my name before the nations and kings, and the children of Israel. 
-For I will show him how many things he must suffer for my name's sake." 
+I will show him how many things he must suffer for my name's sake." 
 Ananias departed and entered into the house. Laying his hands on him, he said, "Brother Saul, the Lord, who appeared to you on the road by which you came, has sent me that you may receive your sight and be filled with the Holy Spirit." 
 Immediately something like scales fell from his eyes, and he received his sight. He got up and was immersed. 
 He took food and was strengthened. Saul stayed several days with the students who were at Damascus. 

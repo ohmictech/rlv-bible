@@ -28,13 +28,13 @@ Peter therefore denied it again, and immediately the rooster crowed.
 They led Jesus therefore from Caiaphas into the governor's headquarters. It was early, and they themselves didn't enter into the governor's headquarters, so that they would not be made unclean, but could eat the Passover. 
 Pilate therefore went out to them and said, "What accusation do you bring against this man?" 
 They answered him, "If this man weren't a criminal, we wouldn't have handed him over to you." 
-Pilate therefore said to them, "Take him yourselves, and judge him according to your law." Therefore the Jewish leaders said to him, "It is illegal for us to put anyone to death," 
+Pilate therefore said to them, "Take him yourselves, and judge him according to your law." So the Jewish leaders said to him, "It is illegal for us to put anyone to death," 
 so that the word of Jesus would be fulfilled, which he spoke, signifying by what kind of death he should die. 
 Pilate therefore entered again into the governor's headquarters, called Jesus, and said to him, "Are you the King of the Jews?" 
 Jesus answered him, "Do you say this by yourself, or did others tell you about me?" 
 Pilate answered, "I'm not a Jewish man, am I? Your own nation and the chief priests handed you over to me. What have you done?" 
 Jesus answered, "My reign is not of this world. If my reign were of this world, then my servants would fight, that I wouldn't be handed over to the Jewish leaders. But now my reign is not from here." 
-Pilate therefore said to him, "Are you a king then?" Jesus answered, "You say that I am a king. For this reason I have been born, and for this reason I have come into the world, that I should testify to the truth. Everyone who is of the truth listens to my voice." 
+Pilate therefore said to him, "Are you a king then?" Jesus answered, "You say that I am a king. That is why I have been born, and for this reason I have come into the world, that I should testify to the truth. Everyone who is of the truth listens to my voice." 
 Pilate said to him, "What is truth?" When he had said this, he went out again to the Jewish leaders, and said to them, "I find no basis for a charge against him. 
-But you have a custom that I should release someone to you at the Passover. Therefore, do you want me to release to you the King of the Jews?" 
+But you have a custom that I should release someone to you at the Passover. So, do you want me to release to you the King of the Jews?" 
 Then they all shouted again, saying, "Not this man, but Barabbas!" Now Barabbas was a robber. 

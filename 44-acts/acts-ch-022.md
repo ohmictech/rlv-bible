@@ -12,7 +12,7 @@ When I couldn't see for the weight of that light, being led by the hand of those
 "One Ananias, a devout man according to the law, well reported of by all the Jewish people who lived in Damascus, 
 came to me, and standing by me said to me, 'Brother Saul, receive your sight!' In that very hour I looked up at him. 
 He said, 'The God of our fathers has appointed you to know his will, and to see the Upright One, and to hear a voice from his mouth. 
-For you will be a witness for him to everyone of what you have seen and heard. 
+You will be a witness for him to everyone of what you have seen and heard. 
 Now why do you wait? Get up, be immersed, and wash away your mistakes, calling on the name of the Lord.' 
 "When I had returned to Jerusalem and while I prayed in the temple courts, I fell into a trance 
 and saw him saying to me, 'Hurry and get out of Jerusalem quickly, because they will not receive your witness concerning me.' 

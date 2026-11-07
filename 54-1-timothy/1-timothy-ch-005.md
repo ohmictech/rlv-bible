@@ -12,10 +12,10 @@ But don't put younger widows on the list; when their desires turn away from Chri
 and so they come under a verdict, because they have set aside the first promise they made. 
 And along with that they learn to be idle, going from house to house. And not only idle, but also tattlers and people sticking their noses into everything, saying things they shouldn't. 
 So I want younger widows to marry, to have children, to run their households, and to give the one who opposes us nothing to say against them. 
-For some have already turned away to follow the Adversary. 
+Some have already turned away to follow the Adversary. 
 If anyone who trusts has widows in the family, they should help them, and not let the gathering be weighed down, so that it can help the widows who really are widows. 
 The elders who lead well should be counted worthy of double honor, especially those who work hard at speaking and teaching. 
-For the Scripture says, "You shall not muzzle the ox while it treads out the grain," and, "The worker deserves his pay." 
+The Scripture says, "You shall not muzzle the ox while it treads out the grain," and, "The worker deserves his pay." 
 Don't take up an accusation against an elder unless two or three witnesses bring it. 
 Show those who go on drifting their fault in front of everyone, so that the rest may be afraid too. 
 Before God and Christ Jesus and the chosen messengers, I command you to keep these things without prejudging anyone, and to do nothing out of favoritism. 

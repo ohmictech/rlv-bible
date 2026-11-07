@@ -12,7 +12,7 @@ He lived there a year and six months, teaching the word of God among them.
 But when Gallio was proconsul of Achaia, the Jewish people with one accord rose up against Paul and brought him before the judge's seat, 
 saying, "This man persuades people to worship God contrary to the law." 
 But when Paul was about to open his mouth, Gallio said to the Jewish people, "If indeed it were a matter of wrong or of a malicious crime, you Jewish people, it would be reasonable that I should bear with you; 
-but if they are questions about words and names and your own law, look to it yourselves. For I don't want to be a judge of these matters." 
+but if they are questions about words and names and your own law, look to it yourselves. I don't want to be a judge of these matters." 
 So he drove them from the judge's seat. 
 Then all the Greeks seized Sosthenes, the ruler of the gathering place, and beat him before the judge's seat. Gallio didn't care about any of these things. 
 Paul, having stayed after this many more days, took his leave of the brothers, and sailed from there for Syria, together with Priscilla and Aquila. He shaved his head in Cenchreae, for he had a vow. 

@@ -1,6 +1,6 @@
 ﻿So if you have been raised with Christ, go after the things above, where Christ is, seated at God's right hand. 
 Set your mind on what is above, not on what is on the land. 
-For you died, and your life is hidden with Christ in God. 
+You died, and your life is hidden with Christ in God. 
 When Christ, who is your life, appears, then you too will appear with him in weight. 
 So put to death the earthly parts of you: sleeping around, uncleanness, passion, bad cravings, and greed, which is idol worship. 
 It is because of these things that the heat of God comes on those who refuse to listen. 

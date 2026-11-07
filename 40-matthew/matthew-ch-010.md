@@ -17,7 +17,7 @@ Truly I tell you, it will be more tolerable for the land of Sodom and Gomorrah i
 But beware of people, for they will hand you over to councils, and in their gathering places they will whip you. 
 Yes, and you will be brought before governors and kings for my sake, as a witness to them and to the nations. 
 But when they hand you over, don't worry about how or what you will say, because what you are to say will be given to you in that hour. 
-For it is not you who speak, but the Spirit of your Father who speaks in you. 
+It is not you who speak, but the Spirit of your Father who speaks in you. 
 "Brother will hand over brother to death, and the father his child. Children will rise up against parents and cause them to be put to death. 
 You will be hated by everyone for my name's sake, but he who sticks it out to the end will be rescued. 
 But when they hunt you down in this city, flee into the next, for truly I tell you, you will not have gone through the cities of Israel until the Human One has come. 
@@ -28,11 +28,11 @@ What I tell you in the darkness, speak in the light, and what you hear whispered
 Don't be afraid of those who kill the body but cannot kill the life. Fear instead the one who can break up both the life and the body in Gehenna. 
 "Aren't two sparrows sold for a small coin? Not one of them falls to the ground without your Father. 
 But the very hairs of your head are all numbered. 
-Therefore don't be afraid. You are of more value than many sparrows. 
+So don't be afraid. You are of more value than many sparrows. 
 So everyone who acknowledges me in front of people, I will also acknowledge in front of my Father in the sky. 
 But whoever disowns me in front of people, I will also disown him in front of my Father in the sky. 
 "Don't think that I came to send wholeness on the earth. I didn't come to send wholeness, but a sword. 
-For I came to set a man at odds against his father, and a daughter against her mother, and a daughter-in-law against her mother-in-law. 
+I came to set a man at odds against his father, and a daughter against her mother, and a daughter-in-law against her mother-in-law. 
 A man's enemies will be those of his own household. 
 Whoever loves father or mother more than me is not worthy of me, and whoever loves son or daughter more than me is not worthy of me. 
 Whoever doesn't take up his cross and follow me is not worthy of me. 

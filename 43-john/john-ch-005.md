@@ -13,17 +13,17 @@ Then they asked him, "Who is the man who said to you, 'Pick up your mat and walk
 But the one who was healed didn't know who it was, for Jesus had slipped away into the crowd that was in the place. 
 Afterward Jesus found him in the temple courts and said to him, "Look, you are made well. Stop drifting, so that nothing worse happens to you." 
 The man went away, and told the Jewish leaders that it was Jesus who had made him well. 
-For this cause the Jewish leaders began to hunt Jesus down and tried to kill him, because he did these things on the Sabbath. 
+That is why the Jewish leaders began to hunt Jesus down and tried to kill him, because he did these things on the Sabbath. 
 But Jesus answered them, "My Father is still working, so I am working, too." 
-For this cause therefore the Jewish leaders sought all the more to kill him, because he not only broke the Sabbath, but also called God his own Father, making himself equal with God. 
+That is why the Jewish leaders sought all the more to kill him, because he not only broke the Sabbath, but also called God his own Father, making himself equal with God. 
 Jesus therefore answered them, "Truly I tell you, the Son can do nothing on his own, only what he sees the Father doing. Whatever the Father does, the Son does the same way. 
-For the Father loves the Son and shows him everything he does. He will show him greater deeds than these, so that you will be amazed. 
-For as the Father raises the dead and gives them life, so the Son also gives life to whomever he chooses. 
-For the Father passes a verdict on no one, but he has given every verdict to the Son, 
+The Father loves the Son and shows him everything he does. He will show him greater deeds than these, so that you will be amazed. 
+As the Father raises the dead and gives them life, so the Son also gives life to whomever he chooses. 
+The Father passes a verdict on no one, but he has given every verdict to the Son, 
 that all may honor the Son, even as they honor the Father. Whoever doesn't honor the Son doesn't honor the Father who sent him. 
 "Truly I tell you, whoever hears my word and trusts him who sent me has the real life of the era, and doesn't come under the verdict, but has crossed over out of death into life. 
 Truly I tell you, the time comes, and now is, when the dead will hear the Son of God's voice; and those who hear will live. 
-For as the Father has life in himself, even so he gave to the Son also to have life in himself. 
+As the Father has life in himself, even so he gave to the Son also to have life in himself. 
 He also gave him authority to pass a verdict, because he is the Human One. 
 Don't be amazed at this, for the time comes in which everyone who is in the tombs will hear his voice 
 and will come out; those who have done good, to the rising of life; and those who have done bad things, to the rising that brings a verdict. 
@@ -43,5 +43,5 @@ But I know you, that you don't have God's love in yourselves.
 I have come in my Father's name, and you don't welcome me. If another comes in his own name, you will welcome him. 
 How can you trust, who receive honor from one another, and you don't seek the honor that comes from the only God? 
 "Don't think that I will accuse you to the Father. There is one who accuses you, even Moses, on whom you have set your hope. 
-For if you trusted Moses, you would trust me; for he wrote about me. 
+If you trusted Moses, you would trust me; for he wrote about me. 
 But if you don't trust his writings, how will you trust my words?" 

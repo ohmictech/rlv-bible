@@ -2,7 +2,7 @@
 I want their hearts to be encouraged, knit together in love, and to reach all the riches of complete confidence in understanding, so that they come to know the secret of God, both the Father's and Christ's. 
 In him are hidden all the treasures of wisdom and knowing. 
 I am saying this so that no one talks you around with slick arguments. 
-For though I am away from you in body, I am with you in spirit, celebrating as I see your good order and the firmness of your trust in Christ. 
+Though I am away from you in body, I am with you in spirit, celebrating as I see your good order and the firmness of your trust in Christ. 
 So then, just as you received Christ Jesus as Lord, keep living in him, 
 rooted and built up in him, made firm in the trust just as you were taught, and overflowing with thanksgiving. 
 Watch out that no one carries you off with philosophy and empty trickery, following what people have handed down, following the basic principles of this world, and not following Christ. 

@@ -5,7 +5,7 @@ because he had often been tied up with shackles and chains, and the chains had b
 Night and day, among the tombs and in the mountains, he was crying out and cutting himself with stones. 
 When he saw Jesus from a distance, he ran and bowed down to him, 
 and crying out with a loud voice, he said, "What do I have to do with you, Jesus, Son of the Most High God? I put you under oath by God: don't put me in anguish." 
-For he said to him, "Come out of the man, you unclean spirit!" 
+He said to him, "Come out of the man, you unclean spirit!" 
 He asked him, "What is your name?" He said to him, "My name is Legion, for we are many." 
 He begged him earnestly not to send them out of the region. 
 Now on the mountainside there was a great herd of pigs feeding. 
@@ -25,7 +25,7 @@ He went with him, and a great crowd followed him and pressed in on him from all 
 A woman who had been bleeding for twelve years, 
 and had suffered a great deal at the hands of many doctors, and had spent all that she had, and was no better, but only grew worse, 
 having heard about Jesus, came up behind him in the crowd and touched his clothes. 
-For she said, "If I just touch his clothes, I will be made well." 
+She said, "If I just touch his clothes, I will be made well." 
 Immediately her bleeding stopped, and she felt in her body that she was healed of her sickness. 
 Immediately Jesus, knowing in himself that power had gone out from him, turned around in the crowd and asked, "Who touched my clothes?" 
 His students said to him, "You see the crowd pressing in on you, and you say, 'Who touched me?'" 

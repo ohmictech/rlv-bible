@@ -1,7 +1,7 @@
 ﻿Now after the Sabbath, as it began to dawn on the first day of the week, Mary Magdalene and the other Mary came to look at the tomb. 
 Look, there was a great earthquake, for a messenger of the Lord came down from the sky and rolled the stone away from the entrance and sat on it. 
 His appearance was like lightning, and his clothing white as snow. 
-For fear of him, the guards shook, and became like dead men. 
+Fear of him, the guards shook, and became like dead men. 
 The messenger said to the women, "Don't be afraid, for I know that you are looking for Jesus, who was crucified. 
 He is not here, for he has been raised, just as he said. Come, see the place where the Lord was lying. 
 Go quickly and tell his students, 'He has been raised from the dead, and look, he is going ahead of you into Galilee. There you will see him.' Look, I have told you." 

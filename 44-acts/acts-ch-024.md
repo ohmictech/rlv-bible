@@ -2,7 +2,7 @@
 When he was called, Tertullus began to accuse him, saying, "Seeing that by you we enjoy much wholeness, and that prosperity is coming to this nation by your foresight, 
 we accept it in all ways and in all places, most excellent Felix, with all thanks. 
 But that I don't delay you, I entreat you to bear with us and hear a few words. 
-For we have found this man to be a plague, an instigator of riots among all the Jewish people throughout the world, and a ringleader of the faction of the Nazarenes. 
+We have found this man to be a plague, an instigator of riots among all the Jewish people throughout the world, and a ringleader of the faction of the Nazarenes. 
 He even tried to profane the temple courts, and we arrested him. 
 By examining him yourself you may ascertain all these things of which we accuse him." 
 The Jewish leaders also joined in the attack, affirming that these things were so. 
@@ -22,5 +22,5 @@ But Felix, having more exact knowledge concerning the Way, deferred them, saying
 He ordered the centurion that Paul should be kept in custody and should have some privileges, and not to forbid any of his friends to serve him or to visit him. 
 After some days, Felix came with Drusilla his wife, who was a Jewish woman, and sent for Paul and heard him concerning the trust in Christ Jesus. 
 As he reasoned about rightness, self-control, and the verdict to come, Felix was terrified, and answered, "Go your way for this time, and when it is convenient for me, I will summon you." 
-Meanwhile, he also hoped that money would be given to him by Paul, so that he could release him. Therefore also he sent for him more often and talked with him. 
+Meanwhile, he also hoped that money would be given to him by Paul, so that he could release him. So also he sent for him more often and talked with him. 
 But when two years were fulfilled, Felix was succeeded by Porcius Festus, and desiring to gain favor with the Jewish people, Felix left Paul in bonds. 

@@ -20,7 +20,7 @@ When evening came, he went out of the city.
 As they passed by in the morning, they saw the fig tree withered away from the roots. 
 Peter, remembering, said to him, "Rabbi, look! The fig tree which you cursed has withered away." 
 Jesus answered them, "Have trust in God. 
-For truly I tell you, whoever says to this mountain, 'Be lifted up and thrown into the sea,' and doesn't doubt in his heart, but trusts that what he says is happening, will have whatever he says. 
+Truly I tell you, whoever says to this mountain, 'Be lifted up and thrown into the sea,' and doesn't doubt in his heart, but trusts that what he says is happening, will have whatever he says. 
 So I tell you, whatever you pray and ask for, trust that you have received it, and you will have it. 
 Whenever you stand praying, if you have anything against anyone, release them, so that your Father in the sky may also release you from your false steps. 
 But if you don't release them, neither will your Father in the sky release you from your false steps." 

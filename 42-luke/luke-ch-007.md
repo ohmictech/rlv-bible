@@ -5,7 +5,7 @@ When they came to Jesus, they begged him earnestly, saying, "He deserves to have
 for he loves our nation, and he built our gathering place for us." 
 Jesus went with them. When he was now not far from the house, the centurion sent friends to him, saying to him, "Lord, don't trouble yourself, for I don't deserve to have you come under my roof. 
 That is why I didn't even consider myself worthy to come to you; but say the word, and my slave will be healed. 
-For I also am a man placed under authority, having under myself soldiers. I tell this one, 'Go!' and he goes; and to another, 'Come!' and he comes; and to my slave, 'Do this,' and he does it." 
+I also am a man placed under authority, having under myself soldiers. I tell this one, 'Go!' and he goes; and to another, 'Come!' and he comes; and to my slave, 'Do this,' and he does it." 
 When Jesus heard these things, he was amazed at him, and turned and said to the crowd who followed him, "I tell you, I have not found such great trust, no, not in Israel." 
 Those who were sent, returning to the house, found that the slave who had been sick was well. 
 Soon afterwards, he went to a city called Nain. Many of his students, along with a great crowd, went with him. 
@@ -30,7 +30,7 @@ When everyone and the tax collectors heard this, they acknowledged that God was 
 But the strict religious ones and the experts in the law rejected God's purpose for them, not having been immersed by him. 
 "To what then should I compare the people of this generation? What are they like? 
 They are like children who sit in the marketplace and call to one another, saying, 'We piped to you, and you didn't dance. We mourned, and you didn't weep.' 
-For John the Baptist came neither eating bread nor drinking wine, and you say, 'He has an unclean spirit.' 
+John the Baptist came neither eating bread nor drinking wine, and you say, 'He has an unclean spirit.' 
 The Human One has come eating and drinking, and you say, 'Look, a glutton and a drunkard, a friend of tax collectors and those who have drifted!' 
 Wisdom is made right by all her children." 
 One of the strict religious ones invited him to eat with him. He entered into the strict religious man's house and sat at the table. 
@@ -44,7 +44,7 @@ Simon answered, "The one, I suppose, to whom he released the most." He said to h
 Turning to the woman, he said to Simon, "Do you see this woman? I entered into your house, and you gave me no water for my feet, but she has wet my feet with her tears, and wiped them with the hair of her head. 
 You gave me no kiss, but she, since the time I came in, has not ceased to kiss my feet. 
 You didn't anoint my head with oil, but she has anointed my feet with perfume. 
-Therefore I tell you, her mistakes, which are many, are released, for she loved much. But the one to whom little is released loves little." 
+So I tell you, her mistakes, which are many, are released, for she loved much. But the one to whom little is released loves little." 
 He said to her, "Your mistakes are released." 
 Those who sat at the table with him began to say to themselves, "Who is this who even releases mistakes?" 
 He said to the woman, "Your trust has healed you and made you whole. Go in wholeness." 

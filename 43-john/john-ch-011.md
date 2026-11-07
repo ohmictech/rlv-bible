@@ -18,7 +18,7 @@ So when Jesus came, he found that he had been in the tomb four days already.
 Now Bethany was near Jerusalem, about two miles away. 
 Many of the Jewish people had joined the women around Martha and Mary, to comfort them about their brother. 
 Then when Martha heard that Jesus was coming, she went and met him, but Mary stayed in the house. 
-Therefore Martha said to Jesus, "Lord, if you had been here, my brother wouldn't have died. 
+So Martha said to Jesus, "Lord, if you had been here, my brother wouldn't have died. 
 Even now I know that whatever you ask of God, God will give you." 
 Jesus said to her, "Your brother will rise again." 
 Martha said to him, "I know that he will rise again in the rising from the dead at the last day." 
@@ -29,7 +29,7 @@ When she had said this, she went away and called her sister Mary aside privately
 When she heard this, she arose quickly and went to him. 
 Now Jesus had not yet come into the village, but was in the place where Martha met him. 
 Then the Jewish people who were with her in the house and were consoling her, when they saw Mary, that she rose up quickly and went out, followed her, saying, "She is going to the tomb to weep there." 
-Therefore when Mary came to where Jesus was and saw him, she fell down at his feet, saying to him, "Lord, if you had been here, my brother wouldn't have died." 
+So when Mary came to where Jesus was and saw him, she fell down at his feet, saying to him, "Lord, if you had been here, my brother wouldn't have died." 
 When Jesus therefore saw her weeping, and the Jewish people weeping who came with her, he groaned in the spirit and was troubled, 
 and said, "Where have you laid him?" They told him, "Lord, come and see." 
 Jesus wept. 
@@ -42,9 +42,9 @@ So they took away the stone from the place where the dead man was lying. Jesus l
 I know that you always listen to me, but because of the crowd standing around I said this, that they may trust that you sent me." 
 When he had said this, he cried with a loud voice, "Lazarus, come out!" 
 He who was dead came out, bound hand and foot with wrappings, and his face was wrapped around with a cloth. Jesus said to them, "Untie him, and let him go." 
-Therefore many of the Jewish people who came to Mary and saw what Jesus did trusted in him. 
+So many of the Jewish people who came to Mary and saw what Jesus did trusted in him. 
 But some of them went away to the strict religious ones and told them the things which Jesus had done. 
-The chief priests therefore and the strict religious ones gathered a council, and said, "What are we doing? For this man does many signs. 
+The chief priests therefore and the strict religious ones gathered a council, and said, "What are we doing? This man does many signs. 
 If we leave him alone like this, everyone will trust in him, and the Romans will come and take away both our place and our nation." 
 But a certain one of them, Caiaphas, being high priest that year, said to them, "You know nothing at all, 
 You don't realize that it is better for us that one man die for the people than that the whole nation be ruined." 

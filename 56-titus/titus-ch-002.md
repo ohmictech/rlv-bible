@@ -8,7 +8,7 @@ In everything, show yourself as an example of good deeds. In your teaching, show
 and healthy speech that no one can find fault with, so that anyone who opposes you is put to shame, with nothing bad to say about us. 
 Urge slaves to be subject to their own masters in everything and to try to please them, not talking back, 
 not stealing from them, but showing themselves completely trustworthy, so that in every way they make the teaching about God our Restorer look good. 
-For the favor of God has appeared, bringing rescue to everyone, 
+The favor of God has appeared, bringing rescue to everyone, 
 training us to say no to disregard for God and to the cravings of this world, and to live with good judgment, with rightness, and with devotion to God in this present era, 
 while we wait for the flourishing expectation and the appearing of the weight of our great God and Restorer, Jesus Christ, 
 who gave himself for us to buy us out of every kind of living as if there were no law, and to make clean for himself a people who are his very own, eager for good deeds. 

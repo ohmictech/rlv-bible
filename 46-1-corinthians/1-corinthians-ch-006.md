@@ -17,4 +17,4 @@ Or don't you know that the one joined to a woman who sleeps around is one body? 
 But he who is joined to the Lord is one spirit. 
 Run from sleeping around! "Every wrongdoing a person makes is outside the body," but the one who sleeps around wrongs his own body. 
 Or don't you know that your body is a temple of the Holy Spirit who is in you, whom you have from God? You are not your own, 
-for you were bought with a price. Therefore give God weight in your body and in your spirit, which belong to God. 
+for you were bought with a price. So give God weight in your body and in your spirit, which belong to God. 

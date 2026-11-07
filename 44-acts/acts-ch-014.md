@@ -1,6 +1,6 @@
 ﻿In Iconium, they entered together into the gathering place of the Jewish people, and so spoke that a great crowd both of Jewish people and of Greeks trusted. 
 But the Jewish people who would not trust stirred up and embittered the lives of the nations against the brothers. 
-Therefore they stayed there a long time, speaking boldly in the Lord, who testified to the word of his favor, granting signs and wonders to be done by their hands. 
+So they stayed there a long time, speaking boldly in the Lord, who testified to the word of his favor, granting signs and wonders to be done by their hands. 
 But the crowd of the city was divided. Part sided with the Jewish people and part with the sent ones. 
 When some of both the nations and the Jewish people, with their rulers, made a violent attempt to mistreat and stone them, 
 they became aware of it and fled to the cities of Lycaonia, Lystra, Derbe, and the surrounding region. 

@@ -9,12 +9,12 @@ Others fell on good soil and yielded fruit: some one hundred times as much, some
 He who has ears to hear, let him hear." 
 The students came, and said to him, "Why do you speak to them in stories?" 
 He answered them, "To you it is given to know the secrets of the reign of the sky, but it is not given to them. 
-For whoever has, to him will be given, and he will have more than enough, but whoever doesn't have, from him will be taken away even that which he has. 
-Therefore I speak to them in stories, because seeing they don't see, and hearing, they don't hear, neither do they understand. 
+Whoever has, to him will be given, and he will have more than enough, but whoever doesn't have, from him will be taken away even that which he has. 
+So I speak to them in stories, because seeing they don't see, and hearing, they don't hear, neither do they understand. 
 What Isaiah spoke for God is coming true in them. He said, 'By hearing you will hear, and will in no way understand. Seeing you will see, and will in no way perceive. 
-For this people's heart has grown callous, their ears are hard of hearing, and they have closed their eyes, or else they might perceive with their eyes, hear with their ears, understand with their heart, and turn back, and I would heal them.' 
+This people's heart has grown callous, their ears are hard of hearing, and they have closed their eyes, or else they might perceive with their eyes, hear with their ears, understand with their heart, and turn back, and I would heal them.' 
 "But flourishing are your eyes, for they see, and your ears, for they hear. 
-For truly I tell you, many spokesmen and upright people wanted to see what you see and didn't see it, and to hear what you hear and didn't hear it. 
+Truly I tell you, many spokesmen and upright people wanted to see what you see and didn't see it, and to hear what you hear and didn't hear it. 
 "Hear, then, the story of the farmer. 
 When anyone hears the word of the reign and doesn't understand it, the Slanderer comes and snatches away that which has been sown in his heart. This is what was sown by the roadside. 
 What was sown on the rocky places, this is the one who hears the word and immediately receives it with joy. 

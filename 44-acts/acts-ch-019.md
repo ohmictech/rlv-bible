@@ -21,7 +21,7 @@ So the word of the Lord was growing and becoming mighty.
 Now after these things had ended, Paul determined in the Spirit, when he had passed through Macedonia and Achaia, to go to Jerusalem, saying, "After I have been there, I must also see Rome." 
 Having sent into Macedonia two of those who served him, Timothy and Erastus, he himself stayed in Asia for a while. 
 About that time there arose no small disturbance concerning the Way. 
-For a certain man named Demetrius, a silversmith who made silver shrines of Artemis, brought no little business to the craftsmen, 
+A certain man named Demetrius, a silversmith who made silver shrines of Artemis, brought no little business to the craftsmen, 
 whom he gathered together with the workmen of like occupation, and said, "Sirs, you know that by this business we have our wealth. 
 You see and hear that not at Ephesus alone, but almost throughout all Asia, this Paul has persuaded and turned away many people, saying that they are no gods that are made with hands. 
 Not only is there danger that this our trade come into disrepute, but also that the temple of the great goddess Artemis will be counted as nothing and her majesty brought down, whom all Asia and the world worships." 
@@ -34,8 +34,8 @@ They brought Alexander out of the crowd, the Jewish people putting him forward. 
 But when they perceived that he was a Jewish man, all with one voice for a time of about two hours cried out, "Great is Artemis of the Ephesians!" 
 When the town clerk had quieted the crowd, he said, "You men of Ephesus, what man is there who doesn't know that the city of the Ephesians is temple keeper of the great goddess Artemis, and of the image which fell down from Zeus? 
 Seeing then that these things can't be denied, you ought to be quiet and to do nothing rash. 
-For you have brought these men here, who are neither robbers of temples nor blasphemers of your goddess. 
+You have brought these men here, who are neither robbers of temples nor blasphemers of your goddess. 
 If therefore Demetrius and the craftsmen who are with him have a matter against anyone, the courts are open and there are proconsuls. Let them press charges against one another. 
 But if you seek anything about other matters, it will be settled in the regular gathering. 
-For indeed we are in danger of being accused concerning today's riot, there being no cause. Concerning it, we wouldn't be able to give an account of this commotion." 
+Indeed we are in danger of being accused concerning today's riot, there being no cause. Concerning it, we wouldn't be able to give an account of this commotion." 
 When he had thus spoken, he dismissed the gathering. 

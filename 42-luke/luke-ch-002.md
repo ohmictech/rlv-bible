@@ -8,7 +8,7 @@ She gave birth to her firstborn son. She wrapped him in strips of cloth and laid
 There were shepherds in that region staying out in the fields, keeping watch over their flock by night. 
 Look, a messenger of the Lord stood by them, and the weight of the Lord shone around them, and they were terrified. 
 The messenger said to them, "Don't be afraid, for look, I bring you good news of great joy for everyone. 
-For there is born to you today, in David's city, a Restorer, who is Christ the Lord. 
+There is born to you today, in David's city, a Restorer, who is Christ the Lord. 
 This is the sign to you: you will find a baby wrapped in strips of cloth, lying in a feeding trough." 
 Suddenly there was with the messenger a crowd of the sky's army, praising God and saying, 
 "Honor to God in the highest, and on earth wholeness, good will toward people." 

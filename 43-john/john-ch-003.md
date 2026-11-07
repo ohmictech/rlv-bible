@@ -13,8 +13,8 @@ If I told you things of the land and you don't trust, how will you trust if I te
 No one has gone up into the sky except the one who came down out of the sky, the Human One, who is in the sky. 
 As Moses lifted up the serpent in the wilderness, so the Human One must be lifted up in the same way, 
 so that everyone who trusts in him should not be lost, but have the real life of the era. 
-For God loved the world so much that he gave his only Son, the only one of his kind, so that everyone who trusts in him should not be lost, but have the real life of the era. 
-For God didn't send his Son into the world to pass a verdict on the world, but so that the world would be made whole through him. 
+God loved the world so much that he gave his only Son, the only one of his kind, so that everyone who trusts in him should not be lost, but have the real life of the era. 
+God didn't send his Son into the world to pass a verdict on the world, but so that the world would be made whole through him. 
 Whoever trusts in him is not judged. Whoever doesn't trust has already been judged, because they have not trusted in the name of God's one and only Son. 
 This is the verdict: the light has come into the world, and people loved the darkness rather than the light, because their deeds were bad. 
 Everyone who does bad things hates the light and doesn't come to the light, so that their deeds won't be exposed. 
@@ -22,15 +22,15 @@ But whoever does the truth comes to the light, so that it may be seen that their
 After these things, Jesus came with his students into the land of Judea. He stayed there with them and immersed. 
 John also was immersing at Aenon near Salim, because there was plenty of water there, and people came and were immersed. 
 for John was not yet thrown into prison. 
-Therefore a dispute arose between John's students and a Jewish man about washing. 
+So a dispute arose between John's students and a Jewish man about washing. 
 They came to John and said to him, "Rabbi, the one who was with you beyond the Jordan, the one you testified about, look, he is immersing, and everyone is going to him." 
 John answered, "A person can receive nothing unless it has been given to them from the sky. 
 You yourselves can testify that I said, 'I am not the Christ,' but, 'I have been sent ahead of him.' 
-He who has the bride is the bridegroom; but the friend of the bridegroom, who stands and hears him, celebrates greatly because of the bridegroom's voice. Therefore my joy is made full. 
+He who has the bride is the bridegroom; but the friend of the bridegroom, who stands and hears him, celebrates greatly because of the bridegroom's voice. So my joy is made full. 
 He must increase, but I must decrease. 
 "The one who comes from above is above all. The one who is from the land belongs to the land and speaks of the land. The one who comes from the sky is above all. 
 He testifies to what he has seen and heard, and no one accepts his witness. 
 Whoever has accepted his witness has set their seal to this: that God is true. 
-For he whom God has sent speaks the words of God; for God gives the Spirit without measure. 
+He whom God has sent speaks the words of God; for God gives the Spirit without measure. 
 The Father loves the Son, and has given all things into his hand. 
 Whoever trusts in the Son has the real life of the era, but whoever disobeys the Son won't see life; the heat of God remains on them." 

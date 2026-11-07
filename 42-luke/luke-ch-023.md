@@ -26,9 +26,9 @@ He released him who had been thrown into prison for uprising and murder, for who
 When they led him away, they grabbed one Simon of Cyrene, coming from the countryside, and laid the cross on him to carry it after Jesus. 
 A great crowd of the people followed him, including women who also mourned and lamented him. 
 But Jesus, turning to them, said, "Daughters of Jerusalem, don't weep for me, but weep for yourselves and for your children. 
-For look, the days are coming in which they will say, 'Flourishing are the barren, the wombs that never bore, and the breasts that never nursed.' 
+Look, the days are coming in which they will say, 'Flourishing are the barren, the wombs that never bore, and the breasts that never nursed.' 
 Then they will begin to tell the mountains, 'Fall on us!' and tell the hills, 'Cover us.' 
-For if they do these things in the green tree, what will be done in the dry?" 
+If they do these things in the green tree, what will be done in the dry?" 
 There were also others, two criminals, led with him to be put to death. 
 When they came to the place that is called "The Skull", they crucified him there with the criminals, one on the right and the other on the left. 
 Jesus said, "Father, release them, for they don't know what they are doing." Dividing his clothes among them, they cast lots. 

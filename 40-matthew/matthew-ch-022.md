@@ -11,7 +11,7 @@ Those slaves went out into the main roads and gathered together as many as they 
 "But when the king came in to see the guests, he saw there a man who didn't have on wedding clothing, 
 and he said to him, 'Friend, how did you come in here not wearing wedding clothing?' He was speechless. 
 Then the king said to his slaves, 'Tie him hand and foot, take him away, and throw him into the outer darkness. That is where the crying and grinding of teeth will be.' 
-For many are called, but few chosen." 
+Many are called, but few chosen." 
 Then the strict religious ones went and made plans how they could trap him in his words. 
 They sent their students to him, along with the Herodians, saying, "Teacher, we know that you are truthful, and teach the way of God in truth, no matter whom you teach, for you don't play favorites. 
 Tell us therefore, what do you think? Is it allowed to pay taxes to Caesar, or not?" 
@@ -25,9 +25,9 @@ saying, "Teacher, Moses said, 'If a man dies, having no children, his brother sh
 Now there were with us seven brothers. The first married and died, and having no offspring left his wife to his brother. 
 In the same way, the second also, and the third, to the seventh. 
 After them all, the woman died. 
-In the rising again, then, whose wife will she be of the seven? For they all had her." 
+In the rising again, then, whose wife will she be of the seven? They all had her." 
 But Jesus answered them, "You are wrong, not knowing the Scriptures, nor the power of God. 
-For in the rising again they neither marry nor are given in marriage, but are like God's messengers in the sky. 
+In the rising again they neither marry nor are given in marriage, but are like God's messengers in the sky. 
 But concerning the rising again of the dead, haven't you read that which was spoken to you by God, saying, 
 'I am the God of Abraham, and the God of Isaac, and the God of Jacob'? God is not the God of dead bodies, but of the living." 
 When the crowds heard it, they were astonished at his teaching. 

@@ -5,7 +5,7 @@ saying, "I have drifted by handing over innocent blood." But they said, "What is
 He threw the pieces of silver down in the temple and left. Then he went away and hanged himself. 
 The chief priests took the pieces of silver and said, "It isn't allowed to put them into the treasury, since it is the price of blood." 
 They decided together to buy the potter's field with the money, as a burial place for strangers. 
-Therefore that field has been called "The Field of Blood" to this day. 
+So that field has been called "The Field of Blood" to this day. 
 Then what was spoken through Jeremiah the spokesman was fulfilled, saying, "They took the thirty pieces of silver, the price set on him, whom some of the children of Israel priced, 
 and they gave them for the potter's field, as the Lord commanded me." 
 Now Jesus stood before the governor, and the governor asked him, "Are you the King of the Jews?" Jesus said to him, "So you say." 
@@ -15,7 +15,7 @@ He gave him no answer, not even one word, so that the governor was greatly amaze
 Now at the feast the governor was in the habit of releasing one prisoner to the crowd, whichever one they wanted. 
 At that time they had a well-known prisoner called Barabbas. 
 When they had gathered, Pilate said to them, "Which one do you want me to release to you? Barabbas, or Jesus who is called Christ?" 
-For he knew that they had handed him over out of envy. 
+He knew that they had handed him over out of envy. 
 While he was sitting on the judge's bench, his wife sent to him, saying, "Have nothing to do with that upright man, for I have suffered a great deal today in a dream because of him." 
 Now the chief priests and the elders persuaded the crowds to ask for Barabbas and to kill Jesus. 
 But the governor answered them, "Which of the two do you want me to release to you?" They said, "Barabbas!" 

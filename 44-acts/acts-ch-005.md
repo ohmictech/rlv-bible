@@ -33,9 +33,9 @@ We are his witnesses of these things; and so also is the Holy Spirit, whom God h
 But they, when they heard this, were cut to the heart, and were determined to kill them. 
 But one stood up in the council, a strict religious man named Gamaliel, a teacher of the law, honored by everyone, and commanded to put the sent ones out for a little while. 
 He said to them, "Men of Israel, be careful concerning these men, what you are about to do. 
-For before these days Theudas rose up, making himself out to be somebody, and about four hundred men joined him. He was slain; and all, as many as obeyed him, were dispersed and came to nothing. 
+Before these days Theudas rose up, making himself out to be somebody, and about four hundred men joined him. He was slain; and all, as many as obeyed him, were dispersed and came to nothing. 
 After this man, Judas of Galilee rose up in the days of the enrollment, and drew away some people after him. He also died, and all, as many as obeyed him, were scattered abroad. 
-Now I tell you, withdraw from these men and leave them alone. For if this counsel or this work is of people, it will be overthrown. 
+Now I tell you, withdraw from these men and leave them alone. If this counsel or this work is of people, it will be overthrown. 
 But if it is of God, you will not be able to overthrow it, and you would be found even to be fighting against God!" 
 They agreed with him. Summoning the sent ones, they beat them and commanded them not to speak in the name of Jesus, and let them go. 
 They therefore departed from the presence of the council, celebrating that they were counted worthy to suffer dishonor for Jesus' name. 

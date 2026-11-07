@@ -3,7 +3,7 @@ because his verdicts are true and right. He has passed a verdict on the great pr
 A second time they said, "Hallelujah! Her smoke rises for all the eras." 
 The twenty-four elders and the four living creatures fell down and bowed down to God who sits on the throne, saying, "Amen! Hallelujah!" 
 Then a voice came from the throne, saying, "Praise our God, all you his slaves, all you who fear him, small and great!" 
-Then I heard what sounded like the voice of a great crowd, like the sound of rushing waters, and like loud peals of thunder, saying, "Hallelujah! For the Lord our God, the one who holds sway over all, has begun to reign! 
+Then I heard what sounded like the voice of a great crowd, like the sound of rushing waters, and like loud peals of thunder, saying, "Hallelujah! The Lord our God, the one who holds sway over all, has begun to reign! 
 Let us celebrate and be glad and give him the weight, because the wedding of the Lamb has come, and his bride has made herself ready." 
 She was allowed to dress in bright, clean, fine linen, and the fine linen is the right deeds of the set-apart ones. 
 Then he said to me, "Write this down: 'Flourishing are those who are invited to the wedding feast of the Lamb.'" He said to me, "These are the true words of God." 

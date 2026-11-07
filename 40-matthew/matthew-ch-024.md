@@ -2,9 +2,9 @@
 But he answered them, "Do you see all these things? Truly I tell you, there will not be left here one stone on another that will not be thrown down." 
 As he sat on the Mount of Olives, the students came to him privately, saying, "Tell us, when will these things be? What is the sign of your arrival, and of the completion of the era?" 
 Jesus answered them, "Watch out that no one leads you astray. 
-For many will come in my name, saying, 'I am the Christ,' and will lead many astray. 
+Many will come in my name, saying, 'I am the Christ,' and will lead many astray. 
 You will hear of wars and reports of wars. See that you are not troubled, for all this must happen, but the end is not yet. 
-For nation will rise against nation, and reign against reign, and there will be famines, plagues, and earthquakes in various places. 
+Nation will rise against nation, and reign against reign, and there will be famines, plagues, and earthquakes in various places. 
 But all these things are the beginning of birth pains. 
 "Then they will put you under pressure and kill you. You will be hated by all the nations because of my name. 
 Then many will be trapped, and will hand one another over, and will hate one another. 
@@ -21,11 +21,11 @@ Pray that your escape will not be in the winter or on a Sabbath,
 for then there will be great pressure, such as has not happened from the beginning of the world until now, and never will again. 
 Unless those days had been shortened, no flesh would have been rescued. But for the sake of the chosen ones, those days will be shortened. 
 "Then if anyone tells you, 'Look, here is the Christ!' or, 'There!' don't trust it. 
-For false christs and false spokesmen will arise, and they will show great signs and wonders, so as to lead astray, if possible, even the chosen ones. 
+False christs and false spokesmen will arise, and they will show great signs and wonders, so as to lead astray, if possible, even the chosen ones. 
 "Look, I have told you beforehand. 
 "So if they tell you, 'Look, he is out in the empty land,' don't go out, or 'Look, he is in the inner rooms,' don't trust it. 
-For as the lightning flashes from the east and is seen even to the west, so will the arrival of the Human One be. 
-For wherever the carcass is, that's where the vultures gather. 
+As the lightning flashes from the east and is seen even to the west, so will the arrival of the Human One be. 
+Wherever the carcass is, that's where the vultures gather. 
 "But immediately after the pressure of those days, the sun will be darkened, the moon will not give its light, the stars will fall from the sky, and the powers of the sky will be shaken, 
 and then the sign of the Human One will appear in the sky. Then all the tribes of the earth will mourn, and they will see the Human One coming on the clouds of the sky with power and great weight. 
 He will send out his messengers with a great trumpet call, and they will gather together his chosen ones from the four winds, from one end of the sky to the other. 
@@ -35,7 +35,7 @@ Truly I tell you, this generation will not pass away until all these things are 
 The sky and the land will pass away, but my words will not pass away. 
 "But no one knows that day or hour, not even the messengers in the sky, but only my Father. 
 As the days of Noah were, so will the arrival of the Human One be. 
-For as in those days before the flood they were eating and drinking, marrying and being given in marriage, until the day that Noah entered the ship, 
+As in those days before the flood they were eating and drinking, marrying and being given in marriage, until the day that Noah entered the ship, 
 and they didn't know until the flood came and swept them all away, so will the arrival of the Human One be. 
 Then two men will be in the field: one will be taken and one will be left. 
 Two women will be grinding at the mill: one will be taken and one will be left. 

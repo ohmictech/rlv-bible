@@ -5,7 +5,7 @@ As it is written in the book of the words of Isaiah the spokesman, "The voice of
 Every valley will be filled. Every mountain and hill will be brought low. The crooked will become straight, and the rough ways smooth. 
 All flesh will know the healing and wholeness of God.'" 
 He said therefore to the crowds who went out to be immersed by him, "You offspring of vipers, who warned you to run away from the heat to come? 
-Therefore produce fruit that shows your change of heart is real, and don't begin to say among yourselves, 'We have Abraham for our father;' for I tell you that God is able to raise up children to Abraham from these stones! 
+So produce fruit that shows your change of heart is real, and don't begin to say among yourselves, 'We have Abraham for our father;' for I tell you that God is able to raise up children to Abraham from these stones! 
 The ax is already lying at the root of the trees. Every tree therefore that doesn't produce good fruit is cut down and thrown into the fire." 
 The crowds asked him, "What then must we do?" 
 He answered them, "Whoever has two coats should share with the one who has none, and whoever has food should do the same." 

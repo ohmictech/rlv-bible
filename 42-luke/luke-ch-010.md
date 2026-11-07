@@ -10,7 +10,7 @@ Heal the sick who are there and tell them, 'God's reign has come near to you.'
 But into whatever city you enter and they don't receive you, go out into its streets and say, 
 'Even the dust from your city that clings to us, we wipe off against you. Nevertheless know this, that God's reign has come near to you.' 
 I tell you, it will be more bearable in that day for Sodom than for that city. 
-"How terrible for you, Chorazin! How terrible for you, Bethsaida! For if the powerful works had been done in Tyre and Sidon which were done in you, they would have had a change of heart long ago, sitting in rough cloth and ashes. 
+"How terrible for you, Chorazin! How terrible for you, Bethsaida! If the powerful works had been done in Tyre and Sidon which were done in you, they would have had a change of heart long ago, sitting in rough cloth and ashes. 
 But it will be more bearable for Tyre and Sidon at the verdict than for you. 
 You, Capernaum, who are lifted up to the sky, will be brought down to Hades. 
 Whoever listens to you listens to me, and whoever rejects you rejects me. Whoever rejects me rejects him who sent me." 

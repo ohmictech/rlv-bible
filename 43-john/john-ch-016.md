@@ -16,10 +16,10 @@ All things that the Father has are mine; therefore I said that he takes of mine 
 "A little while, and you will not see me. Again a little while, and you will see me." 
 Some of his students therefore said to one another, "What is this that he says to us, 'A little while, and you won't see me, and again a little while, and you will see me,' and, 'Because I go to the Father'?" 
 They said therefore, "What is this that he says, 'A little while'? We don't know what he is saying." 
-Therefore Jesus perceived that they wanted to ask him, and he said to them, "Do you inquire among yourselves concerning this, that I said, 'A little while, and you won't see me, and again a little while, and you will see me'? 
+So Jesus perceived that they wanted to ask him, and he said to them, "Do you inquire among yourselves concerning this, that I said, 'A little while, and you won't see me, and again a little while, and you will see me'? 
 Truly I tell you that you will weep and lament, but the world will celebrate. You will be sorrowful, but your sorrow will be turned into joy. 
 A woman, when she gives birth, has sorrow because her time has come. But when she has delivered the child, she doesn't remember the anguish any more, for the joy that a human being is born into the world. 
-Therefore you now have sorrow, but I will see you again, and your heart will celebrate, and no one will take your joy away from you. 
+So you now have sorrow, but I will see you again, and your heart will celebrate, and no one will take your joy away from you. 
 "In that day you will ask me no questions. Truly I tell you, whatever you may ask of the Father in my name, he will give it to you. 
 Until now, you have asked nothing in my name. Ask, and you will receive, that your joy may be made complete. 
 "I have spoken these things to you in figures of speech. But the time is coming when I will no more speak to you in figures of speech, but will tell you plainly about the Father. 

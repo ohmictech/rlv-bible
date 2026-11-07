@@ -5,11 +5,11 @@ nor shameful talk, nor silly talk, nor coarse joking, none of which is fitting, 
 Know this for certain: no one who sleeps around, no one who is unclean, and no greedy person (that is, an idol worshiper) has any share in what is handed down in the reign of Christ and God. 
 Let no one lead you astray with empty words, because it is for these things that the heat of God comes on those who refuse to listen. 
 So don't take part with them. 
-For you were once darkness, but now you are light in the Lord. Live as children of light, 
+You were once darkness, but now you are light in the Lord. Live as children of light, 
 for the fruit of the Spirit is in all goodness and rightness and truth, 
 testing out what pleases the Lord. 
 Have no part in the barren deeds of darkness; instead, show them up for what they are. 
-For it is shameful even to talk about what they do in secret. 
+It is shameful even to talk about what they do in secret. 
 But everything that is shown up is made visible by the light, for whatever is made visible is light. 
 That is why it says, "Wake up, you who are asleep, and rise from the dead, and Christ will shine on you." 
 So watch carefully how you live, not as people without sense, but as people with sense, 
@@ -20,7 +20,7 @@ speaking to one another in songs of every kind, singing and making music in your
 always giving thanks for everything to God the Father in the name of our Lord Jesus Christ, 
 being subject to one another out of awe for Christ. 
 Wives, be subject to your own husbands, as to the Lord. 
-For the husband is the head of the wife, just as Christ is the head of the gathering, and he himself is the Restorer of the body. 
+The husband is the head of the wife, just as Christ is the head of the gathering, and he himself is the Restorer of the body. 
 And just as the gathering is subject to Christ, so wives should be subject to their husbands in everything. 
 Husbands, truly love your wives, just as Christ also truly loved the gathering and gave himself up for her, 
 so that he could set her apart, cleaning her by washing her with water and with the word, 

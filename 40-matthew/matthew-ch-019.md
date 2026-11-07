@@ -2,14 +2,14 @@
 Great crowds followed him, and he healed them there. 
 strict religious ones came to him, testing him and saying, "Is it allowed for a man to divorce his wife for any reason?" 
 He answered, "Haven't you read that he who made them from the beginning made them male and female, 
-and said, 'For this cause a man shall leave his father and mother, and shall be joined to his wife, and the two shall become one flesh'? 
+and said, 'That is why a man shall leave his father and mother, and shall be joined to his wife, and the two shall become one flesh'? 
 So that they are no more two, but one flesh. What therefore God has joined together, don't let a person tear apart." 
 They asked him, "Why then did Moses command us to give her a certificate of divorce and split from her?" 
 He said to them, "Moses, because of the hardness of your hearts, allowed you to split from your wives, but from the beginning it has not been so. 
 I tell you that whoever splits from his wife, except for sleeping around, and marries another, cheats, and he who marries her when she has been split from also cheats." 
 His students said to him, "If this is how it is between a man and his wife, it is better not to marry." 
 But he said to them, "Not everyone can accept this saying, but those to whom it is given. 
-For there are eunuchs who were born that way from their mother's womb, and there are eunuchs who were made eunuchs by people, and there are eunuchs who made themselves eunuchs for the sake of the reign of the sky. He who is able to accept it, let him accept it." 
+There are eunuchs who were born that way from their mother's womb, and there are eunuchs who were made eunuchs by people, and there are eunuchs who made themselves eunuchs for the sake of the reign of the sky. He who is able to accept it, let him accept it." 
 Then little children were brought to him that he should lay his hands on them and pray, and the students rebuked them. 
 But Jesus said, "Let the little children come, and don't forbid them, for the reign of the sky belongs to ones like these." 
 He laid his hands on them, and departed from there. 

@@ -13,7 +13,7 @@ I am writing to you, dear children, because your mistakes have been released for
 I am writing to you, fathers, because you know the one who is from the beginning. I am writing to you, young men, because you have defeated the Slanderer. I am writing to you, dear children, because you know the Father. 
 I have written to you, fathers, because you know the one who is from the beginning. I have written to you, young men, because you are strong, and the word of God makes its home in you, and you have defeated the Slanderer. 
 Do not love the world or the things that are in the world. If anyone loves the world, the Father's love is not in them. 
-For everything that is in the world, the craving of the flesh, the craving of the eyes, and the pride that comes from what you have, is not from the Father but from the world. 
+Everything that is in the world, the craving of the flesh, the craving of the eyes, and the pride that comes from what you have, is not from the Father but from the world. 
 The world is passing away along with its cravings, but whoever does God's will remains for the eras. 
 Dear children, this is the last hour. You heard that the one against Christ is coming, and already many who are against Christ have appeared. That is how we know it is the last hour. 
 They left us, but they never really belonged to us. If they had belonged to us, they would have stayed with us. They left so that it would be shown that none of them belonged to us. 

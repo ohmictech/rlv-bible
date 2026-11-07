@@ -13,7 +13,7 @@ saying, 'These last have spent one hour, and you have made them equal to us who 
 "But he answered one of them, 'Friend, I am doing you no wrong. Didn't you agree with me for a silver coin? 
 Take what is yours, and go your way. I want to give to this last just as much as to you. 
 Isn't it allowed for me to do what I want to with what I own? Or is your eye jealous, because I am good?' 
-So the last will be first, and the first will be last. For many are called, but few are chosen." 
+So the last will be first, and the first will be last. Many are called, but few are chosen." 
 As Jesus was going up to Jerusalem, he took the twelve students aside, and on the way he said to them, 
 "Look, we are going up to Jerusalem, and the Human One will be handed over to the high priests and Bible teachers, and they will sentence him to death, 
 and will hand him over to the nations to mock, to whip, and to crucify, and the third day he will be raised up." 

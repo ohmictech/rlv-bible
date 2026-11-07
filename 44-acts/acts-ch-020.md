@@ -13,7 +13,7 @@ They brought the boy in alive, and were greatly comforted.
 But we, going ahead to the ship, set sail for Assos, intending to take Paul aboard there; for he had so arranged, intending himself to go by land. 
 When he met us at Assos, we took him aboard and came to Mitylene. 
 Sailing from there, we came the following day opposite Chios. The next day we touched at Samos and stayed at Trogyllium, and the day after we came to Miletus. 
-For Paul had determined to sail past Ephesus, so that he would not have to spend time in Asia; for he was hastening, if it were possible for him, to be in Jerusalem on the day of Pentecost. 
+Paul had determined to sail past Ephesus, so that he would not have to spend time in Asia; for he was hastening, if it were possible for him, to be in Jerusalem on the day of Pentecost. 
 From Miletus he sent to Ephesus and called to himself the elders of the gathering. 
 When they had come to him, he said to them, "You yourselves know, from the first day that I set foot in Asia, how I was with you all the time, 
 serving the Lord with all humility, with many tears, and with trials which happened to me by the plots of the Jewish people; 
@@ -23,12 +23,12 @@ Now, look, I go bound by the Spirit to Jerusalem, not knowing what will happen t
 except that the Holy Spirit testifies in every city, saying that bonds and afflictions wait for me. 
 But these things don't count; nor do I hold my life dear to myself, so that I may finish my race with joy, and the work which I received from the Lord Jesus, to fully witness to the Good News of the favor of God. 
 "Now, look, I know that you all, among whom I went about announcing God's reign, will see my face no more. 
-Therefore I testify to you today that I am clean from the blood of everyone, 
+So I testify to you today that I am clean from the blood of everyone, 
 for I didn't shrink from declaring to you the whole counsel of God. 
 Take heed, therefore, to yourselves and to all the flock, in which the Holy Spirit has made you overseers, to shepherd the gathering of the Lord and God which he purchased with his own blood. 
-For I know that after my departure, vicious wolves will enter in among you, not sparing the flock. 
+I know that after my departure, vicious wolves will enter in among you, not sparing the flock. 
 Men will arise from among your own selves, speaking perverse things, to draw away the students after them. 
-Therefore watch, remembering that for a period of three years I didn't cease to admonish everyone night and day with tears. 
+So watch, remembering that for a period of three years I didn't cease to admonish everyone night and day with tears. 
 Now, brothers, I entrust you to God and to the word of his favor, which is able to build up and to give you the inheritance among everyone who is set apart. 
 I coveted no one's silver, gold, or clothing. 
 You yourselves know that these hands served my necessities, and those who were with me. 

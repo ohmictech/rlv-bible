@@ -12,10 +12,10 @@ A messenger of the Lord appeared to him, standing on the right side of the altar
 Zacharias was troubled when he saw him, and fear fell upon him. 
 But the messenger said to him, "Don't be afraid, Zacharias, because your request has been heard. Your wife Elizabeth will bear you a son, and you are to name him John. 
 You will have joy and gladness, and many will celebrate at his birth. 
-For he will be great in the sight of the Lord, and he will drink no wine nor strong drink. He will be filled with the Holy Spirit, even from his mother's womb. 
+He will be great in the sight of the Lord, and he will drink no wine nor strong drink. He will be filled with the Holy Spirit, even from his mother's womb. 
 He will turn many of the children of Israel to the Lord their God. 
 He will go before him in the spirit and power of Elijah, 'to turn the hearts of the fathers to the children,' and to turn those who refuse to obey to the wisdom of the upright, to make ready a people prepared for the Lord." 
-Zacharias said to the messenger, "How can I be sure of this? For I am an old man, and my wife is well advanced in years." 
+Zacharias said to the messenger, "How can I be sure of this? I am an old man, and my wife is well advanced in years." 
 The messenger answered him, "I am Gabriel, who stands in the presence of God. I was sent to speak to you and to bring you this good news. 
 Look, you will be silent and unable to speak until the day that these things will happen, because you didn't trust my words, which will be fulfilled in their proper time." 
 The people were waiting for Zacharias, and they were amazed that he stayed so long in the temple. 
@@ -34,19 +34,19 @@ and he will reign over the house of Jacob into the eras. There will be no end to
 Mary said to the messenger, "How can this be, since I am a virgin?" 
 The messenger answered her, "The Holy Spirit will come on you, and the power of the Most High will overshadow you. So the set-apart one born from you will be called the Son of God. 
 Look, Elizabeth your relative has also conceived a son in her old age; and this is the sixth month for her who was called barren. 
-For nothing spoken by God is impossible." 
+Nothing spoken by God is impossible." 
 Mary said, "Look, I am the Lord's slave. Let it be done to me just as you have said." Then the messenger departed from her. 
 Mary got up in those days and hurried into the hill country, into a city of Judah, 
 and went into the house of Zacharias and greeted Elizabeth. 
 When Elizabeth heard Mary's greeting, the baby leaped in her womb, and Elizabeth was filled with the Holy Spirit. 
 She called out with a loud voice and said, "Flourishing are you among women, and flourishing is the fruit of your womb! 
 Why am I so favored, that the mother of my Lord should come to me? 
-For look, as soon as the sound of your greeting reached my ears, the baby leaped in my womb for joy! 
+Look, as soon as the sound of your greeting reached my ears, the baby leaped in my womb for joy! 
 Flourishing is she who trusted, for there will be a fulfillment of the things which have been spoken to her from the Lord!" 
 Mary said, "My life makes the Lord great. 
 My spirit has celebrated in God my Restorer, 
-for he has looked at the humble state of his slave. For look, from now on, all generations will call me flourishing. 
-For he who is mighty has done great things for me. Holy is his name. 
+for he has looked at the humble state of his slave. Look, from now on, all generations will call me flourishing. 
+He who is mighty has done great things for me. Holy is his name. 
 His mercy is for generations and generations on those who fear him. 
 He has shown strength with his arm. He has scattered the proud in the thoughts of their hearts. 
 He has brought rulers down from their thrones, and has lifted up the lowly. 

@@ -20,9 +20,9 @@ Some of the religious elite, who say there is no rising from the dead, came to h
 There were seven brothers. The first took a wife, and dying left no offspring. 
 The second took her, and died, leaving no children behind him. The third likewise; 
 and the seven took her and left no children. Last of all, the woman also died. 
-In the rising from the dead, when they rise, whose wife will she be of them? For all seven had her as a wife." 
+In the rising from the dead, when they rise, whose wife will she be of them? All seven had her as a wife." 
 Jesus answered them, "Isn't this why you are mistaken: you don't know the Scriptures or the power of God? 
-For when they rise from the dead, they neither marry nor are given in marriage, but are like messengers in the sky. 
+When they rise from the dead, they neither marry nor are given in marriage, but are like messengers in the sky. 
 But about the dead, that they are raised, haven't you read in the book of Moses, in the account of the burning bush, how God spoke to him, saying, 'I am the God of Abraham, the God of Isaac, and the God of Jacob'? 
 He is not the God of dead bodies, but of the living. You are badly mistaken." 
 One of the Bible teachers came and heard them arguing, and knowing that he had answered them well, asked him, "Which commandment is the greatest of all?" 
@@ -33,7 +33,7 @@ The Bible teacher said to him, "Teacher, you have spoken well in saying that he 
 and to love him with all the heart, with all the understanding, with all the life, and with all the strength, and to love one's neighbor as oneself, is more important than all whole burnt offerings and sacrifices." 
 When Jesus saw that he had answered wisely, he said to him, "You are not far from God's reign." And no one dared ask him any more questions after that. 
 Jesus responded, as he taught in the temple courts, "How is it that the Bible teachers say the Christ is the son of David? 
-For David himself, in the Holy Spirit, said, 'The Lord said to my Lord, "Sit at my right hand until I put your enemies under your feet."' 
+David himself, in the Holy Spirit, said, 'The Lord said to my Lord, "Sit at my right hand until I put your enemies under your feet."' 
 David himself calls him Lord, so how can he be his son?" And the great crowd heard him gladly. 
 In his teaching he said to them, "Watch out for the Bible teachers, who like to walk around in long robes and to be greeted in the marketplaces, 
 and to have the best seats in the gathering places and the places of honor at dinners, 

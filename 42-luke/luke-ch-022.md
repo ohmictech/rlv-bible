@@ -24,7 +24,7 @@ They began to question among themselves which of them it was who would do this t
 A dispute also arose among them, which of them was considered to be greatest. 
 He said to them, "The kings of the nations lord it over them, and those who have authority over them are called 'benefactors.' 
 But not so with you. Rather, the one who is greater among you, let him become as the younger, and one who is governing, as one who serves. 
-For who is greater, one who sits at the table, or one who serves? Isn't it he who sits at the table? But I am among you as one who serves. 
+Who is greater, one who sits at the table, or one who serves? Isn't it he who sits at the table? But I am among you as one who serves. 
 "But you are those who have continued with me in my trials. 
 I confer on you a reign, even as my Father conferred one on me, 
 that you may eat and drink at my table in my reign. You will sit on thrones, passing a verdict on the twelve tribes of Israel." 
@@ -34,7 +34,7 @@ He said to him, "Lord, I am ready to go with you both to prison and to death!"
 He said, "I tell you, Peter, the rooster will by no means crow today until you have disowned me three times." 
 He said to them, "When I sent you out without purse, bag, and sandals, did you lack anything?" They said, "Nothing." 
 Then he said to them, "But now, whoever has a purse, let him take it, and likewise a bag. Whoever has none, let him sell his cloak, and buy a sword. 
-For I tell you that this which is written must still be fulfilled in me: 'He was counted with those who break the law.' For that which concerns me is being fulfilled." 
+I tell you that this which is written must still be fulfilled in me: 'He was counted with those who break the law.' For that which concerns me is being fulfilled." 
 They said, "Lord, look, here are two swords." He said to them, "That is enough." 
 He came out and went, as his custom was, to the Mount of Olives. His students also followed him. 
 When he was at the place, he said to them, "Pray that you don't enter into testing." 
@@ -68,4 +68,4 @@ As soon as it was day, the elders of the people came together, both chief priest
 and if I ask, you will in no way answer me or let me go. 
 From now on, the Human One will be seated at the right hand of the power of God." 
 They all said, "Are you then the Son of God?" He said to them, "You say it, because I am." 
-They said, "Why do we need any more witness? For we ourselves have heard from his own mouth!" 
+They said, "Why do we need any more witness? We ourselves have heard from his own mouth!" 

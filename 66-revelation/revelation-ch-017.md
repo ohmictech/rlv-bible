@@ -14,5 +14,5 @@ These all share one purpose, and they hand their power and authority over to the
 They will make war on the Lamb, and the Lamb will win the victory over them, because he is Lord of lords and King of kings, and those with him are called, chosen, and trustworthy." 
 He said to me, "The waters you saw, where the prostitute sits, are peoples, crowds, nations, and languages. 
 The ten horns you saw, they and the beast will hate the prostitute. They will leave her empty, strip her naked, eat her flesh, and burn her up with fire. 
-For God has put it into their hearts to carry out his purpose by acting with one purpose and handing their kingdom over to the beast, until God's words are carried out. 
+God has put it into their hearts to carry out his purpose by acting with one purpose and handing their kingdom over to the beast, until God's words are carried out. 
 The woman you saw is the great city that rules over the kings of the land." 

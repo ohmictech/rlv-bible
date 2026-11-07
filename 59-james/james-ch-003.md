@@ -13,6 +13,6 @@ My brothers and sisters, can a fig tree produce olives, or a vine produce figs? 
 Who among you is wise and understanding? Let them show it by living well, and by doing their deeds in the gentleness that comes from wisdom. 
 But if you have bitter jealousy and selfish ambition in your hearts, do not brag about it and do not lie against the truth. 
 That kind of wisdom does not come down from above. It is of the earth, it is unspiritual, and it belongs to unclean spirits. 
-For where there is jealousy and selfish ambition, there is confusion and every kind of bad deed. 
+Where there is jealousy and selfish ambition, there is confusion and every kind of bad deed. 
 But the wisdom from above is first of all pure, then it makes for wholeness, it is gentle and willing to listen, it is full of mercy and good fruit, and it does not play favorites or pretend. 
 And the fruit of rightness is sown in wholeness by those who make wholeness. 

@@ -1,10 +1,10 @@
 ﻿It was two days before the Passover and the festival of bread without yeast, and the chief priests and the Bible teachers were looking for a way to seize him by deception and kill him. 
-For they said, "Not during the feast, or there might be a riot among the people." 
+They said, "Not during the feast, or there might be a riot among the people." 
 While he was at Bethany, in the house of Simon the leper, as he sat at the table, a woman came with an alabaster jar of very costly pure nard perfume. She broke the jar and poured it over his head. 
 But some were indignant among themselves, saying, "Why has this perfume been wasted? 
-For this could have been sold for more than three hundred silver coins and given to the poor." And they grumbled at her. 
+This could have been sold for more than three hundred silver coins and given to the poor." And they grumbled at her. 
 But Jesus said, "Leave her alone. Why are you bothering her? She has done a good deed for me. 
-For you always have the poor with you, and whenever you want to, you can do them good, but you will not always have me. 
+You always have the poor with you, and whenever you want to, you can do them good, but you will not always have me. 
 She has done what she could. She has anointed my body beforehand for burial. 
 Truly I tell you, wherever this Good News is preached throughout the whole world, what this woman has done will also be spoken of in memory of her." 
 Judas Iscariot, who was one of the twelve, went to the chief priests to hand him over to them. 
@@ -18,7 +18,7 @@ When it was evening he came with the twelve.
 As they sat and were eating, Jesus said, "Truly I tell you, one of you will hand me over, one who is eating with me." 
 They began to be grieved and to ask him one by one, "Surely not I?" 
 He answered them, "It is one of the twelve, he who dips with me in the dish. 
-For the Human One goes as it is written about him, but how terrible for that man who hands over the Human One! It would be better for that man if he had not been born." 
+The Human One goes as it is written about him, but how terrible for that man who hands over the Human One! It would be better for that man if he had not been born." 
 As they were eating, Jesus took bread, and when he had blessed it, he broke it and gave it to them, and said, "Take it. This is my body." 
 He took the cup, and when he had given thanks, he gave it to them, and they all drank from it. 
 He said to them, "This is my blood of the new binding arrangement, which is poured out for everyone. 
@@ -53,7 +53,7 @@ but he left the linen cloth and fled from them naked.
 They led Jesus away to the high priest, and all the chief priests, the elders, and the Bible teachers came together with him. 
 Peter had followed him at a distance, right into the courtyard of the high priest. He was sitting with the officers, warming himself in the light of the fire. 
 Now the chief priests and the whole council were looking for witnesses against Jesus to put him to death, and they found none. 
-For many gave false witness against him, but their witness didn't agree. 
+Many gave false witness against him, but their witness didn't agree. 
 Some stood up and gave false witness against him, saying, 
 "We heard him say, 'I will tear down this temple made with hands, and in three days I will build another made without hands.'" 
 Even so, their witness didn't agree. 

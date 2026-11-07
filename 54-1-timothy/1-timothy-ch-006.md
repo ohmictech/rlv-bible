@@ -7,7 +7,7 @@ But devotion to God with contentment is great wealth.
 We brought nothing into the world, and we certainly can't carry anything out. 
 So if we have food and clothing, we will be content with that. 
 But those who are set on getting rich fall into temptation and a trap, and into many foolish and harmful cravings that drag people down into ruin and brokenness. 
-For the love of money is a root of all kinds of problems. Some have reached for it and been led astray from the trust, and have run themselves through with many sorrows. 
+The love of money is a root of all kinds of problems. Some have reached for it and been led astray from the trust, and have run themselves through with many sorrows. 
 But you, man of God, run from all that, and go after rightness, devotion to God, trust, love, staying power, and gentleness. 
 Fight the good fight of trust. Take hold of the real life of the era, to which you were called when you made your good confession in front of many witnesses. 
 Before God, who gives life to everything, and before Christ Jesus, who in front of Pontius Pilate made the good confession, I command you 

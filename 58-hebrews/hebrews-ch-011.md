@@ -2,12 +2,12 @@
 That is how the people of old were approved. 
 By trust we understand that the universe was formed by God's word, so that what we see was not made out of things that can be seen. 
 By trust Abel offered God a better sacrifice than Cain did. Because of that, he was given witness that he was right, when God spoke well of his gifts; and through that trust, though he is dead, he still speaks. 
-By trust Enoch was taken up, so that he would not see death, and he could not be found, because God had taken him. For before he was taken, he was given witness that he had pleased God. 
+By trust Enoch was taken up, so that he would not see death, and he could not be found, because God had taken him. Before he was taken, he was given witness that he had pleased God. 
 And without trust it is impossible to please God, because anyone who comes to him must trust that he exists and that he rewards those who look for him. 
 By trust Noah, when he was warned about things he could not yet see, was moved by devotion to God and built a boat to rescue his household. By that trust he passed sentence on the world and became an heir of the rightness that comes from trust. 
 By trust Abraham, when he was called, obeyed and went out to a place he was going to receive as a charge handed down. He went out without knowing where he was going. 
 By trust he lived as a foreigner in the land of promise, as in a land that was not his own, living in tents with Isaac and Jacob, who were heirs with him of the same promise. 
-For he was looking for the city that has foundations, whose builder and maker is God. 
+He was looking for the city that has foundations, whose builder and maker is God. 
 By trust even Sarah herself was given the power to have a child, and she gave birth even though she was past the age, because she counted the one who promised trustworthy. 
 And so from one man, and him as good as dead, came descendants as many as the stars in the sky and as countless as the sand on the seashore. 
 All these died in trust. They did not receive what was promised, but they saw it from far off and welcomed it, and they admitted that they were strangers and travelers on the earth. 

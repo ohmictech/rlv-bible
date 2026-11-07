@@ -19,7 +19,7 @@ They called them, and commanded them not to speak at all nor teach in the name o
 But Peter and John answered them, "Whether it is right in the sight of God to listen to you rather than to God, judge for yourselves, 
 for we can't help telling the things which we saw and heard." 
 When they had further threatened them, they let them go, finding no way to correct them, because of the people; for everyone gave honor to God for that which was done. 
-For the man on whom this sign of healing was performed was more than forty years old. 
+The man on whom this sign of healing was performed was more than forty years old. 
 Being let go, they came to their own company and reported all that the chief priests and the elders had said to them. 
 When they heard it, they lifted up their voice to God with one accord and said, "Master, you are God, who made the sky, the land, the sea, and all that is in them; 
 who by the mouth of your servant David said, 'Why do the nations rage, and the peoples plot an empty thing? 
@@ -31,7 +31,7 @@ while you stretch out your hand to heal; and that signs and wonders may be done 
 When they had prayed, the place was shaken where they were gathered together. They were all filled with the Holy Spirit, and they spoke the word of God with boldness. 
 The crowd of those who trusted were of one heart and life. Not one of them claimed that anything of the things which they possessed was their own, but they had all things in common. 
 With great power, the sent ones gave their witness of the rising of the Lord Jesus. Great favor was on them all. 
-For neither was there among them any who lacked, for as many as were owners of lands or houses sold them, and brought the proceeds of the things that were sold, 
+Neither was there among them any who lacked, for as many as were owners of lands or houses sold them, and brought the proceeds of the things that were sold, 
 and laid them at the feet of the sent ones; and distribution was made to each, as anyone had need. 
 Joses, who by the sent ones was also called Barnabas (which means Son of Encouragement), a Levite, a man of Cyprus by race, 
 having a field, sold it and brought the money and laid it at the feet of the sent ones. 

@@ -20,6 +20,6 @@ but with the precious blood of Christ, like the blood of a lamb with no flaw or 
 He was known ahead of time before the world was founded, but he was shown openly in these last times for your sake. 
 Through him you trust in God, who raised him from the dead and gave him weight, so that your trust and your expectation are in God. 
 Now that you have made your lives pure by obeying the truth, so that you have a sincere love for your brothers and sisters, love one another deeply, from the heart. 
-For you have been born all over again, not from seed that decays, but from seed that never decays, through God's living and enduring message. 
+You have been born all over again, not from seed that decays, but from seed that never decays, through God's living and enduring message. 
 For, "All flesh is like grass, and all human weight is like the flower of the grass. The grass dries up and the flower falls off, 
 but the Lord's message stands for the eras." And that message is the Good News that was announced to you. 

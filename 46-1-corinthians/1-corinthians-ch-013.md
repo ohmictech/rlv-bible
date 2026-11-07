@@ -6,8 +6,8 @@ doesn't behave badly, doesn't push for its own way, isn't easily provoked, keeps
 doesn't celebrate over wrong, but celebrates with the truth; 
 puts up with all things, trusts all things, expects all things, and sticks with all things. 
 Love never fails. But where there is speaking for God, it will be put out of work. Where there are languages, they will stop. Where there is knowledge, it will be put out of work. 
-For we know in part and we speak for God in part; 
+We know in part and we speak for God in part; 
 but when that which is complete has come, then what is partial will be put out of work. 
 When I was a child, I spoke as a child, I felt as a child, I thought as a child. Now that I have become a man, I have put away childish things. 
-For now we see in a mirror, dimly, but then face to face. Now I know in part, but then I will know fully, just as I was fully known. 
+Now we see in a mirror, dimly, but then face to face. Now I know in part, but then I will know fully, just as I was fully known. 
 But now trust, expectation, and love remain, these three. The greatest of these is love. 

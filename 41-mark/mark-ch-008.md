@@ -30,9 +30,9 @@ He said to them, "But who do you say that I am?" Peter answered, "You are the Ch
 He commanded them to tell no one about him. 
 He began to teach them that the Human One must suffer many things, and be rejected by the elders, the chief priests, and the Bible teachers, and be killed, and rise again after three days. 
 He spoke about this openly. Peter took him aside and began to rebuke him. 
-But he turned around and, seeing his students, rebuked Peter and said, "Get behind me, Adversary! For you have in mind not the things of God, but the things of people." 
+But he turned around and, seeing his students, rebuked Peter and said, "Get behind me, Adversary! You have in mind not the things of God, but the things of people." 
 He called the crowd to himself with his students and said to them, "Whoever wants to come after me must disown himself and take up his cross and follow me. 
-For whoever wants to rescue his life will lose it, and whoever loses his life for my sake and for the Good News will rescue it. 
-For what good is it for someone to gain the whole world and forfeit his life? 
-For what will anyone give in exchange for his life? 
-For whoever is ashamed of me and of my words in this generation that cheats and drifts, the Human One also will be ashamed of him when he comes in his Father's weight with the set-apart messengers." 
+Whoever wants to rescue his life will lose it, and whoever loses his life for my sake and for the Good News will rescue it. 
+What good is it for someone to gain the whole world and forfeit his life? 
+What will anyone give in exchange for his life? 
+Whoever is ashamed of me and of my words in this generation that cheats and drifts, the Human One also will be ashamed of him when he comes in his Father's weight with the set-apart messengers." 

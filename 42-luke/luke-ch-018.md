@@ -22,14 +22,14 @@ He said, "I have kept all these things since my youth."
 When Jesus heard these things, he said to him, "You still lack one thing. Sell all that you have and distribute it to the poor. Then you will have treasure in the sky; then come, follow me." 
 But when he heard these things, he became very sad, for he was very rich. 
 Jesus, seeing that he became very sad, said, "How hard it is for those who have riches to enter God's reign! 
-For it is easier for a camel to enter in through the eye of a sewing needle than for a rich man to enter God's reign." 
+It is easier for a camel to enter in through the eye of a sewing needle than for a rich man to enter God's reign." 
 Those who heard it said, "Then who can be rescued?" 
 But he said, "The things which are impossible with people are possible with God." 
 Peter said, "Look, we have left everything and followed you." 
 He said to them, "Truly I tell you, there is no one who has left house, or wife, or brothers, or parents, or children, for the sake of God's reign, 
 who will not receive many times more in this time, and in the era to come, the real life of the era." 
 He took the twelve aside and said to them, "Look, we are going up to Jerusalem, and all the things that are written through the spokesmen concerning the Human One will be completed. 
-For he will be handed over to the nations, will be mocked, treated shamefully, and spit on. 
+He will be handed over to the nations, will be mocked, treated shamefully, and spit on. 
 They will whip and kill him. On the third day, he will rise again." 
 They understood none of these things. This saying was hidden from them, and they didn't understand the things that were said. 
 As he came near Jericho, a certain blind man sat by the road, begging. 

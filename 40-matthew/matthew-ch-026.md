@@ -6,10 +6,10 @@ But they said, "Not during the feast, or there may be a riot among the people."
 Now when Jesus was in Bethany, in the house of Simon, who had leprosy, 
 a woman came to him with an alabaster jar of very expensive perfume, and she poured it on his head as he sat at the table. 
 But when his students saw it, they were angry, saying, "Why this waste? 
-For this perfume could have been sold for a lot and given to the poor." 
+This perfume could have been sold for a lot and given to the poor." 
 Jesus knew this and said to them, "Why are you bothering the woman? She has done a good deed for me. 
-For you always have the poor with you, but you don't always have me. 
-For in pouring this perfume on my body, she did it to prepare me for burial. 
+You always have the poor with you, but you don't always have me. 
+In pouring this perfume on my body, she did it to prepare me for burial. 
 Truly I tell you, wherever this Good News is preached in the whole world, what this woman has done will also be spoken of in memory of her." 
 Then one of the twelve, who was called Judas Iscariot, went to the chief priests 
 and said, "What will you give me if I hand him over to you?" So they weighed out thirty pieces of silver for him. 

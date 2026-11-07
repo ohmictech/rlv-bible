@@ -12,7 +12,7 @@ If therefore you have not been faithful in the dishonest wealth, who will commit
 If you have not been faithful in that which is another's, who will give you that which is your own? 
 No slave can serve two masters, for either he will hate the one and love the other; or else he will hold to one and despise the other. You aren't able to serve God and Mammon." 
 The strict religious ones, who were lovers of money, also heard all these things, and they scoffed at him. 
-He said to them, "You are the ones who make yourselves look right in people's sight, but God knows your hearts. For that which is exalted among men is detestable in the sight of God. 
+He said to them, "You are the ones who make yourselves look right in people's sight, but God knows your hearts. That which is exalted among men is detestable in the sight of God. 
 "The law and the prophets were until John. From that time the Good News of God's reign is preached, and everyone is forcing his way into it. 
 But it is easier for the sky and the land to pass away than for one tiny stroke of a pen in the law to fall. 
 "Everyone who divorces his wife and marries another cheats. He who marries one who is divorced from a husband also cheats. 
@@ -21,7 +21,7 @@ A certain beggar, named Lazarus, was taken to his gate, full of sores,
 and desiring to be fed with the crumbs that fell from the rich man's table. Yes, even the dogs came and licked his sores. 
 The beggar died, and he was carried away by the messengers to Abraham's side. The rich man also died and was buried. 
 In Hades, he lifted up his eyes, being in anguish, and saw Abraham far off, and Lazarus at his side. 
-He cried and said, 'Father Abraham, have mercy on me, and send Lazarus, that he may dip the tip of his finger in water and cool my tongue! For I am in anguish in this flame.' 
+He cried and said, 'Father Abraham, have mercy on me, and send Lazarus, that he may dip the tip of his finger in water and cool my tongue! I am in anguish in this flame.' 
 "But Abraham said, 'Son, remember that you, in your lifetime, received your good things, and Lazarus, in the same way, bad things. But here he is now comforted and you are in anguish. 
 Besides all this, between us and you there is a great chasm fixed, that those who want to pass from here to you are not able, and that no one may cross over from there to us.' 
 "He said, 'I ask you therefore, father, that you would send him to my father's house, 

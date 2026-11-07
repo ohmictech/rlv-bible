@@ -16,7 +16,7 @@ I pray not that you would take them from the world, but that you would keep them
 They are not of the world, even as I am not of the world. 
 Set them apart in your truth. Your word is truth. 
 As you sent me into the world, even so I have sent them into the world. 
-For their sakes I set myself apart, that they themselves also may be set apart in truth. 
+Their sakes I set myself apart, that they themselves also may be set apart in truth. 
 "Not for these only do I pray, but for those also who will trust in me through their word, 
 that they may all be one; even as you, Father, are in me, and I in you, that they also may be one in us; that the world may trust that you sent me. 
 The weight which you have given me, I have given to them, that they may be one, even as we are one, 

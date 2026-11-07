@@ -17,7 +17,7 @@ So I brought him to your students, and they could not heal him."
 Jesus answered, "You who do not trust! You twisted generation! How long will I be with you? How long will I put up with you? Bring him here to me." 
 Jesus rebuked the unclean spirit, and it went out of him, and the boy was healed from that hour. 
 Then the students came to Jesus privately, and said, "Why weren't we able to drive it out?" 
-He said to them, "Because of your lack of trust. For truly I tell you, if you have trust like a grain of mustard seed, you will tell this mountain, 'Move from here to there,' and it will move, and nothing will be impossible for you. 
+He said to them, "Because of your lack of trust. Truly I tell you, if you have trust like a grain of mustard seed, you will tell this mountain, 'Move from here to there,' and it will move, and nothing will be impossible for you. 
 But this kind doesn't go out except by prayer and going without food." 
 While they were staying in Galilee, Jesus said to them, "The Human One is about to be handed over into the hands of people, 
 and they will kill him, and the third day he will be raised up." They were very sorry. 

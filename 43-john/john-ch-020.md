@@ -1,12 +1,12 @@
 ﻿Now on the first day of the week, Mary Magdalene went early, while it was still dark, to the tomb, and saw that the stone had been taken away from the tomb. 
-Therefore she ran and came to Simon Peter and to the other student whom Jesus loved, and said to them, "They have taken away the Lord out of the tomb, and we don't know where they have laid him!" 
-Therefore Peter and the other student went out, and they went toward the tomb. 
+So she ran and came to Simon Peter and to the other student whom Jesus loved, and said to them, "They have taken away the Lord out of the tomb, and we don't know where they have laid him!" 
+So Peter and the other student went out, and they went toward the tomb. 
 They both ran together. The other student outran Peter and came to the tomb first. 
 Stooping and looking in, he saw the linen cloths lying there; yet he didn't enter in. 
 Then Simon Peter came, following him, and entered into the tomb. He saw the linen cloths lying, 
 and the cloth that had been on his head, not lying with the linen cloths, but rolled up in a place by itself. 
 So then the other student who came first to the tomb also entered in, and he saw and trusted. 
-For as yet they didn't know the Scripture, that he must rise from the dead. 
+As yet they didn't know the Scripture, that he must rise from the dead. 
 So the students went away again to their own homes. 
 But Mary was standing outside at the tomb weeping. So as she wept, she stooped and looked into the tomb, 
 and she saw two messengers in white sitting, one at the head and one at the feet, where the body of Jesus had lain. 
@@ -27,5 +27,5 @@ After eight days, again his students were inside and Thomas was with them. Jesus
 Then he said to Thomas, "Reach here your finger, and see my hands. Reach here your hand, and put it into my side. Stop doubting, and trust." 
 Thomas answered him, "My Lord and my God!" 
 Jesus said to him, "Because you have seen me, you have trusted. Flourishing are those who have not seen and have trusted." 
-Therefore Jesus did many other signs in the presence of his students, which are not written in this book; 
+So Jesus did many other signs in the presence of his students, which are not written in this book; 
 but these are written that you may trust that Jesus is the Christ, the Son of God, and that trusting you may have real life in his name. 

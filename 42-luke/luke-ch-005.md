@@ -6,7 +6,7 @@ Simon answered him, "Master, we worked all night and caught nothing; but at your
 When they had done this, they caught a great number of fish, and their nets were breaking. 
 They signaled to their partners in the other boat, that they should come and help them. They came and filled both boats, so that they began to sink. 
 But Simon Peter, when he saw it, fell down at Jesus' knees, saying, "Get away from me, for I am a man who drifts, Lord." 
-For he was amazed, and everyone who was with him, at the catch of fish which they had caught; 
+He was amazed, and everyone who was with him, at the catch of fish which they had caught; 
 and so also were James and John, the sons of Zebedee, who were partners with Simon. Jesus said to Simon, "Don't be afraid. From now on you will be catching people alive." 
 When they had brought their boats to land, they left everything, and followed him. 
 While he was in one of the cities, look, there was a man full of leprosy. When he saw Jesus, he fell on his face and begged him, saying, "Lord, if you want to, you can make me clean." 

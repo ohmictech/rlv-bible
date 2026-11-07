@@ -1,4 +1,4 @@
-﻿Therefore you are without excuse, O man, whoever you are who judge. For in that which you judge another, you sentence yourself. For you who judge practice the same things. 
+﻿So you are without excuse, O man, whoever you are who judge. In that which you judge another, you sentence yourself. You who judge practice the same things. 
 We know that the verdict of God is according to truth against those who practice such things. 
 Do you think this, O man who judges those who practice such things, and do the same, that you will escape the verdict of God? 
 Or do you despise the riches of his goodness, forbearance, and patience, not knowing that the goodness of God leads you to a change of heart? 
@@ -8,9 +8,9 @@ to those who by perseverance in well-doing seek for weight, honor, and incorrupt
 but to those who are self-seeking and don't obey the truth, but obey wrong, will be heat and flare, 
 pressure, and anguish on every person who does bad, to the Jewish person first, and also to the Greek. 
 But weight, honor, and wholeness go to every person who does good, to the Jewish person first, and also to the Greek. 
-For there is no partiality with God. 
-For as many as have drifted without the law will also be broken up without the law. As many as have drifted under the law will be judged by the law. 
-For it isn't the hearers of the law who are right before God, but the doers of the law will be made right 
+There is no partiality with God. 
+As many as have drifted without the law will also be broken up without the law. As many as have drifted under the law will be judged by the law. 
+It isn't the hearers of the law who are right before God, but the doers of the law will be made right 
 (for when the nations who don't have the law do by nature the things of the law, these, not having the law, are a law to themselves, 
 in that they show the deed of the law written in their hearts, their conscience witnessing with them, and their thoughts among themselves accusing or else excusing them) 
 in the day when God will judge the secrets of people, according to my Good News, by Jesus Christ. 
@@ -21,9 +21,9 @@ a corrector of the foolish, a teacher of babies, having in the law the form of k
 You therefore who teach another, don't you teach yourself? You who tell others not to steal, do you steal? 
 You who say a man shouldn't sleep around, do you sleep around? You who abhor idols, do you rob temples? 
 You who boast in the law, do you dishonor God by disobeying the law? 
-For "the name of God is slandered among the nations because of you," just as it is written. 
-For circumcision indeed profits, if you are a doer of the law, but if you break the law, you might as well not be circumcised. 
+"the name of God is slandered among the nations because of you," just as it is written. 
+Circumcision indeed profits, if you are a doer of the law, but if you break the law, you might as well not be circumcised. 
 If therefore those who are not circumcised keep what the law rightly requires, won't their not being circumcised be counted as circumcision? 
 Won't those who are physically uncircumcised, but fulfill the law, judge you, who with the letter and circumcision break the law? 
-For he is not a Jew who is one outwardly, neither is that circumcision which is outward in the flesh; 
+He is not a Jew who is one outwardly, neither is that circumcision which is outward in the flesh; 
 but he is a Jew who is one inwardly, and circumcision is that of the heart, in the spirit, not in the letter; whose praise is not from men, but from God. 

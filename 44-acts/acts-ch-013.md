@@ -15,7 +15,7 @@ But they, passing on from Perga, came to Antioch of Pisidia. They went into the 
 After the reading of the law and the prophets, the rulers of the gathering place sent to them, saying, "Brothers, if you have any word of encouragement for the people, speak." 
 Paul stood up, and gesturing with his hand said, "Men of Israel, and you who are in awe of God, listen. 
 The God of this people chose our fathers, and exalted the people when they stayed as aliens in the land of Egypt, and with an uplifted arm, he led them out of it. 
-For a period of about forty years he put up with them in the wilderness. 
+A period of about forty years he put up with them in the wilderness. 
 When he had overthrown seven nations in the land of Canaan, he gave them their land for an inheritance for about four hundred fifty years. 
 After these things, he gave them judges until Samuel the spokesman. 
 Afterward they asked for a king, and God gave to them Saul the son of Kish, a man of the tribe of Benjamin, for forty years. 
@@ -24,7 +24,7 @@ From this man's offspring, God has brought rescue to Israel according to his pro
 before his coming, when John had first announced the immersion of a change of heart to Israel. 
 As John was fulfilling his course, he said, 'What do you suppose that I am? I am not he. But look, one comes after me, the sandals of whose feet I am not worthy to untie.' 
 "Brothers, children of the stock of Abraham, and those among you who are in awe of God, the word of this rescue is sent out to you. 
-For those who dwell in Jerusalem, and their rulers, because they didn't know him, nor the voices of the spokesmen which are read every Sabbath, fulfilled them by condemning him. 
+Those who dwell in Jerusalem, and their rulers, because they didn't know him, nor the voices of the spokesmen which are read every Sabbath, fulfilled them by condemning him. 
 Though they found no cause for death, they still asked Pilate to have him killed. 
 When they had fulfilled all things that were written about him, they took him down from the tree and laid him in a tomb. 
 But God raised him from the dead, 
@@ -32,8 +32,8 @@ and he was seen for many days by those who came up with him from Galilee to Jeru
 We bring you good news of the promise made to the fathers, 
 that God has fulfilled this to us, their children, in that he raised up Jesus. As it is also written in the second psalm, 'You are my Son. Today I have become your father.' 
 "Concerning that he raised him up from the dead, now no more to return to corruption, he has spoken thus: 'I will give you the set-apart and sure blessings of David.' 
-Therefore he says also in another psalm, 'You will not allow your set-apart One to see decay.' 
-For David, after he had in his own generation served the counsel of God, fell asleep, was laid with his fathers, and saw decay. 
+So he says also in another psalm, 'You will not allow your set-apart One to see decay.' 
+David, after he had in his own generation served the counsel of God, fell asleep, was laid with his fathers, and saw decay. 
 But he whom God raised up saw no decay. 
 Be it known to you therefore, brothers, that through this man is proclaimed to you release of mistakes; 
 and by him everyone who trusts is made right from all things, from which you could not be made right by the law of Moses. 
@@ -44,7 +44,7 @@ Now when the gathering place broke up, many of the Jewish people and of the devo
 The next Sabbath, almost the whole city was gathered together to hear the word of God. 
 But when the Jewish people saw the crowds, they were filled with jealousy, and contradicted the things which were spoken by Paul, and slandered. 
 Paul and Barnabas spoke out boldly, and said, "It was necessary that God's word should be spoken to you first. Since indeed you thrust it from yourselves, and judge yourselves unworthy of the real life of the era, look, we turn to the nations. 
-For so has the Lord commanded us, saying, 'I have set you as a light for the nations, that you should bring rescue to the uttermost parts of the land.'" 
+So has the Lord commanded us, saying, 'I have set you as a light for the nations, that you should bring rescue to the uttermost parts of the land.'" 
 As the nations heard this, they were glad and gave honor to the word of God. As many as were appointed to the real life of the era trusted. 
 The Lord's word was spread abroad throughout all the region. 
 But the Jewish people stirred up the devout and prominent women and the chief men of the city, and stirred up a persecution against Paul and Barnabas, and threw them out of their borders. 

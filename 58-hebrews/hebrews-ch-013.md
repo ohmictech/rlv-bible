@@ -8,10 +8,10 @@ Remember your leaders, the ones who spoke God's message to you, and look at how 
 Jesus Christ is the same yesterday, today, and for the eras. 
 Don't be carried away by all kinds of strange teachings. It is good for the heart to be made firm by favor, not by rules about food, which never did anyone any good. 
 We have an altar, and those who serve in the tent have no right to eat from it. 
-For the bodies of those animals, whose blood is brought into the Holy Place by the high priest as an offering for wrongdoing, are burned outside of the camp. 
+The bodies of those animals, whose blood is brought into the Holy Place by the high priest as an offering for wrongdoing, are burned outside of the camp. 
 That is why Jesus also, so that he might set the people apart through his own blood, suffered outside of the gate. 
 So let us go out to him, outside of the camp, carrying the shame he carried. 
-For we don't have here a lasting city, but we are looking for the one that is coming. 
+We don't have here a lasting city, but we are looking for the one that is coming. 
 Through him, then, let us always offer God a sacrifice of praise, that is, the fruit of lips that openly declare his name. 
 But don't forget to do good and to share, because God is pleased with sacrifices like that. 
 Do what your leaders tell you and follow them, because they keep watch over your life, as those who will have to give an account, so that they may do this with joy and not with groaning, because that would be no help to you. 

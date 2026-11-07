@@ -3,12 +3,12 @@ You are our letter, written in our hearts, known and read by everyone,
 shown to be a letter of Christ, delivered by us, written not with ink but with the Spirit of the living God; not on tablets of stone, but on tablets that are hearts of flesh. 
 Such confidence we have through Christ toward God, 
 not that we are sufficient of ourselves to account anything as from ourselves; but our sufficiency is from God, 
-who also made us able as servants of a new binding arrangement, not of the letter but of the Spirit. For the letter kills, but the Spirit makes alive. 
+who also made us able as servants of a new binding arrangement, not of the letter but of the Spirit. The letter kills, but the Spirit makes alive. 
 But if the service of death, engraved in letters on stones, came with weight, so that the people of Israel could not look steadily at Moses' face because of the weight of his face, which was passing away, 
 won't the service of the Spirit be with much more weight? 
-For if the service that sentences has weight, the service of rightness has far more weight. 
-For what was given weight in that case has no weight at all in this respect, because of the weight that surpasses it. 
-For if what passes away came with weight, much more does what remains come with weight. 
+If the service that sentences has weight, the service of rightness has far more weight. 
+What was given weight in that case has no weight at all in this respect, because of the weight that surpasses it. 
+If what passes away came with weight, much more does what remains come with weight. 
 Since we have such an expectation, we speak with great openness, 
 and not like Moses, who put a covering over his face so the people of Israel wouldn't look steadily at the end of what was passing away. 
 But their minds were hardened, for to this very day, when the old binding arrangement is read, the same covering remains, because it is only in Christ that it is taken away. 

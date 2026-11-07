@@ -39,7 +39,7 @@ I say the things which I have seen with my Father; and you also do the things wh
 They answered him, "Our father is Abraham." Jesus said to them, "If you were Abraham's children, you would do the deeds of Abraham. 
 But now you seek to kill me, a man who has told you the truth which I heard from God. Abraham didn't do this. 
 You do the deeds of your father." They said to him, "We were not born out of wedlock. We have one Father, God." 
-Therefore Jesus said to them, "If God were your father, you would love me, for I came out and have come from God. For I haven't come of myself, but he sent me. 
+So Jesus said to them, "If God were your father, you would love me, for I came out and have come from God. I haven't come of myself, but he sent me. 
 Why don't you understand my speech? Because you can't hear my word. 
 You are of your father the Slanderer, and you want to do the desires of your father. He was a murderer from the beginning, and doesn't stand in the truth, because there is no truth in him. When he speaks a lie, he speaks on his own; for he is a liar, and the father of lies. 
 But because I tell the truth, you don't trust me. 
@@ -56,4 +56,4 @@ You have not known him, but I know him. If I said, 'I don't know him,' I would b
 Your father Abraham celebrated to see my day. He saw it and was glad." 
 The Jewish leaders therefore said to him, "You are not yet fifty years old! Have you seen Abraham?" 
 Jesus said to them, "Truly I tell you, before Abraham came into existence, I am." 
-Therefore they took up stones to throw at him, but Jesus hid himself and went out of the temple courts, passing right through the middle of them. 
+So they took up stones to throw at him, but Jesus hid himself and went out of the temple courts, passing right through the middle of them. 

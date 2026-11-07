@@ -1,12 +1,12 @@
 ﻿Then what advantage does the Jew have? Or what is the profit of circumcision? 
 Much in every way! Because first of all, they were entrusted with the revelations of God. 
-For what if some were without trust? Will their lack of trust make useless the faithfulness of God? 
+What if some were without trust? Will their lack of trust make useless the faithfulness of God? 
 May it never be! Yes, let God be found true, but every man a liar. As it is written, "so that you would be made right in your words, and would prevail when you come into the verdict." 
 But if our wrong commends the rightness of God, what will we say? Is God wrong who inflicts heat? I speak like men do. 
-May it never be! For then how will God judge the world? 
-For if God's truth through my lie overflowed to his weight, why am I also still judged as one who drifts? 
+May it never be! Then how will God judge the world? 
+If God's truth through my lie overflowed to his weight, why am I also still judged as one who drifts? 
 Why not (as we are slanderously reported, and as some affirm that we say), "Let's do bad, that good may come?" Their sentence is just. 
-What then? Are we better than they? No, in no way. For we previously warned both Jewish people and Greeks that they are all under the drift. 
+What then? Are we better than they? No, in no way. We previously warned both Jewish people and Greeks that they are all under the drift. 
 As it is written, "There is no one right; no, not one. 
 There is no one who understands. There is no one who seeks after God. 
 They have all turned away. They have together become unprofitable. There is no one who does good, no, not so much as one." 
@@ -19,7 +19,7 @@ The way of wholeness, they haven't known."
 Now we know that whatever things the law says, it speaks to those who are under the law, that every mouth may be closed, and all the world may be brought under the verdict of God. 
 Because by the deeds of the law, no flesh will be made right in his sight; for through the law comes the knowledge of the drift. 
 But now apart from the law, the rightness of God has been revealed, being testified by the law and the prophets; 
-even the rightness of God through trust in Jesus Christ to all and on everyone who trusts. For there is no distinction, 
+even the rightness of God through trust in Jesus Christ to all and on everyone who trusts. There is no distinction, 
 for all have drifted, and fall short of the weight of God; 
 being made right freely by his favor through the setting free that is in Christ Jesus, 
 whom God sent to be a mercy seat through trust in his blood, for a demonstration of his rightness through the overlooking of prior mistakes, in God's forbearance; 

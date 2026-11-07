@@ -14,8 +14,8 @@ Those on the rock are they who, when they hear, receive the word with joy; but t
 What fell among the thorns, these are those who have heard, and as they go on their way they are choked with worries, riches, and pleasures of life; and they bring no fruit to maturity. 
 Those in the good ground, these are those who with an honest and good heart, having heard the word, hold on to it, and produce fruit with patience. 
 "No one who lights a lamp covers it with a container or puts it under a bed. He puts it on a stand, so that those who come in can see the light. 
-For nothing is hidden that will not be revealed, nor anything secret that will not be known and come to light. 
-Be careful therefore how you hear. For whoever has, more will be given to him; and whoever doesn't have, even that which he thinks he has will be taken away from him." 
+Nothing is hidden that will not be revealed, nor anything secret that will not be known and come to light. 
+Be careful therefore how you hear. Whoever has, more will be given to him; and whoever doesn't have, even that which he thinks he has will be taken away from him." 
 His mother and brothers came to him, and they could not come near him because of the crowd. 
 Someone told him, "Your mother and your brothers stand outside, wanting to see you." 
 But he answered them, "My mother and my brothers are those who hear the word of God and do it." 
@@ -26,7 +26,7 @@ He said to them, "Where is your trust?" They were afraid and amazed, saying to o
 Then they arrived at the region of the Gadarenes, which is opposite Galilee. 
 When Jesus stepped ashore, a certain man out of the city who had unclean spirits for a long time met him. He wore no clothes, and didn't live in a house, but in the tombs. 
 When he saw Jesus, he cried out and fell down before him, and with a loud voice said, "What do I have to do with you, Jesus, you Son of the Most High God? I beg you, don't put me in anguish!" 
-For Jesus was commanding the unclean spirit to come out of the man. For the unclean spirit had often seized the man. He was kept under guard and bound with chains and shackles. Breaking the shackles apart, he was driven by the unclean spirit into the wilderness. 
+Jesus was commanding the unclean spirit to come out of the man. The unclean spirit had often seized the man. He was kept under guard and bound with chains and shackles. Breaking the shackles apart, he was driven by the unclean spirit into the wilderness. 
 Jesus asked him, "What is your name?" He said, "Legion," for many unclean spirits had entered into him. 
 They begged him that he would not command them to go into the abyss. 
 Now a large herd of pigs was feeding on the mountain there, and they begged him that he would allow them to enter into those. Then he allowed them. 

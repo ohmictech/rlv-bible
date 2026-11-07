@@ -7,10 +7,10 @@ I am amazed that you are so quickly turning away from the one who called you by 
 but there isn't another "good news." Only there are some who are troubling you and want to twist the Good News of Christ. 
 But even if we, or a messenger from the sky, announce to you any "good news" other than what we announced to you, let him be given over. 
 As we said before, so I say again now: if anyone announces to you any "good news" other than what you received, let him be given over. 
-For am I now seeking people's favor, or God's? Or am I trying to please people? For if I were still pleasing people, I wouldn't be Christ's servant. 
+Am I now seeking people's favor, or God's? Or am I trying to please people? If I were still pleasing people, I wouldn't be Christ's servant. 
 But I want you to know, brothers, that the Good News I announced is not by human standards. 
-For I didn't receive it from a person, nor was I taught it, but it came to me through an unveiling of Jesus Christ. 
-For you have heard of my way of living in time past in the Jewish religion, how I hunted down the gathering of God beyond measure and wrecked it. 
+I didn't receive it from a person, nor was I taught it, but it came to me through an unveiling of Jesus Christ. 
+You have heard of my way of living in time past in the Jewish religion, how I hunted down the gathering of God beyond measure and wrecked it. 
 I was getting ahead in the Jewish religion beyond many of my own age among my people, being far more eager for what my ancestors handed down. 
 But when God was pleased, the one who set me apart from my mother's womb and called me by his favor, 
 to unveil his Son in me, so that I might announce him among the nations, I didn't go straight to any human being for advice, 

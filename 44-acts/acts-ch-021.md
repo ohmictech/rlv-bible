@@ -10,7 +10,7 @@ Now this man had four virgin daughters who spoke for God.
 As we stayed there some days, a certain spokesman named Agabus came down from Judea. 
 Coming to us and taking Paul's belt, he bound his own feet and hands, and said, "The Holy Spirit says: 'So the Jewish leaders at Jerusalem will bind the man who owns this belt, and will hand him over into the hands of the nations.'" 
 When we heard these things, both we and the people of that place begged him not to go up to Jerusalem. 
-Then Paul answered, "What are you doing, weeping and breaking my heart? For I am ready not only to be bound, but also to die at Jerusalem for the name of the Lord Jesus." 
+Then Paul answered, "What are you doing, weeping and breaking my heart? I am ready not only to be bound, but also to die at Jerusalem for the name of the Lord Jesus." 
 When he would not be persuaded, we ceased, saying, "The Lord's will be done." 
 After these days we took up our baggage and went up to Jerusalem. 
 Some of the students from Caesarea also went with us, bringing one Mnason of Cyprus, an early student, with whom we would stay. 
@@ -20,13 +20,13 @@ When he had greeted them, he reported one by one the things which God had worked
 They, when they heard it, gave honor to God. They said to him, "You see, brother, how many thousands there are among the Jewish people of those who have trusted, and they are all devoted to the law. 
 They have been informed about you, that you teach all the Jewish people who are among the nations to forsake Moses, telling them not to circumcise their children and not to walk after the customs. 
 What then? The gathering must certainly meet, for they will hear that you have come. 
-Therefore do what we tell you. We have four men who have taken a vow. 
+So do what we tell you. We have four men who have taken a vow. 
 Take them and purify yourself with them, and pay their expenses for them, that they may shave their heads. Then all will know that there is no truth in the things that they have been informed about you, but that you yourself also walk keeping the law. 
 But concerning the nations who trust, we have written our decision that they should observe no such thing, except that they should keep themselves from food offered to idols, from blood, from strangled things, and from sleeping around." 
 Then Paul took the men, and the next day purified himself and went with them into the temple courts, declaring the fulfillment of the days of washing, until the offering was offered for every one of them. 
 When the seven days were almost completed, the Jewish leaders from Asia, when they saw him in the temple courts, stirred up all the crowd and laid hands on him, 
 crying out, "Men of Israel, help! This is the man who teaches everyone everywhere against the people, and the law, and this place. Moreover, he also brought Greeks into the temple courts and has made this set-apart place unclean!" 
-For they had seen Trophimus the Ephesian with him in the city, and they supposed that Paul had brought him into the temple. 
+They had seen Trophimus the Ephesian with him in the city, and they supposed that Paul had brought him into the temple. 
 All the city was moved and the people ran together. They seized Paul and dragged him out of the temple courts. Immediately the doors were shut. 
 As they were trying to kill him, news came up to the commanding officer of the regiment that all Jerusalem was in an uproar. 
 Immediately he took soldiers and centurions and ran down to them. They, when they saw the chief captain and the soldiers, stopped beating Paul. 

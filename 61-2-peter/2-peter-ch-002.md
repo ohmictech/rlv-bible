@@ -1,7 +1,7 @@
 ﻿But there were also false spokesmen among the people, just as there will be false teachers among you. They will quietly bring in destructive factions, and they will even deny the Master who bought them, bringing quick ruin on themselves. 
 Many will follow their shameless ways, and because of them the way of truth will be slandered. 
 In their greed they will make money off you with made-up stories. Their verdict was decided long ago and is not idle, and their ruin never sleeps. 
-For God did not spare the messengers when they made their wrongdoing, but threw them into the deepest darkness and kept them there for the verdict; 
+God did not spare the messengers when they made their wrongdoing, but threw them into the deepest darkness and kept them there for the verdict; 
 and he did not spare the ancient world either, but he kept Noah, who announced what was right, along with seven others, when he brought the flood on a world of people who disregarded God, 
 and turning the cities of Sodom and Gomorrah into ashes, he passed sentence on them, making them an example to those who would later disregard God, 
 and rescued upright Lot, who was worn down by the shameless way those lawbreakers lived 
@@ -16,7 +16,7 @@ They have left the straight road and gone astray. They have followed the way of 
 but he was corrected for his own lawbreaking. A donkey that could not speak talked with a human voice and stopped the spokesman's madness. 
 These people are springs without water, mists driven by a storm. The deepest darkness has been kept for them for the eras. 
 They talk big and say empty things, and by the cravings of the flesh and by shameless living they lure back those who are just now escaping from people who live in error. 
-They promise freedom while they themselves are slaves of decay. For you are a slave to whatever has defeated you. 
+They promise freedom while they themselves are slaves of decay. You are a slave to whatever has defeated you. 
 If people have escaped the filth of the world by knowing our Lord and Restorer Jesus Christ, and then get tangled up in it again and are defeated, they end up worse off than they were at first. 
 It would have been better for them never to have known the way of rightness than to know it and then turn their backs on the set-apart command they were given. 
 What the true proverb says has happened to them: "A dog goes back to its own vomit," and, "A pig that has been washed goes back to roll in the mud." 

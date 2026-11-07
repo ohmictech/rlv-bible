@@ -1,11 +1,11 @@
-﻿Therefore when the Lord knew that the strict religious ones had heard that Jesus was making and immersing more students than John 
+﻿So when the Lord knew that the strict religious ones had heard that Jesus was making and immersing more students than John 
 (although Jesus himself didn't immerse, but his students), 
 he left Judea and departed into Galilee. 
 He needed to pass through Samaria. 
 So he came to a city of Samaria called Sychar, near the parcel of ground that Jacob gave to his son Joseph. 
 Jacob's well was there. Jesus therefore, being tired from his journey, sat down by the well. It was about noon. 
 A woman of Samaria came to draw water. Jesus said to her, "Give me a drink." 
-For his students had gone away into the city to buy food. 
+His students had gone away into the city to buy food. 
 The Samaritan woman therefore said to him, "How is it that you, being a Jew, ask for a drink from me, a Samaritan woman?" (For Jews have no dealings with Samaritans.) 
 Jesus answered her, "If you knew the gift of God, and who it is who says to you, 'Give me a drink,' you would have asked him, and he would have given you living water." 
 The woman said to him, "Sir, you have nothing to draw with, and the well is deep. So where do you get that living water? 
@@ -34,14 +34,14 @@ The students therefore said to one another, "Has anyone brought him something to
 Jesus said to them, "My food is to do the will of him who sent me and to finish his work. 
 Don't you say, 'There are yet four months until the harvest'? Look, I tell you, lift up your eyes and look at the fields: they are already ripe for harvest. 
 The one who reaps earns wages and gathers fruit for the real life of the era, so that the one who sows and the one who reaps may celebrate together. 
-For in this the saying is true, 'One sows, and another reaps.' 
+In this the saying is true, 'One sows, and another reaps.' 
 I sent you to reap what you haven't worked for. Others have done the work, and you have stepped into their work." 
 From that city many of the Samaritans trusted in him because of the word of the woman, who testified, "He told me everything that I have done." 
 So when the Samaritans came to him, they begged him to stay with them. He stayed there two days. 
 Many more trusted because of his word. 
 They said to the woman, "Now we trust, not because of your speaking; for we have heard for ourselves, and know that this is indeed the Christ, the Restorer of the world." 
 After the two days he went out from there and went into Galilee. 
-For Jesus himself testified that a spokesman has no honor in his own hometown. 
+Jesus himself testified that a spokesman has no honor in his own hometown. 
 So when he came into Galilee, the Galileans welcomed him, having seen all the things that he did in Jerusalem at the feast, for they also went to the feast. 
 Jesus came therefore again to Cana of Galilee, where he made the water into wine. There was a certain royal official whose son was sick at Capernaum. 
 When he heard that Jesus had come out of Judea into Galilee, he went to him and begged him to come down and heal his son, for he was at the point of death. 

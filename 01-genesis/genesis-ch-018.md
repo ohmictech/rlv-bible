@@ -15,7 +15,7 @@ Is anything too hard for God? At the set time I will return to you, when the sea
 Then Sarah denied it, saying, "I didn't laugh," for she was afraid. He said, "No, but you did laugh." 
 The men rose up from there, and looked toward Sodom. Abraham went with them to see them on their way. 
 God said, "Will I hide from Abraham what I do, 
-mistakece Abraham will surely become a great and mighty nation, and all the nations of the earth will be blessed in him? 
+since Abraham will surely become a great and mighty nation, and all the nations of the earth will be blessed in him? 
 For I have known him, to the end that he may command his children and his household after him, that they may keep the way of God, to do righteousness and justice; to the end that God may bring on Abraham that which he has spoken of him." 
 God said, "Because the cry of Sodom and Gomorrah is great, and because their mistake is very grievous, 
 I will go down now, and see whether their deeds are as bad as the reports which have come to me. If not, I will know." 

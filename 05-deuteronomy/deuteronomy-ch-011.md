@@ -23,10 +23,10 @@ For if you shall diligently keep all these commandments which I command you, to 
 then God will drive out all these nations from before you, and you shall dispossess nations greater and mightier than yourselves. 
 Every place on which the sole of your foot treads shall be yours: from the wilderness and Lebanon, from the river, the river Euphrates, even to the western sea shall be your border. 
 No man will be able to stand before you. Your God will lay the fear of you and the dread of you on all the land that you tread on, as he has spoken to you. 
-Behold, I set before you today a blesmistakeg and a curse: 
-the blesmistakeg, if you listen to the commandments of your God, which I command you today; 
+Behold, I set before you today a blessing and a curse: 
+the blessing, if you listen to the commandments of your God, which I command you today; 
 and the curse, if you do not listen to the commandments of your God, but turn away out of the way which I command you today, to go after other gods which you have not known. 
-It shall happen, when your God brings you into the land that you go to possess, that you shall set the blesmistakeg on Mount Gerizim, and the curse on Mount Ebal. 
+It shall happen, when your God brings you into the land that you go to possess, that you shall set the blessing on Mount Gerizim, and the curse on Mount Ebal. 
 Aren't they beyond the Jordan, behind the way of the going down of the sun, in the land of the Canaanites who dwell in the Arabah near Gilgal, beside the oaks of Moreh? 
 For you are to pass over the Jordan to go in to possess the land which your God gives you, and you shall possess it and dwell in it. 
 You shall observe to do all the statutes and the ordinances which I set before you today. 

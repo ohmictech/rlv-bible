@@ -1,6 +1,6 @@
 ﻿"You shall make the altar of acacia wood, five cubits long, and five cubits wide. The altar shall be square. Its height shall be three cubits. 
 You shall make its horns on its four corners. Its horns shall be of one piece with it. You shall overlay it with bronze. 
-You shall make its pots to take away its ashes; and its shovels, its bamistakes, its meat hooks, and its fire pans. You shall make all its vessels of bronze. 
+You shall make its pots to take away its ashes; and its shovels, its basins, its meat hooks, and its fire pans. You shall make all its vessels of bronze. 
 You shall make a grating for it of network of bronze. On the net you shall make four bronze rings in its four corners. 
 You shall put it under the ledge around the altar beneath, that the net may reach halfway up the altar. 
 You shall make poles for the altar, poles of acacia wood, and overlay them with bronze. 

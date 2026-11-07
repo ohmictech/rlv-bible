@@ -23,11 +23,11 @@ He answered, "You shall not strike them. Would you strike those whom you have ta
 He prepared a great feast for them. After they ate and drank, he sent them away and they went to their master. So the bands of Syria stopped raiding the land of Israel. 
 After this, Benhadad king of Syria gathered all his army, and went up and besieged Samaria. 
 There was a great famine in Samaria. Behold, they besieged it until a donkey's head was sold for eighty pieces of silver, and the fourth part of a kab of dove's dung for five pieces of silver. 
-As the king of Israel was pasmistakeg by on the wall, a woman cried to him, saying, "Help, my lord, O king!" 
+As the king of Israel was passing by on the wall, a woman cried to him, saying, "Help, my lord, O king!" 
 He said, "If God doesn't help you, where could I get help for you? From the threshing floor, or from the wine press?" 
 Then the king asked her, "What is your problem?" She answered, "This woman said to me, 'Give your son, that we may eat him today, and we will eat my son tomorrow.' 
 So we boiled my son and ate him; and I said to her on the next day, 'Give up your son, that we may eat him;' and she has hidden her son." 
-When the king heard the words of the woman, he tore his clothes. Now he was pasmistakeg by on the wall, and the people looked, and behold, he had sackcloth underneath on his body. 
+When the king heard the words of the woman, he tore his clothes. Now he was passing by on the wall, and the people looked, and behold, he had sackcloth underneath on his body. 
 Then he said, "God do so to me, and more also, if the head of Elisha the son of Shaphat stays on him today." 
 But Elisha was sitting in his house, and the elders were sitting with him. Then the king sent a man from before him; but before the messenger came to him, he said to the elders, "Do you see how this son of a murderer has sent to take away my head? Behold, when the messenger comes, shut the door, and hold the door shut against him. Isn't the sound of his master's feet behind him?" 
 While he was still talking with them, behold, the messenger came down to him. Then he said, "Behold, this bad is from God. Why should I wait for God any longer?" 

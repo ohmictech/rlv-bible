@@ -22,7 +22,7 @@ Produce your cause," says God. "Bring out your strong reasons!" says the King of
 "Let them announce and declare to us what will happen! Declare the former things, what they are, that we may consider them, and know the latter end of them; or show us things to come. 
 Declare the things that are to come hereafter, that we may know that you are gods. Yes, do good, or do bad things, that we may be dismayed, and see it together. 
 Behold, you are nothing, and your work is nothing. He who chooses you is an abomination. 
-"I have raised up one from the north, and he has come, from the rimistakeg of the sun, one who calls on my name, and he shall come on rulers as on mortar, and as the potter treads clay. 
+"I have raised up one from the north, and he has come, from the rising of the sun, one who calls on my name, and he shall come on rulers as on mortar, and as the potter treads clay. 
 Who has declared it from the beginning, that we may know? and before, that we may say, 'He is right'? Surely, there is no one who declares. Surely, there is no one who shows. Surely, there is no one who hears your words. 
 I am the first to say to Zion, 'Behold, look at them;' and I will give one who brings good news to Jerusalem. 
 When I look, there is no man, even among them there is no counselor who, when I ask, can answer a word. 

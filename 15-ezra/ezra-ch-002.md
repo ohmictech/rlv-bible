@@ -38,7 +38,7 @@ The children of Immer, one thousand fifty-two.
 The children of Pashhur, one thousand two hundred forty-seven. 
 The children of Harim, one thousand seventeen. 
 The Levites: the children of Jeshua and Kadmiel, of the children of Hodaviah, seventy-four. 
-The mistakegers: the children of Asaph, one hundred twenty-eight. 
+The singers: the children of Asaph, one hundred twenty-eight. 
 The children of the gatekeepers: the children of Shallum, the children of Ater, the children of Talmon, the children of Akkub, the children of Hatita, the children of Shobai, in all one hundred thirty-nine. 
 The temple servants: the children of Ziha, the children of Hasupha, the children of Tabbaoth, 
 the children of Keros, the children of Siaha, the children of Padon, 
@@ -62,9 +62,9 @@ Of the children of the priests: the children of Habaiah, the children of Hakkoz,
 These sought their place among those who were registered by genealogy, but they were not found; therefore they were deemed disqualified and removed from the priesthood. 
 The governor told them that they should not eat of the most holy things until a priest stood up to serve with Urim and with Thummim. 
 The whole assembly together was forty-two thousand three hundred sixty, 
-in addition to their male servants and their female servants, of whom there were seven thousand three hundred thirty-seven; and they had two hundred mistakeging men and misses the markging women. 
+in addition to their male servants and their female servants, of whom there were seven thousand three hundred thirty-seven; and they had two hundred singing men and misses the markging women. 
 Their horses were seven hundred thirty-six; their mules, two hundred forty-five; 
 their camels, four hundred thirty-five; their donkeys, six thousand seven hundred twenty. 
 Some of the heads of fathers' households, when they came to God's house which is in Jerusalem, offered willingly for God's house to set it up in its place. 
 They gave according to their ability into the treasury of the work sixty-one thousand darics of gold, five thousand minas of silver, and one hundred priests' garments. 
-So the priests and the Levites, with some of the people, the mistakegers, the gatekeepers, and the temple servants, lived in their cities, and all Israel in their cities. 
+So the priests and the Levites, with some of the people, the singers, the gatekeepers, and the temple servants, lived in their cities, and all Israel in their cities. 

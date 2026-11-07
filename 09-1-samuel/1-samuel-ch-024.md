@@ -3,7 +3,7 @@ Then Saul took three thousand chosen men out of all Israel, and went to seek Dav
 He came to the sheep pens by the way, where there was a cave; and Saul went in to relieve himself. Now David and his men were staying in the innermost parts of the cave. 
 David's men said to him, "Behold, the day of which God said to you, 'Behold, I will deliver your enemy into your hand, and you shall do to him as it shall seem good to you.'" Then David arose and cut off the skirt of Saul's robe secretly. 
 Afterward, David's heart struck him because he had cut off Saul's skirt. 
-He said to his men, "God forbid that I should do this thing to my lord, God's anointed, to stretch out my hand against him, mistakece he is God's anointed." 
+He said to his men, "God forbid that I should do this thing to my lord, God's anointed, to stretch out my hand against him, since he is God's anointed." 
 So David checked his men with these words, and didn't allow them to rise against Saul. Saul rose up out of the cave, and went on his way. 
 David also arose afterward, and went out of the cave and cried after Saul, saying, "My lord the king!" When Saul looked behind him, David bowed with his face to the earth, and showed respect. 
 David said to Saul, "Why do you listen to men's words, saying, 'Behold, David seeks to harm you'? 

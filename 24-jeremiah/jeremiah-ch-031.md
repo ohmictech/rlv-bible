@@ -4,7 +4,7 @@ God appeared of old to me, saying, "Yes, I have loved you with an perpetual love
 I will build you again, and you will be built, O virgin of Israel. You will again be adorned with your tambourines, and will go out in the dances of those who make merry. 
 Again you will plant vineyards on the mountains of Samaria. The planters will plant, and will enjoy its fruit. 
 For there will be a day that the watchmen on the hills of Ephraim cry, 'Arise! Let's go up to Zion to our God.'" 
-For God says, "Mistakeg with gladness for Jacob, and shout for the chief of the nations. Publish, praise, and say, 'God, save your people, the remnant of Israel!' 
+For God says, "Sing with gladness for Jacob, and shout for the chief of the nations. Publish, praise, and say, 'God, save your people, the remnant of Israel!' 
 Behold, I will bring them from the north country, and gather them from the uttermost parts of the earth, along with the blind and the lame, the woman with child and her who travails with child together. They will return as a great company. 
 They will come with weeping. I will lead them with petitions. I will cause them to walk by rivers of waters, in a straight way in which they won't stumble; for I am a father to Israel. Ephraim is my firstborn. 
 "Hear God's word, you nations, and declare it in the distant islands. Say, 'He who scattered Israel will gather him, and keep him, as a shepherd does his flock.' 

@@ -7,7 +7,7 @@ Take wives and father sons and daughters. Take wives for your sons, and give you
 Seek the peace of the city where I have caused you to be carried away captive, and pray to God for it; for in its peace you will have peace." 
 For the God of Armies, the God of Israel says: "Don't let your spokesmen who are among you and your diviners deceive you. Don't listen to your dreams which you cause to be dreamed. 
 For they prophesy falsely to you in my name. I have not sent them," says God. 
-For God says, "After seventy years are accomplished for Babylon, I will visit you and perform my good word toward you, in caumistakeg you to return to this place. 
+For God says, "After seventy years are accomplished for Babylon, I will visit you and perform my good word toward you, in causing you to return to this place. 
 For I know the thoughts that I think toward you," says God, "thoughts of peace, and not of bad, to give you hope and a future. 
 You shall call on me, and you shall go and pray to me, and I will listen to you. 
 You shall seek me and find me, when you search for me with all your heart. 
@@ -15,8 +15,8 @@ I will be found by you," says God, "and I will turn again your captivity, and I 
 Because you have said, "God has raised us up spokesmen in Babylon," 
 God says concerning the king who sits on David's throne, and concerning everyone who dwells in this city, your brothers who haven't gone with you into captivity, 
 the God of Armies says: "Behold, I will send on them the sword, the famine, and the pestilence, and will make them like rotten figs that can't be eaten, they are so bad. 
-I will pursue after them with the sword, with the famine, and with the pestilence, and will deliver them to be tossed back and forth among all the kingdoms of the earth, to be an object of horror, an astonishment, a hismistakeg, and a reproach among all the nations where I have driven them, 
-because they have not listened to my words," says God, "with which I sent to them my servants the spokesmen, rimistakeg up early and sending them; but you would not hear," says God. 
+I will pursue after them with the sword, with the famine, and with the pestilence, and will deliver them to be tossed back and forth among all the kingdoms of the earth, to be an object of horror, an astonishment, a hissing, and a reproach among all the nations where I have driven them, 
+because they have not listened to my words," says God, "with which I sent to them my servants the spokesmen, rising up early and sending them; but you would not hear," says God. 
 Hear therefore God's word, all you captives whom I have sent away from Jerusalem to Babylon. 
 The God of Armies, the God of Israel says concerning Ahab the son of Kolaiah, and concerning Zedekiah the son of Maaseiah, who prophesy a lie to you in my name: "Behold, I will deliver them into the hand of Nebuchadnezzar king of Babylon; and he will kill them before your eyes. 
 A curse will be taken up about them by all the captives of Judah who are in Babylon, saying, 'God make you like Zedekiah and like Ahab, whom the king of Babylon roasted in the fire;' 

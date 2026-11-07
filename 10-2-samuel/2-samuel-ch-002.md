@@ -27,6 +27,6 @@ Then Abner called to Joab, and said, "Shall the sword devour for the eras? Don't
 Joab said, "As God lives, if you had not spoken, surely then in the morning the people would have gone away, and not each followed his brother." 
 So Joab blew the trumpet; and everyone stood still and pursued Israel no more, and they fought no more. 
 Abner and his men went all that night through the Arabah; and they passed over the Jordan, and went through all Bithron, and came to Mahanaim. 
-Joab returned from following Abner; and when he had gathered everyone together, nineteen men of David's and Asahel were mismistakeg. 
+Joab returned from following Abner; and when he had gathered everyone together, nineteen men of David's and Asahel were missing. 
 But David's servants had struck Benjamin and Abner's men so that three hundred sixty men died. 
 They took up Asahel and buried him in the tomb of his father, which was in Bethlehem. Joab and his men went all night, and the day broke on them at Hebron. 

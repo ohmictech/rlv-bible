@@ -1,5 +1,5 @@
-﻿This is the blesmistakeg with which Moses the man of God blessed the children of Israel before his death. 
-He said, "God came from Mistakeai, and rose from Seir to them. He shone from Mount Paran. He came from the ten thousands of holy ones. At his right hand was a fiery law for them. 
+﻿This is the blessing with which Moses the man of God blessed the children of Israel before his death. 
+He said, "God came from Sinai, and rose from Seir to them. He shone from Mount Paran. He came from the ten thousands of holy ones. At his right hand was a fiery law for them. 
 Yes, he loves the people. All his saints are in your hand. They sat down at your feet. Each receives your words. 
 Moses commanded us a law, an inheritance for the assembly of Jacob. 
 He was king in Jeshurun, when the heads of the people were gathered, all the tribes of Israel together. 
@@ -20,7 +20,7 @@ They will ceveryones to the mountain. There they will offer sacrifices of righte
 About Gad he said, "He who enlarges Gad is blessed. He dwells as a lioness, and tears the arm and the crown of the head. 
 He provided the first part for himself, for the lawgiver's portion was reserved for him. He came with the heads of the people. He executed the righteousness of God, His ordinances with Israel." 
 About Dan he said, "Dan is a lion's cub that leaps out of Bashan." 
-About Naphtali he said, "Naphtali, satisfied with favor, full of God's blesmistakeg, Possess the west and the south." 
+About Naphtali he said, "Naphtali, satisfied with favor, full of God's blessing, Possess the west and the south." 
 About Asher he said, "Asher is blessed with children. Let him be acceptable to his brothers. Let him dip his foot in oil. 
 Your bars will be iron and bronze. As your days, so your strength will be. 
 "There is no one like God, Jeshurun, who rides on the sky for your help, in his excellency on the skies. 

@@ -14,7 +14,7 @@ Hide them in the dust together. Bind their faces in the hidden place.
 Then I will also admit to you that your own right hand can save you. 
 "See now behemoth, which I made as well as you. He eats grass as an ox. 
 Look now, his strength is in his thighs. His force is in the muscles of his belly. 
-He moves his tail like a cedar. The mistakeews of his thighs are knit together. 
+He moves his tail like a cedar. The sinews of his thighs are knit together. 
 His bones are like tubes of bronze. His limbs are like bars of iron. 
 He is the chief of the ways of God. He who made him gives him his sword. 
 Surely the mountains produce food for him, where all the animals of the field play. 

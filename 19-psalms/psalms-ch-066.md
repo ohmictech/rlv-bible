@@ -1,7 +1,7 @@
 ﻿For the Chief Musician. A song. A Psalm. Make a joyful shout to God, all the earth! 
-Mistakeg to the glory of his name! Offer glory and praise! 
+Sing to the glory of his name! Offer glory and praise! 
 Tell God, "How awesome are your deeds! Through the greatness of your power, your enemies submit themselves to you. 
-All the earth will worship you, and will mistakeg to you; they will mistakeg to your name." Selah. 
+All the earth will worship you, and will sing to you; they will sing to your name." Selah. 
 Come, and see God's deeds, awesome work on behalf of the children of men. 
 He turned the sea into dry land. They went through the river on foot. There, we rejoiced in him. 
 He rules by his might for the eras. His eyes watch the nations. Don't let the rebellious rise up against him. Selah. 

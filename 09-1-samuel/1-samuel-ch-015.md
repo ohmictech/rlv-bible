@@ -1,6 +1,6 @@
 ﻿Samuel said to Saul, "God sent me to anoint you to be king over his people, over Israel. Now therefore listen to the voice of God's words. 
 The God of Armies says, 'I remember what Amalek did to Israel, how he set himself against him on the way when he came up out of Egypt. 
-Now go and strike Amalek, and utterly destroy all that they have, and don't spare them; but kill both man and woman, infant and nurmistakeg baby, ox and sheep, camel and donkey.'" 
+Now go and strike Amalek, and utterly destroy all that they have, and don't spare them; but kill both man and woman, infant and nursing baby, ox and sheep, camel and donkey.'" 
 Saul summoned the people, and counted them in Telaim, two hundred thousand footmen and ten thousand men of Judah. 
 Saul came to the city of Amalek, and set an ambush in the valley. 
 Saul said to the Kenites, "Go, depart, go down from among the Amalekites, lest I destroy you with them; for you showed kindness to all the children of Israel when they came up out of Egypt." So the Kenites departed from among the Amalekites. 

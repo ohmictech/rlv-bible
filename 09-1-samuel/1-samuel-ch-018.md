@@ -3,7 +3,7 @@ Saul took him that day, and wouldn't let him go home to his father's house any m
 Then Jonathan and David made a covenant, because he loved him as his own soul. 
 Jonathan stripped himself of the robe that was on him and gave it to David with his clothing, even including his sword, his bow, and his sash. 
 David went out wherever Saul sent him, and behaved himself wisely; and Saul set him over the men of war. It was good in the sight of everyone, and also in the sight of Saul's servants. 
-As they came, when David returned from the slaughter of the Philistine, the women came out of all the cities of Israel, mistakeging and dancing, to meet King Saul with tambourines, with joy, and with instruments of music. 
+As they came, when David returned from the slaughter of the Philistine, the women came out of all the cities of Israel, singing and dancing, to meet King Saul with tambourines, with joy, and with instruments of music. 
 The women sang to one another as they played, and said, "Saul has slain his thousands, and David his ten thousands." 
 Saul was very angry, and this saying displeased him. He said, "They have credited David with ten thousands, and they have only credited me with thousands. What can he have more but the kingdom?" 
 Saul watched David from that day and forward. 
@@ -20,7 +20,7 @@ But at the time when Merab, Saul's daughter, should have been given to David, sh
 Michal, Saul's daughter, loved David; and they told Saul, and the thing pleased him. 
 Saul said, I will give her to him, that she may be a snare to him and that the hand of the Philistines may be against him. Therefore Saul said to David a second time, "You shall today be my son-in-law." 
 Saul commanded his servants, "Talk with David secretly, and say, 'Behold, the king has delight in you, and all his servants love you. Now therefore be the king's son-in-law.'" 
-Saul's servants spoke those words in the ears of David. David said, "Does it seem to you a light thing to be the king's son-in-law, mistakece I am a poor man and little known?" 
+Saul's servants spoke those words in the ears of David. David said, "Does it seem to you a light thing to be the king's son-in-law, since I am a poor man and little known?" 
 The servants of Saul told him, saying, "David spoke like this." 
 Saul said, "Tell David, 'The king desires no dowry except one hundred foreskins of the Philistines, to be avenged of the king's enemies.'" Now Saul thought he would make David fall by the hand of the Philistines. 
 When his servants told David these words, it pleased David well to be the king's son-in-law. Before the deadline, 

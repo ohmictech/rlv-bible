@@ -1,10 +1,10 @@
 ﻿The word that came to Jeremiah concerning all the Jews who lived in the land of Egypt, who lived at Migdol, and at Tahpanhes, and at Memphis, and in the country of Pathros, saying, 
 "The God of Armies, the God of Israel says: 'You have seen all the bad that I have brought on Jerusalem, and on all the cities of Judah. Behold, today they are a desolation, and no man dwells in them, 
 because of their guilt which they have committed to provoke me to anger, in that they went to burn incense, to serve other gods that they didn't know, neither they, nor you, nor your fathers. 
-However I sent to you all my servants the spokesmen, rimistakeg up early and sending them, saying, "Oh, don't do this abominable thing that I hate." 
+However I sent to you all my servants the spokesmen, rising up early and sending them, saying, "Oh, don't do this abominable thing that I hate." 
 But they didn't listen and didn't incline their ear. They didn't turn from their guilt, to stop burning incense to other gods. 
 Therefore my wrath and my anger was poured out, and was kindled in the cities of Judah and in the streets of Jerusalem; and they are wasted and desolate, as it is today.' 
-"Therefore now the God of Armies, the God of Israel says: 'Why do you commit great bad against your own souls, to cut off from yourselves man and woman, infant and nurmistakeg child out of the middle of Judah, to leave yourselves no one remaining, 
+"Therefore now the God of Armies, the God of Israel says: 'Why do you commit great bad against your own souls, to cut off from yourselves man and woman, infant and nursing child out of the middle of Judah, to leave yourselves no one remaining, 
 in that you provoke me to anger with the works of your hands, burning incense to other gods in the land of Egypt where you have gone to live, that you may be cut off, and that you may be a curse and a reproach among all the nations of the earth? 
 Have you forgotten the guilt of your fathers, the guilt of the kings of Judah, the guilt of their wives, your own guilt, and the guilt of your wives which they committed in the land of Judah and in the streets of Jerusalem? 
 They are not humbled even to this day, neither have they feared, nor walked in my law, nor in my statutes, that I set before you and before your fathers.' 
@@ -15,7 +15,7 @@ so that none of the remnant of Judah, who have gone into the land of Egypt to li
 Then all the men who knew that their wives burned incense to other gods, and all the women who stood by, a great assembly, even everyone who lived in the land of Egypt, in Pathros, answered Jeremiah, saying, 
 "As for the word that you have spoken to us in God's name, we will not listen to you. 
 But we will certainly perform every word that has gone out of our mouth, to burn incense to the queen of the sky and to pour out drink offerings to her, as we have done, we and our fathers, our kings and our princes, in the cities of Judah and in the streets of Jerusalem; for then we had plenty of food, and were well, and saw no bad. 
-But mistakece we stopped burning incense to the queen of the sky, and pouring out drink offerings to her, we have lacked all things, and have been consumed by the sword and by the famine." 
+But since we stopped burning incense to the queen of the sky, and pouring out drink offerings to her, we have lacked all things, and have been consumed by the sword and by the famine." 
 The women said, "When we burned incense to the queen of the sky and poured out drink offerings to her, did we make her cakes to worship her, and pour out drink offerings to her, without our husbands?" 
 Then Jeremiah said to everyone, to the men and to the women, even to everyone who had given him an answer, saying, 
 "The incense that you burned in the cities of Judah, and in the streets of Jerusalem, you and your fathers, your kings and your princes, and the people of the land, didn't God remember them, and didn't it come into his mind? 

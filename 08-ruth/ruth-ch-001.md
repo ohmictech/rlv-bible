@@ -18,5 +18,5 @@ Where you die, I will die, and there I will be buried. May God do so to me, and 
 When Naomi saw that she was determined to go with her, she stopped urging her. 
 So they both went until they came to Bethlehem. When they had come to Bethlehem, all the city was excited about them, and they asked, "Is this Naomi?" 
 She said to them, "Don't call me Naomi. Call me Mara, for the Almighty has dealt very bitterly with me. 
-I went out full, and God has brought me home again empty. Why do you call me Naomi, mistakece God has testified against me, and the Almighty has afflicted me?" 
+I went out full, and God has brought me home again empty. Why do you call me Naomi, since God has testified against me, and the Almighty has afflicted me?" 
 So Naomi returned, and Ruth the Moabitess, her daughter-in-law, with her, who returned out of the country of Moab. They came to Bethlehem in the beginning of barley harvest. 

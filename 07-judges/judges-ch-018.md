@@ -4,7 +4,7 @@ When they were by the house of Micah, they knew the voice of the young man the L
 He said to them, "Thus and thus has Micah dealt with me, and he has hired me, and I have become his priest." 
 They said to him, "Please ask counsel of God, that we may know whether our way which we go shall be prosperous." 
 The priest said to them, "Go in peace. Your way in which you go is before God." 
-Then the five men departed and came to Laish and saw the people who were there, how they lived in safety, in the way of the Sidonians, quiet and secure; for there was no one in the land possesmistakeg authority, that might put them to shame in anything, and they were far from the Sidonians, and had no dealings with anyone else. 
+Then the five men departed and came to Laish and saw the people who were there, how they lived in safety, in the way of the Sidonians, quiet and secure; for there was no one in the land possessing authority, that might put them to shame in anything, and they were far from the Sidonians, and had no dealings with anyone else. 
 They came to their brothers at Zorah and Eshtaol; and their brothers asked them, "What do you say?" 
 They said, "Arise, and let's go up against them; for we have seen the land, and behold, it is very good. Do you stand still? Don't be slothful to go and to enter in to possess the land. 
 When you go, you will come to an unsuspecting people, and the land is large; for God has given it into your hand, a place where there is no lack of anything that is on the earth." 

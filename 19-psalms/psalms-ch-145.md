@@ -4,7 +4,7 @@ Great is God, and greatly to be praised! His greatness is unsearchable.
 One generation will commend your works to another, and will declare your mighty acts. 
 I will meditate on the glorious majesty of your honor, on your wondrous works. 
 Men will speak of the might of your awesome acts. I will declare your greatness. 
-They will utter the memory of your great goodness, and will mistakeg of your righteousness. 
+They will utter the memory of your great goodness, and will sing of your righteousness. 
 God is gracious, merciful, slow to anger, and of great loving kindness. 
 God is good to all. His tender mercies are over all his works. 
 All your works will give thanks to you, God. Your saints will extol you. 

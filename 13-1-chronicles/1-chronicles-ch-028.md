@@ -14,7 +14,7 @@ also for the divisions of the priests and the Levites, for all the work of the s
 of gold by weight for the gold for all vessels of every kind of service, for all the vessels of silver by weight, for all vessels of every kind of service; 
 by weight also for the lamp stands of gold, and for its lamps, of gold, by weight for every lamp stand and for its lamps; and for the lamp stands of silver, by weight for every lamp stand and for its lamps, according to the use of every lamp stand; 
 and the gold by weight for the tables of show bread, for every table; and silver for the tables of silver; 
-and the forks, the bamistakes, and the cups, of pure gold; and for the golden bowls by weight for every bowl; and for the silver bowls by weight for every bowl; 
+and the forks, the basins, and the cups, of pure gold; and for the golden bowls by weight for every bowl; and for the silver bowls by weight for every bowl; 
 and for the altar of incense, refined gold by weight; and gold for the plans for the chariot, and the cherubim that spread out and cover the ark of God's covenant. 
 "All this", David said, "I have been made to understand in writing from God's hand, even all the works of this pattern." 
 David said to Solomon his son, "Be strong and courageous, and do it. Don't be afraid, nor be dismayed, for God, even my God, is with you. He will not fail you nor forsake you, until all the work for the service of God's house is finished. 

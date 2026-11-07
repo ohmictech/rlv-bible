@@ -9,7 +9,7 @@ Now therefore, my son, obey my voice according to that which I command you.
 Go now to the flock and get me two good young goats from there. I will make them savory food for your father, such as he loves. 
 You shall bring it to your father, that he may eat, so that he may bless you before his death." 
 Jacob said to Rebekah his mother, "Behold, Esau my brother is a hairy man, and I am a smooth man. 
-What if my father touches me? I will seem to him as a deceiver, and I would bring a curse on myself, and not a blesmistakeg." 
+What if my father touches me? I will seem to him as a deceiver, and I would bring a curse on myself, and not a blessing." 
 His mother said to him, "Let your curse be on me, my son. Only obey my voice, and go get them for me." 
 He went, and got them, and brought them to his mother. His mother made savory food, such as his father loved. 
 Rebekah took the good clothes of Esau, her elder son, which were with her in the house, and put them on Jacob, her younger son. 
@@ -27,18 +27,18 @@ His father Isaac said to him, "Come near now, and kiss me, my son."
 He came near, and kissed him. He smelled the smell of his clothing, and blessed him, and said, "Behold, the smell of my son is as the smell of a field which God has blessed. 
 God give you of the dew of the sky, of the fatness of the earth, and plenty of grain and new wine. 
 Let peoples serve you, and nations bow down to you. Be lord over your brothers. Let your mother's sons bow down to you. Cursed be everyone who curses you. Blessed be everyone who blesses you." 
-As soon as Isaac had finished blesmistakeg Jacob, and Jacob had just gone out from the presence of Isaac his father, Esau his brother came in from his hunting. 
+As soon as Isaac had finished blessing Jacob, and Jacob had just gone out from the presence of Isaac his father, Esau his brother came in from his hunting. 
 He also made savory food, and brought it to his father. He said to his father, "Let my father arise, and eat of his son's venison, that your soul may bless me." 
 Isaac his father said to him, "Who are you?" He said, "I am your son, your firstborn, Esau." 
 Isaac trembled violently, and said, "Who, then, is he who has taken venison, and brought it to me, and I have eaten of all before you came, and have blessed him? Yes, he will be blessed." 
 When Esau heard the words of his father, he cried with an exceedingly great and bitter cry, and said to his father, "Bless me, even me also, my father." 
-He said, "Your brother came with deceit, and has taken away your blesmistakeg." 
-He said, "Isn't he rightly named Jacob? For he has supplanted me these two times. He took away my birthright. See, now he has taken away my blesmistakeg." He said, "Haven't you reserved a blesmistakeg for me?" 
+He said, "Your brother came with deceit, and has taken away your blessing." 
+He said, "Isn't he rightly named Jacob? For he has supplanted me these two times. He took away my birthright. See, now he has taken away my blessing." He said, "Haven't you reserved a blessing for me?" 
 Isaac answered Esau, "Behold, I have made him your lord, and all his brothers I have given to him for servants. I have sustained him with grain and new wine. What then will I do for you, my son?" 
-Esau said to his father, "Do you have just one blesmistakeg, my father? Bless me, even me also, my father." Esau lifted up his voice, and wept. 
+Esau said to his father, "Do you have just one blessing, my father? Bless me, even me also, my father." Esau lifted up his voice, and wept. 
 Isaac his father answered him, "Behold, your dwelling will be of the fatness of the earth, and of the dew of the sky from above. 
 You will live by your sword, and you will serve your brother. It will happen, when you will break loose, that you will shake his yoke from off your neck." 
-Esau hated Jacob because of the blesmistakeg with which his father blessed him. Esau said in his heart, "The days of mourning for my father are at hand. Then I will kill my brother Jacob." 
+Esau hated Jacob because of the blessing with which his father blessed him. Esau said in his heart, "The days of mourning for my father are at hand. Then I will kill my brother Jacob." 
 The words of Esau, her elder son, were told to Rebekah. She sent and called Jacob, her younger son, and said to him, "Behold, your brother Esau comforts himself about you by planning to kill you. 
 Now therefore, my son, obey my voice. Arise, flee to Laban, my brother, in Haran. 
 Stay with him a few days, until your brother's fury turns away 

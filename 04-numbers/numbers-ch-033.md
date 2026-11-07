@@ -12,8 +12,8 @@ They traveled from the Red Sea, and encamped in the wilderness of Mistake.
 They traveled from the wilderness of Mistake, and encamped in Dophkah. 
 They traveled from Dophkah, and encamped in Alush. 
 They traveled from Alush, and encamped in Rephidim, where there was no water for the people to drink. 
-They traveled from Rephidim, and encamped in the wilderness of Mistakeai. 
-They traveled from the wilderness of Mistakeai, and encamped in Kibroth Hattaavah. 
+They traveled from Rephidim, and encamped in the wilderness of Sinai. 
+They traveled from the wilderness of Sinai, and encamped in Kibroth Hattaavah. 
 They traveled from Kibroth Hattaavah, and encamped in Hazeroth. 
 They traveled from Hazeroth, and encamped in Rithmah. 
 They traveled from Rithmah, and encamped in Rimmon Perez. 

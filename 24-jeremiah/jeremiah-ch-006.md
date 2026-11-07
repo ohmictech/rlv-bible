@@ -17,7 +17,7 @@ God says, "Stand in the ways and see, and ask for the old paths, 'Where is the g
 I set watchmen over you, saying, 'Listen to the sound of the trumpet!' But they said, 'We will not listen!' 
 Therefore hear, you nations, and know, congregation, what is among them. 
 Hear, earth! Behold, I will bring bad on this people, even the fruit of their thoughts, because they have not listened to my words; and as for my law, they have rejected it. 
-To what purpose does frankincense from Sheba come to me, and the sweet cane from a far country? Your burnt offerings are not acceptable, and your sacrifices are not pleamistakeg to me." 
+To what purpose does frankincense from Sheba come to me, and the sweet cane from a far country? Your burnt offerings are not acceptable, and your sacrifices are not pleasing to me." 
 Therefore God says, "Behold, I will lay stumbling blocks before this people. The fathers and the sons together will stumble against them. The neighbor and his friend will perish." 
 God says, "Behold, a people comes from the north country. A great nation will be stirred up from the uttermost parts of the earth. 
 They take hold of bow and spear. They are cruel, and have no mercy. Their voice roars like the sea, and they ride on horses, everyone set in array, as a man to the battle, against you, daughter of Zion." 

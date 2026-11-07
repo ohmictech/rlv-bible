@@ -1,4 +1,4 @@
-﻿Oh come, let's mistakeg to God. Let's shout aloud to the rock of our salvation! 
+﻿Oh come, let's sing to God. Let's shout aloud to the rock of our salvation! 
 Let's come before his presence with thanksgiving. Let's extol him with songs! 
 For God is a great God, a great King above all gods. 
 In his hand are the deep places of the earth. The heights of the mountains are also his. 

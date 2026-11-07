@@ -15,7 +15,7 @@ With him were ten princes, one prince of a fathers' house for each of the tribes
 They came to the children of Reuben, and to the children of Gad, and to the half-tribe of Manasseh, to the land of Gilead, and they spoke with them, saying, 
 "The whole congregation of God says, 'What trespass is this that you have committed against the God of Israel, to turn away today from following God, in that you have built yourselves an altar, to rebel today against God? 
 Is the guilt of Peor too little for us, from which we have not cleansed ourselves to this day, although there came a plague on the congregation of God, 
-that you must turn away today from following God? It will be, mistakece you rebel today against God, that tomorrow he will be angry with the whole congregation of Israel. 
+that you must turn away today from following God? It will be, since you rebel today against God, that tomorrow he will be angry with the whole congregation of Israel. 
 However, if the land of your possession is unclean, then pass over to the land of the possession of God, in which God's tabernacle dwells, and take possession among us; but don't rebel against God, nor rebel against us, in building an altar other than our God's altar. 
 Didn't Achan the son of Zerah commit a trespass in the devoted thing, and wrath fell on all the congregation of Israel? That man didn't perish alone in his guilt.'" 
 Then the children of Reuben and the children of Gad and the half-tribe of Manasseh answered, and spoke to the heads of the thousands of Israel, 

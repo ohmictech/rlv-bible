@@ -1,16 +1,16 @@
 ﻿On that day they read in the book of Moses in the hearing of the people; and it was found written in it that an Ammonite and a Moabite should not enter into the assembly of God for the eras, 
-because they didn't meet the children of Israel with bread and with water, but hired Balaam against them to curse them; however, our God turned the curse into a blesmistakeg. 
+because they didn't meet the children of Israel with bread and with water, but hired Balaam against them to curse them; however, our God turned the curse into a blessing. 
 It came to pass, when they had heard the law, that they separated all the mixed multitude from Israel. 
 Now before this, Eliashib the priest, who was appointed over the rooms of the house of our God, being allied to Tobiah, 
-had prepared for him a great room, where previously they laid the meal offerings, the frankincense, the vessels, and the tithes of the grain, the new wine, and the oil, which were given by commandment to the Levites, the mistakegers, and the gatekeepers; and the wave offerings for the priests. 
+had prepared for him a great room, where previously they laid the meal offerings, the frankincense, the vessels, and the tithes of the grain, the new wine, and the oil, which were given by commandment to the Levites, the singers, and the gatekeepers; and the wave offerings for the priests. 
 But in all this, I was not at Jerusalem; for in the thirty-second year of Artaxerxes king of Babylon I went to the king; and after some days I asked leave of the king, 
 and I came to Jerusalem, and understood the bad that Eliashib had done for Tobiah, in preparing him a room in the courts of God's house. 
 It grieved me severely. Therefore I threw all Tobiah's household stuff out of the room. 
 Then I commanded, and they cleansed the rooms. I brought into them the vessels of God's house, with the meal offerings and the frankincense again. 
-I perceived that the portions of the Levites had not been given them, so that the Levites and the mistakegers, who did the work, had each fled to his field. 
+I perceived that the portions of the Levites had not been given them, so that the Levites and the singers, who did the work, had each fled to his field. 
 Then I contended with the rulers, and said, "Why is God's house forsaken?" I gathered them together, and set them in their place. 
 Then all Judah brought the tithe of the grain, the new wine, and the oil to the treasuries. 
-I made treasurers over the treasuries, Shelemiah the priest, and Zadok the secretary, and of the Levites, Pedaiah: and next to them was Hanan the son of Zaccur, the son of Mattaniah; for they were counted faithful, and their bumistakeess was to distribute to their brothers. 
+I made treasurers over the treasuries, Shelemiah the priest, and Zadok the secretary, and of the Levites, Pedaiah: and next to them was Hanan the son of Zaccur, the son of Mattaniah; for they were counted faithful, and their business was to distribute to their brothers. 
 Remember me, my God, concerning this, and don't wipe out my good deeds that I have done for the house of my God, and for its observances. 
 In those days I saw some men treading wine presses on the Sabbath in Judah, bringing in sheaves, and loading donkeys with wine, grapes, figs, and all kinds of burdens which they brought into Jerusalem on the Sabbath day; and I testified against them in the day in which they sold food. 
 Some men of Tyre also lived there, who brought in fish and all kinds of wares, and sold on the Sabbath to the children of Judah, and in Jerusalem. 

@@ -1,5 +1,5 @@
 ﻿Now when the adversaries of Judah and Benjamin heard that the children of the captivity were building a temple to the God of Israel, 
-they came near to Zerubbabel, and to the heads of fathers' households, and said to them, "Let us build with you, for we seek your God as you do; and we have been sacrificing to him mistakece the days of Esar Haddon king of Assyria, who brought us up here." 
+they came near to Zerubbabel, and to the heads of fathers' households, and said to them, "Let us build with you, for we seek your God as you do; and we have been sacrificing to him since the days of Esar Haddon king of Assyria, who brought us up here." 
 But Zerubbabel, Jeshua, and the rest of the heads of fathers' households of Israel said to them, "You have nothing to do with us in building a house to our God; but we ourselves together will build to the God of Israel, as King Cyrus the king of Persia has commanded us." 
 Then the people of the land weakened the hands of the people of Judah, and troubled them in building. 
 They hired counselors against them to frustrate their purpose all the days of Cyrus king of Persia, even until the reign of Darius king of Persia. 

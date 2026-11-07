@@ -4,7 +4,7 @@ the son of Amariah, the son of Azariah, the son of Meraioth,
 the son of Zerahiah, the son of Uzzi, the son of Bukki, 
 the son of Abishua, the son of Phinehas, the son of Eleazar, the son of Aaron the chief priest 
 this Ezra went up from Babylon. He was a skilled Bible teacher in the law of Moses, which the God of Israel had given; and the king granted him all his request, according to his God's hand on him. 
-Some of the children of Israel, including some of the priests, the Levites, the mistakegers, the gatekeepers, and the temple servants went up to Jerusalem in the seventh year of Artaxerxes the king. 
+Some of the children of Israel, including some of the priests, the Levites, the singers, the gatekeepers, and the temple servants went up to Jerusalem in the seventh year of Artaxerxes the king. 
 He came to Jerusalem in the fifth month, which was in the seventh year of the king. 
 For on the first day of the first month he began to go up from Babylon; and on the first day of the fifth month he came to Jerusalem, according to the good hand of his God on him. 
 For Ezra had set his heart to seek God's law, and to do it, and to teach statutes and ordinances in Israel. 
@@ -21,7 +21,7 @@ Whatever more will be needed for the house of your God, which you may have occas
 I, even I, Artaxerxes the king, make a decree to all the treasurers who are beyond the River, that whatever Ezra the priest, the Bible teacher of the law of the God of the sky, requires of you, it shall be done with all diligence, 
 up to one hundred talents of silver, and to one hundred cors of wheat, and to one hundred baths of wine, and to one hundred baths of oil, and salt without prescribing how much. 
 Whatever is commanded by the God of the sky, let it be done exactly for the house of the God of the sky; for why should there be wrath against the realm of the king and his sons? 
-Also we inform you that it shall not be lawful to impose tribute, custom, or toll on any of the priests, Levites, mistakegers, gatekeepers, temple servants, or laborers of this house of God. 
+Also we inform you that it shall not be lawful to impose tribute, custom, or toll on any of the priests, Levites, singers, gatekeepers, temple servants, or laborers of this house of God. 
 You, Ezra, according to the wisdom of your God that is in your hand, appoint magistrates and judges who may judge everyone who is beyond the River, who all know the laws of your God; and teach him who doesn't know them. 
 Whoever will not do the law of your God and the law of the king, let judgment be executed on him with all diligence, whether it is to death, or to banishment, or to confiscation of goods, or to imprisonment. 
 Blessed be the God of our fathers, who has put such a thing as this in the king's heart, to beautify God's house which is in Jerusalem; 

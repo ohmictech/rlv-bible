@@ -4,8 +4,8 @@ He will send from the sky, and save me, he rebukes the one who is pursuing me. S
 My soul is among lions. I lie among those who are set on fire, even the sons of men, whose teeth are spears and arrows, and their tongue a sharp sword. 
 Be exalted, God, above the sky! Let your glory be above all the earth! 
 They have prepared a net for my steps. My soul is bowed down. They dig a pit before me. They fall into the middle of it themselves. Selah. 
-My heart is steadfast, God. My heart is steadfast. I will mistakeg, yes, I will mistakeg praises. 
+My heart is steadfast, God. My heart is steadfast. I will sing, yes, I will sing praises. 
 Wake up, my glory! Wake up, lute and harp! I will wake up the dawn. 
-I will give thanks to you, Lord, among the peoples. I will mistakeg praises to you among the nations. 
+I will give thanks to you, Lord, among the peoples. I will sing praises to you among the nations. 
 For your great loving kindness reaches to the sky, and your truth to the skies. 
 Be exalted, God, above the sky. Let your glory be over all the earth. 

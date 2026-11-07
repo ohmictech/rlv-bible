@@ -3,7 +3,7 @@ Treasures of guilt profit nothing, but righteousness delivers from death.
 God will not allow the soul of the righteous to go hungry, but he thrusts away the desire of the guilty. 
 He becomes poor who works with a lazy hand, but the hand of the diligent brings wealth. 
 He who gathers in summer is a wise son, but he who sleeps during the harvest is a son who causes shame. 
-Blesmistakegs are on the head of the righteous, but violence covers the mouth of the guilty. 
+Blessings are on the head of the righteous, but violence covers the mouth of the guilty. 
 The memory of the righteous is blessed, but the name of the guilty will rot. 
 The wise in heart accept commandments, but a chattering fool will fall. 
 He who walks blamelessly walks surely, but he who perverts his ways will be found out. 
@@ -19,7 +19,7 @@ He who hides hatred has lying lips. He who utters a slander is a fool.
 In the multitude of words there is no lack of disobedience, but he who restrains his lips does wisely. 
 The tongue of the righteous is like choice silver. The heart of the guilty is of little worth. 
 The lips of the righteous feed many, but the foolish die for lack of understanding. 
-God's blesmistakeg brings wealth, and he adds no trouble to it. 
+God's blessing brings wealth, and he adds no trouble to it. 
 It is a fool's pleasure to do guilt, but wisdom is a man of understanding's pleasure. 
 What the guilty fear will overtake them, but the desire of the righteous will be granted. 
 When the whirlwind passes, the guilty is no more; but the righteous stand firm for the eras. 

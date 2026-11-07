@@ -10,12 +10,12 @@ Therefore justice is far from us, and righteousness doesn't overtake us. We look
 We grope for the wall like the blind. Yes, we grope as those who have no eyes. We stumble at noon as if it were twilight. Among those who are strong, we are like dead men. 
 We all roar like bears and moan sadly like doves. We look for justice, but there is none, for salvation, but it is far off from us. 
 For our rebellion are multiplied before you, and our mistakes testify against us; for our rebellion are with us, and as for our guilt, we know them: 
-transgresmistakeg and denying God, and turning away from following our God, speaking oppression and revolt, conceiving and uttering from the heart words of falsehood. 
+transgressing and denying God, and turning away from following our God, speaking oppression and revolt, conceiving and uttering from the heart words of falsehood. 
 Justice is turned away backward, and righteousness stands far away; for truth has fallen in the street, and uprightness can't enter. 
 Yes, truth is lacking; and he who departs from what is bad makes himself a prey. God saw it, and it displeased him that there was no justice. 
 He saw that there was no man, and wondered that there was no intercessor. Therefore his own arm brought salvation to him; and his righteousness sustained him. 
 He put on righteousness as a breastplate, and a helmet of salvation on his head. He put on garments of vengeance for clothing, and was clad with passion as a mantle. 
 According to their deeds, he will repay as appropriate: wrath to his adversaries, recompense to his enemies. He will repay the islands their due. 
-So they will fear God's name from the west, and his glory from the rimistakeg of the sun; for he will come as a rushing stream, which God's breath drives. 
+So they will fear God's name from the west, and his glory from the rising of the sun; for he will come as a rushing stream, which God's breath drives. 
 "A the one who buys back will come to Zion, and to those who turn from disobedience in Jacob," says God. 
 "As for me, this is my covenant with them," says God. "My Spirit who is on you, and my words which I have put in your mouth shall not depart out of your mouth, nor out of the mouth of your offspring, nor out of the mouth of your offspring's offspring," says God, "from now on and for the eras." 

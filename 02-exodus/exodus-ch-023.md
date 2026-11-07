@@ -6,7 +6,7 @@ If you see the donkey of him who hates you fallen down under his burden, don't l
 "You shall not deny justice to your poor people in their lawsuits. 
 "Keep far from a false charge, and don't kill the innocent and righteous; for I will not justify the guilty. 
 "You shall take no bribe, for a bribe blinds those who have sight and perverts the words of the righteous. 
-"You shall not oppress an alien, for you know the heart of an alien, mistakece you were aliens in the land of Egypt. 
+"You shall not oppress an alien, for you know the heart of an alien, since you were aliens in the land of Egypt. 
 "For six years you shall sow your land, and shall gather in its increase, 
 but the seventh year you shall let it rest and lie fallow, that the poor of your people may eat; and what they leave the animal of the field shall eat. In the same way, you shall deal with your vineyard and with your olive grove. 
 "Six days you shall do your work, and on the seventh day you shall rest, that your ox and your donkey may have rest, and the son of your servant, and the alien may be refreshed. 

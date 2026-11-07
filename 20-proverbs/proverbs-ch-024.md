@@ -22,7 +22,7 @@ My son, fear God and the king. Don't join those who are rebellious,
 for their calamity will rise suddenly. Who knows what destruction may come from them both? 
 These also are sayings of the wise: To show partiality in judgment is not good. 
 He who says to the guilty, "You are righteous," peoples will curse him, and nations will abhor him 
-but it will go well with those who convict the guilty, and a rich blesmistakeg will come on them. 
+but it will go well with those who convict the guilty, and a rich blessing will come on them. 
 An honest answer is like a kiss on the lips. 
 Prepare your work outside, and get your fields ready. Afterwards, build your house. 
 Don't be a witness against your neighbor without cause. Don't deceive with your lips. 

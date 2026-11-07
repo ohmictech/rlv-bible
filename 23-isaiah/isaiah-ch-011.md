@@ -5,7 +5,7 @@ but he will judge the poor with righteousness, and decide with equity for the hu
 Righteousness will be the belt around his waist, and faithfulness the belt around his waist. 
 The wolf will live with the lamb, and the leopard will lie down with the young goat, the calf, the young lion, and the fattened calf together; and a little child will lead them. 
 The cow and the bear will graze. Their young ones will lie down together. The lion will eat straw like the ox. 
-The nurmistakeg child will play near a cobra's hole, and the weaned child will put his hand on the viper's den. 
+The nursing child will play near a cobra's hole, and the weaned child will put his hand on the viper's den. 
 They will not hurt nor destroy in all my holy mountain; for the earth will be full of the knowledge of God, as the waters cover the sea. 
 It will happen in that day that the nations will seek the root of Jesse, who stands as a banner of the peoples; and his resting place will be glorious. 
 It will happen in that day that the Lord will set his hand again the second time to recover the remnant that is left of his people from Assyria, from Egypt, from Pathros, from Cush, from Elam, from Shinar, from Hamath, and from the islands of the sea. 

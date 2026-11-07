@@ -14,7 +14,7 @@ Will I eat the meat of bulls, or drink the blood of goats?
 Offer to God the sacrifice of thanksgiving. Pay your vows to the Most High. 
 Call on me in the day of trouble. I will deliver you, and you will honor me." 
 But to the guilty God says, "What right do you have to declare my statutes, that you have taken my covenant on your lips, 
-mistakece you hate instruction, and throw my words behind you? 
+since you hate instruction, and throw my words behind you? 
 When you saw a thief, you consented with him, and have participated with adulterers. 
 "You give your mouth to bad. Your tongue frames deceit. 
 You sit and speak against your brother. You slander your own mother's son. 

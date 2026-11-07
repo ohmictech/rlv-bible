@@ -30,7 +30,7 @@ The Chaldeans, who fight against this city, will come and set this city on fire,
 "For the children of Israel and the children of Judah have done only that which was bad in my sight from their youth; for the children of Israel have only provoked me to anger with the work of their hands, says God. 
 For this city has been to me a provocation of my anger and of my wrath from the day that they built it even to this day, so that I should remove it from before my face, 
 because of all the bad of the children of Israel and of the children of Judah, which they have done to provoke me to anger, they, their kings, their princes, their priests, their spokesmen, the men of Judah, and the inhabitants of Jerusalem. 
-They have turned their backs to me, and not their faces. Although I taught them, rimistakeg up early and teaching them, yet they have not listened to receive instruction. 
+They have turned their backs to me, and not their faces. Although I taught them, rising up early and teaching them, yet they have not listened to receive instruction. 
 But they set their abominations in the house which is called by my name, to defile it. 
 They built the high places of Baal, which are in the valley of the son of Hinnom, to cause their sons and their daughters to pass through fire to Molech, which I didn't command them. It didn't even come into my mind, that they should do this abomination, to cause Judah to miss the mark." 
 Now therefore the God of Israel says concerning this city, about which you say, "It is given into the hand of the king of Babylon by the sword, by the famine, and by the pestilence:" 

@@ -25,7 +25,7 @@ Hallohesh, Pilha, Shobek,
 Rehum, Hashabnah, Maaseiah, 
 Ahiah, Hanan, Anan, 
 Malluch, Harim, and Baanah. 
-The rest of the people, the priests, the Levites, the gatekeepers, the mistakegers, the temple servants, and everyone who had separated themselves from the peoples of the lands to the law of God, their wives, their sons, and their daughters, everyone who had knowledge and understanding 
+The rest of the people, the priests, the Levites, the gatekeepers, the singers, the temple servants, and everyone who had separated themselves from the peoples of the lands to the law of God, their wives, their sons, and their daughters, everyone who had knowledge and understanding 
 joined with their brothers, their nobles, and entered into a curse and into an oath, to walk in God's law, which was given by Moses the servant of God, and to observe and do all the commandments of God our Lord, and his ordinances and his statutes; 
 and that we would not give our daughters to the peoples of the land, nor take their daughters for our sons; 
 and if the peoples of the land bring wares or any grain on the Sabbath day to sell, that we would not buy from them on the Sabbath, or on a holy day; and that we would forego the seventh year crops and the exaction of every debt. 
@@ -36,4 +36,4 @@ and to bring the first fruits of our ground and the first fruits of all fruit of
 also the firstborn of our sons and of our livestock, as it is written in the law, and the firstborn of our herds and of our flocks, to bring to the house of our God, to the priests who minister in the house of our God; 
 and that we should bring the first fruits of our dough, our wave offerings, the fruit of all kinds of trees, and the new wine and the oil, to the priests, to the rooms of the house of our God; and the tithes of our ground to the Levites; for they, the Levites, take the tithes in all our farming villages. 
 The priest, the descendent of Aaron, shall be with the Levites when the Levites take tithes. The Levites shall bring up the tithe of the tithes to the house of our God, to the rooms, into the treasure house. 
-For the children of Israel and the children of Levi shall bring the wave offering of the grain, of the new wine, and of the oil, to the rooms where the vessels of the sanctuary are, and the priests who minister, with the gatekeepers and the mistakegers. We will not forsake the house of our God. 
+For the children of Israel and the children of Levi shall bring the wave offering of the grain, of the new wine, and of the oil, to the rooms where the vessels of the sanctuary are, and the priests who minister, with the gatekeepers and the singers. We will not forsake the house of our God. 

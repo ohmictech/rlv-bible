@@ -1,7 +1,7 @@
 ﻿Then Zophar the Naamathite answered, 
 "Therefore my thoughts answer me, even by reason of my haste that is in me. 
 I have heard the reproof which puts me to shame. The spirit of my understanding answers me. 
-Don't you know this from old time, mistakece man was placed on earth, 
+Don't you know this from old time, since man was placed on earth, 
 that the triumphing of the guilty is short, the joy of the godless but for a moment? 
 Though his height mount up to the sky, and his head reach to the clouds, 
 yet he will perish for the eras like his own dung. Those who have seen him will say, 'Where is he?' 

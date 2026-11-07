@@ -1,7 +1,7 @@
 ﻿Don't rejoice, Israel, to jubilation like the nations; for you were unfaithful to your God. You love the wages of a prostitute at every grain threshing floor. 
 The threshing floor and the wine press won't feed them, and the new wine will fail her. 
 They won't dwell in God's land; but Ephraim will return to Egypt, and they will eat unclean food in Assyria. 
-They won't pour out wine offerings to God, neither will they be pleamistakeg to him. Their sacrifices will be to them like the bread of mourners; everyone who eats of it will be polluted; for their bread will be for their appetite. It will not come into God's house. 
+They won't pour out wine offerings to God, neither will they be pleasing to him. Their sacrifices will be to them like the bread of mourners; everyone who eats of it will be polluted; for their bread will be for their appetite. It will not come into God's house. 
 What will you do in the day of solemn assembly, and in the day of the feast of God? 
 For, behold, when they flee destruction, Egypt will gather them up. Memphis will bury them. Nettles will possess their pleasant things of silver. Thorns will be in their tents. 
 The days of visitation have come. The days of reckoning have come. Israel will consider the spokesman to be a fool, and the man who is inspired to be insane, because of the abundance of your mistakes, and because your hostility is great. 

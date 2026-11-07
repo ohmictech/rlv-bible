@@ -5,7 +5,7 @@ This is the reason Joshua circumcised them: everyone who came out of Egypt, who 
 For everyone who came out were circumcised; but everyone who was born in the wilderness along the way as they came out of Egypt had not been circumcised. 
 For the children of Israel walked forty years in the wilderness until all the nation, even the men of war who came out of Egypt, were consumed, because they didn't listen to God's voice. God swore to them that he wouldn't let them see the land which God swore to their fathers that he would give us, a land flowing with milk and honey. 
 Their children, whom he raised up in their place, were circumcised by Joshua, for they were uncircumcised, because they had not circumcised them on the way. 
-When they were done circumcimistakeg the whole nation, they stayed in their places in the camp until they were healed. 
+When they were done circumcising the whole nation, they stayed in their places in the camp until they were healed. 
 God said to Joshua, "Today I have rolled away the reproach of Egypt from you." Therefore the name of that place was called Gilgal to this day. 
 The children of Israel encamped in Gilgal. They kept the Passover on the fourteenth day of the month at evening in the plains of Jericho. 
 They ate unleavened cakes and parched grain of the produce of the land on the next day after the Passover, in the same day. 

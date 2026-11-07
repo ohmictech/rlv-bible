@@ -7,7 +7,7 @@ The children of Israel and Judah, who lived in the cities of Judah, also brought
 In the third month, they began to lay the foundation of the heaps, and finished them in the seventh month. 
 When Hezekiah and the princes came and saw the heaps, they blessed God and his people Israel. 
 Then Hezekiah questioned the priests and the Levites about the heaps. 
-Azariah the chief priest, of the house of Zadok, answered him and said, "Mistakece people began to bring the offerings into God's house, we have eaten and had enough, and have plenty left over, for God has blessed his people; and that which is left is this great store." 
+Azariah the chief priest, of the house of Zadok, answered him and said, "Since people began to bring the offerings into God's house, we have eaten and had enough, and have plenty left over, for God has blessed his people; and that which is left is this great store." 
 Then Hezekiah commanded them to prepare rooms in God's house, and they prepared them. 
 They brought in the offerings, the tithes, and the dedicated things faithfully. Conaniah the Levite was ruler over them, and Shimei his brother was second. 
 Jehiel, Azaziah, Nahath, Asahel, Jerimoth, Jozabad, Eliel, Ismachiah, Mahath, and Benaiah were overseers under the hand of Conaniah and Shimei his brother, by the appointment of Hezekiah the king and Azariah the ruler of God's house. 

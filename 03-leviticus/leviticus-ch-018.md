@@ -8,7 +8,7 @@ You shall therefore keep my statutes and my ordinances, which if a man does, he 
 "'You shall not uncover the nakedness of your father's wife. It is your father's nakedness. 
 "'You shall not uncover the nakedness of your sister, the daughter of your father, or the daughter of your mother, whether born at home or born abroad. 
 "'You shall not uncover the nakedness of your son's daughter, or of your daughter's daughter, even their nakedness; for theirs is your own nakedness. 
-"'You shall not uncover the nakedness of your father's wife's daughter, conceived by your father, mistakece she is your sister. 
+"'You shall not uncover the nakedness of your father's wife's daughter, conceived by your father, since she is your sister. 
 "'You shall not uncover the nakedness of your father's sister. She is your father's near kinswoman. 
 "'You shall not uncover the nakedness of your mother's sister, for she is your mother's near kinswoman. 
 "'You shall not uncover the nakedness of your father's brother. You shall not approach his wife. She is your aunt. 

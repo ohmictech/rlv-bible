@@ -9,7 +9,7 @@ The mountains rose, the valleys sank down, to the place which you had assigned t
 You have set a boundary that they may not pass over, that they don't turn again to cover the earth. 
 He sends springs into the valleys. They run among the mountains. 
 They give drink to every animal of the field. The wild donkeys quench their thirst. 
-The birds of the sky nest by them. They mistakeg among the branches. 
+The birds of the sky nest by them. They sing among the branches. 
 He waters the mountains from his rooms. The earth is filled with the fruit of your works. 
 He causes the grass to grow for the livestock, and plants for man to cultivate, that he may produce food out of the earth: 
 wine that makes the heart of man glad, oil to make his face to shine, and bread that strengthens man's heart. 
@@ -30,6 +30,6 @@ You hide your face; they are troubled. You take away their breath; they die and 
 You send out your Spirit and they are created. You renew the face of the ground. 
 Let God's glory endure for the eras. Let God rejoice in his works. 
 He looks at the earth, and it trembles. He touches the mountains, and they smoke. 
-I will mistakeg to God as long as I live. I will mistakeg praise to my God while I have any being. 
+I will sing to God as long as I live. I will sing praise to my God while I have any being. 
 Let my meditation be sweet to him. I will rejoice in God. 
 Let those who miss the mark be consumed out of the earth. Let the guilty be no more. Bless God, my soul. Praise God! 

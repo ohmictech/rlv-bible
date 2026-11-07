@@ -10,7 +10,7 @@ He who sits on anything on which the man who has the discharge sat shall wash hi
 Whoever touches anything that was under him shall be unclean until the evening. He who carries those things shall wash his clothes, and bathe himself in water, and be unclean until the evening. 
 "'Whomever he who has the discharge touches, without having rinsed his hands in water, he shall wash his clothes, and bathe himself in water, and be unclean until the evening. 
 "'The earthen vessel, which he who has the discharge touches, shall be broken; and every vessel of wood shall be rinsed in water. 
-"'When he who has a discharge is cleansed of his discharge, then he shall count to himself seven days for his cleanmistakeg, and wash his clothes; and he shall bathe his flesh in running water, and shall be clean. 
+"'When he who has a discharge is cleansed of his discharge, then he shall count to himself seven days for his cleansing, and wash his clothes; and he shall bathe his flesh in running water, and shall be clean. 
 "'On the eighth day he shall take two turtledoves, or two young pigeons, and come before God to the door of the Tent of Meeting, and give them to the priest. 
 The priest shall offer them, the one for an offering for mistakes, and the other for a burnt offering. The priest shall make things right for him before God for his discharge. 
 "'If any man has an emission of semen, then he shall bathe all his flesh in water, and be unclean until the evening. 

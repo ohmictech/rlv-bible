@@ -1,4 +1,4 @@
-﻿"Mistakeg, barren, you who didn't give birth! Break out into miss the markging, and cry aloud, you who didn't travail with child! For more are the children of the desolate than the children of the married wife," says God. 
+﻿"Sing, barren, you who didn't give birth! Break out into miss the markging, and cry aloud, you who didn't travail with child! For more are the children of the desolate than the children of the married wife," says God. 
 "Enlarge the place of your tent, and let them stretch out the curtains of your habitations; don't spare; lengthen your cords, and strengthen your stakes. 
 For you will spread out on the right hand and on the left; and your offspring will possess the nations and settle in desolate cities. 
 "Don't be afraid, for you will not be ashamed. Don't be confounded, for you will not be disappointed. For you will forget the shame of your youth. You will remember the reproach of your widowhood no more. 

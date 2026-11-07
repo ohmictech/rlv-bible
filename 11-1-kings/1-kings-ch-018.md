@@ -41,6 +41,6 @@ Elijah said to them, "Seize the spokesmen of Baal! Don't let one of them escape!
 Elijah said to Ahab, "Get up, eat and drink; for there is the sound of abundance of rain." 
 So Ahab went up to eat and to drink. Elijah went up to the top of Carmel; and he bowed himself down on the earth, and put his face between his knees. 
 He said to his servant, "Go up now and look toward the sea." He went up and looked, then said, "There is nothing." He said, "Go again" seven times. 
-On the seventh time, he said, "Behold, a small cloud, like a man's hand, is rimistakeg out of the sea." He said, "Go up, tell Ahab, 'Get ready and go down, so that the rain doesn't stop you.'" 
+On the seventh time, he said, "Behold, a small cloud, like a man's hand, is rising out of the sea." He said, "Go up, tell Ahab, 'Get ready and go down, so that the rain doesn't stop you.'" 
 In a little while, the sky grew black with clouds and wind, and there was a great rain. Ahab rode, and went to Jezreel. 
 God's hand was on Elijah; and he tucked his cloak into his belt and ran before Ahab to the entrance of Jezreel. 

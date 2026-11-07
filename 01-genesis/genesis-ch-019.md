@@ -4,7 +4,7 @@ He urged them greatly, and they came in with him, and entered into his house. He
 But before they lay down, the men of the city, the men of Sodom, surrounded the house, both young and old, everyone from every quarter. 
 They called to Lot, and said to him, "Where are the men who came in to you this night? Bring them out to us, that we may have sex with them." 
 Lot went out to them through the door, and shut the door after himself. 
-He said, "Please, my brothers, don't act so guiltyly. 
+He said, "Please, my brothers, don't act so guiltily. 
 See now, I have two virgin daughters. Please let me bring them out to you, and you may do to them what seems good to you. Only don't do anything to these men, because they have come under the shadow of my roof." 
 They said, "Stand back!" Then they said, "This one fellow came in to live as a foreigner, and he appoints himself a judge. Now we will deal worse with you than with them!" They pressed hard on the man Lot, and came near to break the door. 
 But the men reached out their hand, and brought Lot into the house to them, and shut the door. 

@@ -19,8 +19,8 @@ Their soul abhors all kinds of food. They draw near to the gates of death.
 Then they cry to God in their trouble, and he saves them out of their distresses. 
 He sends his word, and heals them, and delivers them from their graves. 
 Let them praise God for his loving kindness, for his wonderful deeds to the children of men! 
-Let them offer the sacrifices of thanksgiving, and declare his deeds with mistakeging. 
-Those who go down to the sea in ships, who do bumistakeess in great waters, 
+Let them offer the sacrifices of thanksgiving, and declare his deeds with singing. 
+Those who go down to the sea in ships, who do business in great waters, 
 these see God's deeds, and his wonders in the deep. 
 For he commands, and raises the stormy wind, which lifts up its waves. 
 They mount up to the sky; they go down again to the depths. Their soul melts away because of trouble. 

@@ -9,7 +9,7 @@ If God delights in us, then he will bring us into this land, and give it to us: 
 Only don't rebel against God, neither fear the people of the land; for they are bread for us. Their defense is removed from over them, and God is with us. Don't fear them." 
 But all the congregation threatened to stone them with stones. God's glory appeared in the Tent of Meeting to all the children of Israel. 
 God said to Moses, "How long will this people despise me? How long will they not believe in me, for all the signs which I have worked among them? 
-I will strike them with the pestilence, and dimistakeherit them, and will make of you a nation greater and mightier than they." 
+I will strike them with the pestilence, and disinherit them, and will make of you a nation greater and mightier than they." 
 Moses said to God, "Then the Egyptians will hear it; for you brought up this people in your might from among them. 
 They will tell it to the inhabitants of this land. They have heard that you God are among this people; for you God are seen face to face, and your cloud stands over them, and you go before them, in a pillar of cloud by day, and in a pillar of fire by night. 
 Now if you killed this people as one man, then the nations which have heard the fame of you will speak, saying, 
@@ -22,7 +22,7 @@ but in very deed, as I live, and as all the earth shall be filled with God's glo
 because all those men who have seen my glory and my signs, which I worked in Egypt and in the wilderness, yet have tempted me these ten times, and have not listened to my voice; 
 surely they shall not see the land which I swore to their fathers, neither shall any of those who despised me see it. 
 But my servant Caleb, because he had another spirit with him, and has followed me fully, him I will bring into the land into which he went. His offspring shall possess it. 
-Mistakece the Amalekite and the Canaanite dwell in the valley, tomorrow turn and go into the wilderness by the way to the Red Sea." 
+Since the Amalekite and the Canaanite dwell in the valley, tomorrow turn and go into the wilderness by the way to the Red Sea." 
 God spoke to Moses and to Aaron, saying, 
 "How long shall I bear with this bad congregation that complain against me? I have heard the complaints of the children of Israel, which they complain against me. 
 Tell them, 'As I live, says God, surely as you have spoken in my ears, so I will do to you. 
@@ -38,7 +38,7 @@ even those men who brought up an bad report of the land, died by the plague befo
 But Joshua the son of Nun and Caleb the son of Jephunneh remained alive of those men who went to spy out the land. 
 Moses told these words to all the children of Israel, and the people mourned greatly. 
 They rose up early in the morning and went up to the top of the mountain, saying, "Behold, we are here, and will go up to the place which God has promised; for we have missed the mark." 
-Moses said, "Why now do you disobey the commandment of God, mistakece it shall not prosper? 
+Moses said, "Why now do you disobey the commandment of God, since it shall not prosper? 
 Don't go up, for God isn't among you; that way you won't be struck down before your enemies. 
 For there the Amalekite and the Canaanite are before you, and you will fall by the sword because you turned back from following God; therefore God will not be with you." 
 But they presumed to go up to the top of the mountain. Nevertheless, the ark of God's covenant and Moses didn't depart out of the camp. 

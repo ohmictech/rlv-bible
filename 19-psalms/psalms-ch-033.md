@@ -1,6 +1,6 @@
 ﻿Rejoice in God, you righteous! Praise is fitting for the upright. 
-Give thanks to God with the lyre. Mistakeg praises to him with the harp of ten strings. 
-Mistakeg to him a new song. Play skillfully with a shout of joy! 
+Give thanks to God with the lyre. Sing praises to him with the harp of ten strings. 
+Sing to him a new song. Play skillfully with a shout of joy! 
 For God's word is right. All his work is done in faithfulness. 
 He loves righteousness and justice. The earth is full of the loving kindness of God. 
 By God's word, the sky were made: all their army by the breath of his mouth. 
@@ -19,4 +19,4 @@ Behold, God's eye is on those who fear him, on those who hope in his loving kind
 to deliver their soul from death, to keep them alive in famine. 
 Our soul has waited for God. He is our help and our shield. 
 For our heart rejoices in him, because we have trusted in his holy name. 
-Let your loving kindness be on us, God, mistakece we have hoped in you. 
+Let your loving kindness be on us, God, since we have hoped in you. 

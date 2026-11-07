@@ -12,7 +12,7 @@ Nebuzaradan the captain of the guard carried away captive the rest of the people
 But the captain of the guard left some of the poorest of the land to work the vineyards and fields. 
 The Chaldeans broke up the pillars of bronze that were in God's house and the bases and the bronze sea that were in God's house, and carried the bronze pieces to Babylon. 
 They took away the pots, the shovels, the snuffers, the spoons, and all the vessels of bronze with which they ministered. 
-The captain of the guard took away the fire pans, the bamistakes, that which was of gold, for gold, and that which was of silver, for silver. 
+The captain of the guard took away the fire pans, the basins, that which was of gold, for gold, and that which was of silver, for silver. 
 The two pillars, the one sea, and the bases, which Solomon had made for God's house, the bronze of all these vessels was not weighed. 
 The height of the one pillar was eighteen cubits, and a capital of bronze was on it. The height of the capital was three cubits, with network and pomegranates on the capital around it, all of bronze; and the second pillar with its network was like these. 
 The captain of the guard took Seraiah the chief priest, Zephaniah the second priest, and the three keepers of the threshold; 

@@ -15,4 +15,4 @@ You shall keep the Sabbath therefore, for it is holy to you. Everyone who profan
 Six days shall work be done, but on the seventh day is a Sabbath of solemn rest, holy to God. Whoever does any work on the Sabbath day shall surely be put to death. 
 Therefore the children of Israel shall keep the Sabbath, to observe the Sabbath throughout their generations, for a perpetual covenant. 
 It is a sign between me and the children of Israel for the eras; for in six days God made the sky and the earth, and on the seventh day he rested, and was refreshed.'" 
-When he finished speaking with him on Mount Mistakeai, he gave Moses the two tablets of the covenant, stone tablets, written with God's finger. 
+When he finished speaking with him on Mount Sinai, he gave Moses the two tablets of the covenant, stone tablets, written with God's finger. 

@@ -12,7 +12,7 @@ They killed the Passover lambs, and the priests sprinkled the blood which they r
 They removed the burnt offerings, that they might give them according to the divisions of the fathers' houses of the children of the people, to offer to God, as it is written in the book of Moses. They did the same with the cattle. 
 They roasted the Passover with fire according to the ordinance. They boiled the holy offerings in pots, in cauldrons, and in pans, and carried them quickly to all the children of the people. 
 Afterward they prepared for themselves and for the priests, because the priests the sons of Aaron were busy with offering the burnt offerings and the fat until night. Therefore the Levites prepared for themselves and for the priests the sons of Aaron. 
-The mistakegers, the sons of Asaph, were in their place, according to the commandment of David, Asaph, Heman, and Jeduthun the king's seer; and the gatekeepers were at every gate. They didn't need to depart from their service, because their brothers the Levites prepared for them. 
+The singers, the sons of Asaph, were in their place, according to the commandment of David, Asaph, Heman, and Jeduthun the king's seer; and the gatekeepers were at every gate. They didn't need to depart from their service, because their brothers the Levites prepared for them. 
 So all the service of God was prepared the same day, to keep the Passover, and to offer burnt offerings on God's altar, according to the commandment of King Josiah. 
 The children of Israel who were present kept the Passover at that time, and the feast of unleavened bread seven days. 
 There was no Passover like that kept in Israel from the days of Samuel the spokesman, nor did any of the kings of Israel keep such a Passover as Josiah kept, with the priests, the Levites, and all Judah and Israel who were present, and the inhabitants of Jerusalem. 
@@ -22,6 +22,6 @@ But he sent ambassadors to him, saying, "What have I to do with you, you king of
 Nevertheless Josiah would not turn his face from him, but disguised himself, that he might fight with him, and didn't listen to the words of Neco from the mouth of God, and came to fight in the valley of Megiddo. 
 The archers shot at King Josiah; and the king said to his servants, "Take me away, because I am seriously wounded!" 
 So his servants took him out of the chariot, and put him in the second chariot that he had, and brought him to Jerusalem; and he died, and was buried in the tombs of his fathers. All Judah and Jerusalem mourned for Josiah. 
-Jeremiah lamented for Josiah, and all the mistakeging men and misses the markging women spoke of Josiah in their lamentations to this day; and they made them an ordinance in Israel. Behold, they are written in the lamentations. 
+Jeremiah lamented for Josiah, and all the singing men and misses the markging women spoke of Josiah in their lamentations to this day; and they made them an ordinance in Israel. Behold, they are written in the lamentations. 
 Now the rest of the acts of Josiah and his good deeds, according to that which is written in God's law, 
 and his acts, first and last, behold, they are written in the book of the kings of Israel and Judah. 

@@ -3,7 +3,7 @@ Moses alone shall come near to God, but they shall not come near. The people sha
 Moses came and told the people all God's words, and all the ordinances; and everyone answered with one voice, and said, "All the words which God has spoken we will do." 
 Moses wrote all God's words, then rose up early in the morning and built an altar at the base of the mountain, with twelve pillars for the twelve tribes of Israel. 
 He sent young men of the children of Israel, who offered burnt offerings and sacrificed offerings for wholeness of cattle to God. 
-Moses took half of the blood and put it in bamistakes, and half of the blood he sprinkled on the altar. 
+Moses took half of the blood and put it in basins, and half of the blood he sprinkled on the altar. 
 He took the book of the covenant and read it in the hearing of the people, and they said, "We will do all that God has said, and be obedient." 
 Moses took the blood, and sprinkled it on the people, and said, "Look, this is the blood of the covenant, which God has made with you concerning all these words." 
 Then Moses, Aaron, Nadab, Abihu, and seventy of the elders of Israel went up. 
@@ -13,6 +13,6 @@ God said to Moses, "Come up to me on the mountain, and stay here, and I will giv
 Moses rose up with Joshua, his servant, and Moses went up onto God's Mountain. 
 He said to the elders, "Wait here for us, until we come again to you. Behold, Aaron and Hur are with you. Whoever is involved in a dispute can go to them." 
 Moses went up on the mountain, and the cloud covered the mountain. 
-God's glory settled on Mount Mistakeai, and the cloud covered it six days. The seventh day he called to Moses out of the middle of the cloud. 
+God's glory settled on Mount Sinai, and the cloud covered it six days. The seventh day he called to Moses out of the middle of the cloud. 
 The appearance of God's glory was like devouring fire on the top of the mountain in the eyes of the children of Israel. 
 Moses entered into the middle of the cloud, and went up on the mountain; and Moses was on the mountain forty days and forty nights. 

@@ -14,7 +14,7 @@ Jeremiah the tenth, and Machbannai the eleventh.
 These of the sons of Gad were captains of the army. He who was least was equal to one hundred, and the greatest to one thousand. 
 These are those who went over the Jordan in the first month, when it had overflowed all its banks; and they put to flight everyone who lived in the valleys, both toward the east and toward the west. 
 Some of the children of Benjamin and Judah came to the stronghold to David. 
-David went out to meet them, and answered them, "If you have come peaceably to me to help me, my heart will be united with you; but if you have come to betray me to my adversaries, mistakece there is no wrong in my hands, may the God of our fathers see this and rebuke it." 
+David went out to meet them, and answered them, "If you have come peaceably to me to help me, my heart will be united with you; but if you have come to betray me to my adversaries, since there is no wrong in my hands, may the God of our fathers see this and rebuke it." 
 Then the Spirit came on Amasai, who was chief of the thirty, and he said, "We are yours, David, and on your side, you son of Jesse. Peace, peace be to you, and peace be to your helpers; for your God helps you." Then David received them and made them captains of the band. 
 Some of Manasseh also joined David when he came with the Philistines against Saul to battle, but they didn't help them, for the lords of the Philistines sent him away after consultation, saying, "He will desert to his master Saul to the jeopardy of our heads." 
 As he went to Ziklag, some from Manasseh joined him: Adnah, Jozabad, Jediael, Michael, Jozabad, Elihu, and Zillethai, captains of thousands who were of Manasseh. 
@@ -37,4 +37,4 @@ Of Asher, such as were able to go out in the army, who could set the battle in a
 On the other side of the Jordan, of the Reubenites, the Gadites, and of the half-tribe of Manasseh, with all kinds of instruments of war for the battle: one hundred twenty thousand. 
 All these were men of war who could order the battle array, and came with a perfect heart to Hebron to make David king over all Israel; and all the rest also of Israel were of one heart to make David king. 
 They were there with David three days, eating and drinking; for their brothers had supplied provisions for them. 
-Moreover those who were near to them, as far as Issachar, Zebulun, and Naphtali, brought bread on donkeys, on camels, on mules, and on oxen: supplies of flour, cakes of figs, clusters of raimistakes, wine, oil, cattle, and sheep in abundance; for there was joy in Israel. 
+Moreover those who were near to them, as far as Issachar, Zebulun, and Naphtali, brought bread on donkeys, on camels, on mules, and on oxen: supplies of flour, cakes of figs, clusters of raisins, wine, oil, cattle, and sheep in abundance; for there was joy in Israel. 

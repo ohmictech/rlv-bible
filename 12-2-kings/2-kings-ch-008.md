@@ -3,7 +3,7 @@ The woman arose, and did according to the man of God's word. She went with her h
 At the end of seven years, the woman returned from the land of the Philistines. Then she went out to beg the king for her house and for her land. 
 Now the king was talking with Gehazi the servant of the man of God, saying, "Please tell me all the great things that Elisha has done." 
 As he was telling the king how he had restored to life him who was dead, behold, the woman whose son he had restored to life begged the king for her house and for her land. Gehazi said, "My lord, O king, this is the woman, and this is her son, whom Elisha restored to life." 
-When the king asked the woman, she told him. So the king appointed to her a certain officer, saying, "Restore all that was hers, and all the fruits of the field mistakece the day that she left the land, even until now." 
+When the king asked the woman, she told him. So the king appointed to her a certain officer, saying, "Restore all that was hers, and all the fruits of the field since the day that she left the land, even until now." 
 Elisha came to Damascus; and Benhadad the king of Syria was sick. He was told, "The man of God has come here." 
 The king said to Hazael, "Take a present in your hand, and go meet the man of God, and inquire of God by him, saying, 'Will I recover from this sickness?'" 
 So Hazael went to meet him and took a present with him, even of every good thing of Damascus, forty camels' burden, and came and stood before him and said, "Your son Benhadad king of Syria has sent me to you, saying, 'Will I recover from this sickness?'" 

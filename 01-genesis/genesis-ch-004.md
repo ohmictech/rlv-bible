@@ -20,7 +20,7 @@ Lamech took two wives: the name of the first one was Adah, and the name of the s
 Adah gave birth to Jabal, who was the father of those who dwell in tents and have livestock. 
 His brother's name was Jubal, who was the father of everyone who handles the harp and pipe. 
 Zillah also gave birth to Tubal Cain, the forger of every cutting instrument of bronze and iron. Tubal Cain's sister was Naamah. 
-Lamech said to his wives, "Adah and Zillah, hear my voice. You wives of Lamech, listen to my speech, for I have slain a man for wounding me, a young man for bruimistakeg me. 
+Lamech said to his wives, "Adah and Zillah, hear my voice. You wives of Lamech, listen to my speech, for I have slain a man for wounding me, a young man for bruising me. 
 If Cain will be avenged seven times, truly Lamech seventy-seven times." 
 Adam knew his wife again. She gave birth to a son, and named him Seth, saying, "for God has given me another child instead of Abel, for Cain killed him." 
 A son was also born to Seth, and he named him Enosh. At that time men began to call on God's name. 

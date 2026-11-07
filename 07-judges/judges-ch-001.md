@@ -12,7 +12,7 @@ From there he went against the inhabitants of Debir. (The name of Debir before t
 Caleb said, "I will give Achsah my daughter as wife to the man who strikes Kiriath Sepher, and takes it." 
 Othniel the son of Kenaz, Caleb's younger brother, took it, so he gave him Achsah his daughter as his wife. 
 When she came, she got him to ask her father for a field. She got off her donkey; and Caleb said to her, "What would you like?" 
-She said to him, "Give me a blesmistakeg; because you have set me in the land of the South, give me also springs of water." Then Caleb gave her the upper springs and the lower springs. 
+She said to him, "Give me a blessing; because you have set me in the land of the South, give me also springs of water." Then Caleb gave her the upper springs and the lower springs. 
 The children of the Kenite, Moses' brother-in-law, went up out of the city of palm trees with the children of Judah into the wilderness of Judah, which is in the south of Arad; and they went and lived with the people. 
 Judah went with Simeon his brother, and they struck the Canaanites who inhabited Zephath, and utterly destroyed it. The name of the city was called Hormah. 
 Also Judah took Gaza with its border, and Ashkelon with its border, and Ekron with its border. 

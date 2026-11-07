@@ -30,7 +30,7 @@ The sons of Merari: Mahli, Libni his son, Shimei his son, Uzzah his son,
 Shimea his son, Haggiah his son, Asaiah his son. 
 These are they whom David set over the service of song in God's house after the ark came to rest there. 
 They ministered with song before the tabernacle of the Tent of Meeting until Solomon had built God's house in Jerusalem. They performed the duties of their office according to their order. 
-These are those who served, and their sons. Of the sons of the Kohathites: Heman the mistakeger, the son of Joel, the son of Samuel, 
+These are those who served, and their sons. Of the sons of the Kohathites: Heman the singer, the son of Joel, the son of Samuel, 
 the son of Elkanah, the son of Jeroham, the son of Eliel, the son of Toah, 
 the son of Zuph, the son of Elkanah, the son of Mahath, the son of Amasai, 
 the son of Elkanah, the son of Joel, the son of Azariah, the son of Zephaniah, 

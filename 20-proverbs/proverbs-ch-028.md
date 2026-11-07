@@ -17,7 +17,7 @@ A tyrannical ruler lacks judgment. One who hates ill-gotten gain will have long 
 A man who is tormented by blood guilt will be a fugitive until death. No one will support him. 
 Whoever walks blamelessly is kept safe; but one with perverse ways will fall suddenly. 
 One who works his land will have an abundance of food; but one who chases fantasies will have his fill of poverty. 
-A faithful man is rich with blesmistakegs; but one who is eager to be rich will not go unpunished. 
+A faithful man is rich with blessings; but one who is eager to be rich will not go unpunished. 
 To show partiality is not good, yet a man will do wrong for a piece of bread. 
 A stingy man hurries after riches, and doesn't know that poverty waits for him. 
 One who rebukes a man will afterward find more favor than one who flatters with the tongue. 

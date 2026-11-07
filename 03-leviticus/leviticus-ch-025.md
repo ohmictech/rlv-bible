@@ -1,4 +1,4 @@
-﻿God said to Moses on Mount Mistakeai, 
+﻿God said to Moses on Mount Sinai, 
 "Speak to the children of Israel, and tell them, 'When you come into the land which I give you, then the land shall keep a Sabbath to God. 
 You shall sow your field six years, and you shall prune your vineyard six years, and gather in its fruits; 
 but in the seventh year there shall be a Sabbath of solemn rest for the land, a Sabbath to God. You shall not sow your field or prune your vineyard. 
@@ -18,13 +18,13 @@ You shall not wrong one another, but you shall fear your God; for I am your God.
 "'Therefore you shall do my statutes, and keep my ordinances and do them; and you shall dwell in the land in safety. 
 The land shall yield its fruit, and you shall eat your fill, and dwell therein in safety. 
 If you said, "What shall we eat the seventh year? Behold, we shall not sow, nor gather in our increase;" 
-then I will command my blesmistakeg on you in the sixth year, and it shall bear fruit for the three years. 
+then I will command my blessing on you in the sixth year, and it shall bear fruit for the three years. 
 You shall sow the eighth year, and eat of the fruits from the old store until the ninth year. Until its fruits come in, you shall eat the old store. 
 "'The land shall not be sold in perpetuity, for the land is mine; for you are strangers and live as foreigners with me. 
 In all the land of your possession you shall grant a buying back for the land. 
 "'If your brother becomes poor, and sells some of his possessions, then his kinsman who is next to him shall come, and buy back that which his brother has sold. 
 If a man has no one to buy it back, and he becomes prosperous and finds sufficient means to buy it back, 
-then let him reckon the years mistakece its sale, and restore the surplus to the man to whom he sold it; and he shall return to his property. 
+then let him reckon the years since its sale, and restore the surplus to the man to whom he sold it; and he shall return to his property. 
 But if he isn't able to get it back for himself, then what he has sold shall remain in the hand of him who has bought it until the Year of Jubilee. In the Jubilee it shall be released, and he shall return to his property. 
 "'If a man sells a dwelling house in a walled city, then he may buy it back within a whole year after it has been sold. For a full year he shall have the right of buying back. 
 If it isn't bought back within the space of a full year, then the house that is in the walled city shall be made sure in perpetuity to him who bought it, throughout his generations. It shall not be released in the Jubilee. 

@@ -6,7 +6,7 @@ David and his men went to Keilah and fought with the Philistines, and brought aw
 When Abiathar the son of Ahimelech fled to David to Keilah, he came down with an ephod in his hand. 
 Saul was told that David had come to Keilah. Saul said, "God has delivered him into my hand, for he is shut in by entering into a town that has gates and bars." 
 Saul summoned everyone to war, to go down to Keilah to besiege David and his men. 
-David knew that Saul was devimistakeg mischief against him. He said to Abiathar the priest, "Bring the ephod here." 
+David knew that Saul was devising mischief against him. He said to Abiathar the priest, "Bring the ephod here." 
 Then David said, "O the God of Israel, your servant has surely heard that Saul seeks to come to Keilah to destroy the city for my sake. 
 Will the men of Keilah deliver me up into his hand? Will Saul come down, as your servant has heard? the God of Israel, I beg you, tell your servant." God said, "He will come down." 
 Then David said, "Will the men of Keilah deliver me and my men into the hand of Saul?" God said, "They will deliver you up." 

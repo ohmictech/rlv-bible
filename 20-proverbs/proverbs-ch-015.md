@@ -23,7 +23,7 @@ Where there is no counsel, plans fail; but in a multitude of counselors they are
 Joy comes to a man with the reply of his mouth. How good is a word at the right time! 
 The path of life leads upward for the wise, to keep him from going downward to Hades. 
 God will uproot the house of the proud, but he will keep the widow's borders intact. 
-God detests the thoughts of the guilty, but the thoughts of the pure are pleamistakeg. 
+God detests the thoughts of the guilty, but the thoughts of the pure are pleasing. 
 He who is greedy for gain troubles his own house, but he who hates bribes will live. 
 The heart of the righteous weighs answers, but the mouth of the guilty gushes out bad. 
 God is far from the guilty, but he hears the prayer of the righteous. 

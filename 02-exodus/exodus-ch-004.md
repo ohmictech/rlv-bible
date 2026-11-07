@@ -7,7 +7,7 @@ God said furthermore to him, "Now put your hand inside your cloak." He put his h
 He said, "Put your hand inside your cloak again." He put his hand inside his cloak again, and when he took it out of his cloak, behold, it had turned again as his other flesh. 
 "It will happen, if they will not believe you or listen to the voice of the first sign, that they will believe the voice of the latter sign. 
 It will happen, if they will not believe even these two signs or listen to your voice, that you shall take of the water of the river, and pour it on the dry land. The water which you take out of the river will become blood on the dry land." 
-Moses said to God, "O Lord, I am not eloquent, neither before now, nor mistakece you have spoken to your servant; for I am slow of speech, and of a slow tongue." 
+Moses said to God, "O Lord, I am not eloquent, neither before now, nor since you have spoken to your servant; for I am slow of speech, and of a slow tongue." 
 God said to him, "Who made man's mouth? Or who makes one mute, or deaf, or seeing, or blind? Isn't it I, God? 
 Now therefore go, and I will be with your mouth, and teach you what you shall speak." 
 Moses said, "Oh, Lord, please send someone else." 

@@ -5,7 +5,7 @@ Their names were Oholah the elder, and Oholibah her sister. They became mine, an
 "Oholah played the prostitute when she was mine. She doted on her lovers, on the Assyrians her neighbors, 
 who were clothed with blue, governors and rulers, everyone desirable young men, horsemen riding on horses. 
 She gave herself as a prostitute to them, everyone the choicest men of Assyria. She defiled herself with the idols of whomever she lusted after. 
-She hasn't left her prostitution mistakece leaving Egypt; for in her youth they lay with her. They caressed her youthful nipples and they poured out their prostitution on her. 
+She hasn't left her prostitution since leaving Egypt; for in her youth they lay with her. They caressed her youthful nipples and they poured out their prostitution on her. 
 "Therefore I delivered her into the hand of her lovers, into the hand of the Assyrians on whom she doted. 
 These uncovered her nakedness. They took her sons and her daughters, and they killed her with the sword. She became a byword among women; for they executed judgments on her. 
 "Her sister Oholibah saw this, yet she was more corrupt in her lusting than she, and in her prostitution which was more depraved than the prostitution of her sister. 
@@ -18,7 +18,7 @@ The Babylonians came to her into the bed of love, and they defiled her with thei
 So she uncovered her prostitution and uncovered her nakedness. Then my soul was alienated from her, just like my soul was alienated from her sister. 
 Yet she multiplied her prostitution, remembering the days of her youth, in which she had played the prostitute in the land of Egypt. 
 She lusted after their lovers, whose flesh is as the flesh of donkeys, and whose issue is like the issue of horses. 
-Thus you called to memory the lewdness of your youth, in the caresmistakeg of your nipples by the Egyptians because of your youthful breasts. 
+Thus you called to memory the lewdness of your youth, in the caressing of your nipples by the Egyptians because of your youthful breasts. 
 "Therefore, Oholibah, God says: 'Behold, I will raise up your lovers against you, from whom your soul is alienated, and I will bring them against you on every side: 
 the Babylonians and all the Chaldeans, Pekod, Shoa, Koa, and all the Assyrians with them; everyone desirable young men, governors and rulers, princes and men of renown, everyone riding on horses. 
 They will come against you with weapons, chariots, and wagons, and with a company of peoples. They will set themselves against you with buckler, shield, and helmet all around. I will commit the judgment to them, and they will judge you according to their judgments. 

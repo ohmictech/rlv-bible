@@ -2,7 +2,7 @@
 A person born of a forbidden union shall not enter into God's assembly; even to the tenth generation shall no one of his enter into God's assembly. 
 An Ammonite or a Moabite shall not enter into God's assembly; even to the tenth generation shall no one belonging to them enter into God's assembly for the eras, 
 because they didn't meet you with bread and with water on the way when you came out of Egypt, and because they hired against you Balaam the son of Beor from Pethor of Mesopotamia, to curse you. 
-Nevertheless your God wouldn't listen to Balaam, but your God turned the curse into a blesmistakeg to you, because your God loved you. 
+Nevertheless your God wouldn't listen to Balaam, but your God turned the curse into a blessing to you, because your God loved you. 
 You shall not seek their peace nor their prosperity all your days for the eras. 
 You shall not abhor an Edomite, for he is your brother. You shall not abhor an Egyptian, because you lived as a foreigner in his land. 
 The children of the third generation who are born to them may enter into God's assembly. 

@@ -5,7 +5,7 @@ I will multiply your offspring as the stars of the sky, and will give all these 
 because Abraham obeyed my voice, and kept my requirements, my commandments, my statutes, and my laws." 
 Isaac lived in Gerar. 
 The men of the place asked him about his wife. He said, "She is my sister," for he was afraid to say, "My wife", lest, he thought, "the men of the place might kill me for Rebekah, because she is beautiful to look at." 
-When he had been there a long time, Abimelech king of the Philistines looked out at a window, and saw, and, behold, Isaac was caresmistakeg Rebekah, his wife. 
+When he had been there a long time, Abimelech king of the Philistines looked out at a window, and saw, and, behold, Isaac was caressing Rebekah, his wife. 
 Abimelech called Isaac, and said, "Behold, surely she is your wife. Why did you say, 'She is my sister'?" Isaac said to him, "Because I said, 'Lest I die because of her.'" 
 Abimelech said, "What is this you have done to us? One of the people might easily have lain with your wife, and you would have brought guilt on us!" 
 Abimelech commanded everyone, saying, "He who touches this man or his wife will surely be put to death." 
@@ -24,7 +24,7 @@ He went up from there to Beersheba.
 God appeared to him the same night, and said, "I am the God of Abraham your father. Don't be afraid, for I am with you, and will bless you, and multiply your offspring for my servant Abraham's sake." 
 He built an altar there, and called on God's name, and pitched his tent there. There Isaac's servants dug a well. 
 Then Abimelech went to him from Gerar with Ahuzzath his friend, and Phicol the captain of his army. 
-Isaac said to them, "Why have you come to me, mistakece you hate me, and have sent me away from you?" 
+Isaac said to them, "Why have you come to me, since you hate me, and have sent me away from you?" 
 They said, "We saw plainly that God was with you. We said, 'Let there now be an oath between us, even between us and you, and let's make a covenant with you, 
 that you will do us no harm, as we have not touched you, and as we have done to you nothing but good, and have sent you away in peace.' You are now the blessed of God." 
 He made them a feast, and they ate and drank. 

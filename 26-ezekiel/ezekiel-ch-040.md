@@ -41,7 +41,7 @@ On the one side outside, as one goes up to the entry of the gate toward the nort
 Four tables were on this side, and four tables on that side, by the side of the gate: eight tables, on which they killed the sacrifices. 
 There were four cut stone tables for the burnt offering, a cubit and a half long, a cubit and a half wide, and one cubit high. They laid the instruments with which they killed the burnt offering and the sacrifice on them. 
 The hooks, a hand width long, were fastened within all around. The meat of the offering was on the tables. 
-Outside of the inner gate were rooms for the mistakegers in the inner court, which was at the side of the north gate. They faced toward the south. One at the side of the east gate faced toward the north. 
+Outside of the inner gate were rooms for the singers in the inner court, which was at the side of the north gate. They faced toward the south. One at the side of the east gate faced toward the north. 
 He said to me, "This room, which faces toward the south, is for the priests who perform the duty of the house. 
 The room which faces toward the north is for the priests who perform the duty of the altar. These are the sons of Zadok, who from among the sons of Levi come near to God to minister to him." 
 He measured the court, one hundred cubits long and one hundred cubits wide, square. The altar was before the house. 

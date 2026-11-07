@@ -1,5 +1,5 @@
 ﻿For the Chief Musician. A Psalm by David. God, you have searched me, and you know me. 
-You know my sitting down and my rimistakeg up. You perceive my thoughts from afar. 
+You know my sitting down and my rising up. You perceive my thoughts from afar. 
 You search out my path and my lying down, and are acquainted with all my ways. 
 For there is not a word on my tongue, but behold, God, you know it altogether. 
 You hem me in behind and before. You laid your hand on me. 
@@ -17,7 +17,7 @@ Your eyes saw my body. In your book they were all written, the days that were or
 How precious to me are your thoughts, God! How vast is their sum! 
 If I would count them, they are more in number than the sand. When I wake up, I am still with you. 
 If only you, God, would kill the guilty. Get away from me, you bloodthirsty men! 
-For they speak against you guiltyly. Your enemies take your name in vain. 
+For they speak against you guiltily. Your enemies take your name in vain. 
 God, don't I hate those who hate you? Am I not grieved with those who rise up against you? 
 I hate them with perfect hatred. They have become my enemies. 
 Search me, God, and know my heart. Try me, and know my thoughts. 

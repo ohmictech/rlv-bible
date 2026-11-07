@@ -5,9 +5,9 @@ Our fathers trusted in you. They trusted, and you delivered them.
 They cried to you, and were delivered. They trusted in you, and were not disappointed. 
 But I am a worm, and no man; a reproach of men, and despised by the people. 
 Everyone who sees me mock me. They insult me with their lips. They shake their heads, saying, 
-"He trusts in God. Let him deliver him. Let him rescue him, mistakece he delights in him." 
+"He trusts in God. Let him deliver him. Let him rescue him, since he delights in him." 
 But you brought me out of the womb. You made me trust while at my mother's breasts. 
-I was thrown on you from my mother's womb. You are my God mistakece my mother bore me. 
+I was thrown on you from my mother's womb. You are my God since my mother bore me. 
 Don't be far from me, for trouble is near. For there is no one to help. 
 Many bulls have surrounded me. Strong bulls of Bashan have encircled me. 
 They open their mouths wide against me, lions tearing prey and roaring. 

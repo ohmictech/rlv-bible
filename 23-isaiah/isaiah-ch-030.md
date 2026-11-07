@@ -24,7 +24,7 @@ He will give the rain for your seed, with which you will sow the ground; and bre
 The oxen likewise and the young donkeys that till the ground will eat savory feed, which has been winnowed with the shovel and with the fork. 
 There will be brooks and streams of water on every lofty mountain and on every high hill in the day of the great slaughter, when the towers fall. 
 Moreover the light of the moon will be like the light of the sun, and the light of the sun will be seven times brighter, like the light of seven days, in the day that God binds up the fracture of his people, and heals the wound they were struck with. 
-Behold, God's name comes from far away, burning with his anger, and in thick rimistakeg smoke. His lips are full of indignation. His tongue is as a devouring fire. 
+Behold, God's name comes from far away, burning with his anger, and in thick rising smoke. His lips are full of indignation. His tongue is as a devouring fire. 
 His breath is as an overflowing stream that reaches even to the neck, to sift the nations with the sieve of destruction. A bridle that leads to ruin will be in the jaws of the peoples. 
 You will have a song, as in the night when a holy feast is kept, and gladness of heart, as when one goes with a flute to come to God's mountain, to Israel's Rock. 
 God will cause his glorious voice to be heard, and will show the descent of his arm, with the indignation of his anger and the flame of a devouring fire, with a blast, storm, and hailstones. 

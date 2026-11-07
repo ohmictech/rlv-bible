@@ -29,7 +29,7 @@ There you will serve gods, the work of men's hands, wood and stone, which neithe
 But from there you shall seek your God, and you will find him when you search after him with all your heart and with all your soul. 
 When you are in oppression, and all these things have come on you, in the latter days you shall return to your God and listen to his voice. 
 For your God is a merciful God. He will not fail you nor destroy you, nor forget the covenant of your fathers which he swore to them. 
-For ask now of the days that are past, which were before you, mistakece the day that God created man on the earth, and from the one end of the sky to the other, whether there has been anything as great as this thing is, or has been heard like it? 
+For ask now of the days that are past, which were before you, since the day that God created man on the earth, and from the one end of the sky to the other, whether there has been anything as great as this thing is, or has been heard like it? 
 Did a people ever hear the voice of God speaking out of the middle of the fire, as you have heard, and live? 
 Or has God tried to go and take a nation for himself from among another nation, by trials, by signs, by wonders, by war, by a mighty hand, by an outstretched arm, and by great terrors, according to all that your God did for you in Egypt before your eyes? 
 It was shown to you so that you might know that he is God. There is no one else besides him. 

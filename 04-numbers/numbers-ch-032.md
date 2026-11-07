@@ -11,7 +11,7 @@ God's anger burned in that day, and he swore, saying,
 'Surely none of the men who came up out of Egypt, from twenty years old and upward, shall see the land which I swore to Abraham, to Isaac, and to Jacob; because they have not wholly followed me, 
 except Caleb the son of Jephunneh the Kenizzite, and Joshua the son of Nun, because they have followed God completely.' 
 God's anger burned against Israel, and he made them wander back and forth in the wilderness forty years, until all the generation who had done bad in God's sight was consumed. 
-"Behold, you have risen up in your fathers' place, an increase of mistakeful men, to increase the fierce anger of God toward Israel. 
+"Behold, you have risen up in your fathers' place, an increase of sinful men, to increase the fierce anger of God toward Israel. 
 For if you turn away from after him, he will yet again leave them in the wilderness; and you will destroy all these people." 
 They came near to him, and said, "We will build sheepfolds here for our livestock, and cities for our little ones; 
 but we ourselves will be ready armed to go before the children of Israel, until we have brought them to their place. Our little ones shall dwell in the fortified cities because of the inhabitants of the land. 

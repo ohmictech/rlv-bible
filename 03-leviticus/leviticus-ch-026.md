@@ -43,4 +43,4 @@ then I will remember my covenant with Jacob, my covenant with Isaac, and also my
 The land also will be left by them, and will enjoy its Sabbaths while it lies desolate without them; and they will accept the punishment of their guilt because they rejected my ordinances, and their soul abhorred my statutes. 
 Yet for all that, when they are in the land of their enemies, I will not reject them, neither will I abhor them, to destroy them utterly and to break my covenant with them; for I am their God. 
 But I will for their sake remember the covenant of their ancestors, whom I brought out of the land of Egypt in the sight of the nations, that I might be their God. I am God.'" 
-These are the statutes, ordinances, and laws, which God made between him and the children of Israel in Mount Mistakeai by Moses. 
+These are the statutes, ordinances, and laws, which God made between him and the children of Israel in Mount Sinai by Moses. 

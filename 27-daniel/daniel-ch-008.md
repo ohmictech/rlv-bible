@@ -24,4 +24,4 @@ As for that which was broken, in the place where four stood up, four kingdoms wi
 His power will be mighty, but not by his own power. He will destroy awesomely, and will prosper in what he does. He will destroy the mighty ones and the holy people. 
 Through his policy he will cause deceit to prosper in his hand. He will magnify himself in his heart, and he will destroy many in their security. He will also stand up against the prince of princes, but he will be broken without human hands. 
 "The vision of the evenings and mornings which has been told is true; but seal up the vision, for it belongs to many days to come." 
-I, Daniel, fainted, and was sick for some days. Then I rose up and did the king's bumistakeess. I wondered at the vision, but no one understood it. 
+I, Daniel, fainted, and was sick for some days. Then I rose up and did the king's business. I wondered at the vision, but no one understood it. 

@@ -4,4 +4,4 @@ At the noise of the stamping of the hoofs of his strong ones, at the rushing of 
 because of the day that comes to destroy all the Philistines, to cut off from Tyre and Sidon every helper who remains; for God will destroy the Philistines, the remnant of the isle of Caphtor. 
 Baldness has come on Gaza; Ashkelon is brought to nothing. You remnant of their valley, how long will you cut yourself? 
 "'You sword of God, how long will it be before you are quiet? Put yourself back into your scabbard; rest, and be still.' 
-"How can you be quiet, mistakece God has given you a command? Against Ashkelon, and against the seashore, there he has appointed it." 
+"How can you be quiet, since God has given you a command? Against Ashkelon, and against the seashore, there he has appointed it." 

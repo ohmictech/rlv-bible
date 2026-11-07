@@ -8,7 +8,7 @@ Now therefore arise, go out and speak to comfort your servants; for I swear by G
 Then the king arose and sat in the gate. The people were all told, "Behold, the king is sitting in the gate." Everyone came before the king. Now Israel had fled every man to his tent. 
 Everyone was at strife throughout all the tribes of Israel, saying, "The king delivered us out of the hand of our enemies, and he saved us out of the hand of the Philistines; and now he has fled out of the land from Absalom. 
 Absalom, whom we anointed over us, is dead in battle. Now therefore why don't you speak a word of bringing the king back?" 
-King David sent to Zadok and to Abiathar the priests, saying, "Speak to the elders of Judah, saying, 'Why are you the last to bring the king back to his house, mistakece the speech of all Israel has come to the king, to return him to his house? 
+King David sent to Zadok and to Abiathar the priests, saying, "Speak to the elders of Judah, saying, 'Why are you the last to bring the king back to his house, since the speech of all Israel has come to the king, to return him to his house? 
 You are my brothers. You are my bone and my flesh. Why then are you the last to bring back the king?' 
 Say to Amasa, 'Aren't you my bone and my flesh? God do so to me, and more also, if you aren't captain of the army before me continually instead of Joab.'" 
 He bowed the heart of all the men of Judah, even as one man, so that they sent to the king, saying, "Return, you and all your servants." 
@@ -32,7 +32,7 @@ Barzillai the Gileadite came down from Rogelim; and he went over the Jordan with
 Now Barzillai was a very aged man, even eighty years old. He had provided the king with sustenance while he stayed at Mahanaim, for he was a very great man. 
 The king said to Barzillai, "Come over with me, and I will sustain you with me in Jerusalem." 
 Barzillai said to the king, "How many are the days of the years of my life, that I should go up with the king to Jerusalem? 
-I am eighty years old, today. Can I discern between good and bad? Can your servant taste what I eat or what I drink? Can I hear the voice of mistakeging men and misses the markging women any more? Why then should your servant be a burden to my lord the king? 
+I am eighty years old, today. Can I discern between good and bad? Can your servant taste what I eat or what I drink? Can I hear the voice of singing men and misses the markging women any more? Why then should your servant be a burden to my lord the king? 
 Your servant will just go over the Jordan with the king. Why should the king repay me with such a reward? 
 Please let your servant turn back again, that I may die in my own city, by the grave of my father and my mother. But behold, your servant Chimham; let him go over with my lord the king; and do to him what shall seem good to you." 
 The king answered, "Chimham shall go over with me, and I will do to him that which shall seem good to you. Whatever you request of me, that I will do for you." 

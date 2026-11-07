@@ -1,5 +1,5 @@
 ﻿After these things God's word came to Abram in a vision, saying, "Don't be afraid, Abram. I am your shield, your exceedingly great reward." 
-Abram said, "God, what will you give me, mistakece I go childless, and he who will inherit my estate is Eliezer of Damascus?" 
+Abram said, "God, what will you give me, since I go childless, and he who will inherit my estate is Eliezer of Damascus?" 
 Abram said, "Behold, you have given no children to me: and, behold, one born in my house is my heir." 
 Behold, God's word came to him, saying, "This man will not be your heir, but he who will come out of your own body will be your heir." 
 God brought him outside, and said, "Look now toward the sky, and count the stars, if you are able to count them." He said to Abram, "So your offspring will be." 

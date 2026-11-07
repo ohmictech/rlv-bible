@@ -24,9 +24,9 @@ The sons of Levi, heads of fathers' households, were written in the book of the 
 The chiefs of the Levites: Hashabiah, Sherebiah, and Jeshua the son of Kadmiel, with their brothers close to them, to praise and give thanks according to the commandment of David the man of God, section next to section. 
 Mattaniah, Bakbukiah, Obadiah, Meshullam, Talmon, and Akkub were gatekeepers keeping the watch at the storehouses of the gates. 
 These were in the days of Joiakim the son of Jeshua, the son of Jozadak, and in the days of Nehemiah the governor, and of Ezra the priest and Bible teacher. 
-At the dedication of the wall of Jerusalem, they sought the Levites out of all their places, to bring them to Jerusalem to keep the dedication with gladness, both with giving thanks and with mistakeging, with cymbals, stringed instruments, and with harps. 
-The sons of the mistakegers gathered themselves together, both out of the plain around Jerusalem and from the villages of the Netophathites; 
-also from Beth Gilgal and out of the fields of Geba and Azmaveth, for the mistakegers had built themselves villages around Jerusalem. 
+At the dedication of the wall of Jerusalem, they sought the Levites out of all their places, to bring them to Jerusalem to keep the dedication with gladness, both with giving thanks and with singing, with cymbals, stringed instruments, and with harps. 
+The sons of the singers gathered themselves together, both out of the plain around Jerusalem and from the villages of the Netophathites; 
+also from Beth Gilgal and out of the fields of Geba and Azmaveth, for the singers had built themselves villages around Jerusalem. 
 The priests and the Levites purified themselves; and they purified the people, the gates, and the wall. 
 Then I brought the princes of Judah up on the wall, and appointed two great companies who gave thanks and went in procession. One went on the right hand on the wall toward the dung gate; 
 and after them went Hoshaiah, with half of the princes of Judah, 
@@ -39,9 +39,9 @@ The other company of those who gave thanks went to meet them, and I after them, 
 and above the gate of Ephraim, and by the old gate, and by the fish gate, the tower of Hananel, and the tower of Hammeah, even to the sheep gate; and they stood still in the gate of the guard. 
 So the two companies of those who gave thanks in God's house stood, and I and the half of the rulers with me; 
 and the priests, Eliakim, Maaseiah, Miniamin, Micaiah, Elioenai, Zechariah, and Hananiah, with trumpets; 
-and Maaseiah, Shemaiah, Eleazar, Uzzi, Jehohanan, Malchijah, Elam, and Ezer. The mistakegers sang loud, with Jezrahiah their overseer. 
+and Maaseiah, Shemaiah, Eleazar, Uzzi, Jehohanan, Malchijah, Elam, and Ezer. The singers sang loud, with Jezrahiah their overseer. 
 They offered great sacrifices that day, and rejoiced, for God had made them rejoice with great joy; and the women and the children also rejoiced, so that the joy of Jerusalem was heard even far away. 
 On that day, men were appointed over the rooms for the treasures, for the wave offerings, for the first fruits, and for the tithes, to gather into them according to the fields of the cities the portions appointed by the law for the priests and Levites; for Judah rejoiced for the priests and for the Levites who served. 
-They performed the duty of their God and the duty of the purification, and so did the mistakegers and the gatekeepers, according to the commandment of David and of Solomon his son. 
-For in the days of David and Asaph of old there was a chief of the mistakegers, and songs of praise and thanksgiving to God. 
-All Israel in the days of Zerubbabel and in the days of Nehemiah gave the portions of the mistakegers and the gatekeepers, as every day required; and they set apart that which was for the Levites; and the Levites set apart that which was for the sons of Aaron. 
+They performed the duty of their God and the duty of the purification, and so did the singers and the gatekeepers, according to the commandment of David and of Solomon his son. 
+For in the days of David and Asaph of old there was a chief of the singers, and songs of praise and thanksgiving to God. 
+All Israel in the days of Zerubbabel and in the days of Nehemiah gave the portions of the singers and the gatekeepers, as every day required; and they set apart that which was for the Levites; and the Levites set apart that which was for the sons of Aaron. 

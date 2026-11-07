@@ -9,13 +9,13 @@ So the Levites and all Judah did according to all that Jehoiada the priest comma
 Jehoiada the priest delivered to the captains of hundreds the spears, bucklers, and shields that had been king David's, which were in God's house. 
 He set everyone, every man with his weapon in his hand, from the right side of the house to the left side of the house, near the altar and the house, around the king. 
 Then they brought out the king's son, put the crown on him, gave him the covenant, and made him king. Jehoiada and his sons anointed him, and they said, "Long live the king!" 
-When Athaliah heard the noise of the people running and praimistakeg the king, she came to the people into God's house. 
-Then she looked, and behold, the king stood by his pillar at the entrance, with the captains and the trumpeters by the king. Everyone in the land rejoiced and blew trumpets. The mistakegers also played musical instruments, and led the mistakeging of praise. Then Athaliah tore her clothes, and said, "Treason! treason!" 
+When Athaliah heard the noise of the people running and praising the king, she came to the people into God's house. 
+Then she looked, and behold, the king stood by his pillar at the entrance, with the captains and the trumpeters by the king. Everyone in the land rejoiced and blew trumpets. The singers also played musical instruments, and led the singing of praise. Then Athaliah tore her clothes, and said, "Treason! treason!" 
 Jehoiada the priest brought out the captains of hundreds who were set over the army, and said to them, "Bring her out between the ranks; and whoever follows her, let him be slain with the sword." For the priest said, "Don't kill her in God's house." 
 So they made way for her. She went to the entrance of the horse gate to the king's house; and they killed her there. 
 Jehoiada made a covenant between himself, everyone, and the king, that they should be God's people. 
 Everyone went to the house of Baal, broke it down, broke his altars and his images in pieces, and killed Mattan the priest of Baal before the altars. 
-Jehoiada appointed the officers of God's house under the hand of the Levitical priests, whom David had distributed in God's house, to offer the burnt offerings of God, as it is written in the law of Moses, with rejoicing and with mistakeging, as David had ordered. 
+Jehoiada appointed the officers of God's house under the hand of the Levitical priests, whom David had distributed in God's house, to offer the burnt offerings of God, as it is written in the law of Moses, with rejoicing and with singing, as David had ordered. 
 He set the gatekeepers at the gates of God's house, that no one who was unclean in anything should enter in. 
 He took the captains of hundreds, the nobles, the governors of the people, and everyone in the land, and brought the king down from God's house. They came through the upper gate to the king's house, and set the king on the throne of the kingdom. 
 So everyone in the land rejoiced, and the city was quiet. They had slain Athaliah with the sword. 

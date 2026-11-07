@@ -10,7 +10,7 @@ If I say that I will not make mention of him, or speak any more in his name, the
 For I have heard the defaming of many: "Terror on every side! Denounce, and we will denounce him!" say all my familiar friends, those who watch for my fall. "Perhaps he will be persuaded, and we will prevail against him, and we will take our revenge on him." 
 But God is with me as an awesome mighty one. Therefore my persecutors will stumble, and they won't prevail. They will be utterly disappointed because they have not dealt wisely, even with an perpetual dishonor which will never be forgotten. 
 But the God of Armies, who tests the righteous, who sees the heart and the mind, let me see your vengeance on them, for I have revealed my cause to you. 
-Mistakeg to God! Praise God, for he has delivered the soul of the needy from the hand of those who do bad. 
+Sing to God! Praise God, for he has delivered the soul of the needy from the hand of those who do bad. 
 Cursed is the day in which I was born. Don't let the day in which my mother bore me be blessed. 
 Cursed is the man who brought news to my father, saying, "A boy is born to you," making him very glad. 
 Let that man be as the cities which God overthrew, and didn't repent. Let him hear a cry in the morning, and shouting at noontime, 

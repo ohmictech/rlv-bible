@@ -6,7 +6,7 @@ One shall burn the heifer in his sight; her skin, and her meat, and her blood, w
 The priest shall take cedar wood, hyssop, and scarlet, and cast it into the middle of the burning of the heifer. 
 Then the priest shall wash his clothes, and he shall bathe his flesh in water, and afterward he shall come into the camp, and the priest shall be unclean until the evening. 
 He who burns her shall wash his clothes in water, and bathe his flesh in water, and shall be unclean until the evening. 
-"A man who is clean shall gather up the ashes of the heifer, and lay them up outside of the camp in a clean place; and it shall be kept for the congregation of the children of Israel for use in water for cleanmistakeg impurity. It is an offering for mistakes. 
+"A man who is clean shall gather up the ashes of the heifer, and lay them up outside of the camp in a clean place; and it shall be kept for the congregation of the children of Israel for use in water for cleansing impurity. It is an offering for mistakes. 
 He who gathers the ashes of the heifer shall wash his clothes, and be unclean until the evening. It shall be to the children of Israel, and to the stranger who lives as a foreigner among them, for a statute for the eras. 
 "He who touches the dead body of any man shall be unclean seven days. 
 He shall purify himself with water on the third day, and on the seventh day he shall be clean; but if he doesn't purify himself the third day, then the seventh day he shall not be clean. 

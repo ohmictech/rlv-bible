@@ -20,4 +20,4 @@ The officers of the children of Israel saw that they were in trouble when it was
 They met Moses and Aaron, who stood along the way, as they came out from Pharaoh. 
 They said to them, "May God look at you and judge, because you have made us a stench to be abhorred in the eyes of Pharaoh, and in the eyes of his servants, to put a sword in their hand to kill us!" 
 Moses returned to God, and said, "Lord, why have you brought trouble on this people? Why is it that you have sent me? 
-For mistakece I came to Pharaoh to speak in your name, he has brought trouble on this people. You have not rescued your people at all!" 
+For since I came to Pharaoh to speak in your name, he has brought trouble on this people. You have not rescued your people at all!" 

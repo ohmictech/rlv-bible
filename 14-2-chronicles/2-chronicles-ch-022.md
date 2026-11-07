@@ -1,6 +1,6 @@
 ﻿The inhabitants of Jerusalem made Ahaziah his youngest son king in his place, because the band of men who came with the Arabians to the camp had slain all the oldest. So Ahaziah the son of Jehoram king of Judah reigned. 
 Ahaziah was forty-two years old when he began to reign, and he reigned one year in Jerusalem. His mother's name was Athaliah the daughter of Omri. 
-He also walked in the ways of Ahab's house, because his mother was his counselor in acting guiltyly. 
+He also walked in the ways of Ahab's house, because his mother was his counselor in acting guiltily. 
 He did that which was bad in God's sight, as did Ahab's house, for they were his counselors after the death of his father, to his destruction. 
 He also followed their counsel, and went with Jehoram the son of Ahab king of Israel to war against Hazael king of Syria at Ramoth Gilead; and the Syrians wounded Joram. 
 He returned to be healed in Jezreel of the wounds which they had given him at Ramah, when he fought against Hazael king of Syria. Azariah the son of Jehoram, king of Judah, went down to see Jehoram the son of Ahab in Jezreel, because he was sick. 

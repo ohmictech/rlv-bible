@@ -13,6 +13,6 @@ He said, "You shall rejoice no more, you oppressed virgin daughter of Sidon. Ari
 Behold, the land of the Chaldeans. This people didn't exist. The Assyrians founded it for those who dwell in the wilderness. They set up their towers. They overthrew its palaces. They made it a ruin. 
 Howl, you ships of Tarshish, for your stronghold is laid waste! 
 It will come to pass in that day that Tyre will be forgotten seventy years, according to the days of one king. After the end of seventy years it will be to Tyre like in the song of the prostitute. 
-Take a harp; go about the city, you prostitute that has been forgotten. Make sweet melody. Mistakeg many songs, that you may be remembered. 
+Take a harp; go about the city, you prostitute that has been forgotten. Make sweet melody. Sing many songs, that you may be remembered. 
 It will happen after the end of seventy years that God will visit Tyre. She will return to her wages, and will play the prostitute with all the kingdoms of the world on the surface of the earth. 
 Her merchandise and her wages will be holiness to God. It will not be treasured nor laid up; for her merchandise will be for those who dwell before God, to eat sufficiently, and for durable clothing. 

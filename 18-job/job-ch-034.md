@@ -9,7 +9,7 @@ who goes in company with the workers of guilt, and walks with guilty men?
 For he has said, 'It profits a man nothing that he should delight himself with God.' 
 "Therefore listen to me, you men of understanding: far be it from God, that he should do guilt, from the Almighty, that he should commit guilt. 
 For the work of a man he will give to him, and cause every man to find according to his ways. 
-Yes surely, God will not do guiltyly, neither will the Almighty pervert justice. 
+Yes surely, God will not do guiltily, neither will the Almighty pervert justice. 
 Who put him in charge of the earth? Or who has appointed him over the whole world? 
 If he set his heart on himself, if he gathered to himself his spirit and his breath, 
 all flesh would perish together, and man would turn again to dust. 

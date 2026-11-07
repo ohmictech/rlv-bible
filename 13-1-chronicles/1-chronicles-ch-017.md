@@ -2,7 +2,7 @@
 Nathan said to David, "Do all that is in your heart; for God is with you." 
 That same night, the word of God came to Nathan, saying, 
 "Go and tell David my servant, 'God says, "You shall not build me a house to dwell in; 
-for I have not lived in a house mistakece the day that I brought up Israel to this day, but have gone from tent to tent, and from one tent to another. 
+for I have not lived in a house since the day that I brought up Israel to this day, but have gone from tent to tent, and from one tent to another. 
 In all places in which I have walked with all Israel, did I speak a word with any of the judges of Israel, whom I commanded to be shepherd of my people, saying, 'Why have you not built me a house of cedar?'"' 
 "Now therefore, you shall tell my servant David, 'The God of Armies says, "I took you from the sheep pen, from following the sheep, to be prince over my people Israel. 
 I have been with you wherever you have gone, and have cut off all your enemies from before you. I will make you a name like the name of the great ones who are on the earth. 

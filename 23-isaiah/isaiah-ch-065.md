@@ -5,13 +5,13 @@ who sit among the graves, and spend nights in secret places; who eat pig's meat,
 who say, 'Stay by yourself, don't come near to me, for I am holier than you.' These are smoke in my nose, a fire that burns all day. 
 "Behold, it is written before me: I will not keep silence, but will repay, yes, I will repay into their bosom 
 your own guilt and the guilt of your fathers together", says God, "who have burned incense on the mountains, and blasphemed me on the hills. Therefore I will first measure their work into their bosom." 
-God says, "As the new wine is found in the cluster, and one says, 'Don't destroy it, for a blesmistakeg is in it:' so I will do for my servants' sake, that I may not destroy them all. 
+God says, "As the new wine is found in the cluster, and one says, 'Don't destroy it, for a blessing is in it:' so I will do for my servants' sake, that I may not destroy them all. 
 I will bring offspring out of Jacob, and out of Judah an inheritor of my mountains. My chosen will inherit it, and my servants will dwell there. 
 Sharon will be a fold of flocks, and the valley of Achor a place for herds to lie down in, for my people who have sought me. 
 "But you who forsake God, who forget my holy mountain, who prepare a table for Fortune, and who fill up mixed wine to Destiny; 
 I will destine you to the sword, and you will all bow down to the slaughter; because when I called, you didn't answer. When I spoke, you didn't listen; but you did that which was bad in my eyes, and chose that in which I didn't delight." 
 Therefore God says, "Behold, my servants will eat, but you will be hungry; behold, my servants will drink, but you will be thirsty. Behold, my servants will rejoice, but you will be disappointed. 
-Behold, my servants will mistakeg for joy of heart, but you will cry for sorrow of heart, and will wail for anguish of spirit. 
+Behold, my servants will sing for joy of heart, but you will cry for sorrow of heart, and will wail for anguish of spirit. 
 You will leave your name for a curse to my chosen, and God will kill you. He will call his servants by another name, 
 so that he who blesses himself on the earth will bless himself in the God of truth; and he who swears on the earth will swear by the God of truth; because the former troubles are forgotten, and because they are hidden from my eyes. 
 "For, behold, I create new skies and a new earth; and the former things will not be remembered, nor come into mind. 

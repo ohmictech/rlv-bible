@@ -1,4 +1,4 @@
-﻿For the Chief Musician. On an instrument of Gath. By Asaph. Mistakeg aloud to God, our strength! Make a joyful shout to the God of Jacob! 
+﻿For the Chief Musician. On an instrument of Gath. By Asaph. Sing aloud to God, our strength! Make a joyful shout to the God of Jacob! 
 Raise a song, and bring here the tambourine, the pleasant lyre with the harp. 
 Blow the trumpet at the New Moon, at the full moon, on our feast day. 
 For it is a statute for Israel, an ordinance of the God of Jacob. 

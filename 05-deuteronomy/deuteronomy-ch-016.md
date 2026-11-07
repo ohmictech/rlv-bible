@@ -14,7 +14,7 @@ You shall keep the feast of booths seven days, after you have gathered in from y
 You shall rejoice in your feast, you, your son, your daughter, your male servant, your female servant, the Levite, the foreigner, the fatherless, and the widow who are within your gates. 
 You shall keep a feast to your God seven days in the place which God chooses, because your God will bless you in all your increase and in all the work of your hands, and you shall be altogether joyful. 
 Three times in a year all of your males shall appear before your God in the place which he chooses: in the feast of unleavened bread, in the feast of weeks, and in the feast of booths. They shall not appear before God empty. 
-Every man shall give as he is able, according to your God's blesmistakeg which he has given you. 
+Every man shall give as he is able, according to your God's blessing which he has given you. 
 You shall make judges and officers in all your gates, which your God gives you, according to your tribes; and they shall judge the people with righteous judgment. 
 You shall not pervert justice. You shall not show partiality. You shall not take a bribe, for a bribe blinds the eyes of the wise and perverts the words of the righteous. 
 You shall follow that which is altogether just, that you may live and inherit the land which your God gives you. 

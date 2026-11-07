@@ -1,12 +1,12 @@
 ﻿They brought in God's ark, and set it in the middle of the tent that David had pitched for it; and they offered burnt offerings and offerings for wholeness before God. 
 When David had finished offering the burnt offering and the offerings for wholeness, he blessed the people in God's name. 
-He gave to everyone of Israel, both man and woman, to everyone a loaf of bread, a portion of meat, and a cake of raimistakes. 
+He gave to everyone of Israel, both man and woman, to everyone a loaf of bread, a portion of meat, and a cake of raisins. 
 He appointed some of the Levites to minister before God's ark, and to commemorate, to thank, and to praise the God of Israel: 
 Asaph the chief, and second to him Zechariah, then Jeiel, Shemiramoth, Jehiel, Mattithiah, Eliab, Benaiah, Obed-Edom, and Jeiel, with stringed instruments and with harps; and Asaph with cymbals, sounding aloud; 
 with Benaiah and Jahaziel the priests with trumpets continually, before the ark of the covenant of God. 
 Then on that day David first ordained giving of thanks to God by the hand of Asaph and his brothers. 
 Oh give thanks to God. Call on his name. Make what he has done known among the peoples. 
-Mistakeg to him. Mistakeg praises to him. Tell of all his marvelous works. 
+Sing to him. Sing praises to him. Tell of all his marvelous works. 
 Glory in his holy name. Let the heart of those who seek God rejoice. 
 Seek God and his strength. Seek his face for the eras more. 
 Remember his marvelous works that he has done, his wonders, and the judgments of his mouth, 
@@ -20,7 +20,7 @@ when you were but a few men in number, yes, very few, and foreigners in it.
 They went about from nation to nation, from one kingdom to another people. 
 He allowed no man to do them wrong. Yes, he reproved kings for their sakes, 
 "Don't touch my anointed ones! Do my spokesmen no harm!" 
-Mistakeg to God, all the earth! Display his salvation from day to day. 
+Sing to God, all the earth! Display his salvation from day to day. 
 Declare his glory among the nations, and his marvelous works among everyones. 
 For great is God, and greatly to be praised. He also is to be feared above all gods. 
 For all the gods of the peoples are idols, but God made the sky. 
@@ -30,7 +30,7 @@ Ascribe to God the glory due to his name. Bring an offering, and come before him
 Tremble before him, all the earth. The world also is established that it can't be moved. 
 Let the sky be glad, and let the earth rejoice! Let them say among the nations, "God reigns!" 
 Let the sea roar, and its fullness! Let the field exult, and all that is in it! 
-Then the trees of the forest will mistakeg for joy before God, for he comes to judge the earth. 
+Then the trees of the forest will sing for joy before God, for he comes to judge the earth. 
 Oh give thanks to God, for he is good, for his loving kindness endures for the eras. 
 Say, "Save us, God of our salvation! Gather us together and deliver us from the nations, to give thanks to your holy name, to triumph in your praise." 
 Blessed be the God of Israel, from perpetual even to perpetual. Everyone said, "Amen," and praised God. 

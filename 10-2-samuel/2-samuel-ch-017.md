@@ -25,5 +25,5 @@ Then David came to Mahanaim. Absalom passed over the Jordan, he and all the men 
 Absalom set Amasa over the army instead of Joab. Now Amasa was the son of a man whose name was Ithra the Israelite, who went in to Abigail the daughter of Nahash, sister to Zeruiah, Joab's mother. 
 Israel and Absalom encamped in the land of Gilead. 
 When David had come to Mahanaim, Shobi the son of Nahash of Rabbah of the children of Ammon, and Machir the son of Ammiel of Lodebar, and Barzillai the Gileadite of Rogelim, 
-brought beds, bamistakes, earthen vessels, wheat, barley, meal, parched grain, beans, lentils, roasted grain, 
+brought beds, basins, earthen vessels, wheat, barley, meal, parched grain, beans, lentils, roasted grain, 
 honey, butter, sheep, and cheese of the herd, for David and for the people who were with him to eat; for they said, "The people are hungry, weary, and thirsty in the wilderness." 

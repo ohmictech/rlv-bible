@@ -25,9 +25,9 @@ When we came up to your servant my father, we told him the words of my lord.
 Our father said, 'Go again and buy us a little food.' 
 We said, 'We can't go down. If our youngest brother is with us, then we will go down: for we may not see the man's face, unless our youngest brother is with us.' 
 Your servant, my father, said to us, 'You know that my wife bore me two sons. 
-One went out from me, and I said, "Surely he is torn in pieces;" and I haven't seen him mistakece. 
+One went out from me, and I said, "Surely he is torn in pieces;" and I haven't seen him since. 
 If you take this one also from me, and harm happens to him, you will bring down my gray hairs with sorrow to Hades.' 
-Now therefore when I come to your servant my father, and the boy is not with us; mistakece his life is bound up in the boy's life; 
+Now therefore when I come to your servant my father, and the boy is not with us; since his life is bound up in the boy's life; 
 it will happen, when he sees that the boy is no more, that he will die. Your servants will bring down the gray hairs of your servant, our father, with sorrow to Hades. 
 For your servant became collateral for the boy to my father, saying, 'If I don't bring him to you, then I will bear the blame to my father for the eras.' 
 Now therefore, please let your servant stay instead of the boy, my lord's slave; and let the boy go up with his brothers. 

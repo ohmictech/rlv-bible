@@ -32,6 +32,6 @@ So Jehoshaphat reigned over Judah. He was thirty-five years old when he began to
 He walked in the way of Asa his father, and didn't turn away from it, doing that which was right in God's eyes. 
 However the high places were not taken away, and the people had still not set their hearts on the God of their fathers. 
 Now the rest of the acts of Jehoshaphat, first and last, behold, they are written in the history of Jehu the son of Hanani, which is included in the book of the kings of Israel. 
-After this, Jehoshaphat king of Judah joined himself with Ahaziah king of Israel. The same did very guiltyly. 
+After this, Jehoshaphat king of Judah joined himself with Ahaziah king of Israel. The same did very guiltily. 
 He joined himself with him to make ships to go to Tarshish. They made the ships in Ezion Geber. 
 Then Eliezer the son of Dodavahu of Mareshah prophesied against Jehoshaphat, saying, "Because you have joined yourself with Ahaziah, God has destroyed your works." The ships were wrecked, so that they were not able to go to Tarshish. 

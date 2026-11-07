@@ -2,7 +2,7 @@
 The king took off his ring, which he had taken from Haman, and gave it to Mordecai. Esther set Mordecai over the house of Haman. 
 Esther spoke yet again before the king, and fell down at his feet and begged him with tears to put away the mischief of Haman the Agagite, and his plan that he had planned against the Jews. 
 Then the king held out to Esther the golden scepter. So Esther arose, and stood before the king. 
-She said, "If it pleases the king, and if I have found favor in his sight, and the thing seems right to the king, and I am pleamistakeg in his eyes, let it be written to reverse the letters devised by Haman, the son of Hammedatha the Agagite, which he wrote to destroy the Jews who are in all the king's provinces. 
+She said, "If it pleases the king, and if I have found favor in his sight, and the thing seems right to the king, and I am pleasing in his eyes, let it be written to reverse the letters devised by Haman, the son of Hammedatha the Agagite, which he wrote to destroy the Jews who are in all the king's provinces. 
 For how can I endure to see the bad that would come to my people? How can I endure to see the destruction of my relatives?" 
 Then King Ahasuerus said to Esther the queen and to Mordecai the Jew, "See, I have given Esther the house of Haman, and they have hanged him on the gallows because he laid his hand on the Jews. 
 Write also to the Jews as it pleases you, in the king's name, and seal it with the king's ring; for the writing which is written in the king's name, and sealed with the king's ring, may not be reversed by any man." 

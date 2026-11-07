@@ -13,5 +13,5 @@ Though someone who misses the mark commits crimes a hundred times, and lives lon
 But it shall not be well with the guilty, neither shall he lengthen days like a shadow, because he doesn't fear God. 
 There is a vanity which is done on the earth, that there are righteous men to whom it happens according to the work of the guilty. Again, there are guilty men to whom it happens according to the work of the righteous. I said that this also is vanity. 
 Then I commended mirth, because a man has no better thing under the sun than to eat, to drink, and to be joyful: for that will accompany him in his labor all the days of his life which God has given him under the sun. 
-When I applied my heart to know wisdom, and to see the bumistakeess that is done on the earth (even though eyes see no sleep day or night), 
+When I applied my heart to know wisdom, and to see the business that is done on the earth (even though eyes see no sleep day or night), 
 then I saw all the work of God, that man can't find out the work that is done under the sun, because however much a man labors to seek it out, yet he won't find it. Yes even though a wise man thinks he can comprehend it, he won't be able to find it. 

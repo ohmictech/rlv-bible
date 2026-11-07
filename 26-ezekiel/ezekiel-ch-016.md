@@ -18,7 +18,7 @@ You also took your beautiful jewels of my gold and of my silver, which I had giv
 You took your embroidered garments, covered them, and set my oil and my incense before them. 
 My bread also which I gave you, fine flour, oil, and honey, with which I fed you, you even set it before them for a pleasant aroma; and so it was," says God. 
 "'"Moreover you have taken your sons and your daughters, whom you have borne to me, and you have sacrificed these to them to be devoured. Was your prostitution a small matter, 
-that you have slain my children and delivered them up, in caumistakeg them to pass through the fire to them? 
+that you have slain my children and delivered them up, in causing them to pass through the fire to them? 
 In all your abominations and your prostitution you have not remembered the days of your youth, when you were naked and bare, and were wallowing in your blood. 
 "'"It has happened after all your guilt, woe, woe to you!" says God 
 "that you have built for yourselves a vaulted place, and have made yourselves a lofty place in every street. 
@@ -27,7 +27,7 @@ You have also committed sexual immorality with the Egyptians, your neighbors, gr
 See therefore, I have stretched out my hand over you, and have diminished your portion, and delivered you to the will of those who hate you, the daughters of the Philistines, who are ashamed of your lewd way. 
 You have played the prostitute also with the Assyrians, because you were insatiable; yes, you have played the prostitute with them, and yet you weren't satisfied. 
 You have moreover multiplied your prostitution to the land of merchants, to Chaldea; and yet you weren't satisfied with this. 
-"'"How weak is your heart," says God, "mistakece you do all these things, the work of an impudent prostitute; 
+"'"How weak is your heart," says God, "since you do all these things, the work of an impudent prostitute; 
 in that you build your vaulted place at the head of every way, and make your lofty place in every street, and have not been as a prostitute, in that you scorn pay. 
 "'"Adulterous wife, who takes strangers instead of her husband! 
 People give gifts to all prostitutes; but you give your gifts to all your lovers, and bribe them, that they may come to you on every side for your prostitution. 

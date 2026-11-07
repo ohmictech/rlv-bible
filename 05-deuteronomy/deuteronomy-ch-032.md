@@ -20,9 +20,9 @@ God saw and abhorred, because of the provocation of his sons and his daughters.
 He said, "I will hide my face from them. I will see what their end will be; for they are a very perverse generation, children in whom is no faithfulness. 
 They have moved me to jealousy with that which is not God. They have provoked me to anger with their vanities. I will move them to jealousy with those who are not a people. I will provoke them to anger with a foolish nation. 
 For a fire is kindled in my anger, that burns to the lowest Hades, devours the earth with its increase, and sets the foundations of the mountains on fire. 
-"I will heap bads on them. I will spend my arrows on them. 
+"I will heap bad things on them. I will spend my arrows on them. 
 They shall be wasted with hunger, and devoured with burning heat and bitter destruction. I will send the teeth of animals on them, with the venom of vipers that glide in the dust. 
-Outside the sword will bereave, and in the rooms, terror on both young man and virgin, the nurmistakeg infant with the gray-haired man. 
+Outside the sword will bereave, and in the rooms, terror on both young man and virgin, the nursing infant with the gray-haired man. 
 I said that I would scatter them afar. I would make their memory to cease from among men; 
 were it not that I feared the provocation of the enemy, lest their adversaries should judge wrongly, lest they should say, 'Our hand is exalted; God has not done all this.'" 
 For they are a nation void of counsel. There is no understanding in them. 

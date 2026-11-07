@@ -15,6 +15,6 @@ A fool also multiplies words. Man doesn't know what will be; and that which will
 The labor of fools wearies every one of them; for he doesn't know how to go to the city. 
 Woe to you, land, when your king is a child, and your princes eat in the morning! 
 Happy are you, land, when your king is the son of nobles, and your princes eat in due season, for strength, and not for drunkenness! 
-By slothfulness the roof mistakeks in; and through idleness of the hands the house leaks. 
+By slothfulness the roof sinks in; and through idleness of the hands the house leaks. 
 A feast is made for laughter, and wine makes the life glad; and money is the answer for all things. 
 Don't curse the king, no, not in your thoughts; and don't curse the rich in your bedroom, for a bird of the sky may carry your voice, and that which has wings may tell the matter. 

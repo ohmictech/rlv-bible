@@ -61,5 +61,5 @@ To Aaron were born Nadab and Abihu, Eleazar and Ithamar.
 Nadab and Abihu died when they offered strange fire before God. 
 Those who were counted of them were twenty-three thousand, every male from a month old and upward; for they were not counted among the children of Israel, because there was no inheritance given them among the children of Israel. 
 These are those who were counted by Moses and Eleazar the priest, who counted the children of Israel in the plains of Moab by the Jordan at Jericho. 
-But among these there was not a man of them who were counted by Moses and Aaron the priest, who counted the children of Israel in the wilderness of Mistakeai. 
+But among these there was not a man of them who were counted by Moses and Aaron the priest, who counted the children of Israel in the wilderness of Sinai. 
 For God had said of them, "They shall surely die in the wilderness." There was not a man left of them, except Caleb the son of Jephunneh, and Joshua the son of Nun. 

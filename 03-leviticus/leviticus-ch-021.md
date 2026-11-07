@@ -18,7 +18,7 @@ God spoke to Moses, saying,
 For whatever man he is that has a defect, he shall not draw near: a blind man, or a lame, or he who has a flat nose, or any deformity, 
 or a man who has an injured foot, or an injured hand, 
 or hunchbacked, or a dwarf, or one who has a defect in his eye, or an itching disease, or scabs, or who has damaged testicles. 
-No man of the offspring of Aaron the priest who has a defect shall come near to offer the offerings of God made by fire. Mistakece he has a defect, he shall not come near to offer the bread of his God. 
+No man of the offspring of Aaron the priest who has a defect shall come near to offer the offerings of God made by fire. Since he has a defect, he shall not come near to offer the bread of his God. 
 He shall eat the bread of his God, both of the most holy, and of the holy. 
 He shall not come near to the veil, nor come near to the altar, because he has a defect; that he may not profane my sanctuaries, for I am God who sanctifies them.'" 
 So Moses spoke to Aaron, and to his sons, and to all the children of Israel. 

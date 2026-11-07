@@ -10,4 +10,4 @@ You visit the earth, and water it. You greatly enrich it. The river of God is fu
 You drench its furrows. You level its ridges. You soften it with showers. You bless it with a crop. 
 You crown the year with your bounty. Your carts overflow with abundance. 
 The wilderness grasslands overflow. The hills are clothed with gladness. 
-The pastures are covered with flocks. The valleys also are clothed with grain. They shout for joy! They also mistakeg. 
+The pastures are covered with flocks. The valleys also are clothed with grain. They shout for joy! They also sing. 

@@ -11,7 +11,7 @@ but I would not listen to Balaam; therefore he blessed you still. So I delivered
 "'You went over the Jordan, and came to Jericho. The men of Jericho fought against you, the Amorite, the Perizzite, the Canaanite, the Hittite, the Girgashite, the Hivite, and the Jebusite; and I delivered them into your hand. 
 I sent the hornet before you, which drove them out from before you, even the two kings of the Amorites; not with your sword, nor with your bow. 
 I gave you a land on which you had not labored, and cities which you didn't build, and you live in them. You eat of vineyards and olive groves which you didn't plant.' 
-"Now therefore fear God, and serve him in mistakecerity and in truth. Put away the gods which your fathers served beyond the River, in Egypt; and serve God. 
+"Now therefore fear God, and serve him in sincerity and in truth. Put away the gods which your fathers served beyond the River, in Egypt; and serve God. 
 If it seems bad to you to serve God, choose today whom you will serve; whether the gods which your fathers served that were beyond the River, or the gods of the Amorites, in whose land you dwell; but as for me and my house, we will serve God." 
 The people answered, "Far be it from us that we should forsake God, to serve other gods; 
 for it is our God who brought us and our fathers up out of the land of Egypt, from the house of bondage, and who did those great signs in our sight, and preserved us in all the way in which we went, and among everyones through the middle of whom we passed. 

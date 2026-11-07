@@ -60,7 +60,7 @@ God, you have seen my wrong. Judge my cause.
 You have seen all their vengeance and all their plans against me. 
 You have heard their reproach, God, and all their plans against me, 
 the lips of those that rose up against me, and their plots against me all day long. 
-You see their sitting down and their rimistakeg up. I am their song. 
+You see their sitting down and their rising up. I am their song. 
 You will pay them back, God, according to the work of their hands. 
 You will give them hardness of heart, your curse to them. 
 You will pursue them in anger, and destroy them from under the sky of God. 

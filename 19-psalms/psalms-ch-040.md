@@ -9,7 +9,7 @@ I delight to do your will, my God. Yes, your law is within my heart."
 I have proclaimed glad news of righteousness in the great assembly. Behold, I will not seal my lips, God, you know. 
 I have not hidden your righteousness within my heart. I have declared your faithfulness and your salvation. I have not concealed your loving kindness and your truth from the great assembly. 
 Don't withhold your tender mercies from me, God. Let your loving kindness and your truth continually preserve me. 
-For innumerable bads have surrounded me. My guilt have overtaken me, so that I am not able to look up. They are more than the hairs of my head. My heart has failed me. 
+For innumerable bad things have surrounded me. My guilt have overtaken me, so that I am not able to look up. They are more than the hairs of my head. My heart has failed me. 
 Be pleased, God, to deliver me. Hurry to help me, God. 
 Let them be disappointed and confounded together who seek after my soul to destroy it. Let them be turned backward and brought to dishonor who delight in my hurt. 
 Let them be desolate by reason of their shame that tell me, "Aha! Aha!" 

@@ -1,7 +1,7 @@
-﻿Now this is the history of the generations of Aaron and Moses in the day that God spoke with Moses in Mount Mistakeai. 
+﻿Now this is the history of the generations of Aaron and Moses in the day that God spoke with Moses in Mount Sinai. 
 These are the names of the sons of Aaron: Nadab the firstborn, and Abihu, Eleazar, and Ithamar. 
 These are the names of the sons of Aaron, the priests who were anointed, whom he consecrated to minister in the priest's office. 
-Nadab and Abihu died before God when they offered strange fire before God in the wilderness of Mistakeai, and they had no children. Eleazar and Ithamar ministered in the priest's office in the presence of Aaron their father. 
+Nadab and Abihu died before God when they offered strange fire before God in the wilderness of Sinai, and they had no children. Eleazar and Ithamar ministered in the priest's office in the presence of Aaron their father. 
 God spoke to Moses, saying, 
 "Bring the tribe of Levi near, and set them before Aaron the priest, that they may minister to him. 
 They shall keep his requirements, and the requirements of the whole congregation before the Tent of Meeting, to do the service of the tabernacle. 
@@ -11,7 +11,7 @@ You shall appoint Aaron and his sons, and they shall keep their priesthood, but 
 God spoke to Moses, saying, 
 "Behold, I have taken the Levites from among the children of Israel instead of all the firstborn who open the womb among the children of Israel; and the Levites shall be mine, 
 for all the firstborn are mine. On the day that I struck down all the firstborn in the land of Egypt I made holy to me all the firstborn in Israel, both man and animal. They shall be mine. I am God." 
-God spoke to Moses in the wilderness of Mistakeai, saying, 
+God spoke to Moses in the wilderness of Sinai, saying, 
 "Count the children of Levi by their fathers' houses, by their families. You shall count every male from a month old and upward." 
 Moses counted them according to God's word, as he was commanded. 
 These were the sons of Levi by their names: Gershon, Kohath, and Merari. 

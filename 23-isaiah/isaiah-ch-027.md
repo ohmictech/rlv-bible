@@ -1,5 +1,5 @@
 ﻿In that day, God with his hard and great and strong sword will punish leviathan, the fleeing serpent, and leviathan, the twisted serpent; and he will kill the dragon that is in the sea. 
-In that day, mistakeg to her, "A pleasant vineyard! 
+In that day, sing to her, "A pleasant vineyard! 
 I, God, am its keeper. I will water it every moment. Lest anyone damage it, I will keep it night and day. 
 Wrath is not in me, but if I should find briers and thorns, I would do battle! I would march on them and I would burn them together. 
 Or else let him take hold of my strength, that he may make peace with me. Let him make peace with me." 

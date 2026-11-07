@@ -14,8 +14,8 @@ Let his posterity be cut off. In the generation following let their name be blot
 Let the guilt of his fathers be remembered by God. Don't let the mistake of his mother be blotted out. 
 Let them be before God continually, that he may cut off their memory from the earth; 
 because he didn't remember to show kindness, but persecuted the poor and needy man, the broken in heart, to kill them. 
-Yes, he loved curmistakeg, and it came to him. He didn't delight in blesmistakeg, and it was far from him. 
-He clothed himself also with curmistakeg as with his garment. It came into his inward parts like water, like oil into his bones. 
+Yes, he loved cursing, and it came to him. He didn't delight in blessing, and it was far from him. 
+He clothed himself also with cursing as with his garment. It came into his inward parts like water, like oil into his bones. 
 Let it be to him as the clothing with which he covers himself, for the belt that is always around him. 
 This is the reward of my adversaries from God, of those who speak bad against my soul. 
 But deal with me, GOD the Lord, for your name's sake, because your loving kindness is good, deliver me; 

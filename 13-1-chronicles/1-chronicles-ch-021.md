@@ -14,7 +14,7 @@ David said to Gad, "I am in distress. Let me fall, I pray, into God's hand, for 
 So God sent a pestilence on Israel, and seventy thousand men of Israel fell. 
 God sent an messenger to Jerusalem to destroy it. As he was about to destroy, God saw, and he relented of the disaster, and said to the destroying messenger, "It is enough. Now withdraw your hand." God's messenger was standing by the threshing floor of Ornan the Jebusite. 
 David lifted up his eyes, and saw God's messenger standing between earth and the sky, having a drawn sword in his hand stretched out over Jerusalem. Then David and the elders, clothed in sackcloth, fell on their faces. 
-David said to God, "Isn't it I who commanded the people to be counted? It is even I who have missed the mark and done very guiltyly; but these sheep, what have they done? Please let your hand, O God my God, be against me and against my father's house; but not against your people, that they should be plagued." 
+David said to God, "Isn't it I who commanded the people to be counted? It is even I who have missed the mark and done very guiltily; but these sheep, what have they done? Please let your hand, O God my God, be against me and against my father's house; but not against your people, that they should be plagued." 
 Then God's messenger commanded Gad to tell David that David should go up and raise an altar to God on the threshing floor of Ornan the Jebusite. 
 David went up at the saying of Gad, which he spoke in God's name. 
 Ornan turned back and saw the messenger; and his four sons who were with him hid themselves. Now Ornan was threshing wheat. 

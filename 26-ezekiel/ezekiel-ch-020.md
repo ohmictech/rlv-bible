@@ -40,7 +40,7 @@ I will purge out from among you the rebels and those who disobey me. I will brin
 For in my holy mountain, in the mountain of the height of Israel," says God, "there all the house of Israel, everyone, shall serve me in the land. There I will accept them, and there I will require your offerings and the first fruits of your offerings, with all your holy things. 
 I will accept you as a pleasant aroma when I bring you out from the peoples and gather you out of the countries in which you have been scattered. I will be sanctified in you in the sight of the nations. 
 You will know that I am God when I bring you into the land of Israel, into the country which I swore to give to your fathers. 
-There you will remember your ways, and all your deeds in which you have polluted yourselves. Then you will loathe yourselves in your own sight for all your bads that you have committed. 
+There you will remember your ways, and all your deeds in which you have polluted yourselves. Then you will loathe yourselves in your own sight for all your bad things that you have committed. 
 You will know that I am God, when I have dealt with you for my name's sake, not according to your bad ways, nor according to your corrupt doings, you house of Israel," says God.'" 
 God's word came to me, saying, 
 "Son of man, set your face toward the south, and preach toward the south, and prophesy against the forest of the field in the south. 

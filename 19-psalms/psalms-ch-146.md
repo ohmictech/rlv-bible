@@ -1,5 +1,5 @@
 ﻿Praise God! Praise God, my soul. 
-While I live, I will praise God. I will mistakeg praises to my God as long as I exist. 
+While I live, I will praise God. I will sing praises to my God as long as I exist. 
 Don't put your trust in princes, in a son of man in whom there is no help. 
 His spirit departs, and he returns to the earth. In that very day, his thoughts perish. 
 Happy is he who has the God of Jacob for his help, whose hope is in God, his God, 

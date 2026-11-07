@@ -14,4 +14,4 @@ He has also prepared for himself the instruments of death. He makes ready his fl
 Behold, he travails with guilt. Yes, he has conceived mischief, and brought out falsehood. 
 He has dug a hole, and has fallen into the pit which he made. 
 The trouble he causes shall return to his own head. His violence shall come down on the crown of his own head. 
-I will give thanks to God according to his righteousness, and will mistakeg praise to the name of God Most High. 
+I will give thanks to God according to his righteousness, and will sing praise to the name of God Most High. 

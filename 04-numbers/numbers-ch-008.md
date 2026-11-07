@@ -4,7 +4,7 @@ Aaron did so. He lit its lamps to light the area in front of the lamp stand, as 
 This was the workmanship of the lamp stand, beaten work of gold. From its base to its flowers, it was beaten work. He made the lamp stand according to the pattern which God had shown Moses. 
 God spoke to Moses, saying, 
 "Take the Levites from among the children of Israel, and cleanse them. 
-You shall do this to them to cleanse them: sprinkle the water of cleanmistakeg on them, let them shave their whole bodies with a razor, let them wash their clothes, and cleanse themselves. 
+You shall do this to them to cleanse them: sprinkle the water of cleansing on them, let them shave their whole bodies with a razor, let them wash their clothes, and cleanse themselves. 
 Then let them take a young bull and its meal offering, fine flour mixed with oil; and another young bull you shall take for an offering for mistakes. 
 You shall present the Levites before the Tent of Meeting. You shall assemble the whole congregation of the children of Israel. 
 You shall present the Levites before God. The children of Israel shall lay their hands on the Levites, 

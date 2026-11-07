@@ -6,5 +6,5 @@ Don't lift up your horn on high. Don't speak with a stiff neck."
 For neither from the east, nor from the west, nor yet from the south, comes exaltation. 
 But God is the judge. He puts down one, and lifts up another. 
 For in God's hand there is a cup, full of foaming wine mixed with spices. He pours it out. Indeed the guilty of the earth drink and drink it to its very dregs. 
-But I will declare this for the eras: I will mistakeg praises to the God of Jacob. 
+But I will declare this for the eras: I will sing praises to the God of Jacob. 
 I will cut off all the horns of the guilty, but the horns of the righteous shall be lifted up. 

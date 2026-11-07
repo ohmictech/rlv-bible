@@ -1,6 +1,6 @@
 ﻿My son, if you have become collateral for your neighbor, if you have struck your hands in pledge for a stranger, 
 you are trapped by the words of your mouth; you are ensnared with the words of your mouth. 
-Do this now, my son, and deliver yourself, mistakece you have come into the hand of your neighbor. Go, humble yourself. Press your plea with your neighbor. 
+Do this now, my son, and deliver yourself, since you have come into the hand of your neighbor. Go, humble yourself. Press your plea with your neighbor. 
 Give no sleep to your eyes, nor slumber to your eyelids. 
 Free yourself, like a gazelle from the hand of the hunter, like a bird from the snare of the fowler. 
 Go to the ant, you sluggard. Consider her ways, and be wise; 

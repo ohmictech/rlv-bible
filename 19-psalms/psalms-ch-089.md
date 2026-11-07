@@ -1,9 +1,9 @@
-﻿A contemplation by Ethan, the Ezrahite. I will mistakeg of the loving kindness of God for the eras. With my mouth, I will make known your faithfulness to all generations. 
+﻿A contemplation by Ethan, the Ezrahite. I will sing of the loving kindness of God for the eras. With my mouth, I will make known your faithfulness to all generations. 
 I indeed declare, "Love stands firm for the eras. You established the sky. Your faithfulness is in them." 
 "I have made a covenant with my chosen one, I have sworn to David, my servant, 
 'I will establish your offspring for the eras, and build up your throne to all generations.'" Selah. 
 The sky will praise your wonders, God, your faithfulness also in the assembly of the holy ones. 
-For who in the skies can be compared to God? Who among the sons of the skyly beings is like God, 
+For who in the skies can be compared to God? Who among the sons of the heavenly beings is like God, 
 a very awesome God in the council of the holy ones, to be feared above everyone who is around him? 
 God, God of Armies, who is a mighty one, like you? God, your faithfulness is around you. 
 You rule the pride of the sea. When its waves rise up, you calm them. 

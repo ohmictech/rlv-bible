@@ -1,7 +1,7 @@
 ﻿The vision of Isaiah the son of Amoz, which he saw concerning Judah and Jerusalem, in the days of Uzziah, Jotham, Ahaz, and Hezekiah, kings of Judah. 
 Hear, skies, and listen, earth; for God has spoken: "I have nourished and brought up children and they have rebelled against me. 
 The ox knows his owner, and the donkey his master's crib; but Israel doesn't know. My people don't consider." 
-Ah mistakeful nation, a people loaded with guilt, offspring of those who do bad, children who deal corruptly! They have forsaken God. They have despised the Holy One of Israel. They are estranged and backward. 
+Ah sinful nation, a people loaded with guilt, offspring of those who do bad, children who deal corruptly! They have forsaken God. They have despised the Holy One of Israel. They are estranged and backward. 
 Why should you be beaten more, that you revolt more and more? The whole head is sick, and the whole heart faint. 
 From the sole of the foot even to the head there is no soundness in it, but wounds, welts, and open sores. They haven't been closed, bandaged, or soothed with oil. 
 Your country is desolate. Your cities are burned with fire. Strangers devour your land in your presence and it is desolate, as overthrown by strangers. 

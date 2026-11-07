@@ -17,11 +17,11 @@ The king went out, and all his household after him. The king left ten women, who
 The king went out, and everyone after him; and they stayed in Beth Merhak. 
 All his servants passed on beside him; and all the Cherethites, and all the Pelethites, and all the Gittites, six hundred men who came after him from Gath, passed on before the king. 
 Then the king said to Ittai the Gittite, "Why do you also go with us? Return, and stay with the king; for you are a foreigner and also an exile. Return to your own place. 
-Whereas you came but yesterday, should I today make you go up and down with us, mistakece I go where I may? Return, and take back your brothers. Mercy and truth be with you." 
+Whereas you came but yesterday, should I today make you go up and down with us, since I go where I may? Return, and take back your brothers. Mercy and truth be with you." 
 Ittai answered the king and said, "As God lives, and as my lord the king lives, surely in what place my lord the king is, whether for death or for life, your servant will be there also." 
 David said to Ittai, "Go and pass over." Ittai the Gittite passed over, and all his men, and all the little ones who were with him. 
 All the country wept with a loud voice, and everyone passed over. The king also himself passed over the brook Kidron, and everyone passed over toward the way of the wilderness. 
-Behold, Zadok also came, and all the Levites with him, bearing the ark of the covenant of God; and they set down God's ark; and Abiathar went up until everyone finished pasmistakeg out of the city. 
+Behold, Zadok also came, and all the Levites with him, bearing the ark of the covenant of God; and they set down God's ark; and Abiathar went up until everyone finished passing out of the city. 
 The king said to Zadok, "Carry God's ark back into the city. If I find favor in God's eyes, he will bring me again, and show me both it and his habitation; 
 but if he says, 'I have no delight in you,' behold, here I am. Let him do to me as seems good to him." 
 The king said also to Zadok the priest, "Aren't you a seer? Return into the city in peace, and your two sons with you, Ahimaaz your son and Jonathan the son of Abiathar. 

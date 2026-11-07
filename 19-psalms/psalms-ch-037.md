@@ -5,7 +5,7 @@ Also delight yourself in God, and he will give you the desires of your heart.
 Commit your way to God. Trust also in him, and he will do this: 
 he will make your righteousness shine out like light, and your justice as the noon day sun. 
 Rest in God, and wait patiently for him. Don't fret because of him who prospers in his way, because of the man who makes guilty plots happen. 
-Cease from anger, and forsake wrath. Don't fret; it leads only to baddoing. 
+Cease from anger, and forsake wrath. Don't fret; it leads only to doing bad. 
 For those who do bad shall be cut off, but those who wait for God shall inherit the land. 
 For yet a little while, and the guilty will be no more. Yes, though you look for his place, he isn't there. 
 But the humble shall inherit the land, and shall delight themselves in the abundance of peace. 

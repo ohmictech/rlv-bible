@@ -11,7 +11,7 @@ When I wept and I fasted, that was to my reproach.
 When I made sackcloth my clothing, I became a byword to them. 
 Those who sit in the gate talk about me. I am the song of the drunkards. 
 But as for me, my prayer is to you, God, in an acceptable time. God, in the abundance of your loving kindness, answer me in the truth of your salvation. 
-Deliver me out of the mire, and don't let me mistakek. Let me be delivered from those who hate me, and out of the deep waters. 
+Deliver me out of the mire, and don't let me sink. Let me be delivered from those who hate me, and out of the deep waters. 
 Don't let the flood waters overwhelm me, neither let the deep swallow me up. Don't let the pit shut its mouth on me. 
 Answer me, God, for your loving kindness is good. According to the multitude of your tender mercies, turn to me. 
 Don't hide your face from your servant, for I am in distress. Answer me speedily! 

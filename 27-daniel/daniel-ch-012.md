@@ -1,4 +1,4 @@
-﻿"At that time Michael will stand up, the great prince who stands for the children of your people; and there will be a time of trouble, such as never was mistakece there was a nation even to that same time. At that time your people will be delivered, everyone who is found written in the book. 
+﻿"At that time Michael will stand up, the great prince who stands for the children of your people; and there will be a time of trouble, such as never was since there was a nation even to that same time. At that time your people will be delivered, everyone who is found written in the book. 
 Many of those who sleep in the dust of the earth will awake, some to perpetual life, and some to shame and perpetual contempt. 
 Those who are wise will shine as the brightness of the expanse. Those who turn many to righteousness will shine as the stars for all the eras. 
 But you, Daniel, shut up the words and seal the book, even to the time of the end. Many will run back and forth, and knowledge will be increased." 
@@ -7,7 +7,7 @@ One said to the man clothed in linen, who was above the waters of the river, "Ho
 I heard the man clothed in linen, who was above the waters of the river, when he held up his right hand and his left hand to the sky, and swore by him who lives for the eras that it will be for a time, times, and a half; and when they have finished breaking in pieces the power of the holy people, all these things will be finished. 
 I heard, but I didn't understand. Then I said, "My lord, what will be the outcome of these things?" 
 He said, "Go your way, Daniel; for the words are shut up and sealed until the time of the end. 
-Many will purify themselves, and make themselves white, and be refined, but the guilty will do guiltyly; and none of the guilty will understand, but those who are wise will understand. 
+Many will purify themselves, and make themselves white, and be refined, but the guilty will do guiltily; and none of the guilty will understand, but those who are wise will understand. 
 "From the time that the continual burnt offering is taken away and the abomination that makes desolate set up, there will be one thousand two hundred ninety days. 
 Blessed is he who waits, and comes to the one thousand three hundred thirty-five days. 
 "But go your way until the end; for you will rest, and will stand in your inheritance at the end of the days." 

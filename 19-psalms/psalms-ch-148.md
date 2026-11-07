@@ -1,7 +1,7 @@
 ﻿Praise God! Praise God from the sky! Praise him in the heights! 
 Praise him, all his messengers! Praise him, all his army! 
 Praise him, sun and moon! Praise him, all you shining stars! 
-Praise him, you skies of the skys, you waters that are above the sky. 
+Praise him, you skies above the skies, you waters that are above the sky. 
 Let them praise God's name, for he commanded, and they were created. 
 He has also established them for all the eras. He has made a decree which will not pass away. 
 Praise God from the earth, you great sea creatures, and all depths, 

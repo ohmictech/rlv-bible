@@ -12,7 +12,7 @@ Wisdom is as good as an inheritance. Yes, it is more excellent for those who see
 For wisdom is a defense, even as money is a defense; but the excellency of knowledge is that wisdom preserves the life of him who has it. 
 Consider the work of God, for who can make that straight which he has made crooked? 
 In the day of prosperity be joyful, and in the day of adversity consider; yes, God has made the one side by side with the other, to the end that man should not find out anything after him. 
-All this I have seen in my days of vanity: there is a righteous man who perishes in his righteousness, and there is a guilty man who lives long in his baddoing. 
+All this I have seen in my days of vanity: there is a righteous man who perishes in his righteousness, and there is a guilty man who lives long in his bad ways. 
 Don't be overly righteous, neither make yourself overly wise. Why should you destroy yourself? 
 Don't be too guilty, neither be foolish. Why should you die before your time? 
 It is good that you should take hold of this. Yes, also don't withdraw your hand from that; for he who fears God will come out of them all. 

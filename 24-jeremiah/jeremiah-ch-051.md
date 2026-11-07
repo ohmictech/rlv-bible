@@ -34,7 +34,7 @@ For the God of Armies, the God of Israel says: "The daughter of Babylon is like 
 "Nebuchadnezzar the king of Babylon has devoured me. He has crushed me. He has made me an empty vessel. He has, like a monster, swallowed me up. He has filled his mouth with my delicacies. He has cast me out. 
 May the violence done to me and to my flesh be on Babylon!" the inhabitant of Zion will say; and, "May my blood be on the inhabitants of Chaldea!" will Jerusalem say. 
 Therefore God says: "Behold, I will plead your cause, and take vengeance for you. I will dry up her sea, and make her fountain dry. 
-Babylon will become heaps, a dwelling place for jackals, an astonishment, and a hismistakeg, without inhabitant. 
+Babylon will become heaps, a dwelling place for jackals, an astonishment, and a hissing, without inhabitant. 
 They will roar together like young lions. They will growl as lions' cubs. 
 When they are inflamed, I will make their feast, and I will make them drunk, that they may rejoice, and sleep a perpetual sleep, and not wake up," says God. 
 "I will bring them down like lambs to the slaughter, like rams with male goats. 
@@ -45,7 +45,7 @@ I will execute judgment on Bel in Babylon, and I will bring out of his mouth tha
 "My people, go away from the middle of her, and each of you save yourselves from God's fierce anger. 
 Don't let your heart faint. Don't fear for the news that will be heard in the land. For news will come one year, and after that in another year news will come, and violence in the land, ruler against ruler. 
 Therefore behold, the days come that I will execute judgment on the engraved images of Babylon; and her whole land will be confounded. All her slain will fall in the middle of her. 
-Then the sky and the earth, and all that is therein, will mistakeg for joy over Babylon; for the destroyers will come to her from the north," says God. 
+Then the sky and the earth, and all that is therein, will sing for joy over Babylon; for the destroyers will come to her from the north," says God. 
 "As Babylon has caused the slain of Israel to fall, so the slain of all the land will fall at Babylon. 
 You who have escaped the sword, go! Don't stand still! Remember God from afar, and let Jerusalem come into your mind." 
 "We are confounded because we have heard reproach. Confusion has covered our faces, for strangers have come into the sanctuaries of God's house." 
@@ -61,4 +61,4 @@ Jeremiah wrote in a book all the bad that should come on Babylon, even all these
 Jeremiah said to Seraiah, "When you come to Babylon, then see that you read all these words, 
 and say, 'God, you have spoken concerning this place, to cut it off, that no one will dwell in it, neither man nor animal, but that it will be desolate for the eras.' 
 It will be, when you have finished reading this book, that you shall bind a stone to it, and cast it into the middle of the Euphrates. 
-Then you shall say, 'Thus will Babylon mistakek, and will not rise again because of the bad that I will bring on her; and they will be weary.'" Thus far are the words of Jeremiah. 
+Then you shall say, 'Thus will Babylon sink, and will not rise again because of the bad that I will bring on her; and they will be weary.'" Thus far are the words of Jeremiah. 

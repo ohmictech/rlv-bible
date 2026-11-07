@@ -11,7 +11,7 @@ Create in me a clean heart, O God. Renew a right spirit within me.
 Don't throw me from your presence, and don't take your Holy Spirit from me. 
 Restore to me the joy of your salvation. Uphold me with a willing spirit. 
 Then I will teach transgressors your ways. Those who miss the mark will be converted to you. 
-Deliver me from the guilt of bloodshed, O the God of my salvation. My tongue will mistakeg aloud of your righteousness. 
+Deliver me from the guilt of bloodshed, O the God of my salvation. My tongue will sing aloud of your righteousness. 
 Lord, open my lips. My mouth will declare your praise. 
 For you don't delight in sacrifice, or else I would give it. You have no pleasure in burnt offering. 
 The sacrifices of God are a broken spirit. O God, you will not despise a broken and contrite heart. 

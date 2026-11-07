@@ -1,5 +1,5 @@
 ﻿Hear God's word, you children of Israel, for God has a charge against the inhabitants of the land: "Indeed there is no truth, nor goodness, nor knowledge of God in the land. 
-There is curmistakeg, lying, murder, stealing, and committing adultery; they break boundaries, and bloodshed causes bloodshed. 
+There is cursing, lying, murder, stealing, and committing adultery; they break boundaries, and bloodshed causes bloodshed. 
 Therefore the land will mourn, and everyone who dwells in it will waste away, with all living things in her, even the animals of the field and the birds of the sky; yes, the fish of the sea also die. 
 "Yet let no man bring a charge, neither let any man accuse; for your people are like those who bring charges against a priest. 
 You will stumble in the day, and the spokesman will also stumble with you in the night; and I will destroy your mother. 

@@ -1,4 +1,4 @@
-﻿God said to Samuel, "How long will you mourn for Saul, mistakece I have rejected him from being king over Israel? Fill your horn with oil, and go. I will send you to Jesse the Bethlehemite, for I have provided a king for myself among his sons." 
+﻿God said to Samuel, "How long will you mourn for Saul, since I have rejected him from being king over Israel? Fill your horn with oil, and go. I will send you to Jesse the Bethlehemite, for I have provided a king for myself among his sons." 
 Samuel said, "How can I go? If Saul hears it, he will kill me." God said, "Take a heifer with you, and say, 'I have come to sacrifice to God.' 
 Call Jesse to the sacrifice, and I will show you what you shall do. You shall anoint to me him whom I name to you." 
 Samuel did that which God spoke, and came to Bethlehem. The elders of the city came to meet him trembling, and said, "Do you come peaceably?" 

@@ -6,7 +6,7 @@ I will lay the dead bodies of the children of Israel before their idols. I will 
 In all your dwelling places, the cities will be laid waste and the high places will be desolate, so that your altars may be laid waste and made desolate, and your idols may be broken and cease, and your incense altars may be cut down, and your works may be abolished. 
 The slain will fall among you, and you will know that I am God. 
 "'"Yet I will leave a remnant, in that you will have some that escape the sword among the nations, when you are scattered through the countries. 
-Those of you that escape will remember me among the nations where they are carried captive, how I have been broken with their lewd heart, which has departed from me, and with their eyes, which play the prostitute after their idols. Then they will loathe themselves in their own sight for the bads which they have committed in all their abominations. 
+Those of you that escape will remember me among the nations where they are carried captive, how I have been broken with their lewd heart, which has departed from me, and with their eyes, which play the prostitute after their idols. Then they will loathe themselves in their own sight for the bad things which they have committed in all their abominations. 
 They will know that I am God. I have not said in vain that I would do this bad to them."' 
 "The God says: 'Strike with your hand, and stamp with your foot, and say, "Alas!", because of all the bad abominations of the house of Israel; for they will fall by the sword, by the famine, and by the pestilence. 
 He who is far off will die of the pestilence. He who is near will fall by the sword. He who remains and is besieged will die by the famine. Thus I will accomplish my wrath on them. 

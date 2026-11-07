@@ -1,4 +1,4 @@
-﻿A Psalm by David. I will mistakeg of loving kindness and justice. To you, God, I will mistakeg praises. 
+﻿A Psalm by David. I will sing of loving kindness and justice. To you, God, I will sing praises. 
 I will be careful to live a blameless life. When will you come to me? I will walk within my house with a blameless heart. 
 I will set no vile thing before my eyes. I hate the deeds of faithless men. They will not cling to me. 
 A perverse heart will be far from me. I will have nothing to do with bad. 

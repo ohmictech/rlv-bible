@@ -10,4 +10,4 @@ Micah said to him, "Where did you come from?" He said to him, "I am a Levite of 
 Micah said to him, "Dwell with me, and be to me a father and a priest, and I will give you ten pieces of silver per year, a suit of clothing, and your food." So the Levite went in. 
 The Levite was content to dwell with the man; and the young man was to him as one of his sons. 
 Micah consecrated the Levite, and the young man became his priest, and was in the house of Micah. 
-Then Micah said, "Now I know that God will do good to me, mistakece I have a Levite as my priest." 
+Then Micah said, "Now I know that God will do good to me, since I have a Levite as my priest." 

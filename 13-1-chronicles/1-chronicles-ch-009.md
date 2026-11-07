@@ -30,7 +30,7 @@ Some of them also were appointed over the furniture, and over all the vessels of
 Some of the sons of the priests prepared the mixing of the spices. 
 Mattithiah, one of the Levites, who was the firstborn of Shallum the Korahite, had the office of trust over the things that were baked in pans. 
 Some of their brothers, of the sons of the Kohathites, were over the show bread, to prepare it every Sabbath. 
-These are the mistakegers, heads of fathers' households of the Levites, who lived in the rooms and were free from other service, for they were employed in their work day and night. 
+These are the singers, heads of fathers' households of the Levites, who lived in the rooms and were free from other service, for they were employed in their work day and night. 
 These were heads of fathers' households of the Levites, throughout their generations, chief men. They lived at Jerusalem. 
 Jeiel the father of Gibeon, whose wife's name was Maacah, lived in Gibeon. 
 His firstborn son was Abdon, then Zur, Kish, Baal, Ner, Nadab, 

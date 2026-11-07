@@ -1,11 +1,11 @@
 ﻿It shall happen, if you shall listen diligently to your God's voice, to observe to do all his commandments which I command you today, that your God will set you high above all the nations of the earth. 
-All these blesmistakegs will come upon you, and overtake you, if you listen to your God's voice. 
+All these blessings will come upon you, and overtake you, if you listen to your God's voice. 
 You shall be blessed in the city, and you shall be blessed in the field. 
 You shall be blessed in the fruit of your body, the fruit of your ground, the fruit of your animals, the increase of your livestock, and the young of your flock. 
 Your basket and your kneading trough shall be blessed. 
 You shall be blessed when you come in, and you shall be blessed when you go out. 
 God will cause your enemies who rise up against you to be struck before you. They will come out against you one way, and will flee before you seven ways. 
-God will command the blesmistakeg on you in your barns, and in all that you put your hand to. He will bless you in the land which your God gives you. 
+God will command the blessing on you in your barns, and in all that you put your hand to. He will bless you in the land which your God gives you. 
 God will establish you for a holy people to himself, as he has sworn to you, if you shall keep the commandments of your God, and walk in his ways. 
 Everyones of the earth shall see that you are called by God's name, and they will be afraid of you. 
 God will grant you abundant prosperity in the fruit of your body, in the fruit of your livestock, and in the fruit of your ground, in the land which God swore to your fathers to give you. 
@@ -17,7 +17,7 @@ You will be cursed in the city, and you will be cursed in the field.
 Your basket and your kneading trough will be cursed. 
 The fruit of your body, the fruit of your ground, the increase of your livestock, and the young of your flock will be cursed. 
 You will be cursed when you come in, and you will be cursed when you go out. 
-God will send on you curmistakeg, confusion, and rebuke in all that you put your hand to do, until you are destroyed and until you perish quickly, because of the bad of your doings, by which you have forsaken me. 
+God will send on you cursing, confusion, and rebuke in all that you put your hand to do, until you are destroyed and until you perish quickly, because of the bad of your doings, by which you have forsaken me. 
 God will make the pestilence cling to you, until he has consumed you from off the land where you go in to possess it. 
 God will strike you with consumption, with fever, with inflammation, with fiery heat, with the sword, with blight, and with mildew. They will pursue you until you perish. 
 Your sky that is over your head will be bronze, and the earth that is under you will be iron. 

@@ -18,7 +18,7 @@ The priest shall take holy water in an earthen vessel; and the priest shall take
 The priest shall set the woman before God, and let the hair of the woman's head go loose, and put the meal offering of memorial in her hands, which is the meal offering of jealousy. The priest shall have in his hand the water of bitterness that brings a curse. 
 The priest shall cause her to take an oath and shall tell the woman, "If no man has lain with you, and if you haven't gone aside to uncleanness, being under your husband's authority, be free from this water of bitterness that brings a curse. 
 But if you have gone astray, being under your husband's authority, and if you are defiled, and some man has lain with you besides your husband, " 
-then the priest shall cause the woman to swear with the oath of curmistakeg, and the priest shall tell the woman, "May God make you a curse and an oath among your people, when God allows your thigh to fall away, and your body to swell; 
+then the priest shall cause the woman to swear with the oath of cursing, and the priest shall tell the woman, "May God make you a curse and an oath among your people, when God allows your thigh to fall away, and your body to swell; 
 and this water that brings a curse will go into your bowels, and make your body swell, and your thigh fall away." The woman shall say, "Amen, Amen." 
 "'The priest shall write these curses in a book, and he shall wipe them into the water of bitterness. 
 He shall make the woman drink the water of bitterness that causes the curse; and the water that causes the curse shall enter into her and become bitter. 

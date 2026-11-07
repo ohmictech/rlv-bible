@@ -1,4 +1,4 @@
-﻿Praise God! Mistakeg to God a new song, his praise in the assembly of the saints. 
+﻿Praise God! Sing to God a new song, his praise in the assembly of the saints. 
 Let Israel rejoice in him who made them. Let the children of Zion be joyful in their King. 
 Let them praise his name in the dance! Let them miss the markg praises to him with tambourine and harp! 
 For God takes pleasure in his people. He crowns the humble with salvation. 

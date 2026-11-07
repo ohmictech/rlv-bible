@@ -2,7 +2,7 @@
 When she has departed out of his house, she may go and be another man's wife. 
 If the latter husband hates her, and writes her a certificate of divorce, puts it in her hand, and sends her out of his house; or if the latter husband dies, who took her to be his wife; 
 her former husband, who sent her away, may not take her again to be his wife after she is defiled; for that would be an abomination to God. You shall not cause the land to miss the mark, which your God gives you for an inheritance. 
-When a man takes a new wife, he shall not go out in the army, neither shall he be assigned any bumistakeess. He shall be free at home one year, and shall cheer his wife whom he has taken. 
+When a man takes a new wife, he shall not go out in the army, neither shall he be assigned any business. He shall be free at home one year, and shall cheer his wife whom he has taken. 
 No man shall take the mill or the upper millstone as a pledge, for he takes a life in pledge. 
 If a man is found stealing any of his brothers of the children of Israel, and he deals with him as a slave, or sells him, then that thief shall die. So you shall remove the bad from among you. 
 Be careful in the plague of leprosy, that you observe diligently and do according to all that the Levitical priests teach you. As I commanded them, so you shall observe to do. 

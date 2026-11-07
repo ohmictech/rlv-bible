@@ -27,7 +27,7 @@ All the souls who came with Jacob into Egypt, who were his direct offspring, in 
 The sons of Joseph, who were born to him in Egypt, were two souls. All the souls of the house of Jacob, who came into Egypt, were seventy. 
 Jacob sent Judah before him to Joseph, to show the way before him to Goshen, and they came into the land of Goshen. 
 Joseph prepared his chariot, and went up to meet Israel, his father, in Goshen. He presented himself to him, and fell on his neck, and wept on his neck a good while. 
-Israel said to Joseph, "Now let me die, mistakece I have seen your face, that you are still alive." 
+Israel said to Joseph, "Now let me die, since I have seen your face, that you are still alive." 
 Joseph said to his brothers, and to his father's house, "I will go up, and speak with Pharaoh, and will tell him, 'My brothers, and my father's house, who were in the land of Canaan, have come to me. 
 These men are shepherds, for they have been keepers of livestock, and they have brought their flocks, and their herds, and all that they have.' 
 It will happen, when Pharaoh summons you, and will say, 'What is your occupation?' 

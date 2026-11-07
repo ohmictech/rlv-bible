@@ -6,7 +6,7 @@ Twenty-five thousand cubits in length and ten thousand in width shall be for the
 "'"You shall appoint the possession of the city five thousand cubits wide and twenty-five thousand long, side by side with the offering of the holy portion. It shall be for the whole house of Israel. 
 "'"What is for the prince shall be on the one side and on the other side of the holy allotment and of the possession of the city, in front of the holy allotment and in front of the possession of the city, on the west side westward, and on the east side eastward, and in length corresponding to one of the portions, from the west border to the east border. 
 In the land it shall be to him for a possession in Israel. My princes shall no more oppress my people, but they shall give the land to the house of Israel according to their tribes." 
-"'The God says: "Enough, you princes of Israel! Remove violence and plunder, and execute justice and righteousness! Stop dispossesmistakeg my people!" says God. 
+"'The God says: "Enough, you princes of Israel! Remove violence and plunder, and execute justice and righteousness! Stop dispossessing my people!" says God. 
 "You shall have just balances, a just ephah, and a just bath. 
 The ephah and the bath shall be of one measure, that the bath may contain one tenth of a homer, and the ephah one tenth of a homer. Its measure shall be the same as the homer. 
 The shekel shall be twenty gerahs. Twenty shekels plus twenty-five shekels plus fifteen shekels shall be your mina. 

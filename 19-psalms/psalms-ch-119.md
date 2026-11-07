@@ -169,7 +169,7 @@ I have obeyed your precepts and your testimonies, for all my ways are before you
 Let my cry come before you, God. Give me understanding according to your word. 
 Let my supplication come before you. Deliver me according to your word. 
 Let my lips utter praise, for you teach me your statutes. 
-Let my tongue mistakeg of your word, for all your commandments are righteousness. 
+Let my tongue sing of your word, for all your commandments are righteousness. 
 Let your hand be ready to help me, for I have chosen your precepts. 
 I have longed for your salvation, God. Your law is my delight. 
 Let my soul live, that I may praise you. Let your ordinances help me. 

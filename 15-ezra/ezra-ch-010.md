@@ -7,7 +7,7 @@ Then Ezra rose up from before God's house, and went into the room of Jehohanan t
 They made a proclamation throughout Judah and Jerusalem to all the children of the captivity, that they should gather themselves together to Jerusalem; 
 and that whoever didn't come within three days, according to the counsel of the princes and the elders, all his possessions should be forfeited, and he himself separated from the assembly of the captivity. 
 Then all the men of Judah and Benjamin gathered themselves together to Jerusalem within the three days. It was the ninth month, on the twentieth day of the month; and everyone sat in the wide place in front of God's house, trembling because of this matter, and because of the great rain. 
-Ezra the priest stood up and said to them, "You have trespassed, and have married foreign women, increamistakeg the guilt of Israel. 
+Ezra the priest stood up and said to them, "You have trespassed, and have married foreign women, increasing the guilt of Israel. 
 Now therefore make confession to the God of your fathers and do his pleasure. Separate yourselves from the peoples of the land and from the foreign women." 
 Then all the assembly answered with a loud voice, "We must do as you have said concerning us. 
 But the people are many, and it is a time of much rain, and we are not able to stand outside. This is not a work of one day or two, for we have greatly transgressed in this matter. 
@@ -21,7 +21,7 @@ Of the sons of Immer: Hanani and Zebadiah.
 Of the sons of Harim: Maaseiah, Elijah, Shemaiah, Jehiel, and Uzziah. 
 Of the sons of Pashhur: Elioenai, Maaseiah, Ishmael, Nethanel, Jozabad, and Elasah. 
 Of the Levites: Jozabad, Shimei, Kelaiah (also called Kelita), Pethahiah, Judah, and Eliezer. 
-Of the mistakegers: Eliashib. Of the gatekeepers: Shallum, Telem, and Uri. 
+Of the singers: Eliashib. Of the gatekeepers: Shallum, Telem, and Uri. 
 Of Israel: Of the sons of Parosh: Ramiah, Izziah, Malchijah, Mijamin, Eleazar, Malchijah, and Benaiah. 
 Of the sons of Elam: Mattaniah, Zechariah, Jehiel, Abdi, Jeremoth, and Elijah. 
 Of the sons of Zattu: Elioenai, Eliashib, Mattaniah, Jeremoth, Zabad, and Aziza. 

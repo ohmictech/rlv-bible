@@ -16,6 +16,6 @@ But the free gift isn't like the false step. For if by the false step of the one
 The gift is not as through one who missed the mark; for the verdict came by one to a sentence, but the free gift followed many false steps to being made right. 
 For if by the false step of the one, death reigned through the one; so much more will those who receive the overflow of favor and of the gift of rightness reign in real life through the one, Jesus Christ. 
 So then as through one false step, everyone was sentenced; even so through one act of rightness, everyone was made right to life. 
-For as through the one man's disobedience everyone was made those who miss the mark, even so through the obedience of the one, everyone will be made right. 
+For as through the one man's disobedience everyone was made mistake-prone, even so through the obedience of the one, everyone will be made right. 
 The law came in so that the false step might increase; but where the mistake overflowed, favor overflowed far more, 
 that as the mistake reigned in death, even so favor might reign through rightness to the real life of the era through Jesus Christ our Lord. 

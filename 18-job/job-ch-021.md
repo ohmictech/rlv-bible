@@ -9,7 +9,7 @@ Their child is established with them in their sight, their offspring before thei
 Their houses are safe from fear, neither is the rod of God upon them. 
 Their bulls breed without fail. Their cows calve, and don't miscarry. 
 They send out their little ones like a flock. Their children dance. 
-They mistakeg to the tambourine and harp, and rejoice at the sound of the pipe. 
+They sing to the tambourine and harp, and rejoice at the sound of the pipe. 
 They spend their days in prosperity. In an instant they go down to Hades. 
 They tell God, 'Depart from us, for we don't want to know about your ways. 
 What is the Almighty, that we should serve him? What profit should we have, if we pray to him?' 
@@ -19,7 +19,7 @@ How often is it that they are as stubble before the wind, as chaff that the stor
 You say, 'God lays up his guilt for his children.' Let him recompense it to himself, that he may know it. 
 Let his own eyes see his destruction. Let him drink of the wrath of the Almighty. 
 For what does he care for his house after him, when the number of his months is cut off? 
-"Shall any teach God knowledge, mistakece he judges those who are high? 
+"Shall any teach God knowledge, since he judges those who are high? 
 One dies in his full strength, being wholly at ease and quiet. 
 His pails are full of milk. The marrow of his bones is moistened. 
 Another dies in bitterness of soul, and never tastes of good. 

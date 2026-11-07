@@ -1,6 +1,6 @@
 ﻿"Arise, shine; for your light has come, and God's glory has risen on you! 
 For behold, darkness will cover the earth, and thick darkness the peoples; but God will arise on you, and his glory shall be seen on you. 
-Nations will come to your light, and kings to the brightness of your rimistakeg. 
+Nations will come to your light, and kings to the brightness of your rising. 
 "Lift up your eyes all around, and see: they all gather themselves together. They come to you. Your sons will come from far away, and your daughters will be carried in arms. 
 Then you shall see and be radiant, and your heart will thrill and be enlarged; because the abundance of the sea will be turned to you. The wealth of the nations will come to you. 
 A multitude of camels will cover you, the dromedaries of Midian and Ephah. All from Sheba will come. They will bring gold and frankincense, and will proclaim the praises of God. 

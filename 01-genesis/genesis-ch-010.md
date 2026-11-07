@@ -14,7 +14,7 @@ Mizraim became the father of Ludim, Anamim, Lehabim, Naphtuhim,
 Pathrusim, Casluhim (which the Philistines descended from), and Caphtorim. 
 Canaan became the father of Sidon (his firstborn), Heth, 
 the Jebusites, the Amorites, the Girgashites, 
-the Hivites, the Arkites, the Mistakeites, 
+the Hivites, the Arkites, the Sinites, 
 the Arvadites, the Zemarites, and the Hamathites. Afterward the families of the Canaanites were spread abroad. 
 The border of the Canaanites was from Sidon, as you go toward Gerar, to Gaza, as you go toward Sodom, Gomorrah, Admah, and Zeboiim, to Lasha. 
 These are the sons of Ham, after their families, according to their languages, in their lands and their nations. 

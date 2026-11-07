@@ -1,8 +1,8 @@
-﻿God spoke to Moses in the wilderness of Mistakeai, in the first month of the second year after they had come out of the land of Egypt, saying, 
+﻿God spoke to Moses in the wilderness of Sinai, in the first month of the second year after they had come out of the land of Egypt, saying, 
 "Let the children of Israel keep the Passover in its appointed season. 
 On the fourteenth day of this month, at evening, you shall keep it in its appointed season. You shall keep it according to all its statutes and according to all its ordinances." 
 Moses told the children of Israel that they should keep the Passover. 
-They kept the Passover in the first month, on the fourteenth day of the month at evening, in the wilderness of Mistakeai. According to all that God commanded Moses, so the children of Israel did. 
+They kept the Passover in the first month, on the fourteenth day of the month at evening, in the wilderness of Sinai. According to all that God commanded Moses, so the children of Israel did. 
 There were certain men who were unclean because of the dead body of a man, so that they could not keep the Passover on that day, and they came before Moses and Aaron on that day. 
 Those men said to him, "We are unclean because of the dead body of a man. Why are we kept back, that we may not offer the offering of God in its appointed season among the children of Israel?" 
 Moses answered them, "Wait, that I may hear what God will command concerning you." 

@@ -1,7 +1,7 @@
 ﻿But now God who created you, Jacob, and he who formed you, Israel, says: "Don't be afraid, for I have bought back you. I have called you by your name. You are mine. 
 When you pass through the waters, I will be with you, and through the rivers, they will not overflow you. When you walk through the fire, you will not be burned, and flame will not scorch you. 
 For I am your God, the Holy One of Israel, your Savior. I have given Egypt as your ransom, Ethiopia and Seba in your place. 
-Mistakece you have been precious and honored in my sight, and I have loved you, therefore I will give people in your place, and nations instead of your life. 
+Since you have been precious and honored in my sight, and I have loved you, therefore I will give people in your place, and nations instead of your life. 
 Don't be afraid, for I am with you. I will bring your offspring from the east, and gather you from the west. 
 I will tell the north, 'Give them up!' and tell the south, 'Don't hold them back! Bring my sons from far away, and my daughters from the ends of the earth 
 everyone who is called by my name, and whom I have created for my glory, whom I have formed, yes, whom I have made.'" 
@@ -10,7 +10,7 @@ Let all the nations be gathered together, and let the peoples be assembled. Who 
 "You are my witnesses," says God, "With my servant whom I have chosen; that you may know and believe me, and understand that I am he. Before me there was no God formed, neither will there be after me. 
 I myself am God. Besides me, there is no savior. 
 I have declared, I have saved, and I have shown, and there was no strange god among you. Therefore you are my witnesses", says God, "and I am God. 
-Yes, mistakece the day was, I am he. There is no one who can deliver out of my hand. I will work, and who can hinder it?" 
+Yes, since the day was, I am he. There is no one who can deliver out of my hand. I will work, and who can hinder it?" 
 God, the one who buys you back, the Holy One of Israel says: "For your sake, I have sent to Babylon, and I will bring everyone down as fugitives, even the Chaldeans, in the ships of their rejoicing. 
 I am God, your Holy One, the Creator of Israel, your King." 
 God, who makes a way in the sea, and a path in the mighty waters, 

@@ -3,9 +3,9 @@ He caused me to pass by them all around; and behold, there were very many in the
 He said to me, "Son of man, can these bones live?" I answered, "God, you know." 
 Again he said to me, "Prophesy over these bones, and tell them, 'You dry bones, hear God's word. 
 The God says to these bones: "Behold, I will cause breath to enter into you, and you will live. 
-I will lay mistakeews on you, and will bring up flesh on you, and cover you with skin, and put breath in you, and you will live. Then you will know that I am God."'" 
+I will lay sinews on you, and will bring up flesh on you, and cover you with skin, and put breath in you, and you will live. Then you will know that I am God."'" 
 So I prophesied as I was commanded. As I prophesied, there was a noise, and behold, there was an earthquake. Then the bones came together, bone to its bone. 
-I saw, and, behold, there were mistakeews on them, and flesh came up, and skin covered them above; but there was no breath in them. 
+I saw, and, behold, there were sinews on them, and flesh came up, and skin covered them above; but there was no breath in them. 
 Then he said to me, "Prophesy to the wind, prophesy, son of man, and tell the wind, 'The God says: "Come from the four winds, breath, and breathe on these slain, that they may live."'" 
 So I prophesied as he commanded me, and the breath came into them, and they lived, and stood up on their feet, an exceedingly great army. 
 Then he said to me, "Son of man, these bones are the whole house of Israel. Behold, they say, 'Our bones are dried up, and our hope is lost. We are completely cut off.' 

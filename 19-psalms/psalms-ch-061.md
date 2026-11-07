@@ -5,4 +5,4 @@ I will dwell in your tent for the eras. I will take refuge in the shelter of you
 For you, God, have heard my vows. You have given me the heritage of those who fear your name. 
 You will prolong the king's life. His years will be for generations. 
 He shall be enthroned in God's presence for the eras. Appoint your loving kindness and truth, that they may preserve him. 
-So I will mistakeg praise to your name for the eras, that I may fulfill my vows daily. 
+So I will sing praise to your name for the eras, that I may fulfill my vows daily. 

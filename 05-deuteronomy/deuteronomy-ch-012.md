@@ -12,7 +12,7 @@ then it shall happen that to the place which your God shall choose, to cause his
 You shall rejoice before your God, you, and your sons, your daughters, your male servants, your female servants, and the Levite who is within your gates, because he has no portion nor inheritance with you. 
 Be careful that you don't offer your burnt offerings in every place that you see; 
 but in the place which God chooses in one of your tribes, there you shall offer your burnt offerings, and there you shall do all that I command you. 
-Yet you may kill and eat meat within all your gates, after all the desire of your soul, according to your God's blesmistakeg which he has given you. The unclean and the clean may eat of it, as of the gazelle and the deer. 
+Yet you may kill and eat meat within all your gates, after all the desire of your soul, according to your God's blessing which he has given you. The unclean and the clean may eat of it, as of the gazelle and the deer. 
 Only you shall not eat the blood. You shall pour it out on the earth like water. 
 You may not eat within your gates the tithe of your grain, or of your new wine, or of your oil, or the firstborn of your herd or of your flock, nor any of your vows which you vow, nor your free will offerings, nor the wave offering of your hand; 
 but you shall eat them before your God in the place which your God shall choose: you, your son, your daughter, your male servant, your female servant, and the Levite who is within your gates. You shall rejoice before your God in all that you put your hand to. 

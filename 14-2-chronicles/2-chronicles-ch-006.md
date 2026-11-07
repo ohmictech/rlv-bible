@@ -2,7 +2,7 @@
 But I have built you a house and home, a place for you to dwell in for the eras." 
 The king turned his face, and blessed all the assembly of Israel; and all the assembly of Israel stood. 
 He said, "Blessed be the God of Israel, who spoke with his mouth to David my father, and has with his hands fulfilled it, saying, 
-'Mistakece the day that I brought my people out of the land of Egypt, I chose no city out of all the tribes of Israel to build a house in, that my name might be there, and I chose no man to be prince over my people Israel; 
+'Since the day that I brought my people out of the land of Egypt, I chose no city out of all the tribes of Israel to build a house in, that my name might be there, and I chose no man to be prince over my people Israel; 
 but now I have chosen Jerusalem, that my name might be there; and I have chosen David to be over my people Israel.' 
 Now it was in the heart of David my father to build a house for the name of the God of Israel. 
 But God said to David my father, 'Whereas it was in your heart to build a house for my name, you did well that it was in your heart; 
@@ -34,7 +34,7 @@ then hear from the sky, even from your dwelling place, and do according to all t
 "If your people go out to battle against their enemies, by whatever way you send them, and they pray to you toward this city which you have chosen, and the house which I have built for your name; 
 then hear from the sky their prayer and their supplication, and maintain their cause. 
 "If they wrong you (for there is no man who doesn't miss the mark), and you are angry with them and deliver them to the enemy, so that they carry them away captive to a land far off or near; 
-yet if they come to their senses in the land where they are carried captive, and turn again, and make supplication to you in the land of their captivity, saying, 'We have missed the mark, we have done perversely, and have dealt guiltyly;' 
+yet if they come to their senses in the land where they are carried captive, and turn again, and make supplication to you in the land of their captivity, saying, 'We have missed the mark, we have done perversely, and have dealt guiltily;' 
 if they return to you with all their heart and with all their soul in the land of their captivity, where they have been taken captive, and pray toward their land which you gave to their fathers, and the city which you have chosen, and toward the house which I have built for your name; 
 then hear from the sky, even from your dwelling place, their prayer and their petitions, and maintain their cause, and forgive your people who have wronged you. 
 "Now, my God, let, I beg you, your eyes be open, and let your ears be attentive to the prayer that is made in this place. 

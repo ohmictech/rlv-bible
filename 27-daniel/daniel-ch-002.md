@@ -44,6 +44,6 @@ Whereas you saw the iron mixed with miry clay, they will mingle themselves with 
 "In the days of those kings the God of the sky will set up a kingdom which will never be destroyed, nor will its sovereignty be left to another people; but it will break in pieces and consume all these kingdoms, and it will stand for the eras. 
 Because you saw that a stone was cut out of the mountain without hands, and that it broke in pieces the iron, the bronze, the clay, the silver, and the gold, the great God has made known to the king what will happen hereafter. The dream is certain, and its interpretation sure." 
 Then King Nebuchadnezzar fell on his face, worshiped Daniel, and commanded that they should offer an offering and sweet odors to him. 
-The king answered to Daniel, and said, "Of a truth your God is the God of gods, and the Lord of kings, and a revealer of secrets, mistakece you have been able to reveal this secret." 
+The king answered to Daniel, and said, "Of a truth your God is the God of gods, and the Lord of kings, and a revealer of secrets, since you have been able to reveal this secret." 
 Then the king made Daniel great and gave him many great gifts, and made him rule over the whole province of Babylon and to be chief governor over all the wise men of Babylon. 
 Daniel requested of the king, and he appointed Shadrach, Meshach, and Abednego over the affairs of the province of Babylon, but Daniel was in the king's gate. 

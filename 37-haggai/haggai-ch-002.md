@@ -15,7 +15,7 @@ Then Haggai answered, "'So is this people, and so is this nation before me,' say
 Now, please consider from this day and backward, before a stone was laid on a stone in God's temple. 
 Through all that time, when one came to a heap of twenty measures, there were only ten. When one came to the wine vat to draw out fifty, there were only twenty. 
 I struck you with blight, mildew, and hail in all the work of your hands; yet you didn't turn to me,' says God. 
-'Consider, please, from this day and backward, from the twenty-fourth day of the ninth month, mistakece the day that the foundation of God's temple was laid, consider it. 
+'Consider, please, from this day and backward, from the twenty-fourth day of the ninth month, since the day that the foundation of God's temple was laid, consider it. 
 Is the seed yet in the barn? Yes, the vine, the fig tree, the pomegranate, and the olive tree haven't produced. From today I will bless you.'" 
 God's word came the second time to Haggai in the twenty-fourth day of the month, saying, 
 "Speak to Zerubbabel, governor of Judah, saying, 'I will shake the sky and the earth. 

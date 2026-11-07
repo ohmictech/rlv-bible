@@ -1,6 +1,6 @@
 ﻿David the king said to all the assembly, "Solomon my son, whom alone God has chosen, is yet young and tender, and the work is great; for the palace is not for man, but for God. 
 Now I have prepared with all my might for the house of my God the gold for the things of gold, the silver for the things of silver, the bronze for the things of bronze, iron for the things of iron, and wood for the things of wood, also onyx stones, stones to be set, stones for inlaid work of various colors, all kinds of precious stones, and marble stones in abundance. 
-In addition, because I have set my affection on the house of my God, mistakece I have a treasure of my own of gold and silver, I give it to the house of my God, over and above all that I have prepared for the holy house: 
+In addition, because I have set my affection on the house of my God, since I have a treasure of my own of gold and silver, I give it to the house of my God, over and above all that I have prepared for the holy house: 
 even three thousand talents of gold, of the gold of Ophir, and seven thousand talents of refined silver, with which to overlay the walls of the houses; 
 of gold for the things of gold, and of silver for the things of silver, and for all kinds of work to be made by the hands of artisans. Who then offers willingly to consecrate himself today to God?" 
 Then the princes of the fathers' households, and the princes of the tribes of Israel, and the captains of thousands and of hundreds, with the rulers over the king's work, offered willingly; 

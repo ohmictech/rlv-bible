@@ -1,4 +1,4 @@
-﻿Woe to her who is rebellious and polluted, the oppresmistakeg city! 
+﻿Woe to her who is rebellious and polluted, the oppressing city! 
 She didn't obey the voice. She didn't receive correction. She didn't trust in God. She didn't draw near to her God. 
 Her princes within her are roaring lions. Her judges are evening wolves. They leave nothing until the next day. 
 Her spokesmen are arrogant and treacherous people. Her priests have profaned the sanctuary. They have done violence to the law. 
@@ -11,10 +11,10 @@ From beyond the rivers of Cush, my worshipers, even the daughter of my dispersed
 In that day you will not be disappointed for all your doings in which you have transgressed against me; for then I will take away out from among you your proudly exulting ones, and you will no more be arrogant in my holy mountain. 
 But I will leave among you an afflicted and poor people, and they will take refuge in God's name. 
 The remnant of Israel will not do guilt nor speak lies, neither will a deceitful tongue be found in their mouth, for they will feed and lie down, and no one will make them afraid." 
-Mistakeg, daughter of Zion! Shout, Israel! Be glad and rejoice with all your heart, daughter of Jerusalem. 
+Sing, daughter of Zion! Shout, Israel! Be glad and rejoice with all your heart, daughter of Jerusalem. 
 God has taken away your judgments. He has thrown out your enemy. The King of Israel, God, is among you. You will not be afraid of bad any more. 
 In that day, it will be said to Jerusalem, "Don't be afraid, Zion. Don't let your hands be weak." 
-God, your God, is among you, a mighty one who will save. He will rejoice over you with joy. He will calm you in his love. He will rejoice over you with mistakeging. 
+God, your God, is among you, a mighty one who will save. He will rejoice over you with joy. He will calm you in his love. He will rejoice over you with singing. 
 I will remove those who grieve about the appointed feasts from you. They are a burden and a reproach to you. 
 Behold, at that time I will deal with everyone who afflicts you; and I will save those who are lame and gather those who were driven away. I will give them praise and honor, whose shame has been in all the earth. 
 At that time I will bring you in, and at that time I will gather you; for I will give you honor and praise among everyones of the earth when I restore your fortunes before your eyes, says God. 

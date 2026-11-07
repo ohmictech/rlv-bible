@@ -4,4 +4,4 @@ Glorious things are spoken about you, city of God. Selah.
 I will record Rahab and Babylon among those who acknowledge me. Behold, Philistia, Tyre, and also Ethiopia: "This one was born there." 
 Yes, of Zion it will be said, "This one and that one was born in her;" the Most High himself will establish her. 
 God will count, when he writes up the peoples, "This one was born there." Selah. 
-Those who mistakeg as well as those who dance say, "All my springs are in you." 
+Those who sing as well as those who dance say, "All my springs are in you." 

@@ -35,4 +35,4 @@ For the waved breast and the heaved thigh I have taken from the children of Isra
 This is the consecrated portion of Aaron, and the consecrated portion of his sons, out of the offerings of God made by fire, in the day when he presented them to minister to God in the priest's office; 
 which God commanded to be given them of the children of Israel, in the day that he anointed them. It is their portion for the eras throughout their generations. 
 This is the law of the burnt offering, the meal offering, the offering for mistakes, the trespass offering, the consecration, and the sacrifice of offerings for wholeness 
-which God commanded Moses in Mount Mistakeai in the day that he commanded the children of Israel to offer their offerings to God, in the wilderness of Mistakeai. 
+which God commanded Moses in Mount Sinai in the day that he commanded the children of Israel to offer their offerings to God, in the wilderness of Sinai. 

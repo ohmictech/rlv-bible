@@ -14,7 +14,7 @@ Jonathan climbed up on his hands and on his feet, and his armor bearer after him
 That first slaughter, which Jonathan and his armor bearer made, was about twenty men, within as it were half a furrow's length in an acre of land. 
 There was a trembling in the camp, in the field, and among everyone; the garrison and the raiders also trembled; and the earth quaked, so there was an exceedingly great trembling. 
 The watchmen of Saul in Gibeah of Benjamin looked; and behold, the multitude melted away and scattered. 
-Then Saul said to the people who were with him, "Count now, and see who is mismistakeg from us." When they had counted, behold, Jonathan and his armor bearer were not there. 
+Then Saul said to the people who were with him, "Count now, and see who is missing from us." When they had counted, behold, Jonathan and his armor bearer were not there. 
 Saul said to Ahijah, "Bring God's ark here." For God's ark was with the children of Israel at that time. 
 While Saul talked to the priest, the tumult that was in the camp of the Philistines went on and increased; and Saul said to the priest, "Withdraw your hand!" 
 Saul and everyone who was with him were gathered together, and came to the battle; and behold, they were all striking each other with their swords in very great confusion. 

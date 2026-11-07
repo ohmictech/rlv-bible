@@ -1,5 +1,5 @@
 ﻿Now Ahab had seventy sons in Samaria. Jehu wrote letters and sent them to Samaria, to the rulers of Jezreel, even the elders, and to those who brought up Ahab's sons, saying, 
-"Now as soon as this letter comes to you, mistakece your master's sons are with you, and you have chariots and horses, a fortified city also, and armor, 
+"Now as soon as this letter comes to you, since your master's sons are with you, and you have chariots and horses, a fortified city also, and armor, 
 select the best and fittest of your master's sons, set him on his father's throne, and fight for your master's house." 
 But they were exceedingly afraid, and said, "Behold, the two kings didn't stand before him! How then shall we stand?" 
 He who was over the household, and he who was over the city, the elders also, and those who raised the children, sent to Jehu, saying, "We are your servants, and will do all that you ask us. We will not make any man king. You do that which is good in your eyes." 

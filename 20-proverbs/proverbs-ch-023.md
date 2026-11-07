@@ -1,6 +1,6 @@
 ﻿When you sit to eat with a ruler, consider diligently what is before you; 
 put a knife to your throat if you are a man given to appetite. 
-Don't be desirous of his dainties, mistakece they are deceitful food. 
+Don't be desirous of his dainties, since they are deceitful food. 
 Don't weary yourself to be rich. In your wisdom, show restraint. 
 Why do you set your eyes on that which is not? For it certainly sprouts wings like an eagle and flies in the sky. 
 Don't eat the food of him who has a stingy eye, and don't crave his delicacies, 
@@ -18,7 +18,7 @@ Don't let your heart envy those who miss the mark, but rather fear God all day l
 Indeed surely there is a future hope, and your hope will not be cut off. 
 Listen, my son, and be wise, and keep your heart on the right path! 
 Don't be among ones drinking too much wine, or those who gorge themselves on meat; 
-for the drunkard and the glutton shall become poor; and drowmistakeess clothes them in rags. 
+for the drunkard and the glutton shall become poor; and drowsiness clothes them in rags. 
 Listen to your father who gave you life, and don't despise your mother when she is old. 
 Buy the truth, and don't sell it. Get wisdom, discipline, and understanding. 
 The father of the righteous has great joy. Whoever fathers a wise child delights in him. 
@@ -30,6 +30,6 @@ Who has woe? Who has sorrow? Who has strife? Who has complaints? Who has needles
 Those who stay long at the wine; those who go to seek out mixed wine. 
 Don't look at the wine when it is red, when it sparkles in the cup, when it goes down smoothly. 
 In the end, it bites like a snake, and poisons like a viper. 
-Your eyes will see strange things, and your mind will imagine confumistakeg things. 
+Your eyes will see strange things, and your mind will imagine confusing things. 
 Yes, you will be as he who lies down in the middle of the sea, or as he who lies on top of the rigging: 
 "They hit me, and I was not hurt! They beat me, and I don't feel it! When will I wake up? I can do it again. I will look for more." 

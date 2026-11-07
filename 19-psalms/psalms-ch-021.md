@@ -1,6 +1,6 @@
 ﻿For the Chief Musician. A Psalm by David. The king rejoices in your strength, God! How greatly he rejoices in your salvation! 
 You have given him his heart's desire, and have not withheld the request of his lips. Selah. 
-For you meet him with the blesmistakegs of goodness. You set a crown of fine gold on his head. 
+For you meet him with the blessings of goodness. You set a crown of fine gold on his head. 
 He asked life of you and you gave it to him, even length of days for all the eras. 
 His glory is great in your salvation. You lay honor and majesty on him. 
 For you make him most blessed for the eras. You make him glad with joy in your presence. 
@@ -10,4 +10,4 @@ You will make them as a fiery furnace in the time of your anger. God will swallo
 You will destroy their descendants from the earth, their posterity from among the children of men. 
 For they intended bad against you. They plotted bad against you which cannot succeed. 
 For you will make them turn their back, when you aim drawn bows at their face. 
-Be exalted, God, in your strength, so we will mistakeg and praise your power. 
+Be exalted, God, in your strength, so we will sing and praise your power. 

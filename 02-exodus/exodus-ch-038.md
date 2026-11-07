@@ -1,6 +1,6 @@
 ﻿He made the altar of burnt offering of acacia wood. It was square. Its length was five cubits, its width was five cubits, and its height was three cubits. 
 He made its horns on its four corners. Its horns were of one piece with it, and he overlaid it with bronze. 
-He made all the vessels of the altar: the pots, the shovels, the bamistakes, the forks, and the fire pans. He made all its vessels of bronze. 
+He made all the vessels of the altar: the pots, the shovels, the basins, the forks, and the fire pans. He made all its vessels of bronze. 
 He made for the altar a grating of a network of bronze, under the ledge around it beneath, reaching halfway up. 
 He cast four rings for the four corners of bronze grating, to be places for the poles. 
 He made the poles of acacia wood, and overlaid them with bronze. 

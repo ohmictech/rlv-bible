@@ -26,7 +26,7 @@ Don't be afraid of sudden fear, neither of the desolation of the guilty, when it
 for God will be your confidence, and will keep your foot from being taken. 
 Don't withhold good from those to whom it is due, when it is in the power of your hand to do it. 
 Don't say to your neighbor, "Go, and come again; tomorrow I will give it to you," when you have it by you. 
-Don't devise bad against your neighbor, mistakece he dwells securely by you. 
+Don't devise bad against your neighbor, since he dwells securely by you. 
 Don't strive with a man without cause, if he has done you no harm. 
 Don't envy the man of violence. Choose none of his ways. 
 For the perverse is an abomination to God, but his friendship is with the upright. 

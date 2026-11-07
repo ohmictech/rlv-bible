@@ -18,7 +18,7 @@ He delivered me from my strong enemy, from those who hated me; for they were too
 They came on me in the day of my calamity, but God was my support. 
 He brought me out also into a large place. He delivered me, because he delighted in me. 
 God has rewarded me according to my righteousness. According to the cleanness of my hands, he has recompensed me. 
-For I have kept the ways of God, and have not guiltyly departed from my God. 
+For I have kept the ways of God, and have not guiltily departed from my God. 
 For all his ordinances were before me. I didn't put away his statutes from me. 
 I was also blameless with him. I kept myself from my guilt. 
 Therefore God has rewarded me according to my righteousness, according to the cleanness of my hands in his eyesight. 
@@ -46,5 +46,5 @@ The foreigners shall fade away, and shall come trembling out of their stronghold
 God lives! Blessed be my rock. Exalted be the God of my salvation, 
 even the God who executes vengeance for me, and subdues peoples under me. 
 He rescues me from my enemies. Yes, you lift me up above those who rise up against me. You deliver me from the violent man. 
-Therefore I will give thanks to you, God, among the nations, and will mistakeg praises to your name. 
+Therefore I will give thanks to you, God, among the nations, and will sing praises to your name. 
 He gives great deliverance to his king, and shows loving kindness to his anointed, to David and to his offspring, for the eras more. 

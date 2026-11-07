@@ -6,7 +6,7 @@ Moreover it has not seen the sun nor known it. This has rest rather than the oth
 Yes, though he live a thousand years twice told, and yet fails to enjoy good, don't all go to one place? 
 All the labor of man is for his mouth, and yet the appetite is not filled. 
 For what advantage has the wise more than the fool? What has the poor man, that knows how to walk before the living? 
-Better is the sight of the eyes than the wandering of the desire. This also is vanity and a chamistakeg after wind. 
+Better is the sight of the eyes than the wandering of the desire. This also is vanity and a chasing after wind. 
 Whatever has been, its name was given long ago; and it is known what man is; neither can he contend with him who is mightier than he. 
 For there are many words that create vanity. What does that profit man? 
 For who knows what is good for man in life, all the days of his vain life which he spends like a shadow? For who can tell a man what will be after him under the sun? 

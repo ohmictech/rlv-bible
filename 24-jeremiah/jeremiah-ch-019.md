@@ -5,7 +5,7 @@ Because they have forsaken me, and have defiled this place, and have burned ince
 and have built the high places of Baal to burn their children in the fire for burnt offerings to Baal, which I didn't command, nor speak, which didn't even enter into my mind. 
 Therefore, behold, the days come," says God, "that this place will no more be called 'Topheth', nor 'The Valley of the son of Hinnom', but 'The valley of Slaughter'. 
 "'"I will make the counsel of Judah and Jerusalem void in this place. I will cause them to fall by the sword before their enemies, and by the hand of those who seek their life. I will give their dead bodies to be food for the birds of the sky and for the animals of the earth. 
-I will make this city an astonishment and a hismistakeg. Everyone who passes by it will be astonished and hiss because of all its plagues. 
+I will make this city an astonishment and a hissing. Everyone who passes by it will be astonished and hiss because of all its plagues. 
 I will cause them to eat the flesh of their sons and the flesh of their daughters. They will each eat the flesh of his friend in the siege and in the distress with which their enemies, and those who seek their life, will distress them."' 
 "Then you shall break the container in the sight of the men who go with you, 
 and shall tell them, 'The God of Armies says: "Even so I will break this people and this city as one breaks a potter's vessel, that can't be made whole again. They will bury in Topheth until there is no place to bury. 

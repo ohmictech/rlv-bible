@@ -13,7 +13,7 @@ Let a bear robbed of her cubs meet a man, rather than a fool in his folly.
 Whoever rewards bad for good, bad shall not depart from his house. 
 The beginning of strife is like breaching a dam, therefore stop contention before quarreling breaks out. 
 He who justifies the guilty, and he who condemns the righteous, both of them alike are an abomination to God. 
-Why is there money in the hand of a fool to buy wisdom, mistakece he has no understanding? 
+Why is there money in the hand of a fool to buy wisdom, since he has no understanding? 
 A friend loves at all times; and a brother is born for adversity. 
 A man void of understanding strikes hands, and becomes collateral in the presence of his neighbor. 
 He who loves disobedience loves strife. One who builds a high gate seeks destruction. 

@@ -1,7 +1,7 @@
 ﻿"Hear this, house of Jacob, you who are called by the name of Israel, and have come out of the waters of Judah. You swear by God's name, and make mention of the God of Israel, but not in truth, nor in righteousness 
 for they call themselves citizens of the holy city, and rely on the God of Israel; the God of Armies is his name. 
 I have declared the former things from of old. Yes, they went out of my mouth, and I revealed them. I did them suddenly, and they happened. 
-Because I knew that you are obstinate, and your neck is an iron mistakeew, and your brow bronze; 
+Because I knew that you are obstinate, and your neck is an iron sinew, and your brow bronze; 
 therefore I have declared it to you from of old; before it came to pass I showed it to you; lest you should say, 'My idol has done them. My engraved image and my molten image has commanded them.' 
 You have heard it. Now see all this. And you, won't you declare it? "I have shown you new things from this time, even hidden things, which you have not known. 
 They are created now, and not from of old. Before today, you didn't hear them, lest you should say, 'Behold, I knew them.' 

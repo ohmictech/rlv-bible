@@ -1,6 +1,6 @@
 ﻿Now Korah, the son of Izhar, the son of Kohath, the son of Levi, with Dathan and Abiram, the sons of Eliab, and On, the son of Peleth, sons of Reuben, took some men. 
 They rose up before Moses, with some of the children of Israel, two hundred fifty princes of the congregation, called to the assembly, men of renown. 
-They assembled themselves together against Moses and against Aaron, and said to them, "You take too much on yourself, mistakece all the congregation are holy, everyone of them, and God is among them! Why do you lift yourselves up above God's assembly?" 
+They assembled themselves together against Moses and against Aaron, and said to them, "You take too much on yourself, since all the congregation are holy, everyone of them, and God is among them! Why do you lift yourselves up above God's assembly?" 
 When Moses heard it, he fell on his face. 
 He said to Korah and to all his company, "In the morning, God will show who are his, and who is holy, and will cause him to come near to him. Even him whom he shall choose, he will cause to come near to him. 
 Do this: have Korah and all his company take censers, 

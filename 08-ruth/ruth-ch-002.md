@@ -7,8 +7,8 @@ The servant who was set over the reapers answered, "It is the Moabite lady who c
 She said, 'Please let me glean and gather after the reapers among the sheaves.' So she came, and has continued even from the morning until now, except that she rested a little in the house." 
 Then Boaz said to Ruth, "Listen, my daughter. Don't go to glean in another field, and don't go from here, but stay here close to my maidens. 
 Let your eyes be on the field that they reap, and go after them. Haven't I commanded the young men not to touch you? When you are thirsty, go to the vessels, and drink from that which the young men have drawn." 
-Then she fell on her face and bowed herself to the ground, and said to him, "Why have I found favor in your sight, that you should take knowledge of me, mistakece I am a foreigner?" 
-Boaz answered her, "I have been told all about what you have done for your mother-in-law mistakece the death of your husband, and how you have left your father, your mother, and the land of your birth, and have come to a people that you didn't know before. 
+Then she fell on her face and bowed herself to the ground, and said to him, "Why have I found favor in your sight, that you should take knowledge of me, since I am a foreigner?" 
+Boaz answered her, "I have been told all about what you have done for your mother-in-law since the death of your husband, and how you have left your father, your mother, and the land of your birth, and have come to a people that you didn't know before. 
 May God repay your work, and a full reward be given to you from the God of Israel, under whose wings you have come to take refuge." 
 Then she said, "Let me find favor in your sight, my lord, because you have comforted me, and because you have spoken kindly to your servant, though I am not as one of your servants." 
 At meal time Boaz said to her, "Come here, and eat some bread, and dip your morsel in the vinegar." She sat beside the reapers, and they passed her parched grain. She ate, was satisfied, and left some of it. 

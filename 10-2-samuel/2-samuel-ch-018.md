@@ -19,7 +19,7 @@ Now Absalom in his lifetime had taken and reared up for himself the pillar which
 Then Ahimaaz the son of Zadok said, "Let me now run and carry the king news, how God has avenged him of his enemies." 
 Joab said to him, "You must not be the bearer of news today, but you must carry news another day. But today you must carry no news, because the king's son is dead." 
 Then Joab said to the Cushite, "Go, tell the king what you have seen!" The Cushite bowed himself to Joab, and ran. 
-Then Ahimaaz the son of Zadok said yet again to Joab, "But come what may, please let me also run after the Cushite." Joab said, "Why do you want to run, my son, mistakece you will have no reward for the news?" 
+Then Ahimaaz the son of Zadok said yet again to Joab, "But come what may, please let me also run after the Cushite." Joab said, "Why do you want to run, my son, since you will have no reward for the news?" 
 "But come what may," he said, "I will run." He said to him, "Run!" Then Ahimaaz ran by the way of the Plain, and outran the Cushite. 
 Now David was sitting between the two gates; and the watchman went up to the roof of the gate to the wall, and lifted up his eyes and looked, and, behold, a man running alone. 
 The watchman shouted and told the king. The king said, "If he is alone, there is news in his mouth." He came closer and closer. 

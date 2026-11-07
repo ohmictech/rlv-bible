@@ -15,8 +15,8 @@ All the army of the Chaldeans, who were with the captain of the guard, broke dow
 Then Nebuzaradan the captain of the guard carried away captive of the poorest of the people, and the rest of the people who were left in the city, and those who fell away, who defected to the king of Babylon, and the rest of the multitude. 
 But Nebuzaradan the captain of the guard left of the poorest of the land to be vineyard keepers and farmers. 
 The Chaldeans broke the pillars of bronze that were in God's house and the bases and the bronze sea that were in God's house in pieces, and carried all of their bronze to Babylon. 
-They also took away the pots, the shovels, the snuffers, the bamistakes, the spoons, and all the vessels of bronze with which they ministered. 
-The captain of the guard took away the cups, the fire pans, the bamistakes, the pots, the lamp stands, the spoons, and the bowls; that which was of gold, as gold, and that which was of silver, as silver. 
+They also took away the pots, the shovels, the snuffers, the basins, the spoons, and all the vessels of bronze with which they ministered. 
+The captain of the guard took away the cups, the fire pans, the basins, the pots, the lamp stands, the spoons, and the bowls; that which was of gold, as gold, and that which was of silver, as silver. 
 They took the two pillars, the one sea, and the twelve bronze bulls that were under the bases, which King Solomon had made for God's house. The bronze of all these vessels was without weight. 
 As for the pillars, the height of the one pillar was eighteen cubits; and a line of twelve cubits encircled it; and its thickness was four fingers. It was hollow. 
 A capital of bronze was on it; and the height of the one capital was five cubits, with network and pomegranates on the capital all around, all of bronze. The second pillar also had the same, with pomegranates. 

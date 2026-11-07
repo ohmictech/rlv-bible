@@ -1,4 +1,4 @@
-﻿Let me mistakeg for my well beloved a song of my beloved about his vineyard. My beloved had a vineyard on a very fruitful hill. 
+﻿Let me sing for my well beloved a song of my beloved about his vineyard. My beloved had a vineyard on a very fruitful hill. 
 He dug it up, gathered out its stones, planted it with the choicest vine, built a tower in the middle of it, and also cut out a wine press in it. He looked for it to yield grapes, but it yielded wild grapes. 
 "Now, inhabitants of Jerusalem and men of Judah, please judge between me and my vineyard. 
 What could have been done more to my vineyard, that I have not done in it? Why, when I looked for it to yield grapes, did it yield wild grapes? 
@@ -21,7 +21,7 @@ Woe to those who call bad good, and good bad; who put darkness for light, and li
 Woe to those who are wise in their own eyes, and prudent in their own sight! 
 Woe to those who are mighty to drink wine, and champions at mixing strong drink; 
 who acquit the guilty for a bribe, but deny justice for the innocent! 
-Therefore as the tongue of fire devours the stubble, and as the dry grass mistakeks down in the flame, so their root shall be as rottenness, and their blossom shall go up as dust, because they have rejected the law of the God of Armies, and despised the word of the Holy One of Israel. 
+Therefore as the tongue of fire devours the stubble, and as the dry grass sinks down in the flame, so their root shall be as rottenness, and their blossom shall go up as dust, because they have rejected the law of the God of Armies, and despised the word of the Holy One of Israel. 
 Therefore God's anger burns against his people, and he has stretched out his hand against them and has struck them. The mountains tremble, and their dead bodies are as refuse in the middle of the streets. For all this, his anger is not turned away, but his hand is still stretched out. 
 He will lift up a banner to the nations from far away, and he will whistle for them from the end of the earth. Behold, they will come speedily and swiftly. 
 No one shall be weary nor stumble among them; no one shall slumber nor sleep, neither shall the belt of their waist be untied, nor the strap of their sandals be broken, 

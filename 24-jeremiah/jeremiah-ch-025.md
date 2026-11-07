@@ -1,12 +1,12 @@
 ﻿The word that came to Jeremiah concerning everyone in Judah, in the fourth year of Jehoiakim the son of Josiah, king of Judah (this was the first year of Nebuchadnezzar king of Babylon), 
 which Jeremiah the spokesman spoke to everyone in Judah, and to all the inhabitants of Jerusalem: 
-From the thirteenth year of Josiah the son of Amon, king of Judah, even to this day, these twenty-three years, God's word has come to me, and I have spoken to you, rimistakeg up early and speaking; but you have not listened. 
-God has sent to you all his servants the spokesmen, rimistakeg up early and sending them (but you have not listened or inclined your ear to hear), 
+From the thirteenth year of Josiah the son of Amon, king of Judah, even to this day, these twenty-three years, God's word has come to me, and I have spoken to you, rising up early and speaking; but you have not listened. 
+God has sent to you all his servants the spokesmen, rising up early and sending them (but you have not listened or inclined your ear to hear), 
 saying, "Return now everyone from his bad way, and from the bad of your doings, and dwell in the land that God has given to you and to your fathers, from of old and even for the eras more. 
 Don't go after other gods to serve them or worship them, and don't provoke me to anger with the work of your hands; then I will do you no harm." 
 "Yet you have not listened to me," says God, "that you may provoke me to anger with the work of your hands to your own hurt." 
 Therefore the God of Armies says: "Because you have not heard my words, 
-behold, I will send and take all the families of the north," says God, "and I will send to Nebuchadnezzar the king of Babylon, my servant, and will bring them against this land, and against its inhabitants, and against all these nations around. I will utterly destroy them, and make them an astonishment, and a hismistakeg, and perpetual desolations. 
+behold, I will send and take all the families of the north," says God, "and I will send to Nebuchadnezzar the king of Babylon, my servant, and will bring them against this land, and against its inhabitants, and against all these nations around. I will utterly destroy them, and make them an astonishment, and a hissing, and perpetual desolations. 
 Moreover I will take from them the voice of mirth and the voice of gladness, the voice of the bridegroom and the voice of the bride, the sound of the millstones, and the light of the lamp. 
 This whole land will be a desolation, and an astonishment; and these nations will serve the king of Babylon seventy years. 
 "It will happen, when seventy years are accomplished, that I will punish the king of Babylon and that nation," says God, "for their guilt. I will make the land of the Chaldeans desolate for the eras. 
@@ -15,7 +15,7 @@ For many nations and great kings will make bondservants of them, even of them. I
 For the God of Israel says to me: "Take this cup of the wine of wrath from my hand, and cause all the nations to whom I send you to drink it. 
 They will drink, and reel back and forth, and be insane, because of the sword that I will send among them." 
 Then I took the cup at God's hand, and made all the nations to drink, to whom God had sent me: 
-Jerusalem, and the cities of Judah, with its kings and its princes, to make them a desolation, an astonishment, a hismistakeg, and a curse, as it is today; 
+Jerusalem, and the cities of Judah, with its kings and its princes, to make them a desolation, an astonishment, a hissing, and a curse, as it is today; 
 Pharaoh king of Egypt, with his servants, his princes, and all his people; 
 and all the mixed people, and all the kings of the land of Uz, all the kings of the Philistines, Ashkelon, Gaza, Ekron, and the remnant of Ashdod; 
 Edom, Moab, and the children of Ammon; 

@@ -9,7 +9,7 @@ He took away the covering of Judah; and you looked in that day to the armor in t
 You saw the breaches of David's city, that they were many; and you gathered together the waters of the lower pool. 
 You counted the houses of Jerusalem, and you broke down the houses to fortify the wall. 
 You also made a reservoir between the two walls for the water of the old pool. But you didn't look to him who had done this, neither did you have respect for him who planned it long ago. 
-In that day, the Lord, GOD of Armies, called to weeping, to mourning, to baldness, and to dresmistakeg in sackcloth; 
+In that day, the Lord, GOD of Armies, called to weeping, to mourning, to baldness, and to dressing in sackcloth; 
 and behold, there is joy and gladness, killing cattle and killing sheep, eating meat and drinking wine: "Let's eat and drink, for tomorrow we will die." 
 The God of Armies revealed himself in my ears, "Surely this guilt will not be forgiven you until you die," says the Lord, GOD of Armies. 
 The Lord, GOD of Armies says, "Go, get yourself to this treasurer, even to Shebna, who is over the house, and say, 

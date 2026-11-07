@@ -14,7 +14,7 @@ From there they traveled, and encamped on the other side of the Arnon, which is 
 Therefore it is said in The Book of the Wars of God, "Vaheb in Suphah, the valleys of the Arnon, 
 the slope of the valleys that incline toward the dwelling of Ar, leans on the border of Moab." 
 From there they traveled to Beer; that is the well of which God said to Moses, "Gather the people together, and I will give them water." 
-Then Israel sang this song: "Spring up, well! Mistakeg to it, 
+Then Israel sang this song: "Spring up, well! Sing to it, 
 the well, which the princes dug, which the nobles of the people dug, with the scepter, and with their poles." From the wilderness they traveled to Mattanah; 
 and from Mattanah to Nahaliel; and from Nahaliel to Bamoth; 
 and from Bamoth to the valley that is in the field of Moab, to the top of Pisgah, which looks down on the desert. 

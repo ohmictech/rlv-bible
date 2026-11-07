@@ -20,7 +20,7 @@ He who goes about as a tale-bearer reveals secrets; therefore don't keep company
 Whoever curses his father or his mother, his lamp shall be put out in blackness of darkness. 
 An inheritance quickly gained at the beginning won't be blessed in the end. 
 Don't say, "I will pay back bad." Wait for God, and he will save you. 
-God detests differing weights, and dishonest scales are not pleamistakeg. 
+God detests differing weights, and dishonest scales are not pleasing. 
 A man's steps are from God; how then can man understand his way? 
 It is a snare to a man to make a rash dedication, then later to consider his vows. 
 A wise king winnows out the guilty, and drives the threshing wheel over them. 

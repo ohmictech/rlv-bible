@@ -13,7 +13,7 @@ Then Solomon said, "God has said that he would dwell in the thick darkness.
 I have surely built you a house of habitation, a place for you to dwell in for the eras." 
 The king turned his face around and blessed all the assembly of Israel; and all the assembly of Israel stood. 
 He said, "Blessed is the God of Israel, who spoke with his mouth to David your father, and has with his hand fulfilled it, saying, 
-'Mistakece the day that I brought my people Israel out of Egypt, I chose no city out of all the tribes of Israel to build a house, that my name might be there; but I chose David to be over my people Israel.' 
+'Since the day that I brought my people Israel out of Egypt, I chose no city out of all the tribes of Israel to build a house, that my name might be there; but I chose David to be over my people Israel.' 
 "Now it was in the heart of David my father to build a house for the name of the God of Israel. 
 But God said to David my father, 'Whereas it was in your heart to build a house for my name, you did well that it was in your heart. 
 Nevertheless, you shall not build the house; but your son who shall come out of your body, he shall build the house for my name.' 
@@ -44,7 +44,7 @@ hear in the sky, your dwelling place, and do according to all that the foreigner
 "If your people go out to battle against their enemy, by whatever way you shall send them, and they pray to God toward the city which you have chosen, and toward the house which I have built for your name, 
 then hear in the sky their prayer and their supplication, and maintain their cause. 
 If they wrong you (for there is no man who doesn't miss the mark), and you are angry with them and deliver them to the enemy, so that they carry them away captive to the land of the enemy, far off or near; 
-yet if they repent in the land where they are carried captive, and turn again, and make supplication to you in the land of those who carried them captive, saying, 'We have missed the mark and have done perversely; we have dealt guiltyly,' 
+yet if they repent in the land where they are carried captive, and turn again, and make supplication to you in the land of those who carried them captive, saying, 'We have missed the mark and have done perversely; we have dealt guiltily,' 
 if they return to you with all their heart and with all their soul in the land of their enemies who carried them captive, and pray to you toward their land which you gave to their fathers, the city which you have chosen and the house which I have built for your name, 
 then hear their prayer and their supplication in the sky, your dwelling place, and maintain their cause; 
 and forgive your people who have wronged you, and all their rebellion in which they have transgressed against you; and give them compassion before those who carried them captive, that they may have compassion on them 

@@ -3,7 +3,7 @@ God, how long will I cry, and you will not hear? I cry out to you "Violence!" an
 Why do you show me guilt, and look at perversity? For destruction and violence are before me. There is strife, and contention rises up. 
 Therefore the law is paralyzed, and justice never prevails; for the guilty surround the righteous; therefore justice comes out perverted. 
 "Look among the nations, watch, and wonder marvelously; for I am working a work in your days which you will not believe though it is told you. 
-For, behold, I am raimistakeg up the Chaldeans, that bitter and hasty nation who march through the width of the earth, to possess dwelling places that are not theirs. 
+For, behold, I am raising up the Chaldeans, that bitter and hasty nation who march through the width of the earth, to possess dwelling places that are not theirs. 
 They are feared and dreaded. Their judgment and their dignity proceed from themselves. 
 Their horses also are swifter than leopards, and are more fierce than the evening wolves. Their horsemen press proudly on. Yes, their horsemen come from afar. They fly as an eagle that hurries to devour. 
 All of them come for violence. Their hordes face forward. They gather prisoners like sand. 

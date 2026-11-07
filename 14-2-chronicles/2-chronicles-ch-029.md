@@ -5,7 +5,7 @@ He brought in the priests and the Levites and gathered them together into the wi
 and said to them, "Listen to me, you Levites! Now sanctify yourselves, and sanctify the house of the God of your fathers, and carry the filthiness out of the holy place. 
 For our fathers were unfaithful, and have done that which was bad in our God's sight, and have forsaken him, and have turned away their faces from the habitation of God, and turned their backs. 
 Also they have shut up the doors of the porch, and put out the lamps, and have not burned incense nor offered burnt offerings in the holy place to the God of Israel. 
-Therefore God's wrath was on Judah and Jerusalem, and he has delivered them to be tossed back and forth, to be an astonishment and a hismistakeg, as you see with your eyes. 
+Therefore God's wrath was on Judah and Jerusalem, and he has delivered them to be tossed back and forth, to be an astonishment and a hissing, as you see with your eyes. 
 For behold, our fathers have fallen by the sword, and our sons and our daughters and our wives are in captivity for this. 
 Now it is in my heart to make a covenant with the God of Israel, that his fierce anger may turn away from us. 
 My sons, don't be negligent now; for God has chosen you to stand before him, to minister to him, and that you should be his ministers and burn incense." 
@@ -25,7 +25,7 @@ Then the priests killed them, and they made an offering for mistakes with their 
 He set the Levites in God's house with cymbals, with stringed instruments, and with harps, according to the commandment of David, of Gad the king's seer, and Nathan the spokesman; for the commandment was from God by his spokesmen. 
 The Levites stood with David's instruments, and the priests with the trumpets. 
 Hezekiah commanded them to offer the burnt offering on the altar. When the burnt offering began, God's song also began, along with the trumpets and instruments of David king of Israel. 
-All the assembly worshiped, the mistakegers sang, and the trumpeters sounded. All this continued until the burnt offering was finished. 
+All the assembly worshiped, the singers sang, and the trumpeters sounded. All this continued until the burnt offering was finished. 
 When they had finished offering, the king and everyone who was present with him bowed themselves and worshiped. 
 Moreover Hezekiah the king and the princes commanded the Levites to miss the markg praises to God with the words of David, and of Asaph the seer. They sang praises with gladness, and they bowed their heads and worshiped. 
 Then Hezekiah answered, "Now you have consecrated yourselves to God. Come near and bring sacrifices and thank offerings into God's house." The assembly brought in sacrifices and thank offerings, and as many as were of a willing heart brought burnt offerings. 

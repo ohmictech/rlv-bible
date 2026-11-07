@@ -1,6 +1,6 @@
-﻿A Song. A Psalm by David. My heart is steadfast, God. I will mistakeg and I will make music with my soul. 
+﻿A Song. A Psalm by David. My heart is steadfast, God. I will sing and I will make music with my soul. 
 Wake up, harp and lyre! I will wake up the dawn. 
-I will give thanks to you, God, among the nations. I will mistakeg praises to you among the peoples. 
+I will give thanks to you, God, among the nations. I will sing praises to you among the peoples. 
 For your loving kindness is great above the sky. Your faithfulness reaches to the skies. 
 Be exalted, God, above the sky! Let your glory be over all the earth. 
 That your beloved may be delivered, save with your right hand, and answer us. 

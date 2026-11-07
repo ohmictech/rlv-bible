@@ -33,7 +33,7 @@ David said to Saul, "Let no man's heart fail because of him. Your servant will g
 Saul said to David, "You are not able to go against this Philistine to fight with him; for you are but a youth, and he a man of war from his youth." 
 David said to Saul, "Your servant was keeping his father's sheep; and when a lion or a bear came and took a lamb out of the flock, 
 I went out after him, struck him, and rescued it out of his mouth. When he arose against me, I caught him by his beard, struck him, and killed him. 
-Your servant struck both the lion and the bear. This uncircumcised Philistine shall be as one of them, mistakece he has defied the armies of the living God." 
+Your servant struck both the lion and the bear. This uncircumcised Philistine shall be as one of them, since he has defied the armies of the living God." 
 David said, "God, who delivered me out of the paw of the lion and out of the paw of the bear, will deliver me out of the hand of this Philistine." Saul said to David, "Go! God will be with you." 
 Saul dressed David with his clothing. He put a helmet of bronze on his head, and he clad him with a coat of mail. 
 David strapped his sword on his clothing and he tried to move, for he had not tested it. David said to Saul, "I can't go with these, for I have not tested them." Then David took them off. 
@@ -50,7 +50,7 @@ David put his hand in his bag, took a stone and slung it, and struck the Philist
 So David prevailed over the Philistine with a sling and with a stone, and struck the Philistine and killed him; but there was no sword in David's hand. 
 Then David ran, stood over the Philistine, took his sword, drew it out of its sheath, killed him, and cut off his head with it. When the Philistines saw that their champion was dead, they fled. 
 The men of Israel and of Judah arose and shouted, and pursued the Philistines as far as Gai and to the gates of Ekron. The wounded of the Philistines fell down by the way to Shaaraim, even to Gath and to Ekron. 
-The children of Israel returned from chamistakeg after the Philistines, and they plundered their camp. 
+The children of Israel returned from chasing after the Philistines, and they plundered their camp. 
 David took the head of the Philistine and brought it to Jerusalem, but he put his armor in his tent. 
 When Saul saw David go out against the Philistine, he said to Abner, the captain of the army, "Abner, whose son is this youth?" Abner said, "As your soul lives, O king, I can't tell." 
 The king said, "Inquire whose son the young man is!" 

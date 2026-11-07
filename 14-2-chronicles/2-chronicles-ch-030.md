@@ -18,10 +18,10 @@ For there were many in the assembly who had not sanctified themselves; therefore
 For a multitude of the people, even many of Ephraim, Manasseh, Issachar, and Zebulun, had not cleansed themselves, yet they ate the Passover other than the way it is written. For Hezekiah had prayed for them, saying, "May the good God pardon everyone 
 who sets his heart to seek the God of his fathers, even if they aren't clean according to the purification of the sanctuary." 
 God listened to Hezekiah, and healed the people. 
-The children of Israel who were present at Jerusalem kept the feast of unleavened bread seven days with great gladness. The Levites and the priests praised God day by day, mistakeging with loud instruments to God. 
+The children of Israel who were present at Jerusalem kept the feast of unleavened bread seven days with great gladness. The Levites and the priests praised God day by day, singing with loud instruments to God. 
 Hezekiah spoke encouragingly to all the Levites who had good understanding in the service of God. So they ate throughout the feast for the seven days, offering sacrifices of offerings for wholeness and making confession to the God of their fathers. 
 The whole assembly took counsel to keep another seven days, and they kept another seven days with gladness. 
 For Hezekiah king of Judah gave to the assembly for offerings one thousand bulls and seven thousand sheep; and the princes gave to the assembly a thousand bulls and ten thousand sheep; and a great number of priests sanctified themselves. 
 All the assembly of Judah, with the priests and the Levites, and all the assembly who came out of Israel, and the foreigners who came out of the land of Israel and who lived in Judah, rejoiced. 
-So there was great joy in Jerusalem; for mistakece the time of Solomon the son of David king of Israel there was nothing like this in Jerusalem. 
+So there was great joy in Jerusalem; for since the time of Solomon the son of David king of Israel there was nothing like this in Jerusalem. 
 Then the Levitical priests arose and blessed the people. Their voice was heard, and their prayer came up to his holy habitation, even to the sky. 

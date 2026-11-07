@@ -4,7 +4,7 @@ The priest shall examine the plague in the skin of the body. If the hair in the 
 If the bright spot is white in the skin of his body, and its appearance isn't deeper than the skin, and its hair hasn't turned white, then the priest shall isolate the infected person for seven days. 
 The priest shall examine him on the seventh day. Behold, if in his eyes the plague is arrested and the plague hasn't spread in the skin, then the priest shall isolate him for seven more days. 
 The priest shall examine him again on the seventh day. Behold, if the plague has faded and the plague hasn't spread in the skin, then the priest shall pronounce him clean. It is a scab. He shall wash his clothes, and be clean. 
-But if the scab spreads on the skin after he has shown himself to the priest for his cleanmistakeg, he shall show himself to the priest again. 
+But if the scab spreads on the skin after he has shown himself to the priest for his cleansing, he shall show himself to the priest again. 
 The priest shall examine him; and behold, if the scab has spread on the skin, then the priest shall pronounce him unclean. It is leprosy. 
 "When the plague of leprosy is in a man, then he shall be brought to the priest; 
 and the priest shall examine him. Behold, if there is a white swelling in the skin, and it has turned the hair white, and there is raw flesh in the swelling, 
@@ -32,7 +32,7 @@ If the priest examines the plague of itching, and behold, its appearance isn't d
 On the seventh day the priest shall examine the plague; and behold, if the itch hasn't spread, and there is no yellow hair in it, and the appearance of the itch isn't deeper than the skin, 
 then he shall be shaved, but he shall not shave the itch. Then the priest shall isolate the one who has the itch seven more days. 
 On the seventh day, the priest shall examine the itch; and behold, if the itch hasn't spread in the skin, and its appearance isn't deeper than the skin, then the priest shall pronounce him clean. He shall wash his clothes and be clean. 
-But if the itch spreads in the skin after his cleanmistakeg, 
+But if the itch spreads in the skin after his cleansing, 
 then the priest shall examine him; and behold, if the itch has spread in the skin, the priest shall not look for the yellow hair; he is unclean. 
 But if in his eyes the itch is arrested and black hair has grown in it, then the itch is healed. He is clean. The priest shall pronounce him clean. 
 "When a man or a woman has bright spots in the skin of the body, even white bright spots, 

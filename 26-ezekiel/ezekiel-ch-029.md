@@ -7,7 +7,7 @@ I'll cast you out into the wilderness, you and all the fish of your rivers. You'
 When they took hold of you by your hand, you broke and tore all their shoulders. When they leaned on you, you broke and paralyzed all of their thighs." 
 "'Therefore God says: "Behold, I will bring a sword on you, and will cut off man and animal from you. 
 The land of Egypt will be a desolation and a waste. Then they will know that I am God. "'"Because he has said, 'The river is mine, and I have made it,' 
-therefore, behold, I am against you and against your rivers. I will make the land of Egypt an utter waste and desolation, from the tower of Seveneh even to the border of Ethiopia. 
+So, behold, I am against you and against your rivers. I will make the land of Egypt an utter waste and desolation, from the tower of Seveneh even to the border of Ethiopia. 
 No foot of man will pass through it, nor will any animal foot pass through it. It won't be inhabited for forty years. 
 I will make the land of Egypt a desolation in the middle of the countries that are desolate. Her cities among the cities that are laid waste will be a desolation forty years. I will scatter the Egyptians among the nations, and will disperse them through the countries." 
 "'For God says: "At the end of forty years I will gather the Egyptians from the peoples where they were scattered. 
@@ -16,6 +16,6 @@ It will be the lowest of the kingdoms. It won't lift itself up above the nations
 It will no longer be the confidence of the house of Israel, bringing guilt to memory, when they turn to look after them. Then they will know that I am God."'" 
 It came to pass in the twenty-seventh year, in the first month, in the first day of the month, God's word came to me, saying, 
 "Son of man, Nebuchadnezzar king of Babylon caused his army to serve a great service against Tyre. Every head was made bald, and every shoulder was worn; yet he had no wages, nor did his army, from Tyre, for the service that he had served against it. 
-Therefore God says: 'Behold, I will give the land of Egypt to Nebuchadnezzar king of Babylon. He will carry off her multitude, take her plunder, and take her prey. That will be the wages for his army. 
+So God says: 'Behold, I will give the land of Egypt to Nebuchadnezzar king of Babylon. He will carry off her multitude, take her plunder, and take her prey. That will be the wages for his army. 
 I have given him the land of Egypt as his payment for which he served, because they worked for me,' says God. 
 "In that day I will cause a horn to sprout for the house of Israel, and I will open your mouth among them. Then they will know that I am God." 

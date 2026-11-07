@@ -16,7 +16,7 @@ For now I would have stretched out my hand, and struck you and your people with 
 but indeed for this cause I have made you stand: to show you my power, and that my name may be declared throughout all the earth, 
 because you still exalt yourself against my people, that you won't let them go. 
 Behold, tomorrow about this time I will cause it to rain a very grievous hail, such as has not been in Egypt since the day it was founded even until now. 
-Now therefore command that all of your livestock and all that you have in the field be brought into shelter. The hail will come down on every man and animal that is found in the field, and isn't brought home, and they will die."'" 
+Now command that all of your livestock and all that you have in the field be brought into shelter. The hail will come down on every man and animal that is found in the field, and isn't brought home, and they will die."'" 
 Those who feared God's word among the servants of Pharaoh made their servants and their livestock flee into the houses. 
 Whoever didn't respect God's word left his servants and his livestock in the field. 
 God said to Moses, "Stretch out your hand toward the sky, that there may be hail in all the land of Egypt, on man, and on animal, and on every herb of the field, throughout the land of Egypt." 

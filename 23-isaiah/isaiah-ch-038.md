@@ -17,6 +17,6 @@ Lord, men live by these things; and my spirit finds life in everyone. You restor
 Behold, for peace I had great anguish, but you have in love for my soul delivered it from the pit of corruption; for you have cast all my mistakes behind your back. 
 For Hades can't praise you. Death can't celebrate you. Those who go down into the pit can't hope for your truth. 
 The living, the living, he shall praise you, as I do today. The father shall make known your truth to the children. 
-God will save me. Therefore we will sing my songs with stringed instruments all the days of our life in God's house. 
+God will save me. So we will sing my songs with stringed instruments all the days of our life in God's house. 
 Now Isaiah had said, "Let them take a cake of figs, and lay it for a poultice on the boil, and he shall recover." 
 Hezekiah also had said, "What is the sign that I will go up to God's house?" 

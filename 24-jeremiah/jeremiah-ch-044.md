@@ -3,7 +3,7 @@
 because of their guilt which they have committed to provoke me to anger, in that they went to burn incense, to serve other gods that they didn't know, neither they, nor you, nor your fathers. 
 However I sent to you all my servants the spokesmen, rising up early and sending them, saying, "Oh, don't do this abominable thing that I hate." 
 But they didn't listen and didn't incline their ear. They didn't turn from their guilt, to stop burning incense to other gods. 
-Therefore my wrath and my anger was poured out, and was kindled in the cities of Judah and in the streets of Jerusalem; and they are wasted and desolate, as it is today.' 
+So my wrath and my anger was poured out, and was kindled in the cities of Judah and in the streets of Jerusalem; and they are wasted and desolate, as it is today.' 
 "Therefore now the God of Armies, the God of Israel says: 'Why do you commit great bad against your own souls, to cut off from yourselves man and woman, infant and nursing child out of the middle of Judah, to leave yourselves no one remaining, 
 in that you provoke me to anger with the works of your hands, burning incense to other gods in the land of Egypt where you have gone to live, that you may be cut off, and that you may be a curse and a reproach among all the nations of the earth? 
 Have you forgotten the guilt of your fathers, the guilt of the kings of Judah, the guilt of their wives, your own guilt, and the guilt of your wives which they committed in the land of Judah and in the streets of Jerusalem? 
@@ -19,8 +19,8 @@ But since we stopped burning incense to the queen of the sky, and pouring out dr
 The women said, "When we burned incense to the queen of the sky and poured out drink offerings to her, did we make her cakes to worship her, and pour out drink offerings to her, without our husbands?" 
 Then Jeremiah said to everyone, to the men and to the women, even to everyone who had given him an answer, saying, 
 "The incense that you burned in the cities of Judah, and in the streets of Jerusalem, you and your fathers, your kings and your princes, and the people of the land, didn't God remember them, and didn't it come into his mind? 
-Thus God could no longer bear it, because of the bad of your doings and because of the abominations which you have committed. Therefore your land has become a desolation, an astonishment, and a curse, without inhabitant, as it is today. 
-Because you have burned incense and because you have wronged God, and have not obeyed God's voice, nor walked in his law, nor in his statutes, nor in his testimonies; therefore this bad has happened to you, as it is today." 
+Thus God could no longer bear it, because of the bad of your doings and because of the abominations which you have committed. So your land has become a desolation, an astonishment, and a curse, without inhabitant, as it is today. 
+Because you have burned incense and because you have wronged God, and have not obeyed God's voice, nor walked in his law, nor in his statutes, nor in his testimonies; this bad has happened to you, as it is today." 
 Moreover Jeremiah said to everyone, including all the women, "Hear God's word, all Judah who are in the land of Egypt! 
 The God of Armies, the God of Israel says, 'You and your wives have both spoken with your mouths, and with your hands have fulfilled it, saying, "We will surely perform our vows that we have vowed, to burn incense to the queen of the sky, and to pour out drink offerings to her." "'Establish then your vows, and perform your vows.' 
 "Therefore hear God's word, all Judah who dwell in the land of Egypt: 'Behold, I have sworn by my great name,' says God, 'that my name will no more be named in the mouth of any man of Judah in all the land of Egypt, saying, "As God lives." 

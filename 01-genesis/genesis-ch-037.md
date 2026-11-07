@@ -17,7 +17,7 @@ He said, "I am looking for my brothers. Tell me, please, where they are feeding 
 The man said, "They have left here, for I heard them say, 'Let's go to Dothan.'" Joseph went after his brothers, and found them in Dothan. 
 They saw him afar off, and before he came near to them, they conspired against him to kill him. 
 They said to one another, "Behold, this dreamer comes. 
-Come now therefore, and let's kill him, and cast him into one of the pits, and we will say, 'An bad animal has devoured him.' We will see what will become of his dreams." 
+Come now, and let's kill him, and cast him into one of the pits, and we will say, 'An bad animal has devoured him.' We will see what will become of his dreams." 
 Reuben heard it, and delivered him out of their hand, and said, "Let's not take his life." 
 Reuben said to them, "Shed no blood. Throw him into this pit that is in the wilderness, but lay no hand on him", that he might deliver him out of their hand, to restore him to his father. 
 When Joseph came to his brothers, they stripped Joseph of his tunic, the tunic of many colors that was on him; 

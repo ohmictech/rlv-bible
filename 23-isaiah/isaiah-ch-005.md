@@ -10,8 +10,8 @@ In my ears, the God of Armies says: "Surely many houses will be desolate, even g
 For ten acres of vineyard shall yield one bath, and a homer of seed shall yield an ephah." 
 Woe to those who rise up early in the morning, that they may follow strong drink, who stay late into the night, until wine inflames them! 
 The harp, lyre, tambourine, and flute, with wine, are at their feasts; but they don't respect the work of God, neither have they considered the operation of his hands. 
-Therefore my people go into captivity for lack of knowledge. Their honorable men are famished, and their multitudes are parched with thirst. 
-Therefore Hades has enlarged its desire, and opened its mouth without measure; and their glory, their multitude, their pomp, and he who rejoices among them, descend into it. 
+So my people go into captivity for lack of knowledge. Their honorable men are famished, and their multitudes are parched with thirst. 
+So Hades has enlarged its desire, and opened its mouth without measure; and their glory, their multitude, their pomp, and he who rejoices among them, descend into it. 
 So man is brought low, mankind is humbled, and the eyes of the arrogant ones are humbled; 
 but the God of Armies is exalted in justice, and God the Holy One is sanctified in righteousness. 
 Then the lambs will graze as in their pasture, and strangers will eat the ruins of the rich. 
@@ -21,8 +21,8 @@ Woe to those who call bad good, and good bad; who put darkness for light, and li
 Woe to those who are wise in their own eyes, and prudent in their own sight! 
 Woe to those who are mighty to drink wine, and champions at mixing strong drink; 
 who acquit the guilty for a bribe, but deny justice for the innocent! 
-Therefore as the tongue of fire devours the stubble, and as the dry grass sinks down in the flame, so their root shall be as rottenness, and their blossom shall go up as dust, because they have rejected the law of the God of Armies, and despised the word of the Holy One of Israel. 
-Therefore God's anger burns against his people, and he has stretched out his hand against them and has struck them. The mountains tremble, and their dead bodies are as refuse in the middle of the streets. For all this, his anger is not turned away, but his hand is still stretched out. 
+So as the tongue of fire devours the stubble, and as the dry grass sinks down in the flame, so their root shall be as rottenness, and their blossom shall go up as dust, because they have rejected the law of the God of Armies, and despised the word of the Holy One of Israel. 
+So God's anger burns against his people, and he has stretched out his hand against them and has struck them. The mountains tremble, and their dead bodies are as refuse in the middle of the streets. For all this, his anger is not turned away, but his hand is still stretched out. 
 He will lift up a banner to the nations from far away, and he will whistle for them from the end of the earth. Behold, they will come speedily and swiftly. 
 No one shall be weary nor stumble among them; no one shall slumber nor sleep, neither shall the belt of their waist be untied, nor the strap of their sandals be broken, 
 whose arrows are sharp, and all their bows bent. Their horses' hoofs will be like flint, and their wheels like a whirlwind. 

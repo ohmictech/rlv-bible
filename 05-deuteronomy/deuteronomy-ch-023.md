@@ -11,7 +11,7 @@ If there is among you any man who is not clean by reason of that which happens t
 but it shall be, when evening comes, he shall bathe himself in water. When the sun is down, he shall come within the camp. 
 You shall have a place also outside of the camp where you go relieve yourself. 
 You shall have a trowel among your weapons. It shall be, when you relieve yourself, you shall dig with it, and shall turn back and cover your excrement; 
-for your God walks in the middle of your camp, to deliver you, and to give up your enemies before you. Therefore your camp shall be holy, that he may not see an unclean thing in you, and turn away from you. 
+for your God walks in the middle of your camp, to deliver you, and to give up your enemies before you. So your camp shall be holy, that he may not see an unclean thing in you, and turn away from you. 
 You shall not deliver to his master a servant who has escaped from his master to you. 
 He shall dwell with you, among you, in the place which he shall choose within one of your gates, where it pleases him best. You shall not oppress him. 
 There shall be no prostitute of the daughters of Israel, neither shall there be a sodomite of the sons of Israel. 

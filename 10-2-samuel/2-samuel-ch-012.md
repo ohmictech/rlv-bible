@@ -7,13 +7,13 @@ He must restore the lamb fourfold, because he did this thing and because he had 
 Nathan said to David, "You are the man! This is what the God of Israel says: 'I anointed you king over Israel, and I delivered you out of the hand of Saul. 
 I gave you your master's house and your master's wives into your bosom, and gave you the house of Israel and of Judah; and if that would have been too little, I would have added to you many more such things. 
 Why have you despised God's word, to do that which is bad in his sight? You have struck Uriah the Hittite with the sword, have taken his wife to be your wife, and have slain him with the sword of the children of Ammon. 
-Now therefore the sword will never depart from your house, because you have despised me and have taken Uriah the Hittite's wife to be your wife.' 
+Now the sword will never depart from your house, because you have despised me and have taken Uriah the Hittite's wife to be your wife.' 
 "This is what God says: 'Behold, I will raise up bad against you out of your own house; and I will take your wives before your eyes and give them to your neighbor, and he will lie with your wives in the sight of this sun. 
 For you did this secretly, but I will do this thing before all Israel, and before the sun.'" 
 David said to Nathan, "I have wronged God." Nathan said to David, "God also has put away your wrongdoing. You will not die. 
 However, because by this deed you have given great occasion to God's enemies to blaspheme, the child also who is born to you will surely die." 
 Then Nathan departed to his house. God struck the child that Uriah's wife bore to David, and he was very sick. 
-David therefore begged God for the child; and David fasted, and went in and lay all night on the ground. 
+David begged God for the child; and David fasted, and went in and lay all night on the ground. 
 The elders of his house arose beside him, to raise him up from the earth; but he would not, and he didn't eat bread with them. 
 On the seventh day, the child died. David's servants were afraid to tell him that the child was dead, for they said, "Behold, while the child was yet alive, we spoke to him and he didn't listen to our voice. How will he then harm himself if we tell him that the child is dead?" 
 But when David saw that his servants were whispering together, David perceived that the child was dead; and David said to his servants, "Is the child dead?" They said, "He is dead." 
@@ -25,7 +25,7 @@ David comforted Bathsheba his wife, and went in to her, and lay with her. She bo
 and he sent by the hand of Nathan the spokesman, and he named him Jedidiah, for God's sake. 
 Now Joab fought against Rabbah of the children of Ammon, and took the royal city. 
 Joab sent messengers to David, and said, "I have fought against Rabbah. Yes, I have taken the city of waters. 
-Now therefore gather the rest of the people together, and encamp against the city and take it; lest I take the city, and it be called by my name." 
+Now gather the rest of the people together, and encamp against the city and take it; lest I take the city, and it be called by my name." 
 David gathered everyone together and went to Rabbah, and fought against it and took it. 
 He took the crown of their king from off his head; and its weight was a talent of gold, and in it were precious stones; and it was set on David's head. He brought a great quantity of plunder out of the city. 
 He brought out the people who were in it, and put them to work under saws, under iron picks, under axes of iron, and made them go to the brick kiln; and he did so to all the cities of the children of Ammon. Then David and everyone returned to Jerusalem. 

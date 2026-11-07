@@ -18,7 +18,7 @@ Gather up your wares out of the land, you who live under siege.
 For God says, "Behold, I will sling out the inhabitants of the land at this time, and will distress them, that they may feel it." 
 Woe is me because of my injury! My wound is serious; but I said, "Truly this is my grief, and I must bear it." 
 My tent has been destroyed, and all my cords are broken. My children have gone away from me, and they are no more. There is no one to spread my tent any more, to set up my curtains. 
-For the shepherds have become brutish, and have not inquired of God. Therefore they have not prospered, and all their flocks have scattered. 
+For the shepherds have become brutish, and have not inquired of God. So they have not prospered, and all their flocks have scattered. 
 The voice of news, behold, it comes, and a great commotion out of the north country, to make the cities of Judah a desolation, a dwelling place of jackals. 
 God, I know that the way of man is not in himself. It is not in man who walks to direct his steps. 
 God, correct me, but gently; not in your anger, lest you reduce me to nothing. 

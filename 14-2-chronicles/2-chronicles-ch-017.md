@@ -2,7 +2,7 @@
 He placed forces in all the fortified cities of Judah, and set garrisons in the land of Judah and in the cities of Ephraim, which Asa his father had taken. 
 God was with Jehoshaphat, because he walked in the first ways of his father David, and didn't seek the Baals, 
 but sought the God of his father, and walked in his commandments, and not in the ways of Israel. 
-Therefore God established the kingdom in his hand. All Judah brought tribute to Jehoshaphat, and he had riches and honor in abundance. 
+So God established the kingdom in his hand. All Judah brought tribute to Jehoshaphat, and he had riches and honor in abundance. 
 His heart was lifted up in the ways of God. Furthermore, he took away the high places and the Asherah poles out of Judah. 
 Also in the third year of his reign he sent his princes, even Ben Hail, Obadiah, Zechariah, Nethanel, and Micaiah, to teach in the cities of Judah; 
 and with them Levites, even Shemaiah, Nethaniah, Zebadiah, Asahel, Shemiramoth, Jehonathan, Adonijah, Tobijah, and Tobadonijah, the Levites; and with them Elishama and Jehoram, the priests. 

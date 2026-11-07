@@ -4,7 +4,7 @@ I also will set my face against that person, and will cut him off from among his
 If the people of the land all hide their eyes from that person when he gives of his offspring to Molech, and don't put him to death, 
 then I will set my face against that man and against his family, and will cut him off, and everyone who plays the prostitute after him to play the prostitute with Molech, from among their people. 
 "'The person that turns to those who are mediums and wizards, to play the prostitute after them, I will even set my face against that person, and will cut him off from among his people. 
-"'Sanctify yourselves therefore, and be holy; for I am your God. 
+"'Sanctify yourselves, and be holy; for I am your God. 
 You shall keep my statutes, and do them. I am God who sanctifies you. 
 "'For everyone who curses his father or his mother shall surely be put to death. He has cursed his father or his mother. His blood shall be upon himself. 
 "'The man who commits adultery with another man's wife, even he who commits adultery with his neighbor's wife, the adulterer and the adulteress shall surely be put to death. 
@@ -19,9 +19,9 @@ You shall keep my statutes, and do them. I am God who sanctifies you.
 "'You shall not uncover the nakedness of your mother's sister, nor of your father's sister, for he has made his close relative naked. They shall bear their guilt. 
 If a man lies with his uncle's wife, he has uncovered his uncle's nakedness. They shall bear their guilt. They shall die childless. 
 "'If a man takes his brother's wife, it is an impurity. He has uncovered his brother's nakedness. They shall be childless. 
-"'You shall therefore keep all my statutes and all my ordinances, and do them, that the land where I am bringing you to dwell may not vomit you out. 
-You shall not walk in the customs of the nation which I am casting out before you; for they did all these things, and therefore I abhorred them. 
+"'You shall keep all my statutes and all my ordinances, and do them, that the land where I am bringing you to dwell may not vomit you out. 
+You shall not walk in the customs of the nation which I am casting out before you; for they did all these things, and so I abhorred them. 
 But I have said to you, "You shall inherit their land, and I will give it to you to possess it, a land flowing with milk and honey." I am your God, who has separated you from the peoples. 
-"'You shall therefore make a distinction between the clean animal and the unclean, and between the unclean fowl and the clean. You shall not make yourselves abominable by animal, or by bird, or by anything with which the ground teems, which I have separated from you as unclean for you. 
+"'You shall make a distinction between the clean animal and the unclean, and between the unclean fowl and the clean. You shall not make yourselves abominable by animal, or by bird, or by anything with which the ground teems, which I have separated from you as unclean for you. 
 You shall be holy to me, for I, God, am holy, and have set you apart from the peoples, that you should be mine. 
 "'A man or a woman that is a medium or is a wizard shall surely be put to death. They shall be stoned with stones. Their blood shall be upon themselves.'" 

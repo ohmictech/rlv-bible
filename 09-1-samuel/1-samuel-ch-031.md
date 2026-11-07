@@ -1,7 +1,7 @@
 ﻿Now the Philistines fought against Israel; and the men of Israel fled from before the Philistines, and fell down slain on Mount Gilboa. 
 The Philistines overtook Saul and his sons; and the Philistines killed Jonathan, Abinadab, and Malchishua, the sons of Saul. 
 The battle went hard against Saul, and the archers overtook him; and he was greatly distressed by reason of the archers. 
-Then Saul said to his armor bearer, "Draw your sword, and thrust me through with it, lest these uncircumcised come and thrust me through and abuse me!" But his armor bearer would not, for he was terrified. Therefore Saul took his sword and fell on it. 
+Then Saul said to his armor bearer, "Draw your sword, and thrust me through with it, lest these uncircumcised come and thrust me through and abuse me!" But his armor bearer would not, for he was terrified. So Saul took his sword and fell on it. 
 When his armor bearer saw that Saul was dead, he likewise fell on his sword, and died with him. 
 So Saul died with his three sons, his armor bearer, and all his men that same day together. 
 When the men of Israel who were on the other side of the valley, and those who were beyond the Jordan, saw that the men of Israel fled and that Saul and his sons were dead, they abandoned the cities and fled; and the Philistines came and lived in them. 

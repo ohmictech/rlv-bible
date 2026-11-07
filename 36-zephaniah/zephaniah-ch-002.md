@@ -6,7 +6,7 @@ Woe to the inhabitants of the sea coast, the nation of the Cherethites! God's wo
 The sea coast will be pastures, with cottages for shepherds and folds for flocks. 
 The coast will be for the remnant of the house of Judah. They will find pasture. In the houses of Ashkelon, they will lie down in the evening, for God, their God, will visit them and restore them. 
 I have heard the reproach of Moab and the insults of the children of Ammon, with which they have reproached my people and magnified themselves against their border. 
-Therefore, as I live, says the God of Armies, the God of Israel, surely Moab will be as Sodom, and the children of Ammon as Gomorrah, a possession of nettles and salt pits, and a perpetual desolation. The remnant of my people will plunder them, and the survivors of my nation will inherit them. 
+So, as I live, says the God of Armies, the God of Israel, surely Moab will be as Sodom, and the children of Ammon as Gomorrah, a possession of nettles and salt pits, and a perpetual desolation. The remnant of my people will plunder them, and the survivors of my nation will inherit them. 
 This they will have for their pride, because they have reproached and magnified themselves against the people of the God of Armies. 
 God will be awesome to them, for he will famish all the gods of the land. Men will worship him, everyone from his place, even all the shores of the nations. 
 You Cushites also, you will be killed by my sword. 

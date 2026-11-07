@@ -4,7 +4,7 @@ if, when he sees the sword come on the land, he blows the trumpet and warns the 
 then whoever hears the sound of the trumpet and doesn't heed the warning, if the sword comes and takes him away, his blood will be on his own head. 
 He heard the sound of the trumpet and didn't take warning. His blood will be on him; whereas if he had heeded the warning, he would have delivered his soul. 
 But if the watchman sees the sword come and doesn't blow the trumpet, and the people aren't warned, and the sword comes and takes any person from among them, he is taken away in his guilt, but his blood I will require at the watchman's hand.' 
-"So you, son of man, I have set you a watchman to the house of Israel. Therefore hear the word from my mouth, and give them warnings from me. 
+"So you, son of man, I have set you a watchman to the house of Israel. So hear the word from my mouth, and give them warnings from me. 
 When I tell the guilty, 'O guilty man, you will surely die,' and you don't speak to warn the guilty from his way, that guilty man will die in his guilt, but I will require his blood at your hand. 
 Nevertheless, if you warn the guilty of his way to turn from it, and he doesn't turn from his way; he will die in his guilt, but you have delivered your soul. 
 "You, son of man, tell the house of Israel: 'You say this, "Our rebellion and our mistakes are on us, and we pine away in them. How then can we live?"' 

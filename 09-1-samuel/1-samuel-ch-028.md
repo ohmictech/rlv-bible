@@ -12,14 +12,14 @@ Then the woman said, "Whom shall I bring up to you?" He said, "Bring Samuel up f
 When the woman saw Samuel, she cried with a loud voice; and the woman spoke to Saul, saying, "Why have you deceived me? For you are Saul!" 
 The king said to her, "Don't be afraid! What do you see?" The woman said to Saul, "I see a god coming up out of the earth." 
 He said to her, "What does he look like?" She said, "An old man comes up. He is covered with a robe." Saul perceived that it was Samuel, and he bowed with his face to the ground, and showed respect. 
-Samuel said to Saul, "Why have you disturbed me, to bring me up?" Saul answered, "I am very distressed; for the Philistines make war against me, and God has departed from me, and answers me no more, by spokesmen, or by dreams. Therefore I have called you, that you may make known to me what I shall do." 
+Samuel said to Saul, "Why have you disturbed me, to bring me up?" Saul answered, "I am very distressed; for the Philistines make war against me, and God has departed from me, and answers me no more, by spokesmen, or by dreams. So I have called you, that you may make known to me what I shall do." 
 Samuel said, "Why then do you ask me, since God has departed from you and has become your adversary? 
 God has done to you as he spoke by me. God has torn the kingdom out of your hand and given it to your neighbor, even to David. 
-Because you didn't obey God's voice, and didn't execute his fierce wrath on Amalek, therefore God has done this thing to you today. 
+Because you didn't obey God's voice, and didn't execute his fierce wrath on Amalek, God has done this thing to you today. 
 Moreover God will deliver Israel also with you into the hand of the Philistines; and tomorrow you and your sons will be with me. God will deliver the army of Israel also into the hand of the Philistines." 
 Then Saul fell immediately his full length on the earth, and was terrified, because of Samuel's words. There was no strength in him, for he had eaten no bread all day long or all night long. 
 The woman came to Saul and saw that he was very troubled, and said to him, "Behold, your servant has listened to your voice, and I have put my life in my hand, and have listened to your words which you spoke to me. 
-Now therefore, please listen also to the voice of your servant, and let me set a morsel of bread before you. Eat, that you may have strength when you go on your way." 
+Now, please listen also to the voice of your servant, and let me set a morsel of bread before you. Eat, that you may have strength when you go on your way." 
 But he refused, and said, "I will not eat." But his servants, together with the woman, constrained him; and he listened to their voice. So he arose from the earth and sat on the bed. 
 The woman had a fattened calf in the house. She hurried and killed it; and she took flour and kneaded it, and baked unleavened bread of it. 
 She brought it before Saul and before his servants, and they ate. Then they rose up and went away that night. 

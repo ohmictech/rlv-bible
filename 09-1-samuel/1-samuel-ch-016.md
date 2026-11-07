@@ -16,7 +16,7 @@ Saul's servants said to him, "See now, an harmful spirit from God troubles you.
 Let our lord now command your servants who are in front of you to seek out a man who is a skillful player on the harp. Then when the harmful spirit from God is on you, he will play with his hand, and you will be well." 
 Saul said to his servants, "Provide me now a man who can play well, and bring him to me." 
 Then one of the young men answered and said, "Behold, I have seen a son of Jesse the Bethlehemite who is skillful in playing, a mighty man of valor, a man of war, prudent in speech, and a handsome person; and God is with him." 
-Therefore Saul sent messengers to Jesse, and said, "Send me David your son, who is with the sheep." 
+So Saul sent messengers to Jesse, and said, "Send me David your son, who is with the sheep." 
 Jesse took a donkey loaded with bread, a container of wine, and a young goat, and sent them by David his son to Saul. 
 David came to Saul and stood before him. He loved him greatly; and he became his armor bearer. 
 Saul sent to Jesse, saying, "Please let David stand before me, for he has found favor in my sight." 

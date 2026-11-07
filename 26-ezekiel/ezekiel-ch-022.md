@@ -1,7 +1,7 @@
 ﻿Moreover God's word came to me, saying, 
 "You, son of man, will you judge? Will you judge the bloody city? Then cause her to know all her abominations. 
 You shall say, 'The God says: "A city that sheds blood within herself, that her time may come, and that makes idols against herself to defile her! 
-You have become guilty in your blood that you have shed, and are defiled in your idols which you have made! You have caused your days to draw near, and have come to the end of your years. Therefore I have made you a reproach to the nations, and a mocking to all the countries. 
+You have become guilty in your blood that you have shed, and are defiled in your idols which you have made! You have caused your days to draw near, and have come to the end of your years. So I have made you a reproach to the nations, and a mocking to all the countries. 
 Those who are near and those who are far from you will mock you, you infamous one, full of tumult. 
 "'"Behold, the princes of Israel, everyone according to his power, have been in you to shed blood. 
 In you have they treated father and mother with contempt. Among you they have oppressed the foreigner. In you they have wronged the fatherless and the widow. 
@@ -10,13 +10,13 @@ Slanderous men have been in you to shed blood. In you they have eaten on the mou
 In you have they uncovered their fathers' nakedness. In you have they humbled her who was unclean in her impurity. 
 One has committed abomination with his neighbor's wife, and another has lewdly defiled his daughter-in-law. Another in you has humbled his sister, his father's daughter. 
 In you have they taken bribes to shed blood. You have taken interest and increase, and you have greedily gained of your neighbors by oppression, and have forgotten me," says God. 
-"'"Behold, therefore I have struck my hand at your dishonest gain which you have made, and at the blood which has been shed within you. 
+"'"Behold, I have struck my hand at your dishonest gain which you have made, and at the blood which has been shed within you. 
 Can your heart endure, or can your hands be strong, in the days that I will deal with you? I, God, have spoken it, and will do it. 
 I will scatter you among the nations, and disperse you through the countries. I will purge your filthiness out of you. 
 You will be profaned in yourself in the sight of the nations. Then you will know that I am God."'" 
 God's word came to me, saying, 
 "Son of man, the house of Israel has become dross to me. All of them are bronze, tin, iron, and lead in the middle of the furnace. They are the dross of silver. 
-Therefore God says: 'Because you have all become dross, therefore, behold, I will gather you into the middle of Jerusalem. 
+So God says: 'Because you have all become dross, behold, I will gather you into the middle of Jerusalem. 
 As they gather silver, bronze, iron, lead, and tin into the middle of the furnace, to blow the fire on it, to melt it, so I will gather you in my anger and in my wrath, and I will lay you there and melt you. 
 Yes, I will gather you, and blow on you with the fire of my wrath, and you will be melted in the middle of it. 
 As silver is melted in the middle of the furnace, so you will be melted in the middle of it; and you will know that I, God, have poured out my wrath on you.'" 
@@ -28,4 +28,4 @@ Her princes within it are like wolves ravening the prey, to shed blood and to de
 Her spokesmen have plastered for them with whitewash, seeing false visions, and divining lies to them, saying, 'The God says,' when God has not spoken. 
 The people of the land have used oppression and exercised robbery. Yes, they have troubled the poor and needy, and have oppressed the foreigner wrongfully. 
 "I sought for a man among them who would build up the wall and stand in the gap before me for the land, that I would not destroy it; but I found no one. 
-Therefore I have poured out my indignation on them. I have consumed them with the fire of my wrath. I have brought their own way on their heads," says God. 
+So I have poured out my indignation on them. I have consumed them with the fire of my wrath. I have brought their own way on their heads," says God. 

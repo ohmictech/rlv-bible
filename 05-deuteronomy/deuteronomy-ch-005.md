@@ -12,7 +12,7 @@ and showing loving kindness to thousands of those who love me and keep my comman
 "Observe the Sabbath day, to keep it holy, as your God commanded you. 
 You shall labor six days, and do all your work; 
 but the seventh day is a Sabbath to your God, in which you shall not do any work, neither you, nor your son, nor your daughter, nor your male servant, nor your female servant, nor your ox, nor your donkey, nor any of your livestock, nor your stranger who is within your gates; that your male servant and your female servant may rest as well as you. 
-You shall remember that you were a servant in the land of Egypt, and your God brought you out of there by a mighty hand and by an outstretched arm. Therefore your God commanded you to keep the Sabbath day. 
+You shall remember that you were a servant in the land of Egypt, and your God brought you out of there by a mighty hand and by an outstretched arm. So your God commanded you to keep the Sabbath day. 
 "Honor your father and your mother, as your God commanded you, that your days may be long and that it may go well with you in the land which your God gives you. 
 "You shall not murder. 
 "You shall not commit adultery. 
@@ -22,12 +22,12 @@ You shall remember that you were a servant in the land of Egypt, and your God br
 God spoke these words to all your assembly on the mountain out of the middle of the fire, of the cloud, and of the thick darkness, with a great voice. He added no more. He wrote them on two stone tablets, and gave them to me. 
 When you heard the voice out of the middle of the darkness, while the mountain was burning with fire, you came near to me, even all the heads of your tribes, and your elders; 
 and you said, "Behold, our God has shown us his glory and his greatness, and we have heard his voice out of the middle of the fire. We have seen today that God does speak with man, and he lives. 
-Now therefore, why should we die? For this great fire will consume us. If we hear our God's voice any more, then we shall die. 
+Now, why should we die? For this great fire will consume us. If we hear our God's voice any more, then we shall die. 
 For who is there of all flesh who has heard the voice of the living God speaking out of the middle of the fire, as we have, and lived? 
 Go near, and hear all that our God shall say, and tell us all that our God tells you; and we will hear it, and do it." 
 God heard the voice of your words when you spoke to me; and God said to me, "I have heard the voice of the words of this people which they have spoken to you. They have well said all that they have spoken. 
 Oh that there were such a heart in them that they would fear me and keep all my commandments always, that it might be well with them and with their children for the eras! 
 "Go tell them, 'Return to your tents.' 
 But as for you, stand here by me, and I will tell you all the commandments, and the statutes, and the ordinances, which you shall teach them, that they may do them in the land which I give them to possess." 
-You shall observe to do therefore as your God has commanded you. You shall not turn away to the right hand or to the left. 
+You shall observe to do as your God has commanded you. You shall not turn away to the right hand or to the left. 
 You shall walk in all the way which your God has commanded you, that you may live and that it may be well with you, and that you may prolong your days in the land which you shall possess. 

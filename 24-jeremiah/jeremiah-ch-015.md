@@ -3,7 +3,7 @@ It will happen when they ask you, 'Where shall we go out?' then you shall tell t
 "I will appoint over them four kinds," says God: "the sword to kill, the dogs to tear, the birds of the sky, and the animals of the earth, to devour and to destroy. 
 I will cause them to be tossed back and forth among all the kingdoms of the earth, because of Manasseh, the son of Hezekiah, king of Judah, for that which he did in Jerusalem. 
 For who will have pity on you, Jerusalem? Who will mourn you? Who will come to ask of your welfare? 
-You have rejected me," says God. "You have gone backward. Therefore I have stretched out my hand against you and destroyed you. I am weary of showing compassion. 
+You have rejected me," says God. "You have gone backward. So I have stretched out my hand against you and destroyed you. I am weary of showing compassion. 
 I have winnowed them with a fan in the gates of the land. I have bereaved them of children. I have destroyed my people. They didn't return from their ways. 
 Their widows are increased more than the sand of the seas. I have brought on them against the mother of the young men a destroyer at noonday. I have caused anguish and terrors to fall on her suddenly. 
 She who has borne seven languishes. She has given up the spirit. Her sun has gone down while it was yet day. She has been disappointed and confounded. I will deliver their residue to the sword before their enemies," says God. 
@@ -16,6 +16,6 @@ God, you know. Remember me, visit me, and avenge me of my persecutors. You are p
 Your words were found, and I ate them. Your words were to me a joy and the rejoicing of my heart, for I am called by your name, God, God of Armies. 
 I didn't sit in the assembly of those who make merry and rejoice. I sat alone because of your hand, for you have filled me with indignation. 
 Why is my pain perpetual, and my wound incurable, which refuses to be healed? Will you indeed be to me as a deceitful brook, like waters that fail? 
-Therefore God says, "If you return, then I will bring you again, that you may stand before me; and if you take out the precious from the vile, you will be as my mouth. They will return to you, but you will not return to them. 
+So God says, "If you return, then I will bring you again, that you may stand before me; and if you take out the precious from the vile, you will be as my mouth. They will return to you, but you will not return to them. 
 I will make you to this people a fortified bronze wall. They will fight against you, but they will not prevail against you; for I am with you to save you and to deliver you," says God. 
 "I will deliver you out of the hand of the guilty, and I will buy you back out of the hand of the terrible." 

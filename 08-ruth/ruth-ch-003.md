@@ -1,12 +1,12 @@
 ﻿Naomi her mother-in-law said to her, "My daughter, shall I not seek rest for you, that it may be well with you? 
 Now isn't Boaz our kinsman, with whose maidens you were? Behold, he will be winnowing barley tonight on the threshing floor. 
-Therefore wash yourself, anoint yourself, get dressed, and go down to the threshing floor; but don't make yourself known to the man until he has finished eating and drinking. 
+So wash yourself, anoint yourself, get dressed, and go down to the threshing floor; but don't make yourself known to the man until he has finished eating and drinking. 
 It shall be, when he lies down, that you shall note the place where he is lying. Then you shall go in, uncover his feet, and lie down. Then he will tell you what to do." 
 She said to her, "All that you say, I will do." 
 She went down to the threshing floor, and did everything that her mother-in-law told her. 
 When Boaz had eaten and drunk, and his heart was merry, he went to lie down at the end of the heap of grain. She came softly, uncovered his feet, and lay down. 
 At midnight, the man was startled and turned himself; and behold, a woman lay at his feet. 
-He said, "Who are you?" She answered, "I am Ruth your servant. Therefore spread the corner of your garment over your servant; for you are a near kinsman." 
+He said, "Who are you?" She answered, "I am Ruth your servant. So spread the corner of your garment over your servant; for you are a near kinsman." 
 He said, "You are blessed by God, my daughter. You have shown more kindness in the latter end than at the beginning, because you didn't follow young men, whether poor or rich. 
 Now, my daughter, don't be afraid. I will do to you all that you say; for all the city of my people knows that you are a worthy woman. 
 Now it is true that I am a near kinsman. However, there is a kinsman nearer than I. 

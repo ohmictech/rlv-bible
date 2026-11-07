@@ -21,7 +21,7 @@ Lift up your eyes, and see those who come from the north. Where is the flock tha
 What will you say when he sets over you as head those whom you have yourself taught to be friends to you? Won't sorrows take hold of you, as of a woman in travail? 
 If you say in your heart, "Why have these things come on me?" Your skirts are uncovered because of the greatness of your guilt, and your heels suffer violence. 
 Can the Ethiopian change his skin, or the leopard his spots? Then may you also do good, who are accustomed to do bad things. 
-"Therefore I will scatter them as the stubble that passes away by the wind of the wilderness. 
+"So I will scatter them as the stubble that passes away by the wind of the wilderness. 
 This is your lot, the portion measured to you from me," says God, "because you have forgotten me, and trusted in falsehood." 
-Therefore I will also uncover your skirts on your face, and your shame will appear. 
+So I will also uncover your skirts on your face, and your shame will appear. 
 I have seen your abominations, even your adulteries and your neighing, the lewdness of your prostitution, on the hills in the field. Woe to you, Jerusalem! You will not be made clean. How long will it yet be?" 

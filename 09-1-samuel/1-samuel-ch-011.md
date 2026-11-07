@@ -7,7 +7,7 @@ God's Spirit came mightily on Saul when he heard those words, and his anger burn
 He took a yoke of oxen and cut them in pieces, then sent them throughout all the borders of Israel by the hand of messengers, saying, "Whoever doesn't come out after Saul and after Samuel, so shall it be done to his oxen." The dread of God fell on the people, and they came out as one man. 
 He counted them in Bezek; and the children of Israel were three hundred thousand, and the men of Judah thirty thousand. 
 They said to the messengers who came, "Tell the men of Jabesh Gilead, 'Tomorrow, by the time the sun is hot, you will be rescued.'" The messengers came and told the men of Jabesh; and they were glad. 
-Therefore the men of Jabesh said, "Tomorrow we will come out to you, and you shall do with us all that seems good to you." 
+So the men of Jabesh said, "Tomorrow we will come out to you, and you shall do with us all that seems good to you." 
 On the next day, Saul put the people in three companies; and they came into the middle of the camp in the morning watch, and struck the Ammonites until the heat of the day. Those who remained were scattered, so that no two of them were left together. 
 The people said to Samuel, "Who is he who said, 'Shall Saul reign over us?' Bring those men, that we may put them to death!" 
 Saul said, "No man shall be put to death today; for today God has rescued Israel." 

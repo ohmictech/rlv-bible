@@ -9,4 +9,4 @@ He was taken away by oppression and judgment. As for his generation, who conside
 They made his grave with the guilty, and with a rich man in his death, although he had done no violence, nor was any deceit in his mouth. 
 Yet it pleased God to bruise him. He has caused him to suffer. When you make his soul an offering for wrongdoing, he will see his offspring. He will prolong his days and God's pleasure will prosper in his hand. 
 After the suffering of his soul, he will see the light and be satisfied. My righteous servant will justify everyone by the knowledge of himself; and he will bear their guilt. 
-Therefore I will give him a portion with the great. He will divide the plunder with the strong, because he poured out his soul to death and was counted with the transgressors; yet he bore the drifts of many and made intercession for the transgressors. 
+So I will give him a portion with the great. He will divide the plunder with the strong, because he poured out his soul to death and was counted with the transgressors; yet he bore the drifts of many and made intercession for the transgressors. 

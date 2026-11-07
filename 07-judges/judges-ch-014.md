@@ -1,5 +1,5 @@
 ﻿Samson went down to Timnah, and saw a woman in Timnah of the daughters of the Philistines. 
-He came up, and told his father and his mother, saying, "I have seen a woman in Timnah of the daughters of the Philistines. Now therefore get her for me as my wife." 
+He came up, and told his father and his mother, saying, "I have seen a woman in Timnah of the daughters of the Philistines. Now get her for me as my wife." 
 Then his father and his mother said to him, "Isn't there a woman among your brothers' daughters, or among all my people, that you go to take a wife of the uncircumcised Philistines?" Samson said to his father, "Get her for me, for she pleases me well." 
 But his father and his mother didn't know that it was of God; for he sought an occasion against the Philistines. Now at that time the Philistines ruled over Israel. 
 Then Samson went down to Timnah with his father and his mother, and came to the vineyards of Timnah; and behold, a young lion roared at him. 

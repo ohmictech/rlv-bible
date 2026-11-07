@@ -5,7 +5,7 @@ He brought in the priests and the Levites and gathered them together into the wi
 and said to them, "Listen to me, you Levites! Now sanctify yourselves, and sanctify the house of the God of your fathers, and carry the filthiness out of the holy place. 
 For our fathers were unfaithful, and have done that which was bad in our God's sight, and have forsaken him, and have turned away their faces from the habitation of God, and turned their backs. 
 Also they have shut up the doors of the porch, and put out the lamps, and have not burned incense nor offered burnt offerings in the holy place to the God of Israel. 
-Therefore God's wrath was on Judah and Jerusalem, and he has delivered them to be tossed back and forth, to be an astonishment and a hissing, as you see with your eyes. 
+So God's wrath was on Judah and Jerusalem, and he has delivered them to be tossed back and forth, to be an astonishment and a hissing, as you see with your eyes. 
 For behold, our fathers have fallen by the sword, and our sons and our daughters and our wives are in captivity for this. 
 Now it is in my heart to make a covenant with the God of Israel, that his fierce anger may turn away from us. 
 My sons, don't be negligent now; for God has chosen you to stand before him, to minister to him, and that you should be his ministers and burn incense." 
@@ -31,6 +31,6 @@ Moreover Hezekiah the king and the princes commanded the Levites to driftg prais
 Then Hezekiah answered, "Now you have consecrated yourselves to God. Come near and bring sacrifices and thank offerings into God's house." The assembly brought in sacrifices and thank offerings, and as many as were of a willing heart brought burnt offerings. 
 The number of the burnt offerings which the assembly brought was seventy bulls, one hundred rams, and two hundred lambs. All these were for a burnt offering to God. 
 The consecrated things were six hundred head of cattle and three thousand sheep. 
-But the priests were too few, so that they could not skin all the burnt offerings. Therefore their brothers the Levites helped them until the work was ended, and until the priests had sanctified themselves, for the Levites were more upright in heart to sanctify themselves than the priests. 
+But the priests were too few, so that they could not skin all the burnt offerings. So their brothers the Levites helped them until the work was ended, and until the priests had sanctified themselves, for the Levites were more upright in heart to sanctify themselves than the priests. 
 Also the burnt offerings were in abundance, with the fat of the offerings for wholeness and with the drink offerings for every burnt offering. So the service of God's house was set in order. 
 Hezekiah and everyone rejoiced because of that which God had prepared for the people; for the thing was done suddenly. 

@@ -14,7 +14,7 @@ God stands up to contend, and stands to judge the peoples.
 God will enter into judgment with the elders of his people and their leaders: "It is you who have eaten up the vineyard. The plunder of the poor is in your houses. 
 What do you mean that you crush my people, and grind the face of the poor?" says the Lord, GOD of Armies. 
 Moreover God said, "Because the daughters of Zion are arrogant, and walk with outstretched necks and flirting eyes, walking daintily as they go, jingling ornaments on their feet; 
-therefore the Lord brings sores on the crown of the head of the women of Zion, and God will make their scalps bald." 
+So the Lord brings sores on the crown of the head of the women of Zion, and God will make their scalps bald." 
 In that day the Lord will take away the beauty of their anklets, the headbands, the crescent necklaces, 
 the earrings, the bracelets, the veils, 
 the headdresses, the ankle chains, the sashes, the perfume containers, the charms, 

@@ -1,5 +1,5 @@
 ﻿Saul spoke to Jonathan his son and to all his servants, that they should kill David. But Jonathan, Saul's son, greatly delighted in David. 
-Jonathan told David, saying, "Saul my father seeks to kill you. Now therefore, please take care of yourself in the morning, live in a secret place, and hide yourself. 
+Jonathan told David, saying, "Saul my father seeks to kill you. Now, please take care of yourself in the morning, live in a secret place, and hide yourself. 
 I will go out and stand beside my father in the field where you are, and I will talk with my father about you; and if I see anything, I will tell you." 
 Jonathan spoke good of David to Saul his father, and said to him, "Don't let the king wrong his servant, against David; because he has not wronged you, and because his works have been very good toward you; 
 for he put his life in his hand and struck the Philistine, and God worked a great victory for all Israel. You saw it and rejoiced. Why then will you wrong innocent blood, to kill David without a cause?" 
@@ -21,4 +21,4 @@ Saul sent messengers to seize David; and when they saw the company of the spokes
 When Saul was told, he sent other messengers, and they also prophesied. Saul sent messengers again the third time, and they also prophesied. 
 Then he also went to Ramah, and came to the great well that is in Secu: and he asked, "Where are Samuel and David?" One said, "Behold, they are at Naioth in Ramah." 
 He went there to Naioth in Ramah. Then God's Spirit came on him also, and he went on, and prophesied, until he came to Naioth in Ramah. 
-He also stripped off his clothes. He also prophesied before Samuel and lay down naked all that day and all that night. Therefore they say, "Is Saul also among the spokesmen?" 
+He also stripped off his clothes. He also prophesied before Samuel and lay down naked all that day and all that night. So they say, "Is Saul also among the spokesmen?" 

@@ -16,11 +16,11 @@ Elijah said, "As the God of Armies lives, before whom I stand, I will surely sho
 So Obadiah went to meet Ahab, and told him; and Ahab went to meet Elijah. 
 When Ahab saw Elijah, Ahab said to him, "Is that you, you troubler of Israel?" 
 He answered, "I have not troubled Israel, but you and your father's house, in that you have forsaken God's commandments and you have followed the Baals. 
-Now therefore send, and gather to me all Israel to Mount Carmel, and four hundred fifty of the spokesmen of Baal, and four hundred of the spokesmen of the Asherah, who eat at Jezebel's table." 
+Now send, and gather to me all Israel to Mount Carmel, and four hundred fifty of the spokesmen of Baal, and four hundred of the spokesmen of the Asherah, who eat at Jezebel's table." 
 So Ahab sent to all the children of Israel, and gathered the spokesmen together to Mount Carmel. 
 Elijah came near to everyone, and said, "How long will you waver between the two sides? If God is the true God, follow him; but if Baal, then follow him." The people didn't say a word. 
 Then Elijah said to the people, "I, even I only, am left as a spokesman of God; but Baal's spokesmen are four hundred fifty men. 
-Let them therefore give us two bulls; and let them choose one bull for themselves, and cut it in pieces, and lay it on the wood, and put no fire under; and I will dress the other bull, and lay it on the wood, and put no fire under it. 
+Let them give us two bulls; and let them choose one bull for themselves, and cut it in pieces, and lay it on the wood, and put no fire under; and I will dress the other bull, and lay it on the wood, and put no fire under it. 
 You call on the name of your god, and I will call on God's name. The God who answers by fire, let him be God." Everyone answered, "What you say is good." 
 Elijah said to the spokesmen of Baal, "Choose one bull for yourselves, and dress it first, for you are many; and call on the name of your god, but put no fire under it." 
 They took the bull which was given them, and they dressed it, and called on the name of Baal from morning even until noon, saying, "Baal, hear us!" But there was no voice, and nobody answered. They leaped about the altar which was made. 

@@ -1,5 +1,5 @@
 ﻿Now after the death of Moses the servant of God, God spoke to Joshua the son of Nun, Moses' servant, saying, 
-"Moses my servant is dead. Now therefore arise, go across this Jordan, you and all these people, to the land which I am giving to them, even to the children of Israel. 
+"Moses my servant is dead. Now arise, go across this Jordan, you and all these people, to the land which I am giving to them, even to the children of Israel. 
 I have given you every place that the sole of your foot will tread on, as I told Moses. 
 From the wilderness and this Lebanon even to the great river, the river Euphrates, all the land of the Hittites, and to the great sea toward the going down of the sun, shall be your border. 
 No man will be able to stand before you all the days of your life. As I was with Moses, so I will be with you. I will not fail you nor forsake you. 

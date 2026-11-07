@@ -30,7 +30,7 @@ Behold, seven years of great plenty throughout all the land of Egypt are coming.
 Seven years of famine will arise after them, and all the plenty will be forgotten in the land of Egypt. The famine will consume the land, 
 and the plenty will not be known in the land by reason of that famine which follows; for it will be very grievous. 
 The dream was doubled to Pharaoh, because the thing is established by God, and God will shortly bring it to pass. 
-"Now therefore let Pharaoh look for a discreet and wise man, and set him over the land of Egypt. 
+"Now let Pharaoh look for a discreet and wise man, and set him over the land of Egypt. 
 Let Pharaoh do this, and let him appoint overseers over the land, and take up the fifth part of the land of Egypt's produce in the seven plenteous years. 
 Let them gather all the food of these good years that come, and store grain under the hand of Pharaoh for food in the cities, and let them keep it. 
 The food will be to supply the land against the seven years of famine, which will be in the land of Egypt; so that the land will not perish through the famine." 

@@ -1,7 +1,7 @@
 ﻿The burden of the valley of vision. What ails you now, that you have all gone up to the housetops? 
 You that are full of shouting, a tumultuous city, a joyous town, your slain are not slain with the sword, neither are they dead in battle. 
 All your rulers fled away together. They were bound by the archers. Everyone who was found by you were bound together. They fled far away. 
-Therefore I said, "Look away from me. I will weep bitterly. Don't labor to comfort me for the destruction of the daughter of my people. 
+So I said, "Look away from me. I will weep bitterly. Don't labor to comfort me for the destruction of the daughter of my people. 
 For it is a day of confusion, and of treading down, and of perplexity from the Lord, GOD of Armies, in the valley of vision, a breaking down of the walls, and a crying to the mountains." 
 Elam carried his quiver, with chariots of men and horsemen; and Kir uncovered the shield. 
 Your choicest valleys were full of chariots, and the horsemen set themselves in array at the gate. 

@@ -20,7 +20,7 @@ Micaiah said, "Therefore hear God's word. I saw God sitting on his throne, and a
 God said, 'Who will entice Ahab, that he may go up and fall at Ramoth Gilead?' One said one thing, and another said another. 
 A spirit came out and stood before God, and said, 'I will entice him.' 
 God said to him, 'How?' He said, 'I will go out and will be a lying spirit in the mouth of all his spokesmen.' He said, 'You will entice him, and will also prevail. Go out and do so.' 
-Now therefore, behold, God has put a lying spirit in the mouth of all these your spokesmen; and God has spoken bad concerning you." 
+Now, behold, God has put a lying spirit in the mouth of all these your spokesmen; and God has spoken bad concerning you." 
 Then Zedekiah the son of Chenaanah came near and struck Micaiah on the cheek, and said, "Which way did God's Spirit go from me to speak to you?" 
 Micaiah said, "Behold, you will see on that day when you go into an inner room to hide yourself." 
 The king of Israel said, "Take Micaiah, and carry him back to Amon the governor of the city and to Joash the king's son. 
@@ -31,7 +31,7 @@ The king of Israel said to Jehoshaphat, "I will disguise myself and go into the 
 Now the king of Syria had commanded the thirty-two captains of his chariots, saying, "Don't fight with small nor great, except only with the king of Israel." 
 When the captains of the chariots saw Jehoshaphat, they said, "Surely that is the king of Israel!" and they came over to fight against him. Jehoshaphat cried out. 
 When the captains of the chariots saw that it was not the king of Israel, they turned back from pursuing him. 
-A certain man drew his bow at random, and struck the king of Israel between the joints of the armor. Therefore he said to the driver of his chariot, "Turn around, and carry me out of the battle, for I am severely wounded." 
+A certain man drew his bow at random, and struck the king of Israel between the joints of the armor. So he said to the driver of his chariot, "Turn around, and carry me out of the battle, for I am severely wounded." 
 The battle increased that day. The king was propped up in his chariot facing the Syrians, and died at evening. The blood ran out of the wound into the bottom of the chariot. 
 A cry went throughout the army about the going down of the sun, saying, "Every man to his city, and every man to his country!" 
 So the king died, and was brought to Samaria; and they buried the king in Samaria. 

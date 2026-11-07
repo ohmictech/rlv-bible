@@ -22,8 +22,8 @@ There I have set a place for the ark, in which is God's covenant, which he made 
 Solomon stood before God's altar in the presence of all the assembly of Israel, and spread out his hands toward the sky; 
 and he said, "the God of Israel, there is no God like you, in the sky above, or on earth beneath; who keeps covenant and loving kindness with your servants who walk before you with all their heart; 
 who has kept with your servant David my father that which you promised him. Yes, you spoke with your mouth, and have fulfilled it with your hand, as it is today. 
-Now therefore, may the God of Israel, keep with your servant David my father that which you have promised him, saying, 'There shall not fail from you a man in my sight to sit on the throne of Israel, if only your children take heed to their way, to walk before me as you have walked before me.' 
-"Now therefore, God of Israel, please let your word be verified, which you spoke to your servant David my father. 
+Now, may the God of Israel, keep with your servant David my father that which you have promised him, saying, 'There shall not fail from you a man in my sight to sit on the throne of Israel, if only your children take heed to their way, to walk before me as you have walked before me.' 
+"Now, God of Israel, please let your word be verified, which you spoke to your servant David my father. 
 But will God in very deed dwell on the earth? Behold, the sky and the sky above the skies can't contain you; how much less this house that I have built! 
 Yet have respect for the prayer of your servant and for his supplication, God my God, to listen to the cry and to the prayer which your servant prays before you today; 
 that your eyes may be open toward this house night and day, even toward the place of which you have said, 'My name shall be there;' to listen to the prayer which your servant prays toward this place. 
@@ -58,7 +58,7 @@ May our God be with us as he was with our fathers. Let him not leave us or forsa
 that he may incline our hearts to him, to walk in all his ways, and to keep his commandments, his statutes, and his ordinances, which he commanded our fathers. 
 Let these my words, with which I have made supplication before God, be near to our God day and night, that he may maintain the cause of his servant and the cause of his people Israel, as every day requires; 
 that everyones of the earth may know that God is the true God. There is no one else. 
-"Let your heart therefore be perfect with our God, to walk in his statutes, and to keep his commandments, as it is today." 
+"Let your heart be perfect with our God, to walk in his statutes, and to keep his commandments, as it is today." 
 The king, and all Israel with him, offered sacrifice before God. 
 Solomon offered for the sacrifice of offerings for wholeness, which he offered to God, twenty two thousand head of cattle and one hundred twenty thousand sheep. So the king and all the children of Israel dedicated God's house. 
 The same day the king made the middle of the court holy that was before God's house; for there he offered the burnt offering, the meal offering, and the fat of the offerings for wholeness, because the bronze altar that was before God was too little to receive the burnt offering, the meal offering, and the fat of the offerings for wholeness. 

@@ -4,7 +4,7 @@ I sent messengers to them, saying, "I am doing a great work, so that I can't com
 They sent to me four times like this; and I answered them the same way. 
 Then Sanballat sent his servant to me the same way the fifth time with an open letter in his hand, 
 in which was written, "It is reported among the nations, and Gashmu says it, that you and the Jews intend to rebel. Because of that, you are building the wall. You would be their king, according to these words. 
-You have also appointed spokesmen to proclaim of you at Jerusalem, saying, 'There is a king in Judah!' Now it will be reported to the king according to these words. Come now therefore, and let's take counsel together." 
+You have also appointed spokesmen to proclaim of you at Jerusalem, saying, 'There is a king in Judah!' Now it will be reported to the king according to these words. Come now, and let's take counsel together." 
 Then I sent to him, saying, "There are no such things done as you say, but you imagine them out of your own heart." 
 For they all would have made us afraid, saying, "Their hands will be weakened from the work, that it not be done." But now, strengthen my hands. 
 I went to the house of Shemaiah the son of Delaiah the son of Mehetabel, who was shut in at his home; and he said, "Let us meet together in God's house, within the temple, and let's shut the doors of the temple; for they will come to kill you. Yes, in the night they will come to kill you." 

@@ -4,7 +4,7 @@ However, the high places were not taken away. The people still sacrificed and bu
 Jehoash said to the priests, "All the money of the holy things that is brought into God's house, in current money, the money of the people for whom each man is evaluated, and all the money that it comes into any man's heart to bring into God's house, 
 let the priests take it to them, each man from his donor; and they shall repair the damage to the house, wherever any damage is found." 
 But it was so, that in the twenty-third year of King Jehoash the priests had not repaired the damage to the house. 
-Then King Jehoash called for Jehoiada the priest, and for the other priests, and said to them, "Why aren't you repairing the damage to the house? Now therefore take no more money from your treasurers, but deliver it for repair of the damage to the house." 
+Then King Jehoash called for Jehoiada the priest, and for the other priests, and said to them, "Why aren't you repairing the damage to the house? Now take no more money from your treasurers, but deliver it for repair of the damage to the house." 
 The priests consented that they should take no more money from the people, and not repair the damage to the house. 
 But Jehoiada the priest took a chest and bored a hole in its lid, and set it beside the altar, on the right side as one comes into God's house; and the priests who kept the threshold put all the money that was brought into God's house into it. 
 When they saw that there was much money in the chest, the king's secretary and the high priest came up, and they put it in bags and counted the money that was found in God's house. 

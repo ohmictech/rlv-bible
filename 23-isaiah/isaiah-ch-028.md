@@ -10,16 +10,16 @@ Whom will he teach knowledge? To whom will he explain the message? Those who are
 For it is precept on precept, precept on precept; line on line, line on line; here a little, there a little. 
 But he will speak to this nation with stammering lips and in another language, 
 to whom he said, "This is the resting place. Give rest to the weary," and "This is the refreshing;" yet they would not hear. 
-Therefore God's word will be to them precept on precept, precept on precept; line on line, line on line; here a little, there a little; that they may go, fall backward, be broken, be snared, and be taken. 
-Therefore hear God's word, you scoffers, that rule this people in Jerusalem: 
+So God's word will be to them precept on precept, precept on precept; line on line, line on line; here a little, there a little; that they may go, fall backward, be broken, be snared, and be taken. 
+So hear God's word, you scoffers, that rule this people in Jerusalem: 
 "Because you have said, 'We have made a covenant with death, and we are in agreement with Hades. When the overflowing scourge passes through, it won't come to us; for we have made lies our refuge, and we have hidden ourselves under falsehood.'" 
-Therefore God says, "Behold, I lay in Zion for a foundation a stone, a tried stone, a precious cornerstone of a sure foundation. He who believes shall not act hastily. 
+So God says, "Behold, I lay in Zion for a foundation a stone, a tried stone, a precious cornerstone of a sure foundation. He who believes shall not act hastily. 
 I will make justice the measuring line, and righteousness the plumb line. The hail will sweep away the refuge of lies, and the waters will overflow the hiding place. 
 Your covenant with death shall be annulled, and your agreement with Hades shall not stand. When the overflowing scourge passes through, then you will be trampled down by it. 
 As often as it passes through, it will seize you; for morning by morning it will pass through, by day and by night; and it will be nothing but terror to understand the message." 
 For the bed is too short to stretch out on, and the blanket is too narrow to wrap oneself in. 
 For God will rise up as on Mount Perazim. He will be angry as in the valley of Gibeon; that he may do his work, his unusual work, and bring to pass his act, his extraordinary act. 
-Now therefore don't be scoffers, lest your bonds be made strong; for I have heard a decree of destruction from the Lord, GOD of Armies, on the whole earth. 
+Now don't be scoffers, lest your bonds be made strong; for I have heard a decree of destruction from the Lord, GOD of Armies, on the whole earth. 
 Give ear, and hear my voice! Listen, and hear my speech! 
 Does he who plows to sow plow continually? Does he keep turning the soil and breaking the clods? 
 When he has leveled its surface, doesn't he plant the dill, and scatter the cumin seed, and put in the wheat in rows, the barley in the appointed place, and the spelt in its place? 

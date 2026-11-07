@@ -6,7 +6,7 @@ From these the peoples of the coastlands spread out into their lands, each with 
 The sons of Ham were: Cush, Mizraim, Put, and Canaan. 
 The sons of Cush were: Seba, Havilah, Sabtah, Raamah, and Sabteca. The sons of Raamah were: Sheba and Dedan. 
 Cush fathered Nimrod. He was the first to be a mighty man on the earth. 
-He was a mighty hunter before God. Therefore it is said, "like Nimrod, a mighty hunter before God". 
+He was a mighty hunter before God. So it is said, "like Nimrod, a mighty hunter before God". 
 The beginning of his kingdom was Babel, Erech, Accad, and Calneh, in the land of Shinar. 
 Out of that land he went into Assyria, and built Nineveh, Rehoboth Ir, Calah, 
 and Resen between Nineveh and the great city Calah. 

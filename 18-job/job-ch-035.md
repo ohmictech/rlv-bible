@@ -13,4 +13,4 @@ There they cry, but no one answers, because of the pride of bad men.
 Surely God will not hear an empty cry, neither will the Almighty regard it. 
 How much less when you say you don't see him. The cause is before him, and you wait for him! 
 But now, because he has not visited in his anger, neither does he greatly regard arrogance, 
-therefore Job opens his mouth with empty talk, and he multiplies words without knowledge." 
+So Job opens his mouth with empty talk, and he multiplies words without knowledge." 

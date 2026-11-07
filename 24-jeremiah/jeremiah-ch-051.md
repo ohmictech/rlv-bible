@@ -4,7 +4,7 @@ Against him who bends, let the archer bend his bow, also against him who lifts h
 They will fall down slain in the land of the Chaldeans, and thrust through in her streets. 
 For Israel is not forsaken, nor Judah, by his God, by the God of Armies; though their land is full of guilt against the Holy One of Israel. 
 "Flee out of the middle of Babylon! Everyone save his own life! Don't be cut off in her guilt, for it is the time of God's vengeance. He will give to her a recompense. 
-Babylon has been a golden cup in God's hand, who made all the earth drunk. The nations have drunk of her wine; therefore the nations have gone mad. 
+Babylon has been a golden cup in God's hand, who made all the earth drunk. The nations have drunk of her wine; the nations have gone mad. 
 Babylon has suddenly fallen and been destroyed! Wail for her! Take balm for her pain. Perhaps she may be healed. 
 "We would have healed Babylon, but she is not healed. Forsake her, and let's each go into his own country; for her judgment reaches to the sky, and is lifted up even to the skies. 
 'God has produced our righteousness. Come, and let's declare in Zion the work of our God.' 
@@ -33,7 +33,7 @@ So the passages are seized. They have burned the reeds with fire. The men of war
 For the God of Armies, the God of Israel says: "The daughter of Babylon is like a threshing floor at the time when it is trodden. Yet a little while, and the time of harvest comes for her." 
 "Nebuchadnezzar the king of Babylon has devoured me. He has crushed me. He has made me an empty vessel. He has, like a monster, swallowed me up. He has filled his mouth with my delicacies. He has cast me out. 
 May the violence done to me and to my flesh be on Babylon!" the inhabitant of Zion will say; and, "May my blood be on the inhabitants of Chaldea!" will Jerusalem say. 
-Therefore God says: "Behold, I will plead your cause, and take vengeance for you. I will dry up her sea, and make her fountain dry. 
+So God says: "Behold, I will plead your cause, and take vengeance for you. I will dry up her sea, and make her fountain dry. 
 Babylon will become heaps, a dwelling place for jackals, an astonishment, and a hissing, without inhabitant. 
 They will roar together like young lions. They will growl as lions' cubs. 
 When they are inflamed, I will make their feast, and I will make them drunk, that they may rejoice, and sleep a perpetual sleep, and not wake up," says God. 
@@ -44,12 +44,12 @@ Her cities have become a desolation, a dry land, and a desert, a land in which n
 I will execute judgment on Bel in Babylon, and I will bring out of his mouth that which he has swallowed up. The nations will not flow any more to him. Yes, the wall of Babylon will fall. 
 "My people, go away from the middle of her, and each of you save yourselves from God's fierce anger. 
 Don't let your heart faint. Don't fear for the news that will be heard in the land. For news will come one year, and after that in another year news will come, and violence in the land, ruler against ruler. 
-Therefore behold, the days come that I will execute judgment on the engraved images of Babylon; and her whole land will be confounded. All her slain will fall in the middle of her. 
+So behold, the days come that I will execute judgment on the engraved images of Babylon; and her whole land will be confounded. All her slain will fall in the middle of her. 
 Then the sky and the earth, and all that is therein, will sing for joy over Babylon; for the destroyers will come to her from the north," says God. 
 "As Babylon has caused the slain of Israel to fall, so the slain of all the land will fall at Babylon. 
 You who have escaped the sword, go! Don't stand still! Remember God from afar, and let Jerusalem come into your mind." 
 "We are confounded because we have heard reproach. Confusion has covered our faces, for strangers have come into the sanctuaries of God's house." 
-"Therefore behold, the days come," says God, "that I will execute judgment on her engraved images; and through all her land the wounded will groan. 
+"So behold, the days come," says God, "that I will execute judgment on her engraved images; and through all her land the wounded will groan. 
 Though Babylon should mount up to the sky, and though she should fortify the height of her strength, yet destroyers will come to her from me," says God. 
 "The sound of a cry comes from Babylon, and of great destruction from the land of the Chaldeans! 
 For God lays Babylon waste, and destroys out of her the great voice! Their waves roar like many waters. The noise of their voice is uttered. 

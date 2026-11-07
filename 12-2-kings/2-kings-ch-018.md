@@ -20,7 +20,7 @@ Rabshakeh said to them, "Say now to Hezekiah, 'The great king, the king of Assyr
 You say (but they are but vain words), 'There is counsel and strength for war.' Now on whom do you trust, that you have rebelled against me? 
 Now, behold, you trust in the staff of this bruised reed, even in Egypt. If a man leans on it, it will go into his hand and pierce it. So is Pharaoh king of Egypt to everyone who trusts on him. 
 But if you tell me, 'We trust in our God,' isn't that he whose high places and whose altars Hezekiah has taken away, and has said to Judah and to Jerusalem, 'You shall worship before this altar in Jerusalem'? 
-Now therefore, please give pledges to my master the king of Assyria, and I will give you two thousand horses if you are able on your part to set riders on them. 
+Now, please give pledges to my master the king of Assyria, and I will give you two thousand horses if you are able on your part to set riders on them. 
 How then can you turn away the face of one captain of the least of my master's servants, and put your trust on Egypt for chariots and for horsemen? 
 Have I now come up without God against this place to destroy it? God said to me, 'Go up against this land, and destroy it.'"'" 
 Then Eliakim the son of Hilkiah, Shebnah, and Joah, said to Rabshakeh, "Please speak to your servants in the Syrian language, for we understand it. Don't speak with us in the Jews' language, in the hearing of the people who are on the wall." 

@@ -6,7 +6,7 @@ then I will establish the throne of your kingdom over Israel for the eras, as I 
 But if you turn away from following me, you or your children, and not keep my commandments and my statutes which I have set before you, but go and serve other gods and worship them, 
 then I will cut off Israel out of the land which I have given them; and I will cast this house, which I have made holy for my name, out of my sight; and Israel will be a proverb and a byword among all peoples. 
 Though this house is so high, yet everyone who passes by it will be astonished and hiss; and they will say, 'Why has God done this to this land and to this house?' 
-and they will answer, 'Because they abandoned their God, who brought their fathers out of the land of Egypt, and embraced other gods, and worshiped them, and served them. Therefore God has brought all this bad on them.'" 
+and they will answer, 'Because they abandoned their God, who brought their fathers out of the land of Egypt, and embraced other gods, and worshiped them, and served them. So God has brought all this bad on them.'" 
 At the end of twenty years, in which Solomon had built the two houses, God's house and the king's house 
 (now Hiram the king of Tyre had furnished Solomon with cedar trees and cypress trees, and with gold, according to all his desire), King Solomon gave Hiram twenty cities in the land of Galilee. 
 Hiram came out of Tyre to see the cities which Solomon had given him; and they didn't please him. 

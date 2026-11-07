@@ -8,7 +8,7 @@ God, you have persuaded me, and I was persuaded. You are stronger than I, and ha
 For as often as I speak, I cry out; I cry, "Violence and destruction!" because God's word has been made a reproach to me, and a derision, all day. 
 If I say that I will not make mention of him, or speak any more in his name, then there is in my heart as it were a burning fire shut up in my bones. I am weary with holding it in. I can't. 
 For I have heard the defaming of many: "Terror on every side! Denounce, and we will denounce him!" say all my familiar friends, those who watch for my fall. "Perhaps he will be persuaded, and we will prevail against him, and we will take our revenge on him." 
-But God is with me as an awesome mighty one. Therefore my persecutors will stumble, and they won't prevail. They will be utterly disappointed because they have not dealt wisely, even with an perpetual dishonor which will never be forgotten. 
+But God is with me as an awesome mighty one. So my persecutors will stumble, and they won't prevail. They will be utterly disappointed because they have not dealt wisely, even with an perpetual dishonor which will never be forgotten. 
 But the God of Armies, who tests the righteous, who sees the heart and the mind, let me see your vengeance on them, for I have revealed my cause to you. 
 Sing to God! Praise God, for he has delivered the soul of the needy from the hand of those who do bad. 
 Cursed is the day in which I was born. Don't let the day in which my mother bore me be blessed. 

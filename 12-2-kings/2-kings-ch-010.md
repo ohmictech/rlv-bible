@@ -16,7 +16,7 @@ When he had departed from there, he met Jehonadab the son of Rechab coming to me
 He said, "Come with me, and see my passion for God." So they made him ride in his chariot. 
 When he came to Samaria, he struck everyone who remained to Ahab in Samaria, until he had destroyed them, according to God's word which he spoke to Elijah. 
 Jehu gathered everyone together, and said to them, "Ahab served Baal a little, but Jehu will serve him much. 
-Now therefore call to me all the spokesmen of Baal, all of his worshipers, and all of his priests. Let no one be absent, for I have a great sacrifice to Baal. Whoever is absent, he shall not live." But Jehu did deceptively, intending to destroy the worshipers of Baal. 
+Now call to me all the spokesmen of Baal, all of his worshipers, and all of his priests. Let no one be absent, for I have a great sacrifice to Baal. Whoever is absent, he shall not live." But Jehu did deceptively, intending to destroy the worshipers of Baal. 
 Jehu said, "Sanctify a solemn assembly for Baal!" So they proclaimed it. 
 Jehu sent through all Israel; and all the worshipers of Baal came, so that there was not a man left that didn't come. They came into the house of Baal; and the house of Baal was filled from one end to another. 
 He said to him who kept the wardrobe, "Bring out robes for all the worshipers of Baal!" So he brought robes out to them. 

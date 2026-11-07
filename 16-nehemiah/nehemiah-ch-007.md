@@ -61,7 +61,7 @@ All the temple servants and the children of Solomon's servants were three hundre
 These were those who went up from Tel Melah, Tel Harsha, Cherub, Addon, and Immer; but they could not show their fathers' houses, nor their offspring, whether they were of Israel: 
 The children of Delaiah, the children of Tobiah, the children of Nekoda: six hundred forty-two. 
 Of the priests: the children of Hobaiah, the children of Hakkoz, the children of Barzillai, who took a wife of the daughters of Barzillai the Gileadite, and was called after their name. 
-These searched for their genealogical records, but couldn't find them. Therefore they were deemed disqualified and removed from the priesthood. 
+These searched for their genealogical records, but couldn't find them. So they were deemed disqualified and removed from the priesthood. 
 The governor told them not to eat of the most holy things until a priest stood up to minister with Urim and Thummim. 
 The whole assembly together was forty-two thousand three hundred sixty, 
 in addition to their male servants and their female servants, of whom there were seven thousand three hundred thirty-seven. They had two hundred forty-five singing men and driftsging women. 

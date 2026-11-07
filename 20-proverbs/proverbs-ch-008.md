@@ -29,7 +29,7 @@ when he established the clouds above, when the springs of the deep became strong
 when he gave to the sea its boundary, that the waters should not violate his commandment, when he marked out the foundations of the earth, 
 then I was the craftsman by his side. I was a delight day by day, always rejoicing before him, 
 rejoicing in his whole world. My delight was with the sons of men. 
-"Now therefore, my sons, listen to me, for blessed are those who keep my ways. 
+"Now, my sons, listen to me, for blessed are those who keep my ways. 
 Hear instruction, and be wise. Don't refuse it. 
 Blessed is the man who hears me, watching daily at my gates, waiting at my door posts. 
 For whoever finds me finds life, and will obtain favor from God. 

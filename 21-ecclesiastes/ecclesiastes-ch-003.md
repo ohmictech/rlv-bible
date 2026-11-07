@@ -19,4 +19,4 @@ I said in my heart, "As for the sons of men, God tests them, so that they may se
 For that which happens to the sons of men happens to animals. Even one thing happens to them. As the one dies, so the other dies. Yes, they have all one breath; and man has no advantage over the animals, for all is vanity. 
 All go to one place. All are from the dust, and all turn to dust again. 
 Who knows the spirit of man, whether it goes upward, and the spirit of the animal, whether it goes downward to the earth?" 
-Therefore I saw that there is nothing better than that a man should rejoice in his works, for that is his portion; for who can bring him to see what will be after him? 
+So I saw that there is nothing better than that a man should rejoice in his works, for that is his portion; for who can bring him to see what will be after him? 

@@ -1,7 +1,7 @@
 ﻿The children of Israel again did that which was bad in God's sight; and God delivered them into the hand of the Philistines forty years. 
 There was a certain man of Zorah, of the family of the Danites, whose name was Manoah; and his wife was barren, and childless. 
 God's messenger appeared to the woman, and said to her, "See now, you are barren and childless; but you shall conceive and bear a son. 
-Now therefore please beware and drink no wine nor strong drink, and don't eat any unclean thing; 
+Now please beware and drink no wine nor strong drink, and don't eat any unclean thing; 
 for, behold, you shall conceive and give birth to a son. No razor shall come on his head, for the child shall be a Nazirite to God from the womb. He shall begin to save Israel out of the hand of the Philistines." 
 Then the woman came and told her husband, saying, "A man of God came to me, and his face was like the face of the messenger of God, very awesome. I didn't ask him where he was from, neither did he tell me his name; 
 but he said to me, 'Behold, you shall conceive and bear a son; and now drink no wine nor strong drink. Don't eat any unclean thing, for the child shall be a Nazirite to God from the womb to the day of his death.'" 

@@ -11,7 +11,7 @@ and the rest of the nations whom the great and noble Osnappar brought over and s
 This is the copy of the letter that they sent: To King Artaxerxes, from your servants, the people beyond the River. 
 Be it known to the king that the Jews who came up from you have come to us to Jerusalem. They are building the rebellious and bad city, and have finished the walls and repaired the foundations. 
 Be it known now to the king that if this city is built and the walls finished, they will not pay tribute, custom, or toll, and in the end it will be hurtful to the kings. 
-Now because we eat the salt of the palace and it is not appropriate for us to see the king's dishonor, therefore we have sent and informed the king, 
+Now because we eat the salt of the palace and it is not appropriate for us to see the king's dishonor, we have sent and informed the king, 
 that search may be made in the book of the records of your fathers. You will see in the book of the records, and know that this city is a rebellious city, and hurtful to kings and provinces, and that they have started rebellions within it in the past. That is why this city was destroyed. 
 We inform the king that if this city is built and the walls finished, then you will have no possession beyond the River. 
 Then the king sent an answer to Rehum the chancellor, and to Shimshai the secretary, and to the rest of their companions who live in Samaria, and in the rest of the country beyond the River: Peace. 

@@ -9,7 +9,7 @@ He stayed seven days, according to the time set by Samuel; but Samuel didn't com
 Saul said, "Bring the burnt offering to me here, and the offerings for wholeness." He offered the burnt offering. 
 It came to pass that as soon as he had finished offering the burnt offering, behold, Samuel came; and Saul went out to meet him, that he might greet him. 
 Samuel said, "What have you done?" Saul said, "Because I saw that the people were scattered from me, and that you didn't come within the days appointed, and that the Philistines assembled themselves together at Michmash, 
-therefore I said, 'Now the Philistines will come down on me to Gilgal, and I haven't entreated the favor of God.' I forced myself therefore, and offered the burnt offering." 
+So I said, 'Now the Philistines will come down on me to Gilgal, and I haven't entreated the favor of God.' I forced myself, and offered the burnt offering." 
 Samuel said to Saul, "You have done foolishly. You have not kept the commandment of your God, which he commanded you; for now God would have established your kingdom on Israel for the eras. 
 But now your kingdom will not continue. God has sought for himself a man after his own heart, and God has appointed him to be prince over his people, because you have not kept that which God commanded you." 
 Samuel arose, and went from Gilgal to Gibeah of Benjamin. Saul counted the people who were present with him, about six hundred men. 

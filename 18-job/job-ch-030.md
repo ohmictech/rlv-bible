@@ -21,11 +21,11 @@ I cry to you, and you do not answer me. I stand up, and you gaze at me.
 You have turned to be cruel to me. With the might of your hand you persecute me. 
 You lift me up to the wind, and drive me with it. You dissolve me in the storm. 
 For I know that you will bring me to death, to the house appointed for all living. 
-"However doesn't one stretch out a hand in his fall? Or in his calamity therefore cry for help? 
+"However doesn't one stretch out a hand in his fall? Or in his calamity cry for help? 
 Didn't I weep for him who was in trouble? Wasn't my soul grieved for the needy? 
 When I looked for good, then bad came. When I waited for light, darkness came. 
 My heart is troubled, and doesn't rest. Days of affliction have come on me. 
 I go mourning without the sun. I stand up in the assembly, and cry for help. 
 I am a brother to jackals, and a companion to ostriches. 
 My skin grows black and peels from me. My bones are burned with heat. 
-Therefore my harp has turned to mourning, and my pipe into the voice of those who weep. 
+So my harp has turned to mourning, and my pipe into the voice of those who weep. 

@@ -1,6 +1,6 @@
 ﻿"At that time," says God, "I will be the God of all the families of Israel, and they will be my people." 
 God says, "The people who survive the sword found favor in the wilderness; even Israel, when I went to cause him to rest." 
-God appeared of old to me, saying, "Yes, I have loved you with an perpetual love. Therefore I have drawn you with loving kindness. 
+God appeared of old to me, saying, "Yes, I have loved you with an perpetual love. So I have drawn you with loving kindness. 
 I will build you again, and you will be built, O virgin of Israel. You will again be adorned with your tambourines, and will go out in the dances of those who make merry. 
 Again you will plant vineyards on the mountains of Samaria. The planters will plant, and will enjoy its fruit. 
 For there will be a day that the watchmen on the hills of Ephraim cry, 'Arise! Let's go up to Zion to our God.'" 
@@ -17,7 +17,7 @@ God says: "Refrain your voice from weeping, and your eyes from tears, for your w
 There is hope for your latter end," says God. "Your children will come again to their own territory. 
 "I have surely heard Ephraim grieving thus, 'You have chastised me, and I was chastised, as an untrained calf. Turn me, and I will be turned, for you are my God. 
 Surely after that I was turned. I repented. After that I was instructed. I struck my thigh. I was ashamed, yes, even confounded, because I bore the reproach of my youth.' 
-Is Ephraim my dear son? Is he a darling child? For as often as I speak against him, I still earnestly remember him. Therefore my heart yearns for him. I will surely have mercy on him," says God. 
+Is Ephraim my dear son? Is he a darling child? For as often as I speak against him, I still earnestly remember him. So my heart yearns for him. I will surely have mercy on him," says God. 
 "Set up road signs. Make guideposts. Set your heart toward the highway, even the way by which you went. Turn again, virgin of Israel. Turn again to these your cities. 
 How long will you go here and there, you backsliding daughter? For God has created a new thing on the earth: a woman will encompass a man." 
 The God of Armies, the God of Israel says: "Yet again they will use this speech in the land of Judah and in its cities, when I reverse their captivity: 'God bless you, habitation of righteousness, mountain of holiness.' 

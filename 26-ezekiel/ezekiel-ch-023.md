@@ -6,7 +6,7 @@ Their names were Oholah the elder, and Oholibah her sister. They became mine, an
 who were clothed with blue, governors and rulers, everyone desirable young men, horsemen riding on horses. 
 She gave herself as a prostitute to them, everyone the choicest men of Assyria. She defiled herself with the idols of whomever she lusted after. 
 She hasn't left her prostitution since leaving Egypt; for in her youth they lay with her. They caressed her youthful nipples and they poured out their prostitution on her. 
-"Therefore I delivered her into the hand of her lovers, into the hand of the Assyrians on whom she doted. 
+"So I delivered her into the hand of her lovers, into the hand of the Assyrians on whom she doted. 
 These uncovered her nakedness. They took her sons and her daughters, and they killed her with the sword. She became a byword among women; for they executed judgments on her. 
 "Her sister Oholibah saw this, yet she was more corrupt in her lusting than she, and in her prostitution which was more depraved than the prostitution of her sister. 
 She lusted after the Assyrians, governors and rulers, her neighbors, clothed most gorgeously, horsemen riding on horses, everyone desirable young men. 
@@ -19,7 +19,7 @@ So she uncovered her prostitution and uncovered her nakedness. Then my soul was 
 Yet she multiplied her prostitution, remembering the days of her youth, in which she had played the prostitute in the land of Egypt. 
 She lusted after their lovers, whose flesh is as the flesh of donkeys, and whose issue is like the issue of horses. 
 Thus you called to memory the lewdness of your youth, in the caressing of your nipples by the Egyptians because of your youthful breasts. 
-"Therefore, Oholibah, God says: 'Behold, I will raise up your lovers against you, from whom your soul is alienated, and I will bring them against you on every side: 
+"So, Oholibah, God says: 'Behold, I will raise up your lovers against you, from whom your soul is alienated, and I will bring them against you on every side: 
 the Babylonians and all the Chaldeans, Pekod, Shoa, Koa, and all the Assyrians with them; everyone desirable young men, governors and rulers, princes and men of renown, everyone riding on horses. 
 They will come against you with weapons, chariots, and wagons, and with a company of peoples. They will set themselves against you with buckler, shield, and helmet all around. I will commit the judgment to them, and they will judge you according to their judgments. 
 I will set my jealousy against you, and they will deal with you in fury. They will take away your nose and your ears. Your remnant will fall by the sword. They will take your sons and your daughters; and the rest of you will be devoured by the fire. 
@@ -28,11 +28,11 @@ Thus I will make your lewdness to cease from you, and remove your prostitution f
 "For God says: 'Behold, I will deliver you into the hand of them whom you hate, into the hand of them from whom your soul is alienated. 
 They will deal with you in hatred, and will take away all your labor, and will leave you naked and bare. The nakedness of your prostitution will be uncovered, both your lewdness and your prostitution. 
 These things will be done to you because you have played the prostitute after the nations, and because you are polluted with their idols. 
-You have walked in the way of your sister; therefore I will give her cup into your hand.' 
+You have walked in the way of your sister; I will give her cup into your hand.' 
 "The God says: 'You will drink of your sister's cup, which is deep and large. You will be ridiculed and held in derision. It contains much. 
 You will be filled with drunkenness and sorrow, with the cup of astonishment and desolation, with the cup of your sister Samaria. 
 You will even drink it and drain it out. You will gnaw the broken pieces of it, and will tear your breasts; for I have spoken it,' says God. 
-"Therefore God says: 'Because you have forgotten me and cast me behind your back, therefore you also bear your lewdness and your prostitution.'" 
+"So God says: 'Because you have forgotten me and cast me behind your back, you also bear your lewdness and your prostitution.'" 
 God said moreover to me: "Son of man, will you judge Oholah and Oholibah? Then declare to them their abominations. 
 For they have committed adultery, and blood is in their hands. They have committed adultery with their idols. They have also caused their sons, whom they bore to me, to pass through the fire to them to be devoured. 
 Moreover this they have done to me: they have defiled my sanctuary in the same day, and have profaned my Sabbaths. 

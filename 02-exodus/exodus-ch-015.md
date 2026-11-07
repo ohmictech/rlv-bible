@@ -20,7 +20,7 @@ For the horses of Pharaoh went in with his chariots and with his horsemen into t
 Miriam the prophetess, the sister of Aaron, took a tambourine in her hand; and all the women went out after her with tambourines and with dances. 
 Miriam answered them, "Sing to God, for he has triumphed gloriously. He has thrown the horse and his rider into the sea." 
 Moses led Israel onward from the Red Sea, and they went out into the wilderness of Shur; and they went three days in the wilderness, and found no water. 
-When they came to Marah, they couldn't drink from the waters of Marah, for they were bitter. Therefore its name was called Marah. 
+When they came to Marah, they couldn't drink from the waters of Marah, for they were bitter. So its name was called Marah. 
 The people murmured against Moses, saying, "What shall we drink?" 
 Then he cried to God. God showed him a tree, and he threw it into the waters, and the waters were made sweet. There he made a statute and an ordinance for them, and there he tested them. 
 He said, "If you will diligently listen to your God's voice, and will do that which is right in his eyes, and will pay attention to his commandments, and keep all his statutes, I will put none of the diseases on you which I have put on the Egyptians; for I am God who heals you." 

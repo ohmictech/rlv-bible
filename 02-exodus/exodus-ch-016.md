@@ -26,7 +26,7 @@ Moses said, "Eat that today, for today is a Sabbath to God. Today you shall not 
 Six days you shall gather it, but on the seventh day is the Sabbath. In it there shall be none." 
 On the seventh day, some of the people went out to gather, and they found none. 
 God said to Moses, "How long do you refuse to keep my commandments and my laws? 
-Behold, because God has given you the Sabbath, therefore he gives you on the sixth day the bread of two days. Everyone stay in his place. Let no one go out of his place on the seventh day." 
+Behold, because God has given you the Sabbath, he gives you on the sixth day the bread of two days. Everyone stay in his place. Let no one go out of his place on the seventh day." 
 So the people rested on the seventh day. 
 The house of Israel called its name "Manna", and it was like coriander seed, white; and its taste was like wafers with honey. 
 Moses said, "This is the thing which God has commanded, 'Let an omer-full of it be kept throughout your generations, that they may see the bread with which I fed you in the wilderness, when I brought you out of the land of Egypt.'" 

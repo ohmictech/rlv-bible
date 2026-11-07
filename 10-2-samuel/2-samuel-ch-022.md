@@ -22,7 +22,7 @@ God rewarded me according to my righteousness. He rewarded me according to the c
 For I have kept God's ways, and have not guiltily departed from my God. 
 For all his ordinances were before me. As for his statutes, I didn't depart from them. 
 I was also perfect toward him. I kept myself from my guilt. 
-Therefore God has rewarded me according to my righteousness, According to my cleanness in his eyesight. 
+So God has rewarded me according to my righteousness, According to my cleanness in his eyesight. 
 With the merciful you will show yourself merciful. With the perfect man you will show yourself perfect. 
 With the pure you will show yourself pure. With the crooked you will show yourself shrewd. 
 You will save the afflicted people, but your eyes are on the arrogant, that you may bring them down. 
@@ -47,5 +47,5 @@ The foreigners will fade away, and will come trembling out of their close places
 God lives! Blessed be my rock! Exalted be God, the rock of my salvation, 
 even the God who executes vengeance for me, who brings down peoples under me, 
 who brings me away from my enemies. Yes, you lift me up above those who rise up against me. You deliver me from the violent man. 
-Therefore I will give thanks to you, God, among the nations, and will sing praises to your name. 
+So I will give thanks to you, God, among the nations, and will sing praises to your name. 
 He gives great deliverance to his king, and shows loving kindness to his anointed, to David and to his offspring, for the eras more." 

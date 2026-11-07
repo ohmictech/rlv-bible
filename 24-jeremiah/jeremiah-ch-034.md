@@ -9,12 +9,12 @@ The word came to Jeremiah from God, after King Zedekiah had made a covenant with
 that every man should let his male servant, and every man his female servant, who is a Hebrew or a Hebrewess, go free, that no one should make bondservants of them, of a Jew his brother. 
 All the princes and everyone obeyed who had entered into the covenant, that everyone should let his male servant and everyone his female servant go free, that no one should make bondservants of them any more. They obeyed and let them go, 
 but afterwards they turned, and caused the servants and the handmaids whom they had let go free to return, and brought them into subjection for servants and for handmaids. 
-Therefore God's word came to Jeremiah from God, saying, 
+So God's word came to Jeremiah from God, saying, 
 "The God of Israel says: 'I made a covenant with your fathers in the day that I brought them out of the land of Egypt, out of the house of bondage, saying: 
 At the end of seven years, every man of you shall release his brother who is a Hebrew, who has been sold to you, and has served you six years. You shall let him go free from you. But your fathers didn't listen to me, and didn't incline their ear. 
 You had now turned, and had done that which is right in my eyes, in every man proclaiming liberty to his neighbor. You had made a covenant before me in the house which is called by my name; 
 but you turned and profaned my name, and every man caused his servant and every man his handmaid, whom you had let go free at their pleasure, to return. You brought them into subjection, to be to you for servants and for handmaids.'" 
-Therefore God says: "You have not listened to me, to proclaim liberty, every man to his brother, and every man to his neighbor. Behold, I proclaim to you a liberty," says God, "to the sword, to the pestilence, and to the famine. I will make you be tossed back and forth among all the kingdoms of the earth. 
+So God says: "You have not listened to me, to proclaim liberty, every man to his brother, and every man to his neighbor. Behold, I proclaim to you a liberty," says God, "to the sword, to the pestilence, and to the famine. I will make you be tossed back and forth among all the kingdoms of the earth. 
 I will give the men who have transgressed my covenant, who have not performed the words of the covenant which they made before me when they cut the calf in two and passed between its parts: 
 the princes of Judah, the princes of Jerusalem, the eunuchs, the priests, and everyone in the land, who passed between the parts of the calf. 
 I will even give them into the hand of their enemies and into the hand of those who seek their life. Their dead bodies will be food for the birds of the sky and for the animals of the earth. 

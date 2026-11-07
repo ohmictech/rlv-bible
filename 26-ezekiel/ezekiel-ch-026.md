@@ -1,6 +1,6 @@
 ﻿In the eleventh year, in the first of the month, God's word came to me, saying, 
 "Son of man, because Tyre has said against Jerusalem, 'Aha! She is broken! She who was the gateway of the peoples has been returned to me. I will be replenished, now that she is laid waste;' 
-therefore God says, 'Behold, I am against you, Tyre, and will cause many nations to come up against you, as the sea causes its waves to come up. 
+So God says, 'Behold, I am against you, Tyre, and will cause many nations to come up against you, as the sea causes its waves to come up. 
 They will destroy the walls of Tyre, and break down her towers. I will also scrape her dust from her, and make her a bare rock. 
 She will be a place for the spreading of nets in the middle of the sea; for I have spoken it,' says God. 'She will become plunder for the nations. 
 Her daughters who are in the field will be slain with the sword. Then they will know that I am God.' 

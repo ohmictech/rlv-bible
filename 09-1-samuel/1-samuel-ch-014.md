@@ -24,7 +24,7 @@ So God saved Israel that day; and the battle passed over by Beth Aven.
 The men of Israel were distressed that day; for Saul had adjured the people, saying, "Cursed is the man who eats any food until it is evening, and I am avenged of my enemies." So none of the people tasted food. 
 Everyone came into the forest; and there was honey on the ground. 
 When the people had come to the forest, behold, honey was dripping, but no one put his hand to his mouth, for the people feared the oath. 
-But Jonathan didn't hear when his father commanded the people with the oath. Therefore he put out the end of the rod that was in his hand and dipped it in the honeycomb, and put his hand to his mouth; and his eyes brightened. 
+But Jonathan didn't hear when his father commanded the people with the oath. So he put out the end of the rod that was in his hand and dipped it in the honeycomb, and put his hand to his mouth; and his eyes brightened. 
 Then one of the people answered, and said, "Your father directly commanded the people with an oath, saying, 'Cursed is the man who eats food today.'" So the people were faint. 
 Then Jonathan said, "My father has troubled the land. Please look how my eyes have brightened because I tasted a little of this honey. 
 How much more, if perhaps the people had eaten freely today of the plunder of their enemies which they found? For now there has been no great slaughter among the Philistines." 
@@ -38,7 +38,7 @@ Saul asked counsel of God: "Shall I go down after the Philistines? Will you deli
 Saul said, "Draw near here, all you chiefs of the people, and know and see in whom this wrongdoing lies today. 
 For as God lives, who saves Israel, though it is in Jonathan my son, he shall surely die." But there was not a man among everyone who answered him. 
 Then he said to all Israel, "You be on one side, and I and Jonathan my son will be on the other side." The people said to Saul, "Do what seems good to you." 
-Therefore Saul said to the God of Israel, "Show the right." Jonathan and Saul were chosen, but the people escaped. 
+So Saul said to the God of Israel, "Show the right." Jonathan and Saul were chosen, but the people escaped. 
 Saul said, "Cast lots between me and Jonathan my son." Jonathan was selected. 
 Then Saul said to Jonathan, "Tell me what you have done!" Jonathan told him, and said, "I certainly did taste a little honey with the end of the rod that was in my hand; and behold, I must die." 
 Saul said, "God do so and more also; for you shall surely die, Jonathan." 

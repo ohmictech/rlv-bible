@@ -20,10 +20,10 @@ They made a calf in Horeb, and worshiped a molten image.
 Thus they exchanged their glory for an image of a bull that eats grass. 
 They forgot God, their Savior, who had done great things in Egypt, 
 wondrous works in the land of Ham, and awesome things by the Red Sea. 
-Therefore he said that he would destroy them, had Moses, his chosen, not stood before him in the breach, to turn away his wrath, so that he wouldn't destroy them. 
+So he said that he would destroy them, had Moses, his chosen, not stood before him in the breach, to turn away his wrath, so that he wouldn't destroy them. 
 Yes, they despised the pleasant land. They didn't believe his word, 
 but murmured in their tents, and didn't listen to God's voice. 
-Therefore he swore to them that he would overthrow them in the wilderness, 
+So he swore to them that he would overthrow them in the wilderness, 
 that he would overthrow their offspring among the nations, and scatter them in the lands. 
 They joined themselves also to Baal Peor, and ate the sacrifices of the dead. 
 Thus they provoked him to anger with their deeds. The plague broke in on them. 
@@ -37,7 +37,7 @@ They served their idols, which became a snare to them.
 Yes, they sacrificed their sons and their daughters to demons. 
 They shed innocent blood, even the blood of their sons and of their daughters, whom they sacrificed to the idols of Canaan. The land was polluted with blood. 
 Thus they were defiled with their works, and prostituted themselves in their deeds. 
-Therefore God burned with anger against his people. He abhorred his inheritance. 
+So God burned with anger against his people. He abhorred his inheritance. 
 He gave them into the hand of the nations. Those who hated them ruled over them. 
 Their enemies also oppressed them. They were brought into subjection under their hand. 
 He rescued them many times, but they were rebellious in their counsel, and were brought low in their guilt. 

@@ -18,7 +18,7 @@ You have removed my soul far away from peace. I forgot prosperity.
 I said, "My strength has perished, along with my expectation from God." 
 Remember my affliction and my misery, the wormwood and the bitterness. 
 My soul still remembers them, and is bowed down within me. 
-This I recall to my mind; therefore I have hope. 
+This I recall to my mind; I have hope. 
 It is because of God's loving kindnesses that we are not consumed, because his mercies don't fail. 
 They are new every morning. Great is your faithfulness. 
 "God is my portion," says my soul. "Therefore I will hope in him." 

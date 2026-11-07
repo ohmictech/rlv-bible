@@ -12,7 +12,7 @@ so your poverty will come as a robber, and your scarcity as an armed man.
 A worthless person, a man of guilt, is he who walks with a perverse mouth, 
 who winks with his eyes, who signals with his feet, who motions with his fingers, 
 in whose heart is perverseness, who devises bad continually, who always sows discord. 
-Therefore his calamity will come suddenly. He will be broken suddenly, and that without remedy. 
+So his calamity will come suddenly. He will be broken suddenly, and that without remedy. 
 There are six things which God hates; yes, seven which are an abomination to him: 
 arrogant eyes, a lying tongue, hands that shed innocent blood, 
 a heart that devises guilty schemes, feet that are swift in running to mischief, 

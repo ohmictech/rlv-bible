@@ -6,7 +6,7 @@ Ziklag, Beth Marcaboth, Hazar Susah,
 Beth Lebaoth, and Sharuhen; thirteen cities with their villages; 
 Ain, Rimmon, Ether, and Ashan; four cities with their villages; 
 and all the villages that were around these cities to Baalath Beer, Ramah of the South. This is the inheritance of the tribe of the children of Simeon according to their families. 
-Out of the part of the children of Judah was the inheritance of the children of Simeon; for the portion of the children of Judah was too much for them. Therefore the children of Simeon had inheritance in the middle of their inheritance. 
+Out of the part of the children of Judah was the inheritance of the children of Simeon; for the portion of the children of Judah was too much for them. So the children of Simeon had inheritance in the middle of their inheritance. 
 The third lot came up for the children of Zebulun according to their families. The border of their inheritance was to Sarid. 
 Their border went up westward, even to Maralah, and reached to Dabbesheth. It reached to the brook that is before Jokneam. 
 It turned from Sarid eastward toward the sunrise to the border of Chisloth Tabor. It went out to Daberath, and went up to Japhia. 

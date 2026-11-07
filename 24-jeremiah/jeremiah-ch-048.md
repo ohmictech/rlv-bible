@@ -8,8 +8,8 @@ For, because you have trusted in your works and in your treasures, you also will
 The destroyer will come on every city, and no city will escape; the valley also will perish, and the plain will be destroyed, as God has spoken. 
 Give wings to Moab, that she may fly and get herself away: and her cities will become a desolation, without anyone to dwell in them. 
 "Cursed is he who does the work of God negligently; and cursed is he who keeps back his sword from blood. 
-"Moab has been at ease from his youth, and he has settled on his dregs, and has not been emptied from vessel to vessel, neither has he gone into captivity; therefore his taste remains in him, and his scent is not changed. 
-Therefore behold, the days come," says God, "that I will send to him those who pour off, and they will pour him off; and they will empty his vessels, and break their containers in pieces. 
+"Moab has been at ease from his youth, and he has settled on his dregs, and has not been emptied from vessel to vessel, neither has he gone into captivity; his taste remains in him, and his scent is not changed. 
+So behold, the days come," says God, "that I will send to him those who pour off, and they will pour him off; and they will empty his vessels, and break their containers in pieces. 
 Moab will be ashamed of Chemosh, as the house of Israel was ashamed of Bethel, their confidence. 
 "How do you say, 'We are mighty men, and valiant men for the war'? 
 Moab is laid waste, and they have gone up into his cities, and his chosen young men have gone down to the slaughter," says the King, whose name is the God of Armies. 
@@ -28,12 +28,12 @@ For wasn't Israel a derision to you? Was he found among thieves? For as often as
 You inhabitants of Moab, leave the cities, and dwell in the rock. Be like the dove that makes her nest over the mouth of the abyss. 
 "We have heard of the pride of Moab. He is very proud in his loftiness, his pride, his arrogance, and the arrogance of his heart. 
 I know his wrath," says God, "that it is nothing; his boastings have done nothing. 
-Therefore I will wail for Moab. Yes, I will cry out for all Moab. They will mourn for the men of Kir Heres. 
+So I will wail for Moab. Yes, I will cry out for all Moab. They will mourn for the men of Kir Heres. 
 With more than the weeping of Jazer I will weep for you, vine of Sibmah. Your branches passed over the sea. They reached even to the sea of Jazer. The destroyer has fallen on your summer fruits and on your vintage. 
 Gladness and joy is taken away from the fruitful field and from the land of Moab. I have caused wine to cease from the wine presses. No one will tread with shouting. The shouting will be no shouting. 
 From the cry of Heshbon even to Elealeh, even to Jahaz they have uttered their voice, from Zoar even to Horonaim, to Eglath Shelishiyah; for the waters of Nimrim will also become desolate. 
 Moreover I will cause to cease in Moab," says God, "him who offers in the high place, and him who burns incense to his gods. 
-Therefore my heart sounds for Moab like flutes, and my heart sounds like flutes for the men of Kir Heres. Therefore the abundance that he has gotten has perished. 
+So my heart sounds for Moab like flutes, and my heart sounds like flutes for the men of Kir Heres. So the abundance that he has gotten has perished. 
 For every head is bald, and every beard clipped. There are cuttings on all the hands, and sackcloth on the waist. 
 On all the housetops of Moab, and in its streets, there is lamentation everywhere; for I have broken Moab like a vessel in which no one delights," says God. 
 "How it is broken down! How they wail! How Moab has turned the back with shame! So will Moab become a derision and a terror to everyone who is around him." 

@@ -6,14 +6,14 @@ They hatch adders' eggs and weave the spider's web. He who eats of their eggs di
 Their webs won't become garments. They won't cover themselves with their works. Their works are works of guilt, and acts of violence are in their hands. 
 Their feet run to bad, and they hurry to shed innocent blood. Their thoughts are thoughts of guilt. Desolation and destruction are in their paths. 
 They don't know the way of peace; and there is no justice in their ways. They have made crooked paths for themselves; whoever goes in them doesn't know peace. 
-Therefore justice is far from us, and righteousness doesn't overtake us. We look for light, but see darkness; for brightness, but we walk in obscurity. 
+So justice is far from us, and righteousness doesn't overtake us. We look for light, but see darkness; for brightness, but we walk in obscurity. 
 We grope for the wall like the blind. Yes, we grope as those who have no eyes. We stumble at noon as if it were twilight. Among those who are strong, we are like dead men. 
 We all roar like bears and moan sadly like doves. We look for justice, but there is none, for salvation, but it is far off from us. 
 For our rebellion are multiplied before you, and our mistakes testify against us; for our rebellion are with us, and as for our guilt, we know them: 
 transgressing and denying God, and turning away from following our God, speaking oppression and revolt, conceiving and uttering from the heart words of falsehood. 
 Justice is turned away backward, and righteousness stands far away; for truth has fallen in the street, and uprightness can't enter. 
 Yes, truth is lacking; and he who departs from what is bad makes himself a prey. God saw it, and it displeased him that there was no justice. 
-He saw that there was no man, and wondered that there was no intercessor. Therefore his own arm brought salvation to him; and his righteousness sustained him. 
+He saw that there was no man, and wondered that there was no intercessor. So his own arm brought salvation to him; and his righteousness sustained him. 
 He put on righteousness as a breastplate, and a helmet of salvation on his head. He put on garments of vengeance for clothing, and was clad with passion as a mantle. 
 According to their deeds, he will repay as appropriate: wrath to his adversaries, recompense to his enemies. He will repay the islands their due. 
 So they will fear God's name from the west, and his glory from the rising of the sun; for he will come as a rushing stream, which God's breath drives. 

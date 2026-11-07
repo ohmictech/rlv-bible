@@ -1,12 +1,12 @@
 ﻿Now when Adoni-Zedek king of Jerusalem heard how Joshua had taken Ai, and had utterly destroyed it; as he had done to Jericho and her king, so he had done to Ai and her king; and how the inhabitants of Gibeon had made peace with Israel, and were among them, 
 they were very afraid, because Gibeon was a great city, as one of the royal cities, and because it was greater than Ai, and all its men were mighty. 
-Therefore Adoni-Zedek king of Jerusalem sent to Hoham king of Hebron, Piram king of Jarmuth, Japhia king of Lachish, and Debir king of Eglon, saying, 
+So Adoni-Zedek king of Jerusalem sent to Hoham king of Hebron, Piram king of Jarmuth, Japhia king of Lachish, and Debir king of Eglon, saying, 
 "Come up to me and help me. Let's strike Gibeon; for they have made peace with Joshua and with the children of Israel." 
-Therefore the five kings of the Amorites, the king of Jerusalem, the king of Hebron, the king of Jarmuth, the king of Lachish, and the king of Eglon, gathered themselves together and went up, they and all their armies, and encamped against Gibeon, and made war against it. 
+So the five kings of the Amorites, the king of Jerusalem, the king of Hebron, the king of Jarmuth, the king of Lachish, and the king of Eglon, gathered themselves together and went up, they and all their armies, and encamped against Gibeon, and made war against it. 
 The men of Gibeon sent to Joshua at the camp at Gilgal, saying, "Don't abandon your servants! Come up to us quickly and save us! Help us; for all the kings of the Amorites that dwell in the hill country have gathered together against us." 
 So Joshua went up from Gilgal, he and the whole army with him, including all the mighty men of valor. 
 God said to Joshua, "Don't fear them, for I have delivered them into your hands. Not a man of them will stand before you." 
-Joshua therefore came to them suddenly. He marched from Gilgal all night. 
+Joshua came to them suddenly. He marched from Gilgal all night. 
 God confused them before Israel. He killed them with a great slaughter at Gibeon, and chased them by the way of the ascent of Beth Horon, and struck them to Azekah and to Makkedah. 
 As they fled from before Israel, while they were at the descent of Beth Horon, God hurled down great stones from the sky on them to Azekah, and they died. There were more who died from the hailstones than those whom the children of Israel killed with the sword. 
 Then Joshua spoke to God in the day when God delivered up the Amorites before the children of Israel. He said in the sight of Israel, "Sun, stand still on Gibeon! You, moon, stop in the valley of Aijalon!" 

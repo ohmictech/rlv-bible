@@ -3,10 +3,10 @@ Then the king commanded that the magicians, the enchanters, the sorcerers, and t
 The king said to them, "I have dreamed a dream, and my spirit is troubled to know the dream." 
 Then the Chaldeans spoke to the king in the Syrian language, "O king, live for the eras! Tell your servants the dream, and we will show the interpretation." 
 The king answered the Chaldeans, "The thing has gone from me. If you don't make known to me the dream and its interpretation, you will be cut in pieces, and your houses will be made a dunghill. 
-But if you show the dream and its interpretation, you will receive from me gifts, rewards, and great honor. Therefore show me the dream and its interpretation." 
+But if you show the dream and its interpretation, you will receive from me gifts, rewards, and great honor. So show me the dream and its interpretation." 
 They answered the second time and said, "Let the king tell his servants the dream, and we will show the interpretation." 
 The king answered, "I know of a certainty that you are trying to gain time, because you see the thing has gone from me. 
-But if you don't make known to me the dream, there is but one law for you; for you have prepared lying and corrupt words to speak before me, until the situation changes. Therefore tell me the dream, and I will know that you can show me its interpretation." 
+But if you don't make known to me the dream, there is but one law for you; for you have prepared lying and corrupt words to speak before me, until the situation changes. So tell me the dream, and I will know that you can show me its interpretation." 
 The Chaldeans answered the king and said, "There is not a man on the earth who can show the king's matter, because no king, lord, or ruler has asked such a thing of any magician, enchanter, or Chaldean. 
 It is a rare thing that the king requires, and there is no other who can show it before the king except the gods, whose dwelling is not with flesh." 
 Because of this, the king was angry and very furious, and commanded that all the wise men of Babylon be destroyed. 
@@ -21,7 +21,7 @@ Daniel answered, "Blessed be the name of God for all the eras; for wisdom and mi
 He changes the times and the seasons. He removes kings and sets up kings. He gives wisdom to the wise, and knowledge to those who have understanding. 
 He reveals the deep and secret things. He knows what is in the darkness, and the light dwells with him. 
 I thank you and praise you, O God of my fathers, who have given me wisdom and might, and have now made known to me what we desired of you; for you have made known to us the king's matter." 
-Therefore Daniel went in to Arioch, whom the king had appointed to destroy the wise men of Babylon. He went and said this to him: "Don't destroy the wise men of Babylon. Bring me in before the king, and I will show to the king the interpretation." 
+So Daniel went in to Arioch, whom the king had appointed to destroy the wise men of Babylon. He went and said this to him: "Don't destroy the wise men of Babylon. Bring me in before the king, and I will show to the king the interpretation." 
 Then Arioch brought in Daniel before the king in haste, and said this to him: "I have found a man of the children of the captivity of Judah who will make known to the king the interpretation." 
 The king answered Daniel, whose name was Belteshazzar, "Are you able to make known to me the dream which I have seen, and its interpretation?" 
 Daniel answered before the king, and said, "The secret which the king has demanded can't be shown to the king by wise men, enchanters, magicians, or soothsayers; 

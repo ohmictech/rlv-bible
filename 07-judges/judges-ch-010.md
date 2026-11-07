@@ -10,7 +10,7 @@ The children of Ammon passed over the Jordan to fight also against Judah, and ag
 The children of Israel cried to God, saying, "We have wronged you, even because we have forsaken our God, and have served the Baals." 
 God said to the children of Israel, "Didn't I save you from the Egyptians, and from the Amorites, from the children of Ammon, and from the Philistines? 
 The Sidonians also, and the Amalekites, and the Maonites, oppressed you; and you cried to me, and I saved you out of their hand. 
-Yet you have forsaken me and served other gods. Therefore I will save you no more. 
+Yet you have forsaken me and served other gods. So I will save you no more. 
 Go and cry to the gods which you have chosen. Let them save you in the time of your distress!" 
 The children of Israel said to God, "We have drifted! Do to us whatever seems good to you; only deliver us, please, today." 
 They put away the foreign gods from among them and served God; and his soul was grieved for the misery of Israel. 

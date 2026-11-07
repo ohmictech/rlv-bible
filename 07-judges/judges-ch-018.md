@@ -9,9 +9,9 @@ They came to their brothers at Zorah and Eshtaol; and their brothers asked them,
 They said, "Arise, and let's go up against them; for we have seen the land, and behold, it is very good. Do you stand still? Don't be slothful to go and to enter in to possess the land. 
 When you go, you will come to an unsuspecting people, and the land is large; for God has given it into your hand, a place where there is no lack of anything that is on the earth." 
 The family of the Danites set out from Zorah and Eshtaol with six hundred men armed with weapons of war. 
-They went up and encamped in Kiriath Jearim in Judah. Therefore they call that place Mahaneh Dan to this day. Behold, it is behind Kiriath Jearim. 
+They went up and encamped in Kiriath Jearim in Judah. So they call that place Mahaneh Dan to this day. Behold, it is behind Kiriath Jearim. 
 They passed from there to the hill country of Ephraim, and came to the house of Micah. 
-Then the five men who went to spy out the country of Laish answered and said to their brothers, "Do you know that there is in these houses an ephod, and teraphim, and a carved image, and a molten image? Now therefore consider what you have to do." 
+Then the five men who went to spy out the country of Laish answered and said to their brothers, "Do you know that there is in these houses an ephod, and teraphim, and a carved image, and a molten image? Now consider what you have to do." 
 They went over there and came to the house of the young Levite man, even to the house of Micah, and asked him how he was doing. 
 The six hundred men armed with their weapons of war, who were of the children of Dan, stood by the entrance of the gate. 
 The five men who went to spy out the land went up, and came in there, and took the engraved image, the ephod, the teraphim, and the molten image; and the priest stood by the entrance of the gate with the six hundred men armed with weapons of war. 

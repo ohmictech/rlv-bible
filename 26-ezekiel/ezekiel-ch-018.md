@@ -27,6 +27,6 @@ When the righteous man turns away from his righteousness, and commits guilt, and
 Again, when the guilty man turns away from his guilt that he has committed, and does that which is lawful and right, he will save his soul alive. 
 Because he considers, and turns away from all his rebellion that he has committed, he shall surely live. He shall not die. 
 Yet the house of Israel says, 'The way of the Lord is not fair.' House of Israel, aren't my ways fair? Aren't your ways unfair? 
-"Therefore I will judge you, house of Israel, everyone according to his ways," says God. "Return, and turn yourselves from all your rebellion, so guilt will not be your ruin. 
+"So I will judge you, house of Israel, everyone according to his ways," says God. "Return, and turn yourselves from all your rebellion, so guilt will not be your ruin. 
 Cast away from you all your rebellion in which you have transgressed; and make yourself a new heart and a new spirit. For why will you die, house of Israel? 
 For I have no pleasure in the death of him who dies," says God. "Therefore turn yourselves, and live! 

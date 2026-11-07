@@ -1,5 +1,5 @@
 ﻿These were the divisions of the sons of Aaron. The sons of Aaron: Nadab, Abihu, Eleazar, and Ithamar. 
-But Nadab and Abihu died before their father, and had no children; therefore Eleazar and Ithamar served as priests. 
+But Nadab and Abihu died before their father, and had no children; Eleazar and Ithamar served as priests. 
 David, with Zadok of the sons of Eleazar and Ahimelech of the sons of Ithamar, divided them according to their ordering in their service. 
 There were more chief men found of the sons of Eleazar than of the sons of Ithamar; and they were divided like this: of the sons of Eleazar there were sixteen, heads of fathers' houses; and of the sons of Ithamar, according to their fathers' houses, eight. 
 Thus they were divided impartially by drawing lots; for there were princes of the sanctuary and princes of God, both of the sons of Eleazar, and of the sons of Ithamar. 

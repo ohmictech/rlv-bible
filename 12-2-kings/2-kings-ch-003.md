@@ -20,7 +20,7 @@ You shall strike every fortified city and every choice city, and shall fell ever
 In the morning, about the time of offering the sacrifice, behold, water came by the way of Edom, and the country was filled with water. 
 Now when all the Moabites heard that the kings had come up to fight against them, they gathered themselves together, everyone who was able to put on armor, young and old, and stood on the border. 
 They rose up early in the morning, and the sun shone on the water, and the Moabites saw the water opposite them as red as blood. 
-They said, "This is blood. The kings are surely destroyed, and they have struck each other. Now therefore, Moab, to the plunder!" 
+They said, "This is blood. The kings are surely destroyed, and they have struck each other. Now, Moab, to the plunder!" 
 When they came to the camp of Israel, the Israelites rose up and struck the Moabites, so that they fled before them; and they went forward into the land attacking the Moabites. 
 They beat down the cities; and on every good piece of land each man cast his stone, and filled it. They also stopped all the springs of water and cut down all the good trees, until in Kir Hareseth all they left was its stones; however the men armed with slings went around it and attacked it. 
 When the king of Moab saw that the battle was too severe for him, he took with him seven hundred men who drew a sword, to break through to the king of Edom; but they could not. 

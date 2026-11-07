@@ -2,7 +2,7 @@
 In the fifth year of King Rehoboam, Shishak king of Egypt came up against Jerusalem, because they had trespassed against God, 
 with twelve hundred chariots and sixty thousand horsemen. The people were without number who came with him out of Egypt: the Lubim, the Sukkiim, and the Ethiopians. 
 He took the fortified cities which belonged to Judah, and came to Jerusalem. 
-Now Shemaiah the spokesman came to Rehoboam and to the princes of Judah, who were gathered together to Jerusalem because of Shishak, and said to them, "God says, 'You have forsaken me, therefore I have also left you in the hand of Shishak.'" 
+Now Shemaiah the spokesman came to Rehoboam and to the princes of Judah, who were gathered together to Jerusalem because of Shishak, and said to them, "God says, 'You have forsaken me, I have also left you in the hand of Shishak.'" 
 Then the princes of Israel and the king humbled themselves; and they said, "God is righteous." 
 When God saw that they humbled themselves, God's word came to Shemaiah, saying, "They have humbled themselves. I will not destroy them, but I will grant them some deliverance, and my wrath won't be poured out on Jerusalem by the hand of Shishak. 
 Nevertheless they will be his servants, that they may know my service, and the service of the kingdoms of the countries." 

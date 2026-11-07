@@ -3,11 +3,11 @@ Then the wrath of Elihu the son of Barachel, the Buzite, of the family of Ram, w
 Also his wrath was kindled against his three friends, because they had found no answer, and yet had condemned Job. 
 Now Elihu had waited to speak to Job, because they were older than he. 
 When Elihu saw that there was no answer in the mouth of these three men, his wrath was kindled. 
-Elihu the son of Barachel the Buzite answered, "I am young, and you are very old. Therefore I held back, and didn't dare show you my opinion. 
+Elihu the son of Barachel the Buzite answered, "I am young, and you are very old. So I held back, and didn't dare show you my opinion. 
 I said, 'Days should speak, and multitude of years should teach wisdom.' 
 But there is a spirit in man, and the Spirit of the Almighty gives them understanding. 
 It is not the great who are wise, nor the aged who understand justice. 
-Therefore I said, 'Listen to me; I also will show my opinion.' 
+So I said, 'Listen to me; I also will show my opinion.' 
 "Behold, I waited for your words, and I listened for your reasoning, while you searched out what to say. 
 Yes, I gave you my full attention, but there was no one who convinced Job, or who answered his words, among you. 
 Beware lest you say, 'We have found wisdom. God may refute him, not man;' 

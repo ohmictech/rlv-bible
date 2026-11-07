@@ -13,8 +13,8 @@ He stood before God's altar in the presence of all the assembly of Israel, and s
 (for Solomon had made a bronze platform, five cubits long, five cubits wide, and three cubits high, and had set it in the middle of the court; and he stood on it, and knelt down on his knees before all the assembly of Israel, and spread out his hands toward the sky). 
 Then he said, "the God of Israel, there is no God like you in the sky or on earth, you who keep covenant and loving kindness with your servants who walk before you with all their heart; 
 who have kept with your servant David my father that which you promised him. Yes, you spoke with your mouth, and have fulfilled it with your hand, as it is today. 
-"Now therefore, the God of Israel, keep with your servant David my father that which you have promised him, saying, 'There shall not fail you a man in my sight to sit on the throne of Israel, if only your children take heed to their way, to walk in my law as you have walked before me.' 
-Now therefore, the God of Israel, let your word be verified, which you spoke to your servant David. 
+"Now, the God of Israel, keep with your servant David my father that which you have promised him, saying, 'There shall not fail you a man in my sight to sit on the throne of Israel, if only your children take heed to their way, to walk in my law as you have walked before me.' 
+Now, the God of Israel, let your word be verified, which you spoke to your servant David. 
 "But will God indeed dwell with men on the earth? Behold, the sky and the sky above the skies can't contain you; how much less this house which I have built! 
 Yet have respect for the prayer of your servant and to his supplication, God my God, to listen to the cry and to the prayer which your servant prays before you; 
 that your eyes may be open toward this house day and night, even toward the place where you have said that you would put your name, to listen to the prayer which your servant will pray toward this place. 
@@ -38,5 +38,5 @@ yet if they come to their senses in the land where they are carried captive, and
 if they return to you with all their heart and with all their soul in the land of their captivity, where they have been taken captive, and pray toward their land which you gave to their fathers, and the city which you have chosen, and toward the house which I have built for your name; 
 then hear from the sky, even from your dwelling place, their prayer and their petitions, and maintain their cause, and forgive your people who have wronged you. 
 "Now, my God, let, I beg you, your eyes be open, and let your ears be attentive to the prayer that is made in this place. 
-"Now therefore arise, God, into your resting place, you, and the ark of your strength. Let your priests, God, be clothed with salvation, and let your saints rejoice in goodness. 
+"Now arise, God, into your resting place, you, and the ark of your strength. Let your priests, God, be clothed with salvation, and let your saints rejoice in goodness. 
 "God, don't turn away the face of your anointed. Remember your loving kindnesses to David your servant." 

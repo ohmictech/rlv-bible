@@ -9,11 +9,11 @@ For he says, "Aren't all of my princes kings?
 Isn't Calno like Carchemish? Isn't Hamath like Arpad? Isn't Samaria like Damascus?" 
 As my hand has found the kingdoms of the idols, whose engraved images exceeded those of Jerusalem and of Samaria, 
 shall I not, as I have done to Samaria and her idols, so do to Jerusalem and her idols? 
-Therefore it will happen that when the Lord has performed his whole work on Mount Zion and on Jerusalem, I will punish the fruit of the willful proud heart of the king of Assyria, and the insolence of his arrogant looks. 
+So it will happen that when the Lord has performed his whole work on Mount Zion and on Jerusalem, I will punish the fruit of the willful proud heart of the king of Assyria, and the insolence of his arrogant looks. 
 For he has said, "By the strength of my hand I have done it, and by my wisdom, for I have understanding. I have removed the boundaries of the peoples, and have robbed their treasures. Like a valiant man I have brought down their rulers. 
 My hand has found the riches of the peoples like a nest, and like one gathers eggs that are abandoned, I have gathered all the earth. There was no one who moved their wing, or that opened their mouth, or chirped." 
 Should an ax brag against him who chops with it? Should a saw exalt itself above him who saws with it? As if a rod should lift those who lift it up, or as if a staff should lift up someone who is not wood. 
-Therefore the Lord, GOD of Armies, will send among his fat ones leanness; and under his glory a burning will be kindled like the burning of fire. 
+So the Lord, GOD of Armies, will send among his fat ones leanness; and under his glory a burning will be kindled like the burning of fire. 
 The light of Israel will be for a fire, and his Holy One for a flame; and it will burn and devour his thorns and his briers in one day. 
 He will consume the glory of his forest and of his fruitful field, both soul and body. It will be as when a standard bearer faints. 
 The remnant of the trees of his forest shall be few, so that a child could write their number. 
@@ -21,7 +21,7 @@ It will come to pass in that day that the remnant of Israel, and those who have 
 A remnant will return, even the remnant of Jacob, to the mighty God. 
 For though your people, Israel, are like the sand of the sea, only a remnant of them will return. A destruction is determined, overflowing with righteousness. 
 For the Lord, GOD of Armies, will make a full end, and that determined, throughout all the earth. 
-Therefore the Lord, GOD of Armies, says, "My people who dwell in Zion, don't be afraid of the Assyrian, though he strike you with the rod, and lift up his staff against you, as Egypt did. 
+So the Lord, GOD of Armies, says, "My people who dwell in Zion, don't be afraid of the Assyrian, though he strike you with the rod, and lift up his staff against you, as Egypt did. 
 For yet a very little while, and the indignation against you will be accomplished, and my anger will be directed to his destruction." 
 The God of Armies will stir up a scourge against him, as in the slaughter of Midian at the rock of Oreb. His rod will be over the sea, and he will lift it up like he did against Egypt. 
 It will happen in that day that his burden will depart from off your shoulder, and his yoke from off your neck, and the yoke shall be destroyed because of the anointing oil. 

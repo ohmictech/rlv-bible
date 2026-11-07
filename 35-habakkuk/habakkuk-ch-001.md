@@ -1,7 +1,7 @@
 ﻿The revelation which Habakkuk the spokesman saw. 
 God, how long will I cry, and you will not hear? I cry out to you "Violence!" and will you not save? 
 Why do you show me guilt, and look at perversity? For destruction and violence are before me. There is strife, and contention rises up. 
-Therefore the law is paralyzed, and justice never prevails; for the guilty surround the righteous; therefore justice comes out perverted. 
+So the law is paralyzed, and justice never prevails; for the guilty surround the righteous; justice comes out perverted. 
 "Look among the nations, watch, and wonder marvelously; for I am working a work in your days which you will not believe though it is told you. 
 For, behold, I am raising up the Chaldeans, that bitter and hasty nation who march through the width of the earth, to possess dwelling places that are not theirs. 
 They are feared and dreaded. Their judgment and their dignity proceed from themselves. 
@@ -12,6 +12,6 @@ Then they sweep by like the wind and go on. They are indeed guilty, whose streng
 Aren't you from perpetual, God my God, my Holy One? We will not die. God, you have appointed them for judgment. You, Rock, have established him to punish. 
 You who have purer eyes than to see bad, and who cannot look on perversity, why do you tolerate those who deal treacherously and keep silent when the guilty swallows up the man who is more righteous than he, 
 and make men like the fish of the sea, like the creeping things that have no ruler over them? 
-He takes up everyone with the hook. He catches them in his net and gathers them in his dragnet. Therefore he rejoices and is glad. 
-Therefore he sacrifices to his net and burns incense to his dragnet, because by them his life is luxurious and his food is good. 
-Will he therefore continually empty his net, and kill the nations without mercy? 
+He takes up everyone with the hook. He catches them in his net and gathers them in his dragnet. So he rejoices and is glad. 
+So he sacrifices to his net and burns incense to his dragnet, because by them his life is luxurious and his food is good. 
+Will he continually empty his net, and kill the nations without mercy? 

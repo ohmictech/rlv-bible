@@ -1,6 +1,6 @@
 ﻿Then Jerubbaal, who is Gideon, and everyone who was with him, rose up early and encamped beside the spring of Harod. Midian's camp was on the north side of them, by the hill of Moreh, in the valley. 
 God said to Gideon, "The people who are with you are too many for me to give the Midianites into their hand, lest Israel brag against me, saying, 'My own hand has saved me.' 
-Now therefore proclaim in the ears of the people, saying, 'Whoever is fearful and trembling, let him return and depart from Mount Gilead.'" So twenty-two thousand of the people returned, and ten thousand remained. 
+Now proclaim in the ears of the people, saying, 'Whoever is fearful and trembling, let him return and depart from Mount Gilead.'" So twenty-two thousand of the people returned, and ten thousand remained. 
 God said to Gideon, "There are still too many people. Bring them down to the water, and I will test them for you there. It shall be, that those whom I tell you, 'This shall go with you,' shall go with you; and whoever I tell you, 'This shall not go with you,' shall not go." 
 So he brought down the people to the water; and God said to Gideon, "Everyone who laps of the water with his tongue, like a dog laps, you shall set him by himself; likewise everyone who bows down on his knees to drink." 
 The number of those who lapped, putting their hand to their mouth, was three hundred men; but all the rest of the people bowed down on their knees to drink water. 

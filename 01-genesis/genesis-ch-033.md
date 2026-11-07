@@ -14,7 +14,7 @@ Jacob said to him, "My lord knows that the children are tender, and that the flo
 Please let my lord pass over before his servant, and I will lead on gently, according to the pace of the livestock that are before me and according to the pace of the children, until I come to my lord to Seir." 
 Esau said, "Let me now leave with you some of the people who are with me." He said, "Why? Let me find favor in the sight of my lord." 
 So Esau returned that day on his way to Seir. 
-Jacob traveled to Succoth, built himself a house, and made shelters for his livestock. Therefore the name of the place is called Succoth. 
+Jacob traveled to Succoth, built himself a house, and made shelters for his livestock. So the name of the place is called Succoth. 
 Jacob came in peace to the city of Shechem, which is in the land of Canaan, when he came from Paddan Aram; and encamped before the city. 
 He bought the parcel of ground where he had spread his tent, at the hand of the children of Hamor, Shechem's father, for one hundred pieces of money. 
 He erected an altar there, and called it El Elohe Israel. 

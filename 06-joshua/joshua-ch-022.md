@@ -1,7 +1,7 @@
 ﻿Then Joshua called the Reubenites, the Gadites, and the half-tribe of Manasseh, 
 and said to them, "You have kept all that Moses the servant of God commanded you, and have listened to my voice in all that I commanded you. 
 You have not left your brothers these many days to this day, but have performed the duty of the commandment of your God. 
-Now your God has given rest to your brothers, as he spoke to them. Therefore now return and go to your tents, to the land of your possession, which Moses the servant of God gave you beyond the Jordan. 
+Now your God has given rest to your brothers, as he spoke to them. So now return and go to your tents, to the land of your possession, which Moses the servant of God gave you beyond the Jordan. 
 Only take diligent heed to do the commandment and the law which Moses the servant of God commanded you, to love your God, to walk in all his ways, to keep his commandments, to hold fast to him, and to serve him with all your heart and with all your soul." 
 So Joshua blessed them, and sent them away; and they went to their tents. 
 Now to the one half-tribe of Manasseh Moses had given inheritance in Bashan; but Joshua gave to the other half among their brothers beyond the Jordan westward. Moreover when Joshua sent them away to their tents, he blessed them, 
@@ -23,7 +23,7 @@ Then the children of Reuben and the children of Gad and the half-tribe of Manass
 that we have built us an altar to turn away from following God; or if to offer burnt offering or meal offering, or if to offer sacrifices of offerings for wholeness, let God himself require it. 
 "If we have not out of concern done this, and for a reason, saying, 'In time to come your children might speak to our children, saying, "What have you to do with the God of Israel? 
 For God has made the Jordan a border between us and you, you children of Reuben and children of Gad. You have no portion in God."' So your children might make our children cease from fearing God. 
-"Therefore we said, 'Let's now prepare to build ourselves an altar, not for burnt offering, nor for sacrifice; 
+"So we said, 'Let's now prepare to build ourselves an altar, not for burnt offering, nor for sacrifice; 
 but it will be a witness between us and you, and between our generations after us, that we may perform the service of God before him with our burnt offerings, with our sacrifices, and with our offerings for wholeness;' that your children may not tell our children in time to come, 'You have no portion in God.' 
 "Therefore we said, 'It shall be, when they tell us or our generations this in time to come, that we shall say, "Behold the pattern of God's altar, which our fathers made, not for burnt offering, nor for sacrifice; but it is a witness between us and you."' 
 "Far be it from us that we should rebel against God, and turn away today from following God, to build an altar for burnt offering, for meal offering, or for sacrifice, besides our God's altar that is before his tabernacle!" 

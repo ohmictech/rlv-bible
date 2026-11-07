@@ -3,7 +3,7 @@ You shall not add to the word which I command you, neither shall you take away f
 Your eyes have seen what God did because of Baal Peor; for your God has destroyed all the men who followed Baal Peor from among you. 
 But you who were faithful to your God are all alive today. 
 Behold, I have taught you statutes and ordinances, even as my God commanded me, that you should do so in the middle of the land where you go in to possess it. 
-Keep therefore and do them; for this is your wisdom and your understanding in the sight of the peoples who shall hear all these statutes and say, "Surely this great nation is a wise and understanding people." 
+Keep and do them; for this is your wisdom and your understanding in the sight of the peoples who shall hear all these statutes and say, "Surely this great nation is a wise and understanding people." 
 For what great nation is there that has a god so near to them as our God is whenever we call on him? 
 What great nation is there that has statutes and ordinances so righteous as all this law which I set before you today? 
 Only be careful, and keep your soul diligently, lest you forget the things which your eyes saw, and lest they depart from your heart all the days of your life; but make them known to your children and your children's children 
@@ -34,9 +34,9 @@ Did a people ever hear the voice of God speaking out of the middle of the fire, 
 Or has God tried to go and take a nation for himself from among another nation, by trials, by signs, by wonders, by war, by a mighty hand, by an outstretched arm, and by great terrors, according to all that your God did for you in Egypt before your eyes? 
 It was shown to you so that you might know that he is God. There is no one else besides him. 
 Out of the sky he made you to hear his voice, that he might instruct you. On earth he made you to see his great fire; and you heard his words out of the middle of the fire. 
-Because he loved your fathers, therefore he chose their offspring after them, and brought you out with his presence, with his great power, out of Egypt; 
+Because he loved your fathers, he chose their offspring after them, and brought you out with his presence, with his great power, out of Egypt; 
 to drive out nations from before you greater and mightier than you, to bring you in, to give you their land for an inheritance, as it is today. 
-Know therefore today, and take it to heart, that God is the true God in the sky above and on the earth beneath. There is no one else. 
+Know today, and take it to heart, that God is the true God in the sky above and on the earth beneath. There is no one else. 
 You shall keep his statutes and his commandments which I command you today, that it may go well with you and with your children after you, and that you may prolong your days in the land which your God gives you for all time. 
 Then Moses set apart three cities beyond the Jordan toward the sunrise, 
 that the man slayer might flee there, who kills his neighbor unintentionally and didn't hate him in time past, and that fleeing to one of these cities he might live: 

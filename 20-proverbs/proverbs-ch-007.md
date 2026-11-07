@@ -12,7 +12,7 @@ She is loud and defiant. Her feet don't stay in her house.
 Now she is in the streets, now in the squares, and lurking at every corner. 
 So she caught him, and kissed him. With an impudent face she said to him: 
 "Sacrifices of offerings for wholeness are with me. Today I have paid my vows. 
-Therefore I came out to meet you, to diligently seek your face, and I have found you. 
+So I came out to meet you, to diligently seek your face, and I have found you. 
 I have spread my couch with carpets of tapestry, with striped cloths of the yarn of Egypt. 
 I have perfumed my bed with myrrh, aloes, and cinnamon. 
 Come, let's take our fill of loving until the morning. Let's solace ourselves with loving. 
@@ -21,7 +21,7 @@ He has taken a bag of money with him. He will come home at the full moon."
 With persuasive words, she led him astray. With the flattering of her lips, she seduced him. 
 He followed her immediately, as an ox goes to the slaughter, as a fool stepping into a noose. 
 Until an arrow strikes through his liver, as a bird hurries to the snare, and doesn't know that it will cost his life. 
-Now therefore, sons, listen to me. Pay attention to the words of my mouth. 
+Now, sons, listen to me. Pay attention to the words of my mouth. 
 Don't let your heart turn to her ways. Don't go astray in her paths, 
 for she has thrown down many wounded. Yes, all her slain are a mighty army. 
 Her house is the way to Hades, going down to the rooms of death. 

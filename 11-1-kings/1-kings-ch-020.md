@@ -6,7 +6,7 @@ The messengers came again and said, "Ben Hadad says, 'I sent indeed to you, sayi
 but I will send my servants to you tomorrow about this time, and they will search your house and the houses of your servants. Whatever is pleasant in your eyes, they will put it in their hand, and take it away."'" 
 Then the king of Israel called all the elders of the land, and said, "Please notice how this man seeks mischief; for he sent to me for my wives, and for my children, and for my silver, and for my gold; and I didn't deny him." 
 All the elders and everyone said to him, "Don't listen, and don't consent." 
-Therefore he said to the messengers of Ben Hadad, "Tell my lord the king, 'All that you sent for to your servant at the first I will do, but this thing I cannot do.'" The messengers departed and brought him back the message. 
+So he said to the messengers of Ben Hadad, "Tell my lord the king, 'All that you sent for to your servant at the first I will do, but this thing I cannot do.'" The messengers departed and brought him back the message. 
 Ben Hadad sent to him, and said, "The gods do so to me, and more also, if the dust of Samaria will be enough for handfuls for everyone who follow me." 
 The king of Israel answered, "Tell him, 'Don't let him who puts on his armor brag like he who takes it off.'" 
 When Ben Hadad heard this message as he was drinking, he and the kings in the pavilions, he said to his servants, "Prepare to attack!" So they prepared to attack the city. 
@@ -20,12 +20,12 @@ So these went out of the city, the young men of the princes of the provinces, an
 They each killed his man. The Syrians fled, and Israel pursued them. Ben Hadad the king of Syria escaped on a horse with horsemen. 
 The king of Israel went out and struck the horses and chariots, and killed the Syrians with a great slaughter. 
 The spokesman came near to the king of Israel and said to him, "Go, strengthen yourself, and plan what you must do, for at the return of the year, the king of Syria will come up against you." 
-The servants of the king of Syria said to him, "Their god is a god of the hills; therefore they were stronger than we. But let's fight against them in the plain, and surely we will be stronger than they. 
+The servants of the king of Syria said to him, "Their god is a god of the hills; they were stronger than we. But let's fight against them in the plain, and surely we will be stronger than they. 
 Do this thing: take the kings away, every man out of his place, and put captains in their place. 
 Muster an army like the army that you have lost, horse for horse and chariot for chariot. We will fight against them in the plain, and surely we will be stronger than they are." He listened to their voice and did so. 
 At the return of the year, Ben Hadad mustered the Syrians and went up to Aphek to fight against Israel. 
 The children of Israel were mustered and given provisions, and went against them. The children of Israel encamped before them like two little flocks of young goats, but the Syrians filled the country. 
-A man of God came near and spoke to the king of Israel, and said, "God says, 'Because the Syrians have said, "God is a god of the hills, but he is not a god of the valleys," therefore I will deliver all this great multitude into your hand, and you shall know that I am God.'" 
+A man of God came near and spoke to the king of Israel, and said, "God says, 'Because the Syrians have said, "God is a god of the hills, but he is not a god of the valleys," I will deliver all this great multitude into your hand, and you shall know that I am God.'" 
 They encamped opposite each other for seven days. Then on the seventh day the battle was joined; and the children of Israel killed one hundred thousand footmen of the Syrians in one day. 
 But the rest fled to Aphek, into the city; and the wall fell on twenty-seven thousand men who were left. Ben Hadad fled and came into the city, into an inner room. 
 His servants said to him, "See now, we have heard that the kings of the house of Israel are merciful kings. Please let us put sackcloth on our bodies and ropes on our heads, and go out to the king of Israel. Maybe he will save your life." 
@@ -39,5 +39,5 @@ So the spokesman departed and waited for the king by the way, and disguised hims
 As the king passed by, he cried to the king, and he said, "Your servant went out into the middle of the battle; and behold, a man came over and brought a man to me, and said, 'Guard this man! If by any means he is missing, then your life shall be for his life, or else you shall pay a talent of silver.' 
 As your servant was busy here and there, he was gone." The king of Israel said to him, "So shall your judgment be. You yourself have decided it." 
 He hurried, and took the headband away from his eyes; and the king of Israel recognized that he was one of the spokesmen. 
-He said to him, "God says, 'Because you have let go out of your hand the man whom I had devoted to destruction, therefore your life will take the place of his life, and your people take the place of his people.'" 
+He said to him, "God says, 'Because you have let go out of your hand the man whom I had devoted to destruction, your life will take the place of his life, and your people take the place of his people.'" 
 The king of Israel went to his house sullen and angry, and came to Samaria. 

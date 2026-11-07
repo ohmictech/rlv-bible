@@ -5,7 +5,7 @@ That same night, God's word came to Nathan, saying,
 "Go and tell my servant David, 'God says, "Should you build me a house for me to dwell in? 
 For I have not lived in a house since the day that I brought the children of Israel up out of Egypt, even to this day, but have moved around in a tent and in a tabernacle. 
 In all places in which I have walked with all the children of Israel, did I say a word to anyone from the tribes of Israel whom I commanded to be shepherd of my people Israel, saying, 'Why have you not built me a house of cedar?'"' 
-Now therefore tell my servant David this: 'The God of Armies says, "I took you from the sheep pen, from following the sheep, to be prince over my people, over Israel. 
+Now tell my servant David this: 'The God of Armies says, "I took you from the sheep pen, from following the sheep, to be prince over my people, over Israel. 
 I have been with you wherever you went, and have cut off all your enemies from before you. I will make you a great name, like the name of the great ones who are on the earth. 
 I will appoint a place for my people Israel, and will plant them, that they may dwell in their own place and be moved no more. The children of guilt will not afflict them any more, as at the first, 
 and as from the day that I commanded judges to be over my people Israel. I will cause you to rest from all your enemies. Moreover God tells you that God will make you a house. 
@@ -19,11 +19,11 @@ Then David the king went in and sat before God; and he said, "Who am I, God, and
 This was yet a small thing in your eyes, God, but you have spoken also of your servant's house for a great while to come; and this among men, God! 
 What more can David say to you? For you know your servant, God. 
 For your word's sake, and according to your own heart, you have worked all this greatness, to make your servant know it. 
-Therefore you are great, God. For there is no one like you, neither is there any God besides you, according to all that we have heard with our ears. 
+So you are great, God. For there is no one like you, neither is there any God besides you, according to all that we have heard with our ears. 
 What one nation on the earth is like your people, even like Israel, whom God went to buy back to himself for a people, and to make himself a name, and to do great things for you, and awesome things for your land, before your people, whom you bought back to yourself out of Egypt, from the nations and their gods? 
 You established for yourself your people Israel to be your people for the eras; and you, God, became their God. 
 "Now, God, the word that you have spoken concerning your servant, and concerning his house, confirm it for the eras, and do as you have spoken. 
 Let your name be magnified for the eras, saying, 'The God of Armies is God over Israel; and the house of your servant David will be established before you.' 
 For you, God of Armies, the God of Israel, have revealed to your servant, saying, 'I will build you a house.' Therefore your servant has found in his heart to pray this prayer to you. 
 "Now, O God, you are God, and your words are truth, and you have promised this good thing to your servant. 
-Now therefore, let it please you to bless the house of your servant, that it may continue for the eras before you; for you, God, have spoken it. Let the house of your servant be blessed for the eras with your blessing." 
+Now, let it please you to bless the house of your servant, that it may continue for the eras before you; for you, God, have spoken it. Let the house of your servant be blessed for the eras with your blessing." 

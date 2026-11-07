@@ -9,5 +9,5 @@ So two or three cities staggered to one city to drink water, and were not satisf
 "I struck you with blight and mildew many times in your gardens and your vineyards, and the swarming locusts have devoured your fig trees and your olive trees; yet you haven't returned to me," says God. 
 "I sent plagues among you like I did Egypt. I have slain your young men with the sword, and have carried away your horses. I filled your nostrils with the stench of your camp, yet you haven't returned to me," says God. 
 "I have overthrown some of you, as when God overthrew Sodom and Gomorrah, and you were like a burning stick plucked out of the fire; yet you haven't returned to me," says God. 
-"Therefore I will do this to you, Israel; because I will do this to you, prepare to meet your God, Israel. 
+"So I will do this to you, Israel; because I will do this to you, prepare to meet your God, Israel. 
 For, behold, he who forms the mountains, creates the wind, declares to man what is his thought, who makes the morning darkness, and treads on the high places of the earth: The God of Armies is his name." 

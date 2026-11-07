@@ -1,11 +1,11 @@
 ﻿Then Job answered God: 
 "I know that you can do all things, and that no purpose of yours can be restrained. 
-You asked, 'Who is this who hides counsel without knowledge?' therefore I have uttered that which I didn't understand, things too wonderful for me, which I didn't know. 
+You asked, 'Who is this who hides counsel without knowledge?' I have uttered that which I didn't understand, things too wonderful for me, which I didn't know. 
 You said, 'Listen, now, and I will speak; I will question you, and you will answer me.' 
 I had heard of you by the hearing of the ear, but now my eye sees you. 
-Therefore I abhor myself, and repent in dust and ashes." 
+So I abhor myself, and repent in dust and ashes." 
 It was so, that after God had spoken these words to Job, God said to Eliphaz the Temanite, "My wrath is kindled against you, and against your two friends; for you have not spoken of me the thing that is right, as my servant Job has. 
-Now therefore, take to yourselves seven bulls and seven rams, and go to my servant Job, and offer up for yourselves a burnt offering; and my servant Job shall pray for you, for I will accept him, that I not deal with you according to your folly. For you have not spoken of me the thing that is right, as my servant Job has." 
+Now, take to yourselves seven bulls and seven rams, and go to my servant Job, and offer up for yourselves a burnt offering; and my servant Job shall pray for you, for I will accept him, that I not deal with you according to your folly. For you have not spoken of me the thing that is right, as my servant Job has." 
 So Eliphaz the Temanite and Bildad the Shuhite and Zophar the Naamathite went and did what God commanded them, and God accepted Job. 
 God restored Job's prosperity when he prayed for his friends. God gave Job twice as much as he had before. 
 Then all his brothers, all his sisters, and everyone who had been of his acquaintance before, came to him and ate bread with him in his house. They comforted him, and consoled him concerning all the bad that God had brought on him. Everyone also gave him a piece of money, and everyone a ring of gold. 

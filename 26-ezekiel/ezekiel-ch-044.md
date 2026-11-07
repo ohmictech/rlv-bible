@@ -1,5 +1,5 @@
 ﻿Then he brought me back by the way of the outer gate of the sanctuary, which looks toward the east; and it was shut. 
-God said to me, "This gate shall be shut. It shall not be opened, no man shall enter in by it; for the God of Israel has entered in by it. Therefore it shall be shut. 
+God said to me, "This gate shall be shut. It shall not be opened, no man shall enter in by it; for the God of Israel has entered in by it. So it shall be shut. 
 As for the prince, he shall sit in it as prince to eat bread before God. He shall enter by the way of the porch of the gate, and shall go out the same way." 
 Then he brought me by the way of the north gate before the house; and I looked, and behold, God's glory filled God's house; so I fell on my face. 
 God said to me, "Son of man, mark well, and see with your eyes, and hear with your ears all that I tell you concerning all the ordinances of God's house and all its laws; and mark well the entrance of the house, with every exit of the sanctuary. 
@@ -9,7 +9,7 @@ You have not performed the duty of my holy things; but you have set performers o
 The God says, "No foreigner, uncircumcised in heart and uncircumcised in flesh, shall enter into my sanctuary, of any foreigners who are among the children of Israel. 
 "'"But the Levites who went far from me when Israel went astray, who went astray from me after their idols, they will bear their guilt. 
 Yet they shall be ministers in my sanctuary, having oversight at the gates of the house, and ministering in the house. They shall kill the burnt offering and the sacrifice for the people, and they shall stand before them to minister to them. 
-Because they ministered to them before their idols, and became a stumbling block of guilt to the house of Israel, therefore I have lifted up my hand against them," says God, "and they will bear their guilt. 
+Because they ministered to them before their idols, and became a stumbling block of guilt to the house of Israel, I have lifted up my hand against them," says God, "and they will bear their guilt. 
 They shall not come near to me, to execute the office of priest to me, nor to come near to any of my holy things, to the things that are most holy; but they will bear their shame and their abominations which they have committed. 
 Yet I will make them performers of the duty of the house, for all its service and for all that will be done therein. 
 "'"But the Levitical priests, the sons of Zadok, who performed the duty of my sanctuary when the children of Israel went astray from me, shall come near to me to minister to me. They shall stand before me to offer to me the fat and the blood," says God. 

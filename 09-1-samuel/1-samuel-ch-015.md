@@ -1,4 +1,4 @@
-﻿Samuel said to Saul, "God sent me to anoint you to be king over his people, over Israel. Now therefore listen to the voice of God's words. 
+﻿Samuel said to Saul, "God sent me to anoint you to be king over his people, over Israel. Now listen to the voice of God's words. 
 The God of Armies says, 'I remember what Amalek did to Israel, how he set himself against him on the way when he came up out of Egypt. 
 Now go and strike Amalek, and utterly destroy all that they have, and don't spare them; but kill both man and woman, infant and nursing baby, ox and sheep, camel and donkey.'" 
 Saul summoned the people, and counted them in Telaim, two hundred thousand footmen and ten thousand men of Judah. 
@@ -22,7 +22,7 @@ But the people took of the plunder, sheep and cattle, the best of the devoted th
 Samuel said, "Has God as great delight in burnt offerings and sacrifices, as in obeying God's voice? Behold, to obey is better than sacrifice, and to listen than the fat of rams. 
 For rebellion is as the wrongdoing of witchcraft, and stubbornness is as idolatry and teraphim. Because you have rejected God's word, he has also rejected you from being king." 
 Saul said to Samuel, "I have drifted; for I have transgressed the commandment of God and your words, because I feared the people and obeyed their voice. 
-Now therefore, please pardon my wrongdoing, and turn again with me, that I may worship God." 
+Now, please pardon my wrongdoing, and turn again with me, that I may worship God." 
 Samuel said to Saul, "I will not return with you; for you have rejected God's word, and God has rejected you from being king over Israel." 
 As Samuel turned around to go away, Saul grabbed the skirt of his robe, and it tore. 
 Samuel said to him, "God has torn the kingdom of Israel from you today, and has given it to a neighbor of yours who is better than you. 

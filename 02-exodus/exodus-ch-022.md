@@ -28,4 +28,4 @@ for that is his only covering, it is his garment for his skin. What would he sle
 "You shall not blaspheme God, nor curse a ruler of your people. 
 "You shall not delay to offer from your harvest and from the outflow of your presses. "You shall give the firstborn of your sons to me. 
 You shall do likewise with your cattle and with your sheep. It shall be with its mother seven days, then on the eighth day you shall give it to me. 
-"You shall be holy men to me, therefore you shall not eat any meat that is torn by animals in the field. You shall cast it to the dogs. 
+"You shall be holy men to me, you shall not eat any meat that is torn by animals in the field. You shall cast it to the dogs. 

@@ -3,7 +3,7 @@ Balak the son of Zippor saw all that Israel had done to the Amorites.
 Moab was very afraid of the people, because they were many. Moab was distressed because of the children of Israel. 
 Moab said to the elders of Midian, "Now this multitude will lick up all that is around us, as the ox licks up the grass of the field." Balak the son of Zippor was king of Moab at that time. 
 He sent messengers to Balaam the son of Beor, to Pethor, which is by the River, to the land of the children of his people, to call him, saying, "Behold, there is a people who came out of Egypt. Behold, they cover the surface of the earth, and they are staying opposite me. 
-Please come now therefore, and curse this people for me; for they are too mighty for me. Perhaps I shall prevail, that we may strike them, and that I may drive them out of the land; for I know that he whom you bless is blessed, and he whom you curse is cursed." 
+Please come now, and curse this people for me; for they are too mighty for me. Perhaps I shall prevail, that we may strike them, and that I may drive them out of the land; for I know that he whom you bless is blessed, and he whom you curse is cursed." 
 The elders of Moab and the elders of Midian departed with the rewards of divination in their hand. They came to Balaam, and spoke to him the words of Balak. 
 He said to them, "Lodge here this night, and I will bring you word again, as God shall speak to me." The princes of Moab stayed with Balaam. 
 God came to Balaam, and said, "Who are these men with you?" 
@@ -14,9 +14,9 @@ Balaam rose up in the morning, and said to the princes of Balak, "Go to your lan
 The princes of Moab rose up, and they went to Balak, and said, "Balaam refuses to come with us." 
 Balak again sent princes, more, and more honorable than they. 
 They came to Balaam, and said to him, "Balak the son of Zippor says, 'Please let nothing hinder you from coming to me, 
-for I will promote you to very great honor, and whatever you say to me I will do. Please come therefore, and curse this people for me.'" 
+for I will promote you to very great honor, and whatever you say to me I will do. Please come, and curse this people for me.'" 
 Balaam answered the servants of Balak, "If Balak would give me his house full of silver and gold, I can't go beyond the word of my God, to do less or more. 
-Now therefore please stay here tonight as well, that I may know what else God will speak to me." 
+Now please stay here tonight as well, that I may know what else God will speak to me." 
 God came to Balaam at night, and said to him, "If the men have come to call you, rise up, go with them; but only the word which I speak to you, that you shall do." 
 Balaam rose up in the morning, and saddled his donkey, and went with the princes of Moab. 
 God's anger burned because he went; and God's messenger placed himself in the way as an adversary against him. Now he was riding on his donkey, and his two servants were with him. 
@@ -31,7 +31,7 @@ The donkey said to Balaam, "Am I not your donkey, on which you have ridden all y
 Then God opened the eyes of Balaam, and he saw God's messenger standing in the way, with his sword drawn in his hand; and he bowed his head, and fell on his face. 
 God's messenger said to him, "Why have you struck your donkey these three times? Behold, I have come out as an adversary, because your way is perverse before me. 
 The donkey saw me, and turned away before me these three times. Unless she had turned away from me, surely now I would have killed you, and saved her alive." 
-Balaam said to God's messenger, "I have drifted; for I didn't know that you stood in the way against me. Now therefore, if it displeases you, I will go back again." 
+Balaam said to God's messenger, "I have drifted; for I didn't know that you stood in the way against me. Now, if it displeases you, I will go back again." 
 God's messenger said to Balaam, "Go with the men; but you shall only speak the word that I shall speak to you." So Balaam went with the princes of Balak. 
 When Balak heard that Balaam had come, he went out to meet him to the City of Moab, which is on the border of the Arnon, which is in the utmost part of the border. 
 Balak said to Balaam, "Didn't I earnestly send for you to summon you? Why didn't you come to me? Am I not able indeed to promote you to honor?" 

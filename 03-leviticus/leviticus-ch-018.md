@@ -2,7 +2,7 @@
 "Speak to the children of Israel, and say to them, 'I am your God. 
 You shall not do as they do in the land of Egypt, where you lived. You shall not do as they do in the land of Canaan, where I am bringing you. You shall not follow their statutes. 
 You shall do my ordinances. You shall keep my statutes and walk in them. I am your God. 
-You shall therefore keep my statutes and my ordinances, which if a man does, he shall live in them. I am God. 
+You shall keep my statutes and my ordinances, which if a man does, he shall live in them. I am God. 
 "'None of you shall approach any close relatives, to uncover their nakedness: I am God. 
 "'You shall not uncover the nakedness of your father, nor the nakedness of your mother: she is your mother. You shall not uncover her nakedness. 
 "'You shall not uncover the nakedness of your father's wife. It is your father's nakedness. 
@@ -22,9 +22,9 @@ You shall therefore keep my statutes and my ordinances, which if a man does, he 
 "'You shall not lie with a man as with a woman. That is detestable. 
 "'You shall not lie with any animal to defile yourself with it. No woman may give herself to an animal, to lie down with it: it is a perversion. 
 "'Don't defile yourselves in any of these things; for in all these the nations which I am casting out before you were defiled. 
-The land was defiled. Therefore I punished its guilt, and the land vomited out her inhabitants. 
-You therefore shall keep my statutes and my ordinances, and shall not do any of these abominations; neither the native-born, nor the stranger who lives as a foreigner among you 
+The land was defiled. So I punished its guilt, and the land vomited out her inhabitants. 
+You shall keep my statutes and my ordinances, and shall not do any of these abominations; neither the native-born, nor the stranger who lives as a foreigner among you 
 (for the men of the land that were before you had done all these abominations, and the land became defiled), 
 that the land not vomit you out also, when you defile it, as it vomited out the nation that was before you. 
 "'For whoever shall do any of these abominations, even the souls that do them shall be cut off from among their people. 
-Therefore you shall keep my requirements, that you do not practice any of these abominable customs which were practiced before you, and that you do not defile yourselves with them. I am your God.'" 
+So you shall keep my requirements, that you do not practice any of these abominable customs which were practiced before you, and that you do not defile yourselves with them. I am your God.'" 

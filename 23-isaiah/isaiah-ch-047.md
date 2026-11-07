@@ -5,7 +5,7 @@ the one who buys us back, the God of Armies is his name, is the Holy One of Isra
 "Sit in silence, and go into darkness, daughter of the Chaldeans. For you shall no longer be called the mistress of kingdoms. 
 I was angry with my people. I profaned my inheritance and gave them into your hand. You showed them no mercy. You laid a very heavy yoke on the aged. 
 You said, 'I will be a princess for the eras,' so that you didn't lay these things to your heart, nor did you remember the results. 
-"Now therefore hear this, you who are given to pleasures, who sit securely, who say in your heart, 'I am, and there is no one else besides me. I won't sit as a widow, neither will I know the loss of children.' 
+"Now hear this, you who are given to pleasures, who sit securely, who say in your heart, 'I am, and there is no one else besides me. I won't sit as a widow, neither will I know the loss of children.' 
 But these two things will come to you in a moment in one day: the loss of children and widowhood. They will come on you in their full measure, in the multitude of your sorceries, and the great abundance of your enchantments. 
 For you have trusted in your guilt. You have said, 'No one sees me.' Your wisdom and your knowledge has perverted you. You have said in your heart, 'I am, and there is no one else besides me.' 
 Therefore disaster will come on you. You won't know when it dawns. Mischief will fall on you. You won't be able to put it away. Desolation will come on you suddenly, which you don't understand. 

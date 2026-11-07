@@ -11,13 +11,13 @@ then come and stand before me in this house, which is called by my name, and say
 Has this house, which is called by my name, become a den of robbers in your eyes? Behold, I myself have seen it," says God. 
 "But go now to my place which was in Shiloh, where I caused my name to dwell at the first, and see what I did to it for the guilt of my people Israel. 
 Now, because you have done all these works," says God, "and I spoke to you, rising up early and speaking, but you didn't hear; and I called you, but you didn't answer; 
-therefore I will do to the house which is called by my name, in which you trust, and to the place which I gave to you and to your fathers, as I did to Shiloh. 
+So I will do to the house which is called by my name, in which you trust, and to the place which I gave to you and to your fathers, as I did to Shiloh. 
 I will cast you out of my sight, as I have cast out all your brothers, even the whole offspring of Ephraim. 
-"Therefore don't pray for this people. Don't lift up a cry or prayer for them or make intercession to me; for I will not hear you. 
+"So don't pray for this people. Don't lift up a cry or prayer for them or make intercession to me; for I will not hear you. 
 Don't you see what they do in the cities of Judah and in the streets of Jerusalem? 
 The children gather wood, and the fathers kindle the fire, and the women knead the dough, to make cakes to the queen of the sky, and to pour out drink offerings to other gods, that they may provoke me to anger. 
 Do they provoke me to anger?" says God. "Don't they provoke themselves, to the confusion of their own faces?" 
-Therefore God says: "Behold, my anger and my wrath will be poured out on this place, on man, on animal, on the trees of the field, and on the fruit of the ground; and it will burn and will not be quenched." 
+So God says: "Behold, my anger and my wrath will be poured out on this place, on man, on animal, on the trees of the field, and on the fruit of the ground; and it will burn and will not be quenched." 
 The God of Armies, the God of Israel says: "Add your burnt offerings to your sacrifices and eat meat. 
 For I didn't speak to your fathers or command them in the day that I brought them out of the land of Egypt concerning burnt offerings or sacrifices; 
 but this thing I commanded them, saying, 'Listen to my voice, and I will be your God, and you shall be my people. Walk in all the way that I command you, that it may be well with you.' 
@@ -29,6 +29,6 @@ You shall tell them, 'This is the nation that has not listened to their God's vo
 Cut off your hair, and throw it away, and take up a lamentation on the bare heights; for God has rejected and forsaken the generation of his wrath. 
 "For the children of Judah have done that which is bad in my sight," says God. "They have set their abominations in the house which is called by my name, to defile it. 
 They have built the high places of Topheth, which is in the valley of the son of Hinnom, to burn their sons and their daughters in the fire, which I didn't command, nor did it come into my mind. 
-Therefore behold, the days come", says God, "that it will no more be called 'Topheth' or 'The valley of the son of Hinnom', but 'The valley of Slaughter'; for they will bury in Topheth until there is no place to bury. 
+So behold, the days come", says God, "that it will no more be called 'Topheth' or 'The valley of the son of Hinnom', but 'The valley of Slaughter'; for they will bury in Topheth until there is no place to bury. 
 The dead bodies of this people will be food for the birds of the sky, and for the animals of the earth. No one will frighten them away. 
 Then I will cause to cease from the cities of Judah and from the streets of Jerusalem the voice of mirth and the voice of gladness, the voice of the bridegroom and the voice of the bride; for the land will become a waste." 

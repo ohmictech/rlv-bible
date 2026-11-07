@@ -1,5 +1,5 @@
 ﻿For the Chief Musician. By the sons of Korah. According to Alamoth. God is our refuge and strength, a very present help in trouble. 
-Therefore we won't be afraid, though the earth changes, though the mountains are shaken into the heart of the seas; 
+So we won't be afraid, though the earth changes, though the mountains are shaken into the heart of the seas; 
 though its waters roar and are troubled, though the mountains tremble with their swelling. Selah. 
 There is a river, the streams of which make the city of God glad, the holy place of the tents of the Most High. 
 God is within her. She shall not be moved. God will help her at dawn. 

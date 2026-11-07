@@ -24,30 +24,30 @@ In all your abominations and your prostitution you have not remembered the days 
 "that you have built for yourselves a vaulted place, and have made yourselves a lofty place in every street. 
 You have built your lofty place at the head of every way, and have made your beauty an abomination, and have opened your feet to everyone who passed by, and multiplied your prostitution. 
 You have also committed sexual immorality with the Egyptians, your neighbors, great of flesh; and have multiplied your prostitution, to provoke me to anger. 
-See therefore, I have stretched out my hand over you, and have diminished your portion, and delivered you to the will of those who hate you, the daughters of the Philistines, who are ashamed of your lewd way. 
+See, I have stretched out my hand over you, and have diminished your portion, and delivered you to the will of those who hate you, the daughters of the Philistines, who are ashamed of your lewd way. 
 You have played the prostitute also with the Assyrians, because you were insatiable; yes, you have played the prostitute with them, and yet you weren't satisfied. 
 You have moreover multiplied your prostitution to the land of merchants, to Chaldea; and yet you weren't satisfied with this. 
 "'"How weak is your heart," says God, "since you do all these things, the work of an impudent prostitute; 
 in that you build your vaulted place at the head of every way, and make your lofty place in every street, and have not been as a prostitute, in that you scorn pay. 
 "'"Adulterous wife, who takes strangers instead of her husband! 
 People give gifts to all prostitutes; but you give your gifts to all your lovers, and bribe them, that they may come to you on every side for your prostitution. 
-You are different from other women in your prostitution, in that no one follows you to play the prostitute; and whereas you give hire, and no hire is given to you, therefore you are different."' 
+You are different from other women in your prostitution, in that no one follows you to play the prostitute; and whereas you give hire, and no hire is given to you, you are different."' 
 "Therefore, prostitute, hear God's word: 
 'The God says, "Because your filthiness was poured out, and your nakedness uncovered through your prostitution with your lovers; and because of all the idols of your abominations, and for the blood of your children, that you gave to them; 
-therefore see, I will gather all your lovers, with whom you have taken pleasure, and all those whom you have loved, with all those whom you have hated. I will even gather them against you on every side, and will uncover your nakedness to them, that they may see all your nakedness. 
+So see, I will gather all your lovers, with whom you have taken pleasure, and all those whom you have loved, with all those whom you have hated. I will even gather them against you on every side, and will uncover your nakedness to them, that they may see all your nakedness. 
 I will judge you as women who break wedlock and shed blood are judged; and I will bring on you the blood of wrath and jealousy. 
 I will also give you into their hand, and they will throw down your vaulted place, and break down your lofty places. They will strip you of your clothes and take your beautiful jewels. They will leave you naked and bare. 
 They will also bring up a company against you, and they will stone you with stones, and thrust you through with their swords. 
 They will burn your houses with fire, and execute judgments on you in the sight of many women. I will cause you to cease from playing the prostitute, and you will also give no hire any more. 
 So I will cause my wrath toward you to rest, and my jealousy will depart from you. I will be quiet, and will not be angry any more. 
-"'"Because you have not remembered the days of your youth, but have raged against me in all these things; therefore, behold, I also will bring your way on your head," says God: "and you shall not commit this lewdness with all your abominations. 
+"'"Because you have not remembered the days of your youth, but have raged against me in all these things;, behold, I also will bring your way on your head," says God: "and you shall not commit this lewdness with all your abominations. 
 "'"Behold, everyone who uses proverbs will use this proverb against you, saying, 'As is the mother, so is her daughter.' 
 You are the daughter of your mother, who loathes her husband and her children; and you are the sister of your sisters, who loathed their husbands and their children. Your mother was a Hittite, and your father an Amorite. 
 Your elder sister is Samaria, who dwells at your left hand, she and her daughters; and your younger sister, who dwells at your right hand, is Sodom with her daughters. 
 Yet you have not walked in their ways, nor done their abominations; but soon you were more corrupt than they in all your ways. 
 As I live," says God, "Sodom your sister has not done, she nor her daughters, as you have done, you and your daughters. 
 "'"Behold, this was the guilt of your sister Sodom: pride, fullness of bread, and prosperous ease was in her and in her daughters. She also didn't strengthen the hand of the poor and needy. 
-They were arrogant and committed abomination before me. Therefore I took them away when I saw it. 
+They were arrogant and committed abomination before me. So I took them away when I saw it. 
 Samaria hasn't committed half of your mistakes; but you have multiplied your abominations more than they, and have justified your sisters by all your abominations which you have done. 
 You also bear your own shame yourself, in that you have given judgment for your sisters; through your mistakes that you have committed more abominable than they, they are more righteous than you. Yes, be also confounded, and bear your shame, in that you have justified your sisters. 
 "'"I will reverse their captivity, the captivity of Sodom and her daughters, and the captivity of Samaria and her daughters, and the captivity of your captives among them; 

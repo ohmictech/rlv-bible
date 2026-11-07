@@ -30,6 +30,6 @@ that you will do us no harm, as we have not touched you, and as we have done to 
 He made them a feast, and they ate and drank. 
 They rose up some time in the morning, and swore an oath to one another. Isaac sent them away, and they departed from him in peace. 
 The same day, Isaac's servants came, and told him concerning the well which they had dug, and said to him, "We have found water." 
-He called it "Shibah". Therefore the name of the city is "Beersheba" to this day. 
+He called it "Shibah". So the name of the city is "Beersheba" to this day. 
 When Esau was forty years old, he took as wife Judith, the daughter of Beeri the Hittite, and Basemath, the daughter of Elon the Hittite. 
 They grieved Isaac's and Rebekah's spirits. 

@@ -45,7 +45,7 @@ He will lend to you, and you won't lend to him. He will be the head, and you wil
 All these curses will come on you, and will pursue you and overtake you, until you are destroyed, because you didn't listen to your God's voice, to keep his commandments and his statutes which he commanded you. 
 They will be for a sign and for a wonder to you and to your offspring for the eras. 
 Because you didn't serve your God with joyfulness and with gladness of heart, by reason of the abundance of all things; 
-therefore you will serve your enemies whom God sends against you, in hunger, in thirst, in nakedness, and in lack of all things. He will put an iron yoke on your neck until he has destroyed you. 
+So you will serve your enemies whom God sends against you, in hunger, in thirst, in nakedness, and in lack of all things. He will put an iron yoke on your neck until he has destroyed you. 
 God will bring a nation against you from far away, from the end of the earth, as the eagle flies: a nation whose language you will not understand, 
 a nation of fierce facial expressions, that doesn't respect the elderly, nor show favor to the young. 
 They will eat the fruit of your livestock and the fruit of your ground, until you are destroyed. They also won't leave you grain, new wine, oil, the increase of your livestock, or the young of your flock, until they have caused you to perish. 

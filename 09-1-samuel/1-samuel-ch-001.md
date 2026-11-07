@@ -4,13 +4,13 @@ This man went up out of his city from year to year to worship and to sacrifice t
 When the day came that Elkanah sacrificed, he gave portions to Peninnah his wife and to all her sons and her daughters; 
 but he gave a double portion to Hannah, for he loved Hannah, but God had shut up her womb. 
 Her rival provoked her severely, to irritate her, because God had shut up her womb. 
-So year by year, when she went up to God's house, her rival provoked her. Therefore she wept, and didn't eat. 
+So year by year, when she went up to God's house, her rival provoked her. So she wept, and didn't eat. 
 Elkanah her husband said to her, "Hannah, why do you weep? Why don't you eat? Why is your heart grieved? Am I not better to you than ten sons?" 
 So Hannah rose up after they had finished eating and drinking in Shiloh. Now Eli the priest was sitting on his seat by the doorpost of God's temple. 
 She was in bitterness of soul, and prayed to God, weeping bitterly. 
 She vowed a vow, and said, "God of Armies, if you will indeed look at the affliction of your servant and remember me, and not forget your servant, but will give to your servant a boy, then I will give him to God all the days of his life, and no razor shall come on his head." 
 As she continued praying before God, Eli saw her mouth. 
-Now Hannah spoke in her heart. Only her lips moved, but her voice was not heard. Therefore Eli thought she was drunk. 
+Now Hannah spoke in her heart. Only her lips moved, but her voice was not heard. So Eli thought she was drunk. 
 Eli said to her, "How long will you be drunk? Get rid of your wine!" 
 Hannah answered, "No, my lord, I am a woman of a sorrowful spirit. I have not been drinking wine or strong drink, but I poured out my soul before God. 
 Don't consider your servant a guilty woman; for I have been speaking out of the abundance of my complaint and my provocation." 
@@ -25,4 +25,4 @@ When she had weaned him, she took him up with her, with three bulls, and one eph
 They killed the bull, and brought the child to Eli. 
 She said, "Oh, my lord, as your soul lives, my lord, I am the woman who stood by you here, praying to God. 
 I prayed for this child, and God has given me my petition which I asked of him. 
-Therefore I have also given him to God. As long as he lives he is given to God." He worshiped God there. 
+So I have also given him to God. As long as he lives he is given to God." He worshiped God there. 

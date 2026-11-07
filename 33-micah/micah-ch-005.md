@@ -1,6 +1,6 @@
 ﻿Now you shall gather yourself in troops, daughter of troops. He has laid siege against us. They will strike the judge of Israel with a rod on the cheek. 
 But you, Bethlehem Ephrathah, being small among the clans of Judah, out of you one will come out to me who is to be ruler in Israel; whose goings out are from of old, from ancient times. 
-Therefore he will abandon them until the time that she who is in labor gives birth. Then the rest of his brothers will return to the children of Israel. 
+So he will abandon them until the time that she who is in labor gives birth. Then the rest of his brothers will return to the children of Israel. 
 He shall stand, and shall shepherd in the strength of God, in the majesty of the name of his God. They will live, for then he will be great to the ends of the earth. 
 He will be our peace when Assyria invades our land and when he marches through our fortresses, then we will raise against him seven shepherds, and eight leaders of men. 
 They will rule the land of Assyria with the sword, and the land of Nimrod in its gates. He will deliver us from the Assyrian, when he invades our land, and when he marches within our border. 

@@ -16,7 +16,7 @@ God appeared in the Tent in a pillar of cloud, and the pillar of cloud stood ove
 God said to Moses, "Behold, you shall sleep with your fathers. This people will rise up and play the prostitute after the strange gods of the land where they go to be among them, and will forsake me and break my covenant which I have made with them. 
 Then my anger shall be kindled against them in that day, and I will forsake them, and I will hide my face from them, and they shall be devoured, and many bad things and troubles shall come on them; so that they will say in that day, 'Haven't these bad things come on us because our God is not among us?' 
 I will surely hide my face in that day for all the bad which they have done, in that they have turned to other gods. 
-"Now therefore write this song for yourselves, and teach it to the children of Israel. Put it in their mouths, that this song may be a witness for me against the children of Israel. 
+"Now write this song for yourselves, and teach it to the children of Israel. Put it in their mouths, that this song may be a witness for me against the children of Israel. 
 For when I have brought them into the land which I swore to their fathers, flowing with milk and honey, and they have eaten and filled themselves, and grown fat, then they will turn to other gods, and serve them, and despise me, and break my covenant. 
 It will happen, when many bad things and troubles have come on them, that this song will testify before them as a witness; for it will not be forgotten out of the mouths of their descendants; for I know their ways and what they are doing today, before I have brought them into the land which I promised them." 
 So Moses wrote this song the same day, and taught it to the children of Israel. 

@@ -4,7 +4,7 @@ Let the house of Aaron now say that his loving kindness endures for the eras.
 Now let those who fear God say that his loving kindness endures for the eras. 
 Out of my distress, I called on God. God answered me with freedom. 
 God is on my side. I will not be afraid. What can man do to me? 
-God is on my side among those who help me. Therefore I will look in triumph at those who hate me. 
+God is on my side among those who help me. So I will look in triumph at those who hate me. 
 It is better to take refuge in God, than to put confidence in man. 
 It is better to take refuge in God, than to put confidence in princes. 
 All the nations surrounded me, but in God's name I cut them off. 

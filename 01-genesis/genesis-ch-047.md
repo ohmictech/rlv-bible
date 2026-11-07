@@ -1,7 +1,7 @@
 ﻿Then Joseph went in and told Pharaoh, and said, "My father and my brothers, with their flocks, their herds, and all that they own, have come out of the land of Canaan; and behold, they are in the land of Goshen." 
 From among his brothers he took five men, and presented them to Pharaoh. 
 Pharaoh said to his brothers, "What is your occupation?" They said to Pharaoh, "Your servants are shepherds, both we, and our fathers." 
-They also said to Pharaoh, "We have come to live as foreigners in the land, for there is no pasture for your servants' flocks. For the famine is severe in the land of Canaan. Now therefore, please let your servants dwell in the land of Goshen." 
+They also said to Pharaoh, "We have come to live as foreigners in the land, for there is no pasture for your servants' flocks. For the famine is severe in the land of Canaan. Now, please let your servants dwell in the land of Goshen." 
 Pharaoh spoke to Joseph, saying, "Your father and your brothers have come to you. 
 The land of Egypt is before you. Make your father and your brothers dwell in the best of the land. Let them dwell in the land of Goshen. If you know any able men among them, then put them in charge of my livestock." 
 Joseph brought in Jacob, his father, and set him before Pharaoh; and Jacob blessed Pharaoh. 

@@ -12,7 +12,7 @@ Jacob kissed Rachel, and lifted up his voice, and wept.
 Jacob told Rachel that he was her father's relative, and that he was Rebekah's son. She ran and told her father. 
 When Laban heard the news of Jacob, his sister's son, he ran to meet Jacob, and embraced him, and kissed him, and brought him to his house. Jacob told Laban all these things. 
 Laban said to him, "Surely you are my bone and my flesh." Jacob stayed with him for a month. 
-Laban said to Jacob, "Because you are my relative, should you therefore serve me for nothing? Tell me, what will your wages be?" 
+Laban said to Jacob, "Because you are my relative, should you serve me for nothing? Tell me, what will your wages be?" 
 Laban had two daughters. The name of the elder was Leah, and the name of the younger was Rachel. 
 Leah's eyes were weak, but Rachel was beautiful in form and attractive. 
 Jacob loved Rachel. He said, "I will serve you seven years for Rachel, your younger daughter." 
@@ -30,6 +30,6 @@ Laban gave Bilhah, his servant, to his daughter Rachel to be her servant.
 He went in also to Rachel, and he loved also Rachel more than Leah, and served with him seven more years. 
 God saw that Leah was hated, and he opened her womb, but Rachel was barren. 
 Leah conceived, and bore a son, and she named him Reuben. For she said, "Because God has looked at my affliction; for now my husband will love me." 
-She conceived again, and bore a son, and said, "Because God has heard that I am hated, he has therefore given me this son also." She named him Simeon. 
+She conceived again, and bore a son, and said, "Because God has heard that I am hated, he has given me this son also." She named him Simeon. 
 She conceived again, and bore a son. She said, "Now this time my husband will be joined to me, because I have borne him three sons." Therefore his name was called Levi. 
 She conceived again, and bore a son. She said, "This time I will praise God." Therefore she named him Judah. Then she stopped bearing. 

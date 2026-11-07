@@ -29,7 +29,7 @@ When the men of the city arose early in the morning, behold, the altar of Baal w
 They said to one another, "Who has done this thing?" When they inquired and asked, they said, "Gideon the son of Joash has done this thing." 
 Then the men of the city said to Joash, "Bring out your son, that he may die, because he has broken down the altar of Baal, and because he has cut down the Asherah that was by it." 
 Joash said to everyone who stood against him, "Will you contend for Baal? Or will you save him? He who will contend for him, let him be put to death by morning! If he is a god, let him contend for himself, because someone has broken down his altar!" 
-Therefore on that day he named him Jerub-Baal, saying, "Let Baal contend against him, because he has broken down his altar." 
+So on that day he named him Jerub-Baal, saying, "Let Baal contend against him, because he has broken down his altar." 
 Then all the Midianites and the Amalekites and the children of the east assembled themselves together; and they passed over, and encamped in the valley of Jezreel. 
 But God's Spirit came on Gideon, and he blew a trumpet; and Abiezer was gathered together to follow him. 
 He sent messengers throughout all Manasseh, and they also were gathered together to follow him. He sent messengers to Asher, to Zebulun, and to Naphtali; and they came up to meet them. 

@@ -7,9 +7,9 @@ I listened and heard, but they didn't say what is right. No one repents of his g
 Yes, the stork in the sky knows her appointed times. The turtledove, the swallow, and the crane observe the time of their coming; but my people don't know God's law. 
 "'How do you say, "We are wise, and God's law is with us"? But, behold, the false pen of the Bible teachers has made that a lie. 
 The wise men are disappointed. They are dismayed and trapped. Behold, they have rejected God's word. What kind of wisdom is in them? 
-Therefore I will give their wives to others and their fields to those who will possess them. For everyone from the least even to the greatest is given to covetousness; from the spokesman even to the priest everyone deals falsely. 
+So I will give their wives to others and their fields to those who will possess them. For everyone from the least even to the greatest is given to covetousness; from the spokesman even to the priest everyone deals falsely. 
 They have healed the hurt of the daughter of my people slightly, saying, "Peace, peace," when there is no peace. 
-Were they ashamed when they had committed abomination? No, they were not at all ashamed. They couldn't blush. Therefore they will fall among those who fall. In the time of their visitation they will be cast down, says God. 
+Were they ashamed when they had committed abomination? No, they were not at all ashamed. They couldn't blush. So they will fall among those who fall. In the time of their visitation they will be cast down, says God. 
 "'I will utterly consume them, says God. No grapes will be on the vine, no figs on the fig tree, and the leaf will fade. The things that I have given them will pass away from them.'" 
 "Why do we sit still? Assemble yourselves! Let's enter into the fortified cities, and let's be silent there; for our God has put us to silence, and given us poisoned water to drink, because we have wronged God. 
 We looked for peace, but no good came; and for a time of healing, and behold, dismay! 

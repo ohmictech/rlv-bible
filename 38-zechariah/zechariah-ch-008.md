@@ -16,7 +16,7 @@ so again I have thought in these days to do good to Jerusalem and to the house o
 These are the things that you shall do: speak every man the truth with his neighbor. Execute the judgment of truth and peace in your gates, 
 and let none of you devise bad in your hearts against his neighbor, and love no false oath; for all these are things that I hate," says God. 
 The word of the God of Armies came to me. 
-The God of Armies says: "The fasts of the fourth, fifth, seventh, and tenth months shall be for the house of Judah joy, gladness, and cheerful feasts. Therefore love truth and peace." 
+The God of Armies says: "The fasts of the fourth, fifth, seventh, and tenth months shall be for the house of Judah joy, gladness, and cheerful feasts. So love truth and peace." 
 The God of Armies says: "Many peoples and the inhabitants of many cities will yet come. 
 The inhabitants of one will go to another, saying, 'Let's go speedily to entreat the favor of God, and to seek the God of Armies. I will go also.' 
 Yes, many peoples and strong nations will come to seek the God of Armies in Jerusalem and to entreat the favor of God." 

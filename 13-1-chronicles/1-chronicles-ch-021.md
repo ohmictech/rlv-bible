@@ -1,15 +1,15 @@
 ﻿Satan stood up against Israel, and moved David to take a census of Israel. 
 David said to Joab and to the princes of the people, "Go, count Israel from Beersheba even to Dan; and bring me word, that I may know how many there are." 
 Joab said, "May God make his people a hundred times as many as they are. But, my lord the king, aren't they all my lord's servants? Why does my lord require this thing? Why will he be a cause of guilt to Israel?" 
-Nevertheless the king's word prevailed against Joab. Therefore Joab departed and went throughout all Israel, then came to Jerusalem. 
+Nevertheless the king's word prevailed against Joab. So Joab departed and went throughout all Israel, then came to Jerusalem. 
 Joab gave the sum of the census of the people to David. All those of Israel were one million one hundred thousand men who drew a sword; and in Judah were four hundred seventy thousand men who drew a sword. 
 But he didn't count Levi and Benjamin among them, for the king's word was abominable to Joab. 
-God was displeased with this thing; therefore he struck Israel. 
+God was displeased with this thing; he struck Israel. 
 David said to God, "I have drifted greatly, in that I have done this thing. But now put away, I beg you, the guilt of your servant, for I have done very foolishly." 
 God spoke to Gad, David's seer, saying, 
 "Go and speak to David, saying, 'God says, "I offer you three things. Choose one of them, that I may do it to you."'" 
 So Gad came to David and said to him, "God says, 'Take your choice: 
-either three years of famine; or three months to be consumed before your foes, while the sword of your enemies overtakes you; or else three days of the sword of God, even pestilence in the land, and God's messenger destroying throughout all the borders of Israel. Now therefore consider what answer I shall return to him who sent me.'" 
+either three years of famine; or three months to be consumed before your foes, while the sword of your enemies overtakes you; or else three days of the sword of God, even pestilence in the land, and God's messenger destroying throughout all the borders of Israel. Now consider what answer I shall return to him who sent me.'" 
 David said to Gad, "I am in distress. Let me fall, I pray, into God's hand, for his mercies are very great. Don't let me fall into man's hand." 
 So God sent a pestilence on Israel, and seventy thousand men of Israel fell. 
 God sent an messenger to Jerusalem to destroy it. As he was about to destroy, God saw, and he relented of the disaster, and said to the destroying messenger, "It is enough. Now withdraw your hand." God's messenger was standing by the threshing floor of Ornan the Jebusite. 

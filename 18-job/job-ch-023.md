@@ -12,6 +12,6 @@ My foot has held fast to his steps. I have kept his way, and not turned away.
 I haven't gone back from the commandment of his lips. I have treasured up the words of his mouth more than my necessary food. 
 But he stands alone, and who can oppose him? What his soul desires, even that he does. 
 For he performs that which is appointed for me. Many such things are with him. 
-Therefore I am terrified at his presence. When I consider, I am afraid of him. 
+So I am terrified at his presence. When I consider, I am afraid of him. 
 For God has made my heart faint. The Almighty has terrified me. 
 Because I was not cut off before the darkness, neither did he cover the thick darkness from my face. 

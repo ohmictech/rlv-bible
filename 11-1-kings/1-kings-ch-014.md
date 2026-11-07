@@ -7,9 +7,9 @@ So when Ahijah heard the sound of her feet as she came in at the door, he said, 
 Go, tell Jeroboam, 'The God of Israel says: "Because I exalted you from among the people, and made you prince over my people Israel, 
 and tore the kingdom away from David's house, and gave it to you; and yet you have not been as my servant David, who kept my commandments, and who followed me with all his heart, to do that only which was right in my eyes, 
 but have done bad above everyone who was before you, and have gone and made for yourself other gods, molten images, to provoke me to anger, and have cast me behind your back, 
-therefore, behold, I will bring bad on the house of Jeroboam, and will cut off from Jeroboam everyone who urinates on a wall, he who is shut up and he who is left at large in Israel, and will utterly sweep away the house of Jeroboam, as a man sweeps away dung until it is all gone. 
+So, behold, I will bring bad on the house of Jeroboam, and will cut off from Jeroboam everyone who urinates on a wall, he who is shut up and he who is left at large in Israel, and will utterly sweep away the house of Jeroboam, as a man sweeps away dung until it is all gone. 
 The dogs will eat whoever belongs to Jeroboam who dies in the city; and the birds of the sky will eat whoever dies in the field, for God has spoken it."' 
-Arise therefore, and go to your house. When your feet enter into the city, the child will die. 
+Arise, and go to your house. When your feet enter into the city, the child will die. 
 All Israel will mourn for him and bury him; for he only of Jeroboam will come to the grave, because in him there is found some good thing toward the God of Israel, in the house of Jeroboam. 
 Moreover God will raise up a king for himself over Israel who will cut off the house of Jeroboam. This is the day! What? Even now. 
 For God will strike Israel, as a reed is shaken in the water; and he will root up Israel out of this good land which he gave to their fathers, and will scatter them beyond the River, because they have made their Asherah poles, provoking God to anger. 

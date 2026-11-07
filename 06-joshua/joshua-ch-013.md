@@ -4,7 +4,7 @@ from the Shihor, which is before Egypt, even to the border of Ekron northward, w
 on the south; all the land of the Canaanites, and Mearah that belongs to the Sidonians, to Aphek, to the border of the Amorites; 
 and the land of the Gebalites, and all Lebanon, toward the sunrise, from Baal Gad under Mount Hermon to the entrance of Hamath; 
 all the inhabitants of the hill country from Lebanon to Misrephoth Maim, even all the Sidonians. I will drive them out from before the children of Israel. Just allocate it to Israel for an inheritance, as I have commanded you. 
-Now therefore divide this land for an inheritance to the nine tribes and the half-tribe of Manasseh." 
+Now divide this land for an inheritance to the nine tribes and the half-tribe of Manasseh." 
 With him the Reubenites and the Gadites received their inheritance, which Moses gave them, beyond the Jordan eastward, even as Moses the servant of God gave them: 
 from Aroer, that is on the edge of the valley of the Arnon, and the city that is in the middle of the valley, and all the plain of Medeba to Dibon; 
 and all the cities of Sihon king of the Amorites, who reigned in Heshbon, to the border of the children of Ammon; 

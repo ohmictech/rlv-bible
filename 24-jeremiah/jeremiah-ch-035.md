@@ -16,4 +16,4 @@ I have sent also to you all my servants the spokesmen, rising up early and sendi
 The sons of Jonadab the son of Rechab have performed the commandment of their father which he commanded them, but this people has not listened to me."' 
 "Therefore the God of Armies, the God of Israel says: 'Behold, I will bring on Judah and on all the inhabitants of Jerusalem all the bad that I have pronounced against them, because I have spoken to them, but they have not heard; and I have called to them, but they have not answered.'" 
 Jeremiah said to the house of the Rechabites, "The God of Armies, the God of Israel says: 'Because you have obeyed the commandment of Jonadab your father, and kept all his precepts, and done according to all that he commanded you,' 
-therefore the God of Armies, the God of Israel says: 'Jonadab the son of Rechab will not lack a man to stand before me for the eras.'" 
+So the God of Armies, the God of Israel says: 'Jonadab the son of Rechab will not lack a man to stand before me for the eras.'" 

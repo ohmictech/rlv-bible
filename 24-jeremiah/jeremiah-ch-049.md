@@ -1,5 +1,5 @@
 ﻿Of the children of Ammon. God says: "Has Israel no sons? Has he no heir? Why then does Malcam possess Gad, and his people dwell in its cities? 
-Therefore behold, the days come," says God, "that I will cause an alarm of war to be heard against Rabbah of the children of Ammon, and it will become a desolate heap, and her daughters will be burned with fire; then Israel will possess those who possessed him," says God. 
+So behold, the days come," says God, "that I will cause an alarm of war to be heard against Rabbah of the children of Ammon, and it will become a desolate heap, and her daughters will be burned with fire; then Israel will possess those who possessed him," says God. 
 "Wail, Heshbon, for Ai is laid waste! Cry, you daughters of Rabbah! Clothe yourself in sackcloth. Lament, and run back and forth among the fences; for Malcam will go into captivity, his priests and his princes together. 
 Why do you boast in the valleys, your flowing valley, backsliding daughter? You trusted in her treasures, saying, 'Who will come to me?' 
 Behold, I will bring a terror on you," says the Lord, GOD of Armies, "from everyone who is around you. All of you will be driven completely out, and there will be no one to gather together the fugitives. 
@@ -17,13 +17,13 @@ As for your terror, the pride of your heart has deceived you, O you who dwell in
 "Edom will become an astonishment. Everyone who passes by it will be astonished, and will hiss at all its plagues. 
 As in the overthrow of Sodom and Gomorrah and its neighbor cities," says God, "no man will dwell there, neither will any son of man live therein. 
 "Behold, he will come up like a lion from the pride of the Jordan against the strong habitation; for I will suddenly make them run away from it, and whoever is chosen, I will appoint him over it. For who is like me? Who will appoint me a time? Who is the shepherd who will stand before me?" 
-Therefore hear the counsel of God, that he has taken against Edom, and his purposes that he has purposed against the inhabitants of Teman: Surely they will drag them away, the little ones of the flock. Surely he will make their habitation desolate over them. 
+So hear the counsel of God, that he has taken against Edom, and his purposes that he has purposed against the inhabitants of Teman: Surely they will drag them away, the little ones of the flock. Surely he will make their habitation desolate over them. 
 The earth trembles at the noise of their fall; there is a cry, the noise which is heard in the Red Sea. 
 Behold, he will come up and fly as the eagle, and spread out his wings against Bozrah. The heart of the mighty men of Edom at that day will be as the heart of a woman in her pangs. 
 Of Damascus: "Hamath and Arpad are confounded, for they have heard bad news. They have melted away. There is sorrow on the sea. It can't be quiet. 
 Damascus has grown feeble, she turns herself to flee, and trembling has seized her. Anguish and sorrows have taken hold of her, as of a woman in travail. 
 How is the city of praise not forsaken, the city of my joy? 
-Therefore her young men will fall in her streets, and all the men of war will be brought to silence in that day," says the God of Armies. 
+So her young men will fall in her streets, and all the men of war will be brought to silence in that day," says the God of Armies. 
 "I will kindle a fire in the wall of Damascus, and it will devour the palaces of Ben Hadad." 
 Of Kedar, and of the kingdoms of Hazor, which Nebuchadnezzar king of Babylon struck, God says: "Arise, go up to Kedar, and destroy the children of the east. 
 They will take their tents and their flocks. they will carry away for themselves their curtains, all their vessels, and their camels; and they will cry to them, 'Terror on every side!' 

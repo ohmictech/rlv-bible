@@ -11,7 +11,7 @@ God spoke again to Ahaz, saying,
 "Ask a sign of your God; ask it either in the depth, or in the height above." 
 But Ahaz said, "I won't ask. I won't tempt God." 
 He said, "Listen now, house of David. Is it not enough for you to try the patience of men, that you will try the patience of my God also? 
-Therefore the Lord himself will give you a sign. Behold, the virgin will conceive, and bear a son, and shall call his name Immanuel. 
+So the Lord himself will give you a sign. Behold, the virgin will conceive, and bear a son, and shall call his name Immanuel. 
 He shall eat butter and honey when he knows to refuse the bad and choose the good. 
 For before the child knows to refuse the bad and choose the good, the land whose two kings you abhor shall be forsaken. 
 God will bring on you, on your people, and on your father's house days that have not come, from the day that Ephraim departed from Judah, even the king of Assyria. 

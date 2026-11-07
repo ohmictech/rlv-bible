@@ -3,7 +3,7 @@
 and he will sit as a refiner and purifier of silver, and he will purify the sons of Levi, and refine them as gold and silver; and they shall offer to God offerings in righteousness. 
 Then the offering of Judah and Jerusalem will be pleasant to God as in the days of old and as in ancient years. 
 I will come near to you to judgment. I will be a swift witness against the sorcerers, against the adulterers, against the perjurers, and against those who oppress the hireling in his wages, the widow, and the fatherless, and who deprive the foreigner of justice, and don't fear me," says the God of Armies. 
-"For I, God, don't change; therefore you, sons of Jacob, are not consumed. 
+"For I, God, don't change; you, sons of Jacob, are not consumed. 
 From the days of your fathers you have turned away from my ordinances and have not kept them. Return to me, and I will return to you," says the God of Armies. "But you say, 'How shall we return?' 
 Will a man rob God? Yet you rob me! But you say, 'How have we robbed you?' In tithes and offerings. 
 You are cursed with the curse; for you rob me, even this whole nation. 

@@ -18,8 +18,8 @@ He put them all together into custody for three days.
 Joseph said to them the third day, "Do this, and live, for I fear God. 
 If you are honest men, then let one of your brothers be bound in your prison; but you go, carry grain for the famine of your houses. 
 Bring your youngest brother to me; so will your words be verified, and you won't die." They did so. 
-They said to one another, "We are certainly guilty concerning our brother, in that we saw the distress of his soul, when he begged us, and we wouldn't listen. Therefore this distress has come upon us." 
-Reuben answered them, saying, "Didn't I tell you, saying, 'Don't wrong the child,' and you wouldn't listen? Therefore also, behold, his blood is required." 
+They said to one another, "We are certainly guilty concerning our brother, in that we saw the distress of his soul, when he begged us, and we wouldn't listen. So this distress has come upon us." 
+Reuben answered them, saying, "Didn't I tell you, saying, 'Don't wrong the child,' and you wouldn't listen? So also, behold, his blood is required." 
 They didn't know that Joseph understood them; for there was an interpreter between them. 
 He turned himself away from them, and wept. Then he returned to them, and spoke to them, and took Simeon from among them, and bound him before their eyes. 
 Then Joseph gave a command to fill their bags with grain, and to restore each man's money into his sack, and to give them food for the way. So it was done to them. 

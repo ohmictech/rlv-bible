@@ -11,7 +11,7 @@ For God has poured out on you a spirit of deep sleep, and has closed your eyes, 
 All vision has become to you like the words of a book that is sealed, which men deliver to one who is educated, saying, "Read this, please;" and he says, "I can't, for it is sealed;" 
 and the book is delivered to one who is not educated, saying, "Read this, please;" and he says, "I can't read." 
 The Lord said, "Because this people draws near with their mouth and honors me with their lips, but they have removed their heart far from me, and their fear of me is a commandment of men which has been taught; 
-therefore, behold, I will proceed to do a marvelous work among this people, even a marvelous work and a wonder; and the wisdom of their wise men will perish, and the understanding of their prudent men will be hidden." 
+So, behold, I will proceed to do a marvelous work among this people, even a marvelous work and a wonder; and the wisdom of their wise men will perish, and the understanding of their prudent men will be hidden." 
 Woe to those who deeply hide their counsel from God, and whose deeds are in the dark, and who say, "Who sees us?" and "Who knows us?" 
 You turn things upside down! Should the potter be thought to be like clay, that the thing made should say about him who made it, "He didn't make me;" or the thing formed say of him who formed it, "He has no understanding"? 
 Isn't it yet a very little while, and Lebanon will be turned into a fruitful field, and the fruitful field will be regarded as a forest? 
@@ -19,6 +19,6 @@ In that day, the deaf will hear the words of the book, and the eyes of the blind
 The humble also will increase their joy in God, and the poor among men will rejoice in the Holy One of Israel. 
 For the ruthless is brought to nothing, and the scoffer ceases, and everyone who is alert to do bad things are cut off 
 who cause a person to be indicted by a word, and lay a snare for one who reproves in the gate, and who deprive the innocent of justice with false testimony. 
-Therefore God, who bought back Abraham, says concerning the house of Jacob: "Jacob shall no longer be ashamed, neither shall his face grow pale. 
+So God, who bought back Abraham, says concerning the house of Jacob: "Jacob shall no longer be ashamed, neither shall his face grow pale. 
 But when he sees his children, the work of my hands, in the middle of him, they will sanctify my name. Yes, they will sanctify the Holy One of Jacob, and will stand in awe of the God of Israel. 
 They also who err in spirit will come to understanding, and those who grumble will receive instruction." 

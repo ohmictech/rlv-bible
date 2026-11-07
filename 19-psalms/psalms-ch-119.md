@@ -101,7 +101,7 @@ I understand more than the aged, because I have kept your precepts.
 I have kept my feet from every bad way, that I might observe your word. 
 I have not turned away from your ordinances, for you have taught me. 
 How sweet are your promises to my taste, more than honey to my mouth! 
-Through your precepts, I get understanding; therefore I hate every false way. NUN 
+Through your precepts, I get understanding; I hate every false way. NUN 
 Your word is a lamp to my feet, and a light for my path. 
 I have sworn, and have confirmed it, that I will obey your righteous ordinances. 
 I am afflicted very much. Revive me, God, according to your word. 
@@ -116,7 +116,7 @@ Depart from me, you those who do bad, that I may keep the commandments of my God
 Uphold me according to your word, that I may live. Let me not be ashamed of my hope. 
 Hold me up, and I will be safe, and will have respect for your statutes continually. 
 You reject everyone who strays from your statutes, for their deceit is in vain. 
-You put away all the guilty of the earth like dross. Therefore I love your testimonies. 
+You put away all the guilty of the earth like dross. So I love your testimonies. 
 My flesh trembles for fear of you. I am afraid of your judgments. AYIN 
 I have done what is just and righteous. Don't leave me to my oppressors. 
 Ensure your servant's well-being. Don't let the proud oppress me. 
@@ -124,9 +124,9 @@ My eyes fail looking for your salvation, for your righteous word.
 Deal with your servant according to your loving kindness. Teach me your statutes. 
 I am your servant. Give me understanding, that I may know your testimonies. 
 It is time to act, God, for they break your law. 
-Therefore I love your commandments more than gold, yes, more than pure gold. 
-Therefore I consider all of your precepts to be right. I hate every false way. PE 
-Your testimonies are wonderful, therefore my soul keeps them. 
+So I love your commandments more than gold, yes, more than pure gold. 
+So I consider all of your precepts to be right. I hate every false way. PE 
+Your testimonies are wonderful, my soul keeps them. 
 The entrance of your words gives light. It gives understanding to the simple. 
 I opened my mouth wide and panted, for I longed for your commandments. 
 Turn to me, and have mercy on me, as you always do to those who love your name. 

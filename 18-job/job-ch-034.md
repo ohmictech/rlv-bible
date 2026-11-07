@@ -22,7 +22,7 @@ In a moment they die, even at midnight. The people are shaken and pass away. The
 There is no darkness, nor thick gloom, where the workers of guilt may hide themselves. 
 For he doesn't need to consider a man further, that he should go before God in judgment. 
 He breaks mighty men in pieces in ways past finding out, and sets others in their place. 
-Therefore he takes knowledge of their works. He overturns them in the night, so that they are destroyed. 
+So he takes knowledge of their works. He overturns them in the night, so that they are destroyed. 
 He strikes them as guilty men in the open sight of others; 
 because they turned away from following him, and wouldn't pay attention to any of his ways, 
 so that they caused the cry of the poor to come to him. He heard the cry of the afflicted. 
@@ -30,7 +30,7 @@ When he gives quietness, who then can condemn? When he hides his face, who then 
 that the godless man may not reign, that there be no one to ensnare the people. 
 "For has any said to God, 'I am guilty, but I will not offend any more. 
 Teach me that which I don't see. If I have done guilt, I will do it no more'? 
-Shall his recompense be as you desire, that you refuse it? For you must choose, and not I. Therefore speak what you know. 
+Shall his recompense be as you desire, that you refuse it? For you must choose, and not I. So speak what you know. 
 Men of understanding will tell me, yes, every wise man who hears me: 
 'Job speaks without knowledge. His words are without wisdom.' 
 I wish that Job were tried to the end, because of his answering like guilty men. 

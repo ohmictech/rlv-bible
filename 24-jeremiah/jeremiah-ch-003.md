@@ -1,6 +1,6 @@
 ﻿"They say, 'If a man puts away his wife, and she goes from him, and becomes another man's, should he return to her again?' Wouldn't that land be greatly polluted? But you have played the prostitute with many lovers; yet return again to me," says God. 
 "Lift up your eyes to the bare heights, and see! Where have you not been lain with? You have sat waiting for them by the road, as an Arabian in the wilderness. You have polluted the land with your prostitution and with your guilt. 
-Therefore the showers have been withheld and there has been no latter rain; yet you have had a prostitute's forehead and you refused to be ashamed. 
+So the showers have been withheld and there has been no latter rain; yet you have had a prostitute's forehead and you refused to be ashamed. 
 Will you not from this time cry to me, 'My Father, you are the guide of my youth!'? 
 "'Will he retain his anger for the eras? Will he keep it to the end?' Behold, you have spoken and have done bad things, and have had your way." 
 Moreover, God said to me in the days of Josiah the king, "Have you seen that which backsliding Israel has done? She has gone up on every high mountain and under every green tree, and has played the prostitute there. 

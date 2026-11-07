@@ -21,5 +21,5 @@ The man gave names to all the livestock, to the birds of the sky, and to every a
 God caused the man to fall into a deep sleep. As the man slept, he took one of his ribs, and closed up the flesh in its place. 
 God made a woman from the rib he had taken out of the man, and brought her to him. 
 The man said, "At last! This is bone of my bones and flesh of my flesh. She will be called 'woman,' because she was taken out of man." 
-Therefore a man will leave his father and his mother, and will join with his wife, and they will be one flesh. 
+So a man will leave his father and his mother, and will join with his wife, and they will be one flesh. 
 The man and his wife were both naked, and they were not ashamed. 

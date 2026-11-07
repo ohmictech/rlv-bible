@@ -7,7 +7,7 @@ For you have taken pledges from your brother for nothing, and stripped the naked
 You haven't given water to the weary to drink, and you have withheld bread from the hungry. 
 But as for the mighty man, he had the earth. The honorable man, he lived in it. 
 You have sent widows away empty, and the arms of the fatherless have been broken. 
-Therefore snares are around you. Sudden fear troubles you, 
+So snares are around you. Sudden fear troubles you, 
 or darkness, so that you can not see, and floods of waters cover you. 
 "Isn't God in the heights of the sky? See the height of the stars, how high they are! 
 You say, 'What does God know? Can he judge through the thick darkness? 

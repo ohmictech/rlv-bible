@@ -18,7 +18,7 @@ Yet they still went on to wrong him, to rebel against the Most High in the deser
 They tempted God in their heart by asking food according to their desire. 
 Yes, they spoke against God. They said, "Can God prepare a table in the wilderness? 
 Behold, he struck the rock, so that waters gushed out, and streams overflowed. Can he give bread also? Will he provide meat for his people?" 
-Therefore God heard, and was angry. A fire was kindled against Jacob, anger also went up against Israel, 
+So God heard, and was angry. A fire was kindled against Jacob, anger also went up against Israel, 
 because they didn't believe in God, and didn't trust in his salvation. 
 Yet he commanded the skies above, and opened the doors of the sky. 
 He rained down manna on them to eat, and gave them food from the sky. 
@@ -30,7 +30,7 @@ So they ate, and were well filled. He gave them their own desire.
 They didn't turn from their cravings. Their food was yet in their mouths, 
 when the anger of God went up against them, killed some of their strongest, and struck down the young men of Israel. 
 For all this they still drifted, and didn't believe in his wondrous works. 
-Therefore he consumed their days in vanity, and their years in terror. 
+So he consumed their days in vanity, and their years in terror. 
 When he killed them, then they inquired after him. They returned and sought God earnestly. 
 They remembered that God was their rock, the Most High God, the one who buys them back. 
 But they flattered him with their mouth, and lied to him with their tongue. 

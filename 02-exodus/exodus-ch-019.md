@@ -2,7 +2,7 @@
 When they had departed from Rephidim, and had come to the wilderness of Sinai, they encamped in the wilderness; and there Israel encamped before the mountain. 
 Moses went up to God, and God called to him out of the mountain, saying, "This is what you shall tell the house of Jacob, and tell the children of Israel: 
 'You have seen what I did to the Egyptians, and how I bore you on eagles' wings, and brought you to myself. 
-Now therefore, if you will indeed obey my voice and keep my covenant, then you shall be my own possession from among all peoples; for all the earth is mine; 
+Now, if you will indeed obey my voice and keep my covenant, then you shall be my own possession from among all peoples; for all the earth is mine; 
 and you shall be to me a kingdom of priests and a holy nation.' These are the words which you shall speak to the children of Israel." 
 Moses came and called for the elders of the people, and set before them all these words which God commanded him. 
 Everyone answered together, and said, "All that God has spoken we will do." Moses reported the words of the people to God. 

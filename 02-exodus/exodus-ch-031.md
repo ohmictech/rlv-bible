@@ -11,8 +11,8 @@ the finely worked garments, the holy garments for Aaron the priest, the garments
 the anointing oil, and the incense of sweet spices for the holy place: according to all that I have commanded you they shall do." 
 God spoke to Moses, saying, 
 "Speak also to the children of Israel, saying, 'Most certainly you shall keep my Sabbaths; for it is a sign between me and you throughout your generations, that you may know that I am God who sanctifies you. 
-You shall keep the Sabbath therefore, for it is holy to you. Everyone who profanes it shall surely be put to death; for whoever does any work therein, that soul shall be cut off from among his people. 
+You shall keep the Sabbath, for it is holy to you. Everyone who profanes it shall surely be put to death; for whoever does any work therein, that soul shall be cut off from among his people. 
 Six days shall work be done, but on the seventh day is a Sabbath of solemn rest, holy to God. Whoever does any work on the Sabbath day shall surely be put to death. 
-Therefore the children of Israel shall keep the Sabbath, to observe the Sabbath throughout their generations, for a perpetual covenant. 
+So the children of Israel shall keep the Sabbath, to observe the Sabbath throughout their generations, for a perpetual covenant. 
 It is a sign between me and the children of Israel for the eras; for in six days God made the sky and the earth, and on the seventh day he rested, and was refreshed.'" 
 When he finished speaking with him on Mount Sinai, he gave Moses the two tablets of the covenant, stone tablets, written with God's finger. 

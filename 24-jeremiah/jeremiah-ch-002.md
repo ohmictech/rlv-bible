@@ -6,7 +6,7 @@ God says, "What unrighteousness have your fathers found in me, that they have go
 They didn't say, 'Where is God who brought us up out of the land of Egypt, who led us through the wilderness, through a land of deserts and of pits, through a land of drought and of the shadow of death, through a land that no one passed through, and where no man lived?' 
 I brought you into a plentiful land to eat its fruit and its goodness; but when you entered, you defiled my land, and made my heritage an abomination. 
 The priests didn't say, 'Where is God?' and those who handle the law didn't know me. The rulers also transgressed against me, and the spokesmen prophesied by Baal and followed things that do not profit. 
-"Therefore I will yet contend with you," says God, "and I will contend with your children's children. 
+"So I will yet contend with you," says God, "and I will contend with your children's children. 
 For pass over to the islands of Kittim, and see. Send to Kedar, and consider diligently, and see if there has been such a thing. 
 Has a nation changed its gods, which really are no gods? But my people have changed their glory for that which doesn't profit. 
 "Be astonished, you skies, at this and be horribly afraid. Be very desolate," says God. 
@@ -16,7 +16,7 @@ The young lions have roared at him and raised their voices. They have made his l
 The children also of Memphis and Tahpanhes have broken the crown of your head. 
 "Haven't you brought this on yourself, in that you have forsaken your God, when he led you by the way? 
 Now what do you gain by going to Egypt, to drink the waters of the Shihor? Or why do you go on the way to Assyria, to drink the waters of the River? 
-"Your own guilt will correct you, and your backsliding will rebuke you. Know therefore and see that it is an bad and bitter thing, that you have forsaken your God, and that my fear is not in you," says the Lord, GOD of Armies. 
+"Your own guilt will correct you, and your backsliding will rebuke you. Know and see that it is an bad and bitter thing, that you have forsaken your God, and that my fear is not in you," says the Lord, GOD of Armies. 
 "For long ago I broke off your yoke, and burst your bonds. You said, 'I will not serve;' for on every high hill and under every green tree you bowed yourself, playing the prostitute. 
 Yet I had planted you a noble vine, a pure and faithful seed. How then have you turned into the degenerate branches of a foreign vine to me? 
 For though you wash yourself with lye, and use much soap, yet your guilt is marked before me," says God. 
@@ -30,7 +30,7 @@ who tell wood, 'You are my father,' and a stone, 'You have given birth to me,' f
 "I have struck your children in vain. They received no correction. Your own sword has devoured your spokesmen, like a destroying lion. 
 Generation, consider God's word. Have I been a wilderness to Israel? Or a land of thick darkness? Why do my people say, 'We have broken loose. We will come to you no more'? 
 "Can a virgin forget her ornaments, or a bride her attire? Yet my people have forgotten me for days without number. 
-How well you prepare your way to seek love! Therefore you have even taught the guilty women your ways. 
+How well you prepare your way to seek love! So you have even taught the guilty women your ways. 
 Also the blood of the souls of the innocent poor is found in your skirts. You didn't find them breaking in, but it is because of all these things. 
 "Yet you said, 'I am innocent. Surely his anger has turned away from me.' "Behold, I will judge you, because you say, 'I have not drifted.' 
 Why do you go about so much to change your ways? You will be ashamed of Egypt also, as you were ashamed of Assyria. 

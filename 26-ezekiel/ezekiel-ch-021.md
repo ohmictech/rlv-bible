@@ -1,7 +1,7 @@
 ﻿God's word came to me, saying, 
 "Son of man, set your face toward Jerusalem, and preach toward the sanctuaries, and prophesy against the land of Israel. 
 Tell the land of Israel, 'God says: "Behold, I am against you, and will draw my sword out of its sheath, and will cut off from you the righteous and the guilty. 
-Seeing then that I will cut off from you the righteous and the guilty, therefore my sword will go out of its sheath against all flesh from the south to the north. 
+Seeing then that I will cut off from you the righteous and the guilty, my sword will go out of its sheath against all flesh from the south to the north. 
 All flesh will know that I, God, have drawn my sword out of its sheath. It will not return any more."' 
 "Therefore sigh, you son of man. You shall sigh before their eyes with a broken heart and with bitterness. 
 It shall be, when they ask you, 'Why do you sigh?' that you shall say, 'Because of the news, for it comes! Every heart will melt, all hands will be feeble, every spirit will faint, and all knees will be weak as water. Behold, it comes, and it shall be done, says God.'" 
@@ -9,9 +9,9 @@ God's word came to me, saying,
 "Son of man, prophesy, and say, 'God says: "A sword! A sword! It is sharpened, and also polished. 
 It is sharpened that it may make a slaughter. It is polished that it may be as lightning. Should we then make mirth? The rod of my son condemns every tree. 
 It is given to be polished, that it may be handled. The sword is sharpened. Yes, it is polished to give it into the hand of the killer."' 
-Cry and wail, son of man; for it is on my people. It is on all the princes of Israel. They are delivered over to the sword with my people. Therefore beat your thigh. 
+Cry and wail, son of man; for it is on my people. It is on all the princes of Israel. They are delivered over to the sword with my people. So beat your thigh. 
 "For there is a trial. What if even the rod that condemns will be no more?" says God. 
-"You therefore, son of man, prophesy, and strike your hands together. Let the sword be doubled the third time, the sword of the fatally wounded. It is the sword of the great one who is fatally wounded, which enters into their rooms. 
+"You, son of man, prophesy, and strike your hands together. Let the sword be doubled the third time, the sword of the fatally wounded. It is the sword of the great one who is fatally wounded, which enters into their rooms. 
 I have set the threatening sword against all their gates, that their heart may melt, and their stumblings be multiplied. Ah! It is made as lightning. It is pointed for slaughter. 
 Gather yourselves together. Go to the right. Set yourselves in array. Go to the left, wherever your face is set. 
 I will also strike my hands together, and I will cause my wrath to rest. I, God, have spoken it." 
@@ -21,7 +21,7 @@ You shall appoint a way for the sword to come to Rabbah of the children of Ammon
 For the king of Babylon stood at the parting of the way, at the head of the two ways, to use divination. He shook the arrows back and forth. He consulted the teraphim. He looked in the liver. 
 In his right hand was the lot for Jerusalem, to set battering rams, to open the mouth in the slaughter, to lift up the voice with shouting, to set battering rams against the gates, to cast up mounds, and to build forts. 
 It will be to them as a false divination in their sight, who have sworn oaths to them; but he brings guilt to memory, that they may be taken. 
-"Therefore God says: 'Because you have caused your guilt to be remembered, in that your rebellion are uncovered, so that in all your doings your mistakes appear; because you have come to memory, you will be taken with the hand. 
+"So God says: 'Because you have caused your guilt to be remembered, in that your rebellion are uncovered, so that in all your doings your mistakes appear; because you have come to memory, you will be taken with the hand. 
 "'You, deadly wounded guilty one, the prince of Israel, whose day has come, in the time of the guilt of the end, 
 God says: "Remove the turban, and take off the crown. This will not be as it was. Exalt that which is low, and humble that which is high. 
 I will overturn, overturn, overturn it. This also will be no more, until he comes whose right it is; and I will give it."' 

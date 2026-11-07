@@ -12,22 +12,22 @@ Then she said, "Please let the king remember your God, that the avenger of blood
 Then the woman said, "Please let your servant speak a word to my lord the king." He said, "Say on." 
 The woman said, "Why then have you devised such a thing against the people of God? For in speaking this word the king is as one who is guilty, in that the king does not bring home again his banished one. 
 For we must die, and are like water spilled on the ground, which can't be gathered up again; neither does God take away life, but devises means, that he who is banished not be an outcast from him. 
-Now therefore, seeing that I have come to speak this word to my lord the king, it is because the people have made me afraid. Your servant said, 'I will now speak to the king; it may be that the king will perform the request of his servant.' 
+Now, seeing that I have come to speak this word to my lord the king, it is because the people have made me afraid. Your servant said, 'I will now speak to the king; it may be that the king will perform the request of his servant.' 
 For the king will hear, to deliver his servant out of the hand of the man who would destroy me and my son together out of the inheritance of God. 
 Then your servant said, 'Please let the word of my lord the king bring rest; for as an messenger of God, so is my lord the king to discern good and bad. May God, your God, be with you.'" 
 Then the king answered the woman, "Please don't hide anything from me that I ask you." The woman said, "Let my lord the king now speak." 
 The king said, "Is the hand of Joab with you in all this?" The woman answered, "As your soul lives, my lord the king, no one can turn to the right hand or to the left from anything that my lord the king has spoken; for your servant Joab urged me, and he put all these words in the mouth of your servant. 
 Your servant Joab has done this thing to change the face of the matter. My lord is wise, according to the wisdom of an messenger of God, to know all things that are on the earth." 
-The king said to Joab, "Behold now, I have granted this thing. Go therefore, and bring the young man Absalom back." 
+The king said to Joab, "Behold now, I have granted this thing. Go, and bring the young man Absalom back." 
 Joab fell to the ground on his face, showed respect, and blessed the king. Joab said, "Today your servant knows that I have found favor in your sight, my lord, O king, in that the king has performed the request of his servant." 
 So Joab arose and went to Geshur, and brought Absalom to Jerusalem. 
 The king said, "Let him return to his own house, but let him not see my face." So Absalom returned to his own house, and didn't see the king's face. 
 Now in all Israel there was no one to be so much praised as Absalom for his beauty. From the sole of his foot even to the crown of his head there was no defect in him. 
-When he cut the hair of his head (now it was at every year's end that he cut it; because it was heavy on him, therefore he cut it), he weighed the hair of his head at two hundred shekels, after the king's weight. 
+When he cut the hair of his head (now it was at every year's end that he cut it; because it was heavy on him, he cut it), he weighed the hair of his head at two hundred shekels, after the king's weight. 
 Three sons were born to Absalom, and one daughter, whose name was Tamar. She was a woman with a beautiful face. 
 Absalom lived two full years in Jerusalem, and he didn't see the king's face. 
 Then Absalom sent for Joab, to send him to the king, but he would not come to him. Then he sent again a second time, but he would not come. 
-Therefore he said to his servants, "Behold, Joab's field is near mine, and he has barley there. Go and set it on fire." So Absalom's servants set the field on fire. 
+So he said to his servants, "Behold, Joab's field is near mine, and he has barley there. Go and set it on fire." So Absalom's servants set the field on fire. 
 Then Joab arose and came to Absalom to his house, and said to him, "Why have your servants set my field on fire?" 
-Absalom answered Joab, "Behold, I sent to you, saying, 'Come here, that I may send you to the king, to say, "Why have I come from Geshur? It would be better for me to be there still. Now therefore, let me see the king's face; and if there is guilt in me, let him kill me."'" 
+Absalom answered Joab, "Behold, I sent to you, saying, 'Come here, that I may send you to the king, to say, "Why have I come from Geshur? It would be better for me to be there still. Now, let me see the king's face; and if there is guilt in me, let him kill me."'" 
 So Joab came to the king and told him; and when he had called for Absalom, he came to the king and bowed himself on his face to the ground before the king; and the king kissed Absalom. 

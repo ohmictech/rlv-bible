@@ -1,6 +1,6 @@
 ﻿In the eighth month, in the second year of Darius, God's word came to the spokesman Zechariah the son of Berechiah, the son of Iddo, saying, 
 "God was very displeased with your fathers. 
-Therefore tell them, the God of Armies says: 'Return to me,' says the God of Armies, 'and I will return to you,' says the God of Armies. 
+So tell them, the God of Armies says: 'Return to me,' says the God of Armies, 'and I will return to you,' says the God of Armies. 
 Don't you be like your fathers, to whom the former spokesmen proclaimed, saying: The God of Armies says, 'Return now from your bad ways and from your bad doings;' but they didn't hear nor listen to me, says God. 
 Your fathers, where are they? And the spokesmen, do they live for the eras? 
 But my words and my decrees, which I commanded my servants the spokesmen, didn't they overtake your fathers? "Then they repented and said, 'Just as the God of Armies determined to do to us, according to our ways and according to our practices, so he has dealt with us.'" 
@@ -13,7 +13,7 @@ Then God's messenger replied, "O God of Armies, how long will you not have mercy
 God answered the messenger who talked with me with kind and comforting words. 
 So the messenger who talked with me said to me, "Proclaim, saying, 'The God of Armies says: "I am jealous for Jerusalem and for Zion with a great jealousy. 
 I am very angry with the nations that are at ease; for I was but a little displeased, but they added to the calamity." 
-Therefore God says: "I have returned to Jerusalem with mercy. My house shall be built in it," says the God of Armies, "and a line shall be stretched out over Jerusalem."' 
+So God says: "I have returned to Jerusalem with mercy. My house shall be built in it," says the God of Armies, "and a line shall be stretched out over Jerusalem."' 
 "Proclaim further, saying, 'The God of Armies says: "My cities will again overflow with prosperity, and God will again comfort Zion, and will again choose Jerusalem."'" 
 I lifted up my eyes and saw, and behold, four horns. 
 I asked the messenger who talked with me, "What are these?" He answered me, "These are the horns which have scattered Judah, Israel, and Jerusalem." 

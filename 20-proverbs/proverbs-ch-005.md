@@ -4,7 +4,7 @@ For the lips of an adulteress drip honey. Her mouth is smoother than oil,
 but in the end she is as bitter as wormwood, and as sharp as a two-edged sword. 
 Her feet go down to death. Her steps lead straight to Hades. 
 She gives no thought to the way of life. Her ways are crooked, and she doesn't know it. 
-Now therefore, my sons, listen to me. Don't depart from the words of my mouth. 
+Now, my sons, listen to me. Don't depart from the words of my mouth. 
 Remove your way far from her. Don't come near the door of her house, 
 lest you give your honor to others, and your years to the cruel one; 
 lest strangers feast on your wealth, and your labors enrich another man's house. 

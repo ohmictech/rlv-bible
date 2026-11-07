@@ -14,7 +14,7 @@ The blood shall be to you for a token on the houses where you are. When I see th
 This day shall be a memorial for you. You shall keep it as a feast to God. You shall keep it as a feast throughout your generations by an ordinance for the eras. 
 "'Seven days you shall eat unleavened bread; even the first day you shall put away yeast out of your houses, for whoever eats leavened bread from the first day until the seventh day, that soul shall be cut off from Israel. 
 In the first day there shall be to you a holy convocation, and in the seventh day a holy convocation; no kind of work shall be done in them, except that which every man must eat, only that may be done by you. 
-You shall observe the feast of unleavened bread; for in this same day I have brought your armies out of the land of Egypt. Therefore you shall observe this day throughout your generations by an ordinance for the eras. 
+You shall observe the feast of unleavened bread; for in this same day I have brought your armies out of the land of Egypt. So you shall observe this day throughout your generations by an ordinance for the eras. 
 In the first month, on the fourteenth day of the month at evening, you shall eat unleavened bread, until the twenty first day of the month at evening. 
 There shall be no yeast found in your houses for seven days, for whoever eats that which is leavened, that soul shall be cut off from the congregation of Israel, whether he is a foreigner, or one who is born in the land. 
 You shall eat nothing leavened. In all your habitations you shall eat unleavened bread.'" 

@@ -9,7 +9,7 @@ In accordance with the law, the drinking was not compulsory; for so the king had
 Also Vashti the queen made a feast for the women in the royal house which belonged to King Ahasuerus. 
 On the seventh day, when the heart of the king was merry with wine, he commanded Mehuman, Biztha, Harbona, Bigtha, and Abagtha, Zethar, and Carcass, the seven eunuchs who served in the presence of Ahasuerus the king, 
 to bring Vashti the queen before the king wearing the royal crown, to show the people and the princes her beauty; for she was beautiful. 
-But the queen Vashti refused to come at the king's commandment by the eunuchs. Therefore the king was very angry, and his anger burned in him. 
+But the queen Vashti refused to come at the king's commandment by the eunuchs. So the king was very angry, and his anger burned in him. 
 Then the king said to the wise men, who knew the times (for it was the king's custom to consult those who knew law and judgment; 
 and next to him were Carshena, Shethar, Admatha, Tarshish, Meres, Marsena, and Memucan, the seven princes of Persia and Media, who saw the king's face, and sat first in the kingdom), 
 "What shall we do to Queen Vashti according to law, because she has not done the bidding of the King Ahasuerus by the eunuchs?" 

@@ -16,10 +16,10 @@ Saul's uncle said, "Please tell me what Samuel said to you."
 Saul said to his uncle, "He told us plainly that the donkeys were found." But concerning the matter of the kingdom, of which Samuel spoke, he didn't tell him. 
 Samuel called the people together to God to Mizpah; 
 and he said to the children of Israel, "The God of Israel says 'I brought Israel up out of Egypt and I delivered you out of the hand of the Egyptians, and out of the hand of all the kingdoms that oppressed you.' 
-But you have today rejected your God, who himself saves you out of all your calamities and your distresses; and you have said to him, 'No! Set a king over us!' Now therefore present yourselves before God by your tribes and by your thousands." 
+But you have today rejected your God, who himself saves you out of all your calamities and your distresses; and you have said to him, 'No! Set a king over us!' Now present yourselves before God by your tribes and by your thousands." 
 So Samuel brought all the tribes of Israel near, and the tribe of Benjamin was chosen. 
 He brought the tribe of Benjamin near by their families and the family of the Matrites was chosen. Then Saul the son of Kish was chosen; but when they looked for him, he could not be found. 
-Therefore they asked of God further, "Is there yet a man to come here?" God answered, "Behold, he has hidden himself among the baggage." 
+So they asked of God further, "Is there yet a man to come here?" God answered, "Behold, he has hidden himself among the baggage." 
 They ran and got him there. When he stood among the people, he was higher than any of the people from his shoulders and upward. 
 Samuel said to everyone, "Do you see him whom God has chosen, that there is no one like him among everyone?" Everyone shouted and said, "Long live the king!" 
 Then Samuel told the people the regulations of the kingdom, and wrote it in a book and laid it up before God. Samuel sent everyone away, every man to his house. 

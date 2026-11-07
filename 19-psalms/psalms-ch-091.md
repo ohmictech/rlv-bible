@@ -11,6 +11,6 @@ no bad shall happen to you, neither shall any plague come near your dwelling.
 For he will put his messengers in charge of you, to guard you in all your ways. 
 They will bear you up in their hands, so that you won't dash your foot against a stone. 
 You will tread on the lion and cobra. You will trample the young lion and the serpent underfoot. 
-"Because he has set his love on me, therefore I will deliver him. I will set him on high, because he has known my name. 
+"Because he has set his love on me, I will deliver him. I will set him on high, because he has known my name. 
 He will call on me, and I will answer him. I will be with him in trouble. I will deliver him, and honor him. 
 I will satisfy him with long life, and show him my salvation." 

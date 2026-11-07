@@ -10,7 +10,7 @@ Saul watched David from that day and forward.
 On the next day, an harmful spirit from God came mightily on Saul, and he prophesied in the middle of the house. David played with his hand, as he did day by day. Saul had his spear in his hand; 
 and Saul threw the spear, for he said, "I will pin David to the wall!" David escaped from his presence twice. 
 Saul was afraid of David, because God was with him, and had departed from Saul. 
-Therefore Saul removed him from his presence, and made him his captain over a thousand; and he went out and came in before the people. 
+So Saul removed him from his presence, and made him his captain over a thousand; and he went out and came in before the people. 
 David behaved himself wisely in all his ways; and God was with him. 
 When Saul saw that he behaved himself very wisely, he stood in awe of him. 
 But all Israel and Judah loved David; for he went out and came in before them. 
@@ -18,8 +18,8 @@ Saul said to David, "Behold, my elder daughter Merab. I will give her to you as 
 David said to Saul, "Who am I, and what is my life, or my father's family in Israel, that I should be son-in-law to the king?" 
 But at the time when Merab, Saul's daughter, should have been given to David, she was given to Adriel the Meholathite as wife. 
 Michal, Saul's daughter, loved David; and they told Saul, and the thing pleased him. 
-Saul said, I will give her to him, that she may be a snare to him and that the hand of the Philistines may be against him. Therefore Saul said to David a second time, "You shall today be my son-in-law." 
-Saul commanded his servants, "Talk with David secretly, and say, 'Behold, the king has delight in you, and all his servants love you. Now therefore be the king's son-in-law.'" 
+Saul said, I will give her to him, that she may be a snare to him and that the hand of the Philistines may be against him. So Saul said to David a second time, "You shall today be my son-in-law." 
+Saul commanded his servants, "Talk with David secretly, and say, 'Behold, the king has delight in you, and all his servants love you. Now be the king's son-in-law.'" 
 Saul's servants spoke those words in the ears of David. David said, "Does it seem to you a light thing to be the king's son-in-law, since I am a poor man and little known?" 
 The servants of Saul told him, saying, "David spoke like this." 
 Saul said, "Tell David, 'The king desires no dowry except one hundred foreskins of the Philistines, to be avenged of the king's enemies.'" Now Saul thought he would make David fall by the hand of the Philistines. 

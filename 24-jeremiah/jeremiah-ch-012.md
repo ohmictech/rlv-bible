@@ -5,7 +5,7 @@ How long will the land mourn, and the herbs of the whole country wither? Because
 "If you have run with the footmen, and they have wearied you, then how can you contend with horses? Though in a land of peace you are secure, yet how will you do in the pride of the Jordan? 
 For even your brothers, and the house of your father, even they have dealt treacherously with you! Even they have cried aloud after you! Don't believe them, though they speak beautiful words to you. 
 "I have forsaken my house. I have cast off my heritage. I have given the dearly beloved of my soul into the hand of her enemies. 
-My heritage has become to me as a lion in the forest. She has uttered her voice against me. Therefore I have hated her. 
+My heritage has become to me as a lion in the forest. She has uttered her voice against me. So I have hated her. 
 Is my heritage to me as a speckled bird of prey? Are the birds of prey against her all around? Go, assemble all the animals of the field. Bring them to devour. 
 Many shepherds have destroyed my vineyard. They have trodden my portion under foot. They have made my pleasant portion a desolate wilderness. 
 They have made it a desolation. It mourns to me, being desolate. The whole land is made desolate, because no one cares. 

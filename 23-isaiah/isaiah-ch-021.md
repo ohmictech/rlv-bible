@@ -1,6 +1,6 @@
 ﻿The burden of the wilderness of the sea. As whirlwinds in the South sweep through, it comes from the wilderness, from an awesome land. 
 A grievous vision is declared to me. The treacherous man deals treacherously, and the destroyer destroys. Go up, Elam; attack! I have stopped all of Media's sighing. 
-Therefore my thighs are filled with anguish. Pains have seized me, like the pains of a woman in labor. I am in so much pain that I can't hear. I am so dismayed that I can't see. 
+So my thighs are filled with anguish. Pains have seized me, like the pains of a woman in labor. I am in so much pain that I can't hear. I am so dismayed that I can't see. 
 My heart flutters. Horror has frightened me. The twilight that I desired has been turned into trembling for me. 
 They prepare the table. They set the watch. They eat. They drink. Rise up, you princes, oil the shield! 
 For the Lord said to me, "Go, set a watchman. Let him declare what he sees. 

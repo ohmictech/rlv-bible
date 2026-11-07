@@ -12,7 +12,7 @@ Now Ephron was sitting in the middle of the children of Heth. Ephron the Hittite
 Abraham bowed himself down before the people of the land. 
 He spoke to Ephron in the audience of the people of the land, saying, "But if you will, please hear me. I will give the price of the field. Take it from me, and I will bury my dead there." 
 Ephron answered Abraham, saying to him, 
-"My lord, listen to me. What is a piece of land worth four hundred shekels of silver between me and you? Therefore bury your dead." 
+"My lord, listen to me. What is a piece of land worth four hundred shekels of silver between me and you? So bury your dead." 
 Abraham listened to Ephron. Abraham weighed to Ephron the silver which he had named in the hearing of the children of Heth, four hundred shekels of silver, according to the current merchants' standard. 
 So the field of Ephron, which was in Machpelah, which was before Mamre, the field, the cave which was in it, and all the trees that were in the field, that were in all of its borders, were deeded 
 to Abraham for a possession in the presence of the children of Heth, before everyone who went in at the gate of his city. 

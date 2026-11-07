@@ -17,11 +17,11 @@ But of those who escape, they will escape and will be on the mountains like dove
 All hands will be feeble, and all knees will be weak as water. 
 They will also clothe themselves with sackcloth, and horror will cover them. Shame will be on all faces, and baldness on all their heads. 
 They will cast their silver in the streets, and their gold will be as an unclean thing. Their silver and their gold won't be able to deliver them in the day of God's wrath. They won't satisfy their souls or fill their bellies; because it has been the stumbling block of their guilt. 
-As for the beauty of his ornament, he set it in majesty; but they made the images of their abominations and their detestable things therein. Therefore I have made it to them as an unclean thing. 
+As for the beauty of his ornament, he set it in majesty; but they made the images of their abominations and their detestable things therein. So I have made it to them as an unclean thing. 
 I will give it into the hands of the strangers for a prey, and to the guilty of the earth for a plunder; and they will profane it. 
 I will also turn my face from them, and they will profane my secret place. Robbers will enter into it, and profane it. 
 "'Make chains, for the land is full of bloody crimes, and the city is full of violence. 
-Therefore I will bring the worst of the nations, and they will possess their houses. I will also make the pride of the strong to cease. Their holy places will be profaned. 
+So I will bring the worst of the nations, and they will possess their houses. I will also make the pride of the strong to cease. Their holy places will be profaned. 
 Destruction comes! They will seek peace, and there will be none. 
 Mischief will come on mischief, and rumor will be on rumor. They will seek a vision of the spokesman; but the law will perish from the priest, and counsel from the elders. 
 The king will mourn, and the prince will be clothed with desolation. The hands of the people of the land will be troubled. I will do to them after their way, and according to their own judgments I will judge them. Then they will know that I am God.'" 

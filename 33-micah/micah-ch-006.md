@@ -10,7 +10,7 @@ God's voice calls to the city, and wisdom fears your name, "Listen to the rod, a
 Are there yet treasures of guilt in the house of the guilty, and a short ephah that is accursed? 
 Shall I tolerate dishonest scales, and a bag of deceitful weights? 
 Her rich men are full of violence, her inhabitants speak lies, and their tongue is deceitful in their speech. 
-Therefore I also have struck you with a grievous wound. I have made you desolate because of your mistakes. 
+So I also have struck you with a grievous wound. I have made you desolate because of your mistakes. 
 You shall eat, but not be satisfied. Your hunger will be within you. You will store up, but not save, and that which you save I will give up to the sword. 
 You will sow, but won't reap. You will tread the olives, but won't anoint yourself with oil; and crush grapes, but won't drink the wine. 
 For the statutes of Omri are kept, and all the works of Ahab's house. You walk in their counsels, that I may make you a ruin, and your inhabitants a hissing. You will bear the reproach of my people." 

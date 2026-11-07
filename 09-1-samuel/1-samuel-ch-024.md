@@ -12,11 +12,11 @@ Moreover, my father, behold, yes, see the skirt of your robe in my hand; for in 
 May God judge between me and you, and may God avenge me of you; but my hand will not be on you. 
 As the proverb of the ancients says, 'Out of the guilty comes guilt;' but my hand will not be on you. 
 Against whom has the king of Israel come out? Whom do you pursue? A dead dog? A flea? 
-May God therefore be judge, and give sentence between me and you, and see, and plead my cause, and deliver me out of your hand." 
+May God be judge, and give sentence between me and you, and see, and plead my cause, and deliver me out of your hand." 
 It came to pass, when David had finished speaking these words to Saul, that Saul said, "Is that your voice, my son David?" Saul lifted up his voice and wept. 
 He said to David, "You are more righteous than I; for you have done good to me, whereas I have done bad to you. 
 You have declared today how you have dealt well with me, because when God had delivered me up into your hand, you didn't kill me. 
-For if a man finds his enemy, will he let him go away unharmed? Therefore may God reward you good for that which you have done to me today. 
+For if a man finds his enemy, will he let him go away unharmed? So may God reward you good for that which you have done to me today. 
 Now, behold, I know that you will surely be king, and that the kingdom of Israel will be established in your hand. 
-Swear now therefore to me by God that you will not cut off my offspring after me, and that you will not destroy my name out of my father's house." 
+Swear now to me by God that you will not cut off my offspring after me, and that you will not destroy my name out of my father's house." 
 David swore to Saul. Saul went home, but David and his men went up to the stronghold. 

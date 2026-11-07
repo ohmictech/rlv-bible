@@ -9,7 +9,7 @@ God spoke to Moses, saying,
 Moses took the rod from before God, as he commanded him. 
 Moses and Aaron gathered the assembly together before the rock, and he said to them, "Hear now, you rebels! Shall we bring water out of this rock for you?" 
 Moses lifted up his hand, and struck the rock with his rod twice, and water came out abundantly. The congregation and their livestock drank. 
-God said to Moses and Aaron, "Because you didn't believe in me, to sanctify me in the eyes of the children of Israel, therefore you shall not bring this assembly into the land which I have given them." 
+God said to Moses and Aaron, "Because you didn't believe in me, to sanctify me in the eyes of the children of Israel, you shall not bring this assembly into the land which I have given them." 
 These are the waters of Meribah; because the children of Israel strove with God, and he was sanctified in them. 
 Moses sent messengers from Kadesh to the king of Edom, saying: "Your brother Israel says: You know all the travail that has happened to us; 
 how our fathers went down into Egypt, and we lived in Egypt a long time. The Egyptians mistreated us and our fathers. 

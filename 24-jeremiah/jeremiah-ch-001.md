@@ -14,6 +14,6 @@ God's word came to me the second time, saying, "What do you see?" I said, "I see
 Then God said to me, "Out of the north, bad will break out on all the inhabitants of the land. 
 For behold, I will call all the families of the kingdoms of the north," says God. "They will come, and they will each set his throne at the entrance of the gates of Jerusalem, and against all its walls all around, and against all the cities of Judah. 
 I will utter my judgments against them concerning all their guilt, in that they have forsaken me, and have burned incense to other gods, and worshiped the works of their own hands. 
-"You therefore put your belt on your waist, arise, and say to them all that I command you. Don't be dismayed at them, lest I dismay you before them. 
+"You put your belt on your waist, arise, and say to them all that I command you. Don't be dismayed at them, lest I dismay you before them. 
 For behold, I have made you today a fortified city, an iron pillar, and bronze walls against the whole land, against the kings of Judah, against its princes, against its priests, and against the people of the land. 
 They will fight against you, but they will not prevail against you; for I am with you", says God, "to rescue you." 

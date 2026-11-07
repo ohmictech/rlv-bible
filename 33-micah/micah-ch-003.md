@@ -9,4 +9,4 @@ But as for me, I am full of power by God's Spirit, and of judgment, and of might
 Please listen to this, you heads of the house of Jacob, and rulers of the house of Israel, who abhor justice, and pervert all equity, 
 who build up Zion with blood, and Jerusalem with guilt. 
 Her leaders judge for bribes, and her priests teach for a price, and her spokesmen tell fortunes for money; yet they lean on God, and say, "Isn't God among us? No disaster will come on us." 
-Therefore Zion for your sake will be plowed like a field, and Jerusalem will become heaps of rubble, and the mountain of the temple like the high places of a forest. 
+So Zion for your sake will be plowed like a field, and Jerusalem will become heaps of rubble, and the mountain of the temple like the high places of a forest. 

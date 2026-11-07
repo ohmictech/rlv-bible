@@ -1,25 +1,25 @@
 ﻿You, son of man, prophesy to the mountains of Israel, and say, "You mountains of Israel, hear God's word. 
 The God says: 'Because the enemy has said against you, "Aha!" and, "The ancient high places are ours in possession!"' 
-therefore prophesy, and say, 'The God says: "Because, even because they have made you desolate, and swallowed you up on every side, that you might be a possession to the residue of the nations, and you are taken up in the lips of talkers, and the bad report of the people;" 
-therefore, you mountains of Israel, hear the word of God: The God says to the mountains and to the hills, to the watercourses and to the valleys, to the desolate wastes and to the cities that are forsaken, which have become a prey and derision to the residue of the nations that are all around; 
-therefore God says: "Surely in the fire of my jealousy I have spoken against the residue of the nations, and against all Edom, that have appointed my land to themselves for a possession with the joy of all their heart, with despite of soul, to cast it out for a prey."' 
+So prophesy, and say, 'The God says: "Because, even because they have made you desolate, and swallowed you up on every side, that you might be a possession to the residue of the nations, and you are taken up in the lips of talkers, and the bad report of the people;" 
+So, you mountains of Israel, hear the word of God: The God says to the mountains and to the hills, to the watercourses and to the valleys, to the desolate wastes and to the cities that are forsaken, which have become a prey and derision to the residue of the nations that are all around; 
+So God says: "Surely in the fire of my jealousy I have spoken against the residue of the nations, and against all Edom, that have appointed my land to themselves for a possession with the joy of all their heart, with despite of soul, to cast it out for a prey."' 
 Therefore prophesy concerning the land of Israel, and tell the mountains, the hills, the watercourses and the valleys, 'The God says: "Behold, I have spoken in my jealousy and in my wrath, because you have borne the shame of the nations." 
-Therefore God says: "I have sworn, 'Surely the nations that are around you will bear their shame.' 
+So God says: "I have sworn, 'Surely the nations that are around you will bear their shame.' 
 "'"But you, mountains of Israel, you shall shoot out your branches and yield your fruit to my people Israel; for they are at hand to come. 
 For, behold, I am for you, and I will come to you, and you will be tilled and sown. 
 I will multiply men on you, all the house of Israel, even all of it. The cities will be inhabited and the waste places will be built. 
 I will multiply man and animal on you. They will increase and be fruitful. I will cause you to be inhabited as you were before, and you will do better than at your beginnings. Then you will know that I am God. 
 Yes, I will cause men to walk on you, even my people Israel. They will possess you, and you will be their inheritance, and you will never again bereave them of their children." 
 "'The God says: "Because they say to you, 'You are a devourer of men, and have been a bereaver of your nation;' 
-therefore you shall devour men no more, and not bereave your nation any more," says God. 
+So you shall devour men no more, and not bereave your nation any more," says God. 
 "I won't let you hear the shame of the nations any more. You won't bear the reproach of the peoples any more, and you won't cause your nation to stumble any more," says God.'" 
 Moreover God's word came to me, saying, 
 "Son of man, when the house of Israel lived in their own land, they defiled it by their ways and by their deeds. Their way before me was as the uncleanness of a woman in her impurity. 
-Therefore I poured out my wrath on them for the blood which they had poured out on the land, and because they had defiled it with their idols. 
+So I poured out my wrath on them for the blood which they had poured out on the land, and because they had defiled it with their idols. 
 I scattered them among the nations, and they were dispersed through the countries. I judged them according to their way and according to their deeds. 
 When they came to the nations where they went, they profaned my holy name, in that men said of them, 'These are God's people, and have left his land.' 
 But I had respect for my holy name, which the house of Israel had profaned among the nations where they went. 
-"Therefore tell the house of Israel, 'The God says: "I don't do this for your sake, house of Israel, but for my holy name, which you have profaned among the nations where you went. 
+"So tell the house of Israel, 'The God says: "I don't do this for your sake, house of Israel, but for my holy name, which you have profaned among the nations where you went. 
 I will sanctify my great name, which has been profaned among the nations, which you have profaned among them. Then the nations will know that I am God," says God, "when I am proven holy in you before their eyes. 
 "'"For I will take you from among the nations and gather you out of all the countries, and will bring you into your own land. 
 I will sprinkle clean water on you, and you will be clean. I will cleanse you from all your filthiness and from all your idols. 

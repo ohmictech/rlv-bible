@@ -3,9 +3,9 @@ except for his relatives that are near to him: for his mother, for his father, f
 and for his virgin sister who is near to him, who has had no husband; for her he may defile himself. 
 He shall not defile himself, being a chief man among his people, to profane himself. 
 "'They shall not shave their heads or shave off the corners of their beards or make any cuttings in their flesh. 
-They shall be holy to their God, and not profane the name of their God, for they offer the offerings of God made by fire, the bread of their God. Therefore they shall be holy. 
+They shall be holy to their God, and not profane the name of their God, for they offer the offerings of God made by fire, the bread of their God. So they shall be holy. 
 "'They shall not marry a woman who is a prostitute, or profane. A priest shall not marry a woman divorced from her husband; for he is holy to his God. 
-Therefore you shall sanctify him, for he offers the bread of your God. He shall be holy to you, for I God, who sanctify you, am holy. 
+So you shall sanctify him, for he offers the bread of your God. He shall be holy to you, for I God, who sanctify you, am holy. 
 "'The daughter of any priest, if she profanes herself by playing the prostitute, she profanes her father. She shall be burned with fire. 
 "'He who is the high priest among his brothers, upon whose head the anointing oil is poured, and who is consecrated to put on the garments, shall not let the hair of his head hang loose, or tear his clothes. 
 He must not go in to any dead body, or defile himself for his father or for his mother. 

@@ -16,7 +16,7 @@ David said longingly, "Oh that someone would give me water to drink from the wel
 The three mighty men broke through the army of the Philistines, and drew water out of the well of Bethlehem that was by the gate and took it and brought it to David; but he would not drink of it, but poured it out to God. 
 He said, "Be it far from me, God, that I should do this! Isn't this the blood of the men who risked their lives to go?" Therefore he would not drink it. The three mighty men did these things. 
 Abishai, the brother of Joab, the son of Zeruiah, was chief of the three. He lifted up his spear against three hundred and killed them, and had a name among the three. 
-Wasn't he most honorable of the three? Therefore he was made their captain. However he wasn't included as one of the three. 
+Wasn't he most honorable of the three? So he was made their captain. However he wasn't included as one of the three. 
 Benaiah the son of Jehoiada, the son of a valiant man of Kabzeel, who had done mighty deeds, killed the two sons of Ariel of Moab. He also went down and killed a lion in the middle of a pit in a time of snow. 
 He killed a huge Egyptian, and the Egyptian had a spear in his hand; but he went down to him with a staff and plucked the spear out of the Egyptian's hand, and killed him with his own spear. 
 Benaiah the son of Jehoiada did these things, and had a name among the three mighty men. 

@@ -23,7 +23,7 @@ When they began to driftg and to praise, God set ambushers against the children 
 For the children of Ammon and Moab stood up against the inhabitants of Mount Seir to utterly kill and destroy them. When they had finished the inhabitants of Seir, everyone helped to destroy each other. 
 When Judah came to the place overlooking the wilderness, they looked at the multitude; and behold, they were dead bodies fallen to the earth, and there were none who escaped. 
 When Jehoshaphat and his people came to take their plunder, they found among them in abundance both riches and dead bodies with precious jewels, which they stripped off for themselves, more than they could carry away. They took plunder for three days, it was so much. 
-On the fourth day, they assembled themselves in Beracah Valley, for there they blessed God. Therefore the name of that place was called "Beracah Valley" to this day. 
+On the fourth day, they assembled themselves in Beracah Valley, for there they blessed God. So the name of that place was called "Beracah Valley" to this day. 
 Then they returned, every man of Judah and Jerusalem, with Jehoshaphat in front of them, to go again to Jerusalem with joy; for God had made them to rejoice over their enemies. 
 They came to Jerusalem with stringed instruments, harps, and trumpets to God's house. 
 The fear of God was on all the kingdoms of the countries when they heard that God fought against the enemies of Israel. 

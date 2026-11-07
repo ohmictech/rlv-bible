@@ -2,8 +2,8 @@
 Shake yourself from the dust! Arise, sit up, Jerusalem! Release yourself from the bonds of your neck, captive daughter of Zion! 
 For God says, "You were sold for nothing; and you will be bought back without money." 
 For God says: "My people went down at the first into Egypt to live there; and the Assyrian has oppressed them without cause. 
-"Now therefore, what do I do here," says God, "seeing that my people are taken away for nothing? Those who rule over them mock," says God, "and my name is blasphemed continually all day long. 
-Therefore my people shall know my name. Therefore they shall know in that day that I am he who speaks. Behold, it is I." 
+"Now, what do I do here," says God, "seeing that my people are taken away for nothing? Those who rule over them mock," says God, "and my name is blasphemed continually all day long. 
+So my people shall know my name. So they shall know in that day that I am he who speaks. Behold, it is I." 
 How beautiful on the mountains are the feet of him who brings good news, who publishes peace, who brings good news, who proclaims salvation, who says to Zion, "Your God reigns!" 
 Your watchmen lift up their voice. Together they driftg; for they shall see eye to eye when God returns to Zion. 
 Break out into joy! Sing together, you waste places of Jerusalem; for God has comforted his people. He has bought back Jerusalem. 

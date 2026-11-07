@@ -1,5 +1,5 @@
 ﻿Now King David was old and advanced in years; and they covered him with clothes, but he couldn't keep warm. 
-Therefore his servants said to him, "Let a young virgin be sought for my lord the king. Let her stand before the king, and cherish him; and let her lie in your bosom, that my lord the king may keep warm." 
+So his servants said to him, "Let a young virgin be sought for my lord the king. Let her stand before the king, and cherish him; and let her lie in your bosom, that my lord the king may keep warm." 
 So they sought for a beautiful young lady throughout all the borders of Israel, and found Abishag the Shunammite, and brought her to the king. 
 The young lady was very beautiful; and she cherished the king, and served him; but the king didn't know her intimately. 
 Then Adonijah the son of Haggith exalted himself, saying, "I will be king." Then he prepared him chariots and horsemen, and fifty men to run before him. 
@@ -9,7 +9,7 @@ But Zadok the priest, Benaiah the son of Jehoiada, Nathan the spokesman, Shimei,
 Adonijah killed sheep, cattle, and fatlings by the stone of Zoheleth, which is beside En Rogel; and he called all his brothers, the king's sons, and all the men of Judah, the king's servants; 
 but he didn't call Nathan the spokesman, and Benaiah, and the mighty men, and Solomon his brother. 
 Then Nathan spoke to Bathsheba the mother of Solomon, saying, "Haven't you heard that Adonijah the son of Haggith reigns, and David our lord doesn't know it? 
-Now therefore come, please let me give you counsel, that you may save your own life and your son Solomon's life. 
+Now come, please let me give you counsel, that you may save your own life and your son Solomon's life. 
 Go in to King David, and tell him, 'Didn't you, my lord the king, swear to your servant, saying, "Assuredly Solomon your son shall reign after me, and he shall sit on my throne"? Why then does Adonijah reign?' 
 Behold, while you are still talking there with the king, I will also come in after you and confirm your words." 
 Bathsheba went in to the king in his room. The king was very old; and Abishag the Shunammite was serving the king. 

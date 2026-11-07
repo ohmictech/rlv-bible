@@ -9,7 +9,7 @@ He said, "Put your hand inside your cloak again." He put his hand inside his clo
 It will happen, if they will not believe even these two signs or listen to your voice, that you shall take of the water of the river, and pour it on the dry land. The water which you take out of the river will become blood on the dry land." 
 Moses said to God, "O Lord, I am not eloquent, neither before now, nor since you have spoken to your servant; for I am slow of speech, and of a slow tongue." 
 God said to him, "Who made man's mouth? Or who makes one mute, or deaf, or seeing, or blind? Isn't it I, God? 
-Now therefore go, and I will be with your mouth, and teach you what you shall speak." 
+Now go, and I will be with your mouth, and teach you what you shall speak." 
 Moses said, "Oh, Lord, please send someone else." 
 God's anger burned against Moses, and he said, "What about Aaron, your brother, the Levite? I know that he can speak well. Also, behold, he is coming out to meet you. When he sees you, he will be glad in his heart. 
 You shall speak to him, and put the words in his mouth. I will be with your mouth, and with his mouth, and will teach you what you shall do. 

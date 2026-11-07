@@ -3,7 +3,7 @@ Though they say, 'As God lives,' surely they swear falsely."
 O God, don't your eyes look on truth? You have stricken them, but they were not grieved. You have consumed them, but they have refused to receive correction. They have made their faces harder than a rock. They have refused to return. 
 Then I said, "Surely these are poor. They are foolish; for they don't know God's way, nor the law of their God. 
 I will go to the great men and will speak to them, for they know the way of God, and the law of their God." But these with one accord have broken the yoke, and burst the bonds. 
-Therefore a lion out of the forest will kill them. A wolf of the evenings will destroy them. A leopard will watch against their cities. Everyone who goes out there will be torn in pieces, because their rebellion are many and their backsliding has increased. 
+So a lion out of the forest will kill them. A wolf of the evenings will destroy them. A leopard will watch against their cities. Everyone who goes out there will be torn in pieces, because their rebellion are many and their backsliding has increased. 
 "How can I pardon you? Your children have forsaken me, and sworn by what are no gods. When I had fed them to the full, they committed adultery, and assembled themselves in troops at the prostitutes' houses. 
 They were as fed horses roaming at large. Everyone neighed after his neighbor's wife. 
 Shouldn't I punish them for these things?" says God. "Shouldn't my soul be avenged on such a nation as this? 
@@ -11,7 +11,7 @@ Shouldn't I punish them for these things?" says God. "Shouldn't my soul be aveng
 For the house of Israel and the house of Judah have dealt very treacherously against me," says God. 
 They have denied God, and said, "It is not he. Bad won't come on us. We won't see sword or famine. 
 The spokesmen will become wind, and the word is not in them. Thus it will be done to them." 
-Therefore the God of Armies says, "Because you speak this word, behold, I will make my words in your mouth fire, and this people wood, and it will devour them. 
+So the God of Armies says, "Because you speak this word, behold, I will make my words in your mouth fire, and this people wood, and it will devour them. 
 Behold, I will bring a nation on you from far away, house of Israel," says God. "It is a mighty nation. It is an ancient nation, a nation whose language you don't know and don't understand what they say. 
 Their quiver is an open tomb. They are all mighty men. 
 They will eat up your harvest and your bread, which your sons and your daughters should eat. They will eat up your flocks and your herds. They will eat up your vines and your fig trees. They will beat down your fortified cities in which you trust with the sword. 
@@ -24,7 +24,7 @@ Don't you fear me?' says God; 'Won't you tremble at my presence, who have placed
 They don't say in their heart, 'Let's now fear our God, who gives rain, both the former and the latter, in its season, who preserves to us the appointed weeks of the harvest.' 
 "Your guilt have turned away these things, and your mistakes have withheld good from you. 
 For guilty men are found among my people. They watch, as fowlers lie in wait. They set a trap. They catch men. 
-As a cage is full of birds, so are their houses full of deceit. Therefore they have become great, and grew rich. 
+As a cage is full of birds, so are their houses full of deceit. So they have become great, and grew rich. 
 They have grown fat. They shine; yes, they excel in deeds of guilt. They don't plead the cause, the cause of the fatherless, that they may prosper; and they don't defend the rights of the needy. 
 "Shouldn't I punish for these things?" says God. "Shouldn't my soul be avenged on such a nation as this? 
 "An astonishing and horrible thing has happened in the land. 

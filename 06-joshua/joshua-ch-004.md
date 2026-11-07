@@ -14,7 +14,7 @@ About forty thousand men, ready and armed for war, passed over before God to bat
 On that day, God magnified Joshua in the sight of all Israel; and they feared him, as they feared Moses, all the days of his life. 
 God spoke to Joshua, saying, 
 "Command the priests who bear the ark of the covenant, that they come up out of the Jordan." 
-Joshua therefore commanded the priests, saying, "Come up out of the Jordan!" 
+Joshua commanded the priests, saying, "Come up out of the Jordan!" 
 When the priests who bore the ark of God's covenant had come up out of the middle of the Jordan, and the soles of the priests' feet had been lifted up to the dry ground, the waters of the Jordan returned to their place, and went over all its banks, as before. 
 The people came up out of the Jordan on the tenth day of the first month, and encamped in Gilgal, on the east border of Jericho. 
 Joshua set up those twelve stones, which they took out of the Jordan, in Gilgal. 

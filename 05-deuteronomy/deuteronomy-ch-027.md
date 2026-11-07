@@ -7,7 +7,7 @@ You shall build your God's altar of uncut stones. You shall offer burnt offering
 You shall sacrifice offerings for wholeness, and shall eat there. You shall rejoice before your God. 
 You shall write on the stones all the words of this law very plainly." 
 Moses and the Levitical priests spoke to all Israel, saying, "Be silent and listen, Israel! Today you have become the people of your God. 
-You shall therefore obey your God's voice, and do his commandments and his statutes, which I command you today." 
+You shall obey your God's voice, and do his commandments and his statutes, which I command you today." 
 Moses commanded the people the same day, saying, 
 "These shall stand on Mount Gerizim to bless the people, when you have crossed over the Jordan: Simeon, Levi, Judah, Issachar, Joseph, and Benjamin. 
 These shall stand on Mount Ebal for the curse: Reuben, Gad, Asher, Zebulun, Dan, and Naphtali. 

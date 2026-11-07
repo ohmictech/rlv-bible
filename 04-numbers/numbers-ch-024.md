@@ -8,7 +8,7 @@ Water shall flow from his buckets. His seed shall be in many waters. His king sh
 God brings him out of Egypt. He has as it were the strength of the wild ox. He shall consume the nations his adversaries, shall break their bones in pieces, and pierce them with his arrows. 
 He couched, he lay down as a lion, as a lioness; who shall rouse him up? Everyone who blesses you is blessed. Everyone who curses you is cursed." 
 Balak's anger burned against Balaam, and he struck his hands together. Balak said to Balaam, "I called you to curse my enemies, and, behold, you have altogether blessed them these three times. 
-Therefore, flee to your place, now! I thought to promote you to great honor; but, behold, God has kept you back from honor." 
+So, flee to your place, now! I thought to promote you to great honor; but, behold, God has kept you back from honor." 
 Balaam said to Balak, "Didn't I also tell your messengers whom you sent to me, saying, 
 'If Balak would give me his house full of silver and gold, I can't go beyond God's word, to do either good or bad from my own mind. I will say what God says'? 
 Now, behold, I go to my people. Come, I will inform you what this people shall do to your people in the latter days." 

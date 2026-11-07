@@ -13,7 +13,7 @@ When you have finished tithing all the tithe of your increase in the third year,
 You shall say before your God, "I have put away the holy things out of my house, and also have given them to the Levite, to the foreigner, to the fatherless, and to the widow, according to all your commandment which you have commanded me. I have not transgressed any of your commandments, neither have I forgotten them. 
 I have not eaten of it in my mourning, neither have I removed any of it while I was unclean, nor given of it for the dead. I have listened to my God's voice. I have done according to all that you have commanded me. 
 Look down from your holy habitation, from the sky, and bless your people Israel, and the ground which you have given us, as you swore to our fathers, a land flowing with milk and honey." 
-Today your God commands you to do these statutes and ordinances. You shall therefore keep and do them with all your heart and with all your soul. 
+Today your God commands you to do these statutes and ordinances. You shall keep and do them with all your heart and with all your soul. 
 You have declared today that God is your God, and that you would walk in his ways, keep his statutes, his commandments, and his ordinances, and listen to his voice. 
 God has declared today that you are a people for his own possession, as he has promised you, and that you should keep all his commandments. 
 He will make you high above all nations that he has made, in praise, in name, and in honor, and that you may be a holy people to your God, as he has spoken. 

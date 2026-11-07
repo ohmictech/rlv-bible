@@ -4,7 +4,7 @@ Then he went inward and measured each post of the entrance, two cubits; and the 
 He measured its length, twenty cubits, and the width, twenty cubits, before the nave. He said to me, "This is the most holy place." 
 Then he measured the wall of the house, six cubits; and the width of every side room, four cubits, all around the house on every side. 
 The side rooms were in three stories, one over another, and thirty in each story. They entered into the wall which belonged to the house for the side rooms all around, that they might be supported and not penetrate the wall of the house. 
-The side rooms were wider on the higher levels, because the walls were narrower at the higher levels. Therefore the width of the house increased upward; and so one went up from the lowest level to the highest through the middle level. 
+The side rooms were wider on the higher levels, because the walls were narrower at the higher levels. So the width of the house increased upward; and so one went up from the lowest level to the highest through the middle level. 
 I saw also that the house had a raised base all around. The foundations of the side rooms were a full reed of six great cubits. 
 The thickness of the outer wall of the side rooms was five cubits. That which was left was the place of the side rooms that belonged to the house. 
 Between the rooms was a width of twenty cubits around the house on every side. 

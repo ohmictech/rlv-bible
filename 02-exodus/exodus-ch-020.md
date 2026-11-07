@@ -8,7 +8,7 @@ and showing loving kindness to thousands of those who love me and keep my comman
 "Remember the Sabbath day, to keep it holy. 
 You shall labor six days, and do all your work, 
 but the seventh day is a Sabbath to your God. You shall not do any work in it, you, nor your son, nor your daughter, your male servant, nor your female servant, nor your livestock, nor your stranger who is within your gates; 
-for in six days God made the sky and the earth, the sea, and all that is in them, and rested the seventh day; therefore God blessed the Sabbath day, and made it holy. 
+for in six days God made the sky and the earth, the sea, and all that is in them, and rested the seventh day; God blessed the Sabbath day, and made it holy. 
 "Honor your father and your mother, that your days may be long in the land which your God gives you. 
 "You shall not murder. 
 "You shall not commit adultery. 

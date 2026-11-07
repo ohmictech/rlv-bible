@@ -5,7 +5,7 @@ Her spokesmen are arrogant and treacherous people. Her priests have profaned the
 God, within her, is righteous. He will do no wrong. Every morning he brings his justice to light. He doesn't fail, but the unjust know no shame. 
 I have cut off nations. Their battlements are desolate. I have made their streets waste, so that no one passes by. Their cities are destroyed, so that there is no man, so that there is no inhabitant. 
 I said, "Just fear me. Receive correction," so that her dwelling won't be cut off, according to all that I have appointed concerning her. But they rose early and corrupted all their doings. 
-"Therefore wait for me", says God, "until the day that I rise up to the prey, for my determination is to gather the nations, that I may assemble the kingdoms to pour on them my indignation, even all my fierce anger, for all the earth will be devoured with the fire of my jealousy. 
+"So wait for me", says God, "until the day that I rise up to the prey, for my determination is to gather the nations, that I may assemble the kingdoms to pour on them my indignation, even all my fierce anger, for all the earth will be devoured with the fire of my jealousy. 
 For then I will purify the lips of the peoples, that they may all call on God's name, to serve him shoulder to shoulder. 
 From beyond the rivers of Cush, my worshipers, even the daughter of my dispersed people, will bring my offering. 
 In that day you will not be disappointed for all your doings in which you have transgressed against me; for then I will take away out from among you your proudly exulting ones, and you will no more be arrogant in my holy mountain. 

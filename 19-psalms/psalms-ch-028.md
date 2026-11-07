@@ -4,6 +4,6 @@ Don't draw me away with the guilty, with the workers of guilt who speak peace wi
 Give them according to their work, and according to the guilt of their doings. Give them according to the operation of their hands. Bring back on them what they deserve. 
 Because they don't respect the works of God, nor the operation of his hands, he will break them down and not build them up. 
 Blessed be God, because he has heard the voice of my petitions. 
-God is my strength and my shield. My heart has trusted in him, and I am helped. Therefore my heart greatly rejoices. With my song I will thank him. 
+God is my strength and my shield. My heart has trusted in him, and I am helped. So my heart greatly rejoices. With my song I will thank him. 
 God is their strength. He is a stronghold of salvation to his anointed. 
 Save your people, and bless your inheritance. Be their shepherd also, and bear them up for the eras. 

@@ -13,7 +13,7 @@ So we will come on him in some place where he will be found, and we will light o
 Moreover, if he has gone into a city, then all Israel will bring ropes to that city, and we will draw it into the river, until there isn't one small stone found there." 
 Absalom and all the men of Israel said, "The counsel of Hushai the Archite is better than the counsel of Ahithophel." For God had ordained to defeat the good counsel of Ahithophel, to the intent that God might bring bad on Absalom. 
 Then Hushai said to Zadok and to Abiathar the priests, "Ahithophel counseled Absalom and the elders of Israel that way; and I have counseled this way. 
-Now therefore send quickly, and tell David, saying, 'Don't lodge tonight at the fords of the wilderness, but by all means pass over, lest the king be swallowed up, and everyone who is with him.'" 
+Now send quickly, and tell David, saying, 'Don't lodge tonight at the fords of the wilderness, but by all means pass over, lest the king be swallowed up, and everyone who is with him.'" 
 Now Jonathan and Ahimaaz were staying by En Rogel; and a female servant used to go and report to them, and they went and told King David; for they couldn't risk being seen coming into the city. 
 But a boy saw them, and told Absalom. Then they both went away quickly and came to the house of a man in Bahurim, who had a well in his court; and they went down there. 
 The woman took and spread the covering over the well's mouth, and spread out crushed grain on it; and nothing was known. 

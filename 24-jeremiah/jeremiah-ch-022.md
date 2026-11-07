@@ -15,7 +15,7 @@ who says, 'I will build myself a wide house and spacious rooms,' and cuts out wi
 "Should you reign because you strive to excel in cedar? Didn't your father eat and drink, and do justice and righteousness? Then it was well with him. 
 He judged the cause of the poor and needy; so then it was well. Wasn't this to know me?" says God. 
 But your eyes and your heart are only for your covetousness, for shedding innocent blood, for oppression, and for doing violence." 
-Therefore God says concerning Jehoiakim the son of Josiah, king of Judah: "They won't lament for him, saying, 'Ah my brother!' or, 'Ah sister!' They won't lament for him, saying 'Ah lord!' or, 'Ah his glory!' 
+So God says concerning Jehoiakim the son of Josiah, king of Judah: "They won't lament for him, saying, 'Ah my brother!' or, 'Ah sister!' They won't lament for him, saying 'Ah lord!' or, 'Ah his glory!' 
 He will be buried with the burial of a donkey, drawn and cast out beyond the gates of Jerusalem." 
 "Go up to Lebanon, and cry out. Lift up your voice in Bashan, and cry from Abarim; for all your lovers have been destroyed. 
 I spoke to you in your prosperity, but you said, 'I will not listen.' This has been your way from your youth, that you didn't obey my voice. 

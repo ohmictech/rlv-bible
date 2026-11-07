@@ -14,7 +14,7 @@ I heard the noise of the wings of the living creatures as they touched one anoth
 So the Spirit lifted me up, and took me away; and I went in bitterness, in the heat of my spirit; and God's hand was strong on me. 
 Then I came to them of the captivity at Tel Aviv who lived by the river Chebar, and to where they lived; and I sat there overwhelmed among them seven days. 
 At the end of seven days, God's word came to me, saying, 
-"Son of man, I have made you a watchman to the house of Israel. Therefore hear the word from my mouth, and warn them from me. 
+"Son of man, I have made you a watchman to the house of Israel. So hear the word from my mouth, and warn them from me. 
 When I tell the guilty, 'You will surely die;' and you give him no warning, nor speak to warn the guilty from his guilty way, to save his life, that guilty man will die in his guilt; but I will require his blood at your hand. 
 Yet if you warn the guilty, and he doesn't turn from his guilt, nor from his guilty way, he will die in his guilt; but you have delivered your soul." 
 "Again, when a righteous man turns from his righteousness and commits guilt, and I lay a stumbling block before him, he will die. Because you have not given him warning, he will die in his wrongdoing, and his righteous deeds which he has done will not be remembered; but I will require his blood at your hand. 

@@ -11,7 +11,7 @@ The king of Israel sent to the place which the man of God told him and warned hi
 The king of Syria's heart was very troubled about this. He called his servants, and said to them, "Won't you show me which of us is for the king of Israel?" 
 One of his servants said, "No, my lord, O king; but Elisha, the spokesman who is in Israel, tells the king of Israel the words that you speak in your bedroom." 
 He said, "Go and see where he is, that I may send and get him." He was told, "Behold, he is in Dothan." 
-Therefore he sent horses, chariots, and a great army there. They came by night and surrounded the city. 
+So he sent horses, chariots, and a great army there. They came by night and surrounded the city. 
 When the servant of the man of God had risen early and gone out, behold, an army with horses and chariots was around the city. His servant said to him, "Alas, my master! What shall we do?" 
 He answered, "Don't be afraid, for those who are with us are more than those who are with them." 
 Elisha prayed, and said, "God, please open his eyes, that he may see." God opened the young man's eyes, and he saw; and behold, the mountain was full of horses and chariots of fire around Elisha. 

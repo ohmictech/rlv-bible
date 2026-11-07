@@ -14,7 +14,7 @@ I make a decree that all those of the people of Israel and their priests and the
 Because you are sent by the king and his seven counselors to inquire concerning Judah and Jerusalem, according to the law of your God which is in your hand, 
 and to carry the silver and gold, which the king and his counselors have freely offered to the God of Israel, whose habitation is in Jerusalem, 
 and all the silver and gold that you will find in all the province of Babylon, with the free will offering of the people and of the priests, offering willingly for the house of their God which is in Jerusalem. 
-Therefore you shall with all diligence buy with this money bulls, rams, and lambs with their meal offerings and their drink offerings, and shall offer them on the altar of the house of your God which is in Jerusalem. 
+So you shall with all diligence buy with this money bulls, rams, and lambs with their meal offerings and their drink offerings, and shall offer them on the altar of the house of your God which is in Jerusalem. 
 Whatever seems good to you and to your brothers to do with the rest of the silver and the gold, do that according to the will of your God. 
 The vessels that are given to you for the service of the house of your God, deliver before the God of Jerusalem. 
 Whatever more will be needed for the house of your God, which you may have occasion to give, give it out of the king's treasure house. 

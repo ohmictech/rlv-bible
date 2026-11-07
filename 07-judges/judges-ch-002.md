@@ -1,6 +1,6 @@
 ﻿God's messenger came up from Gilgal to Bochim. He said, "I brought you out of Egypt, and have brought you to the land which I swore to give your fathers. I said, 'I will never break my covenant with you. 
 You shall make no covenant with the inhabitants of this land. You shall break down their altars.' But you have not listened to my voice. Why have you done this? 
-Therefore I also said, 'I will not drive them out from before you; but they shall be in your sides, and their gods will be a snare to you.'" 
+So I also said, 'I will not drive them out from before you; but they shall be in your sides, and their gods will be a snare to you.'" 
 When God's messenger spoke these words to all the children of Israel, the people lifted up their voice and wept. 
 They called the name of that place Bochim, and they sacrificed there to God. 
 Now when Joshua had sent the people away, the children of Israel each went to his inheritance to possess the land. 

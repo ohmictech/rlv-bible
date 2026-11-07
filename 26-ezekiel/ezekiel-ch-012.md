@@ -1,6 +1,6 @@
 ﻿God's word also came to me, saying, 
 "Son of man, you dwell in the middle of the rebellious house, who have eyes to see, and don't see, who have ears to hear, and don't hear; for they are a rebellious house. 
-"Therefore, you son of man, prepare your baggage for moving, and move by day in their sight. You shall move from your place to another place in their sight. It may be they will consider, though they are a rebellious house. 
+"So, you son of man, prepare your baggage for moving, and move by day in their sight. You shall move from your place to another place in their sight. It may be they will consider, though they are a rebellious house. 
 You shall bring out your baggage by day in their sight, as baggage for moving. You shall go out yourself at evening in their sight, as when men go out into exile. 
 Dig through the wall in their sight, and carry your baggage out that way. 
 In their sight you shall bear it on your shoulder, and carry it out in the dark. You shall cover your face, so that you don't see the land, for I have set you for a sign to the house of Israel." 
@@ -20,7 +20,7 @@ Tell the people of the land, 'The God says concerning the inhabitants of Jerusal
 The cities that are inhabited will be laid waste, and the land will be a desolation. Then you will know that I am God."'" 
 God's word came to me, saying, 
 "Son of man, what is this proverb that you have in the land of Israel, saying, 'The days are prolonged, and every vision fails'? 
-Tell them therefore, 'The God says: "I will make this proverb to cease, and they will no more use it as a proverb in Israel;"' but tell them, '"The days are at hand, and the fulfillment of every vision. 
+Tell them, 'The God says: "I will make this proverb to cease, and they will no more use it as a proverb in Israel;"' but tell them, '"The days are at hand, and the fulfillment of every vision. 
 For there will be no more any false vision nor flattering divination within the house of Israel. 
 For I am God. I will speak, and the word that I speak will be performed. It will be no more deferred; for in your days, rebellious house, I will speak the word and will perform it," says God.'" 
 Again God's word came to me, saying, 

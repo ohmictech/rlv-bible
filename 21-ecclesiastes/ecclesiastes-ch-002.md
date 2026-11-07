@@ -1,4 +1,4 @@
-﻿I said in my heart, "Come now, I will test you with mirth; therefore enjoy pleasure;" and behold, this also was vanity. 
+﻿I said in my heart, "Come now, I will test you with mirth; enjoy pleasure;" and behold, this also was vanity. 
 I said of laughter, "It is foolishness;" and of mirth, "What does it accomplish?" 
 I searched in my heart how to cheer my flesh with wine, my heart yet guiding me with wisdom, and how to lay hold of folly, until I might see what it was good for the sons of men that they should do under the sky all the days of their lives. 
 I made myself great works. I built myself houses. I planted myself vineyards. 
@@ -17,7 +17,7 @@ For of the wise man, even as of the fool, there is no memory for the eras, since
 So I hated life, because the work that is worked under the sun was grievous to me; for all is vanity and a chasing after wind. 
 I hated all my labor in which I labored under the sun, because I must leave it to the man who comes after me. 
 Who knows whether he will be a wise man or a fool? Yet he will have rule over all of my labor in which I have labored, and in which I have shown myself wise under the sun. This also is vanity. 
-Therefore I began to cause my heart to despair concerning all the labor in which I had labored under the sun. 
+So I began to cause my heart to despair concerning all the labor in which I had labored under the sun. 
 For there is a man whose labor is with wisdom, with knowledge, and with skillfulness; yet he shall leave it for his portion to a man who has not labored for it. This also is vanity and a great bad. 
 For what does a man have of all his labor and of the striving of his heart, in which he labors under the sun? 
 For all his days are sorrows, and his travail is grief; yes, even in the night his heart takes no rest. This also is vanity. 

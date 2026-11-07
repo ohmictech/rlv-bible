@@ -21,7 +21,7 @@ but if you refuse and rebel, you will be devoured with the sword; for God's mout
 How the faithful city has become a prostitute! She was full of justice. Righteousness lodged in her, but now there are murderers. 
 Your silver has become dross, your wine mixed with water. 
 Your princes are rebellious and companions of thieves. Everyone loves bribes and follows after rewards. They don't defend the fatherless, neither does the cause of the widow come to them. 
-Therefore the Lord, GOD of Armies, the Mighty One of Israel, says: "Ah, I will get relief from my adversaries, and avenge myself on my enemies. 
+So the Lord, GOD of Armies, the Mighty One of Israel, says: "Ah, I will get relief from my adversaries, and avenge myself on my enemies. 
 I will turn my hand on you, thoroughly purge away your dross, and will take away all your tin. 
 I will restore your judges as at the first, and your counselors as at the beginning. Afterward you shall be called 'The city of righteousness, a faithful town.' 
 Zion shall be bought back with justice, and her converts with righteousness. 

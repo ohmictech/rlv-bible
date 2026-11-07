@@ -1,6 +1,6 @@
 ﻿Then David came to Nob to Ahimelech the priest. Ahimelech came to meet David trembling, and said to him, "Why are you alone, and no man with you?" 
 David said to Ahimelech the priest, "The king has commanded me to do something, and has said to me, 'Let no one know anything about the business about which I send you, and what I have commanded you. I have sent the young men to a certain place.' 
-Now therefore what is under your hand? Please give me five loaves of bread in my hand, or whatever is available." 
+Now what is under your hand? Please give me five loaves of bread in my hand, or whatever is available." 
 The priest answered David, and said, "I have no common bread, but there is holy bread; if only the young men have kept themselves from women." 
 David answered the priest, and said to him, "Truly, women have been kept from us as usual these three days. When I came out, the vessels of the young men were holy, though it was only a common journey. How much more then today shall their vessels be holy?" 
 So the priest gave him holy bread; for there was no bread there but the show bread that was taken from before God, to be replaced with hot bread in the day when it was taken away. 

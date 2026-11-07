@@ -5,7 +5,7 @@ Now before this, Eliashib the priest, who was appointed over the rooms of the ho
 had prepared for him a great room, where previously they laid the meal offerings, the frankincense, the vessels, and the tithes of the grain, the new wine, and the oil, which were given by commandment to the Levites, the singers, and the gatekeepers; and the wave offerings for the priests. 
 But in all this, I was not at Jerusalem; for in the thirty-second year of Artaxerxes king of Babylon I went to the king; and after some days I asked leave of the king, 
 and I came to Jerusalem, and understood the bad that Eliashib had done for Tobiah, in preparing him a room in the courts of God's house. 
-It grieved me severely. Therefore I threw all Tobiah's household stuff out of the room. 
+It grieved me severely. So I threw all Tobiah's household stuff out of the room. 
 Then I commanded, and they cleansed the rooms. I brought into them the vessels of God's house, with the meal offerings and the frankincense again. 
 I perceived that the portions of the Levites had not been given them, so that the Levites and the singers, who did the work, had each fled to his field. 
 Then I contended with the rulers, and said, "Why is God's house forsaken?" I gathered them together, and set them in their place. 
@@ -25,7 +25,7 @@ and their children spoke half in the speech of Ashdod, and could not speak in th
 I contended with them, cursed them, struck certain of them, plucked off their hair, and made them swear by God, "You shall not give your daughters to their sons, nor take their daughters for your sons, or for yourselves. 
 Didn't Solomon king of Israel drifted by these things? Yet among many nations there was no king like him, and he was loved by his God, and God made him king over all Israel. Nevertheless foreign women caused even him to drift. 
 Shall we then listen to you to do all this great bad, to trespass against our God in marrying foreign women?" 
-One of the sons of Joiada, the son of Eliashib the high priest, was son-in-law to Sanballat the Horonite; therefore I chased him from me. 
+One of the sons of Joiada, the son of Eliashib the high priest, was son-in-law to Sanballat the Horonite; I chased him from me. 
 Remember them, my God, because they have defiled the priesthood and the covenant of the priesthood and of the Levites. 
 Thus I cleansed them from all foreigners and appointed duties for the priests and for the Levites, everyone in his work; 
 and for the wood offering, at appointed times, and for the first fruits. Remember me, my God, for good. 

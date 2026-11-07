@@ -8,7 +8,7 @@ Of the Gershonites: Ladan and Shimei.
 The sons of Ladan: Jehiel the chief, Zetham, and Joel, three. 
 The sons of Shimei: Shelomoth, Haziel, and Haran, three. These were the heads of the fathers' households of Ladan. 
 The sons of Shimei: Jahath, Zina, Jeush, and Beriah. These four were the sons of Shimei. 
-Jahath was the chief, and Zizah the second; but Jeush and Beriah didn't have many sons; therefore they became a fathers' house in one reckoning. 
+Jahath was the chief, and Zizah the second; but Jeush and Beriah didn't have many sons; they became a fathers' house in one reckoning. 
 The sons of Kohath: Amram, Izhar, Hebron, and Uzziel, four. 
 The sons of Amram: Aaron and Moses; and Aaron was separated that he should sanctify the most holy things, he and his sons for the eras, to burn incense before God, to minister to him, and to bless in his name for the eras. 
 But as for Moses the man of God, his sons were named among the tribe of Levi. 

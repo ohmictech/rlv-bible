@@ -11,7 +11,7 @@ So the service was prepared, and the priests stood in their place, and the Levit
 They killed the Passover lambs, and the priests sprinkled the blood which they received from their hands, and the Levites skinned them. 
 They removed the burnt offerings, that they might give them according to the divisions of the fathers' houses of the children of the people, to offer to God, as it is written in the book of Moses. They did the same with the cattle. 
 They roasted the Passover with fire according to the ordinance. They boiled the holy offerings in pots, in cauldrons, and in pans, and carried them quickly to all the children of the people. 
-Afterward they prepared for themselves and for the priests, because the priests the sons of Aaron were busy with offering the burnt offerings and the fat until night. Therefore the Levites prepared for themselves and for the priests the sons of Aaron. 
+Afterward they prepared for themselves and for the priests, because the priests the sons of Aaron were busy with offering the burnt offerings and the fat until night. So the Levites prepared for themselves and for the priests the sons of Aaron. 
 The singers, the sons of Asaph, were in their place, according to the commandment of David, Asaph, Heman, and Jeduthun the king's seer; and the gatekeepers were at every gate. They didn't need to depart from their service, because their brothers the Levites prepared for them. 
 So all the service of God was prepared the same day, to keep the Passover, and to offer burnt offerings on God's altar, according to the commandment of King Josiah. 
 The children of Israel who were present kept the Passover at that time, and the feast of unleavened bread seven days. 

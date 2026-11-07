@@ -16,4 +16,4 @@ You shall have a perfect and just weight. You shall have a perfect and just meas
 For everyone who does such things, everyone who does unrighteously, is an abomination to your God. 
 Remember what Amalek did to you by the way as you came out of Egypt, 
 how he met you by the way, and struck the rearmost of you, everyone who was feeble behind you, when you were faint and weary; and he didn't fear God. 
-Therefore it shall be, when your God has given you rest from all your enemies all around, in the land which your God gives you for an inheritance to possess it, that you shall blot out the memory of Amalek from under the sky. You shall not forget. 
+So it shall be, when your God has given you rest from all your enemies all around, in the land which your God gives you for an inheritance to possess it, that you shall blot out the memory of Amalek from under the sky. You shall not forget. 

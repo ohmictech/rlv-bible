@@ -6,7 +6,7 @@ or whoever touches any creeping thing by which he may be made unclean, or a man 
 the person that touches any such shall be unclean until the evening, and shall not eat of the holy things unless he bathes his body in water. 
 When the sun is down, he shall be clean; and afterward he shall eat of the holy things, because it is his bread. 
 He shall not eat that which dies of itself or is torn by animals, defiling himself by it. I am God. 
-"'They shall therefore follow my commandment, lest they incur guilt for it and die in it, if they profane it. I am God who sanctifies them. 
+"'They shall follow my commandment, lest they incur guilt for it and die in it, if they profane it. I am God who sanctifies them. 
 "'No stranger shall eat of the holy thing: a foreigner living with the priests, or a hired servant, shall not eat of the holy thing. 
 But if a priest buys a slave, purchased by his money, he shall eat of it; and those who are born in his house shall eat of his bread. 
 If a priest's daughter is married to an outsider, she shall not eat of the heave offering of the holy things. 
@@ -28,6 +28,6 @@ God spoke to Moses, saying,
 Whether it is a cow or ewe, you shall not kill it and its young both in one day. 
 "When you sacrifice a sacrifice of thanksgiving to God, you shall sacrifice it so that you may be accepted. 
 It shall be eaten on the same day; you shall leave none of it until the morning. I am God. 
-"Therefore you shall keep my commandments, and do them. I am God. 
+"So you shall keep my commandments, and do them. I am God. 
 You shall not profane my holy name, but I will be made holy among the children of Israel. I am God who makes you holy, 
 who brought you out of the land of Egypt, to be your God. I am God." 

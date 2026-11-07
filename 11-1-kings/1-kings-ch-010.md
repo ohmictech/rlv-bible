@@ -6,7 +6,7 @@ the food of his table, the sitting of his servants, the attendance of his offici
 She said to the king, "It was a true report that I heard in my own land of your acts and of your wisdom. 
 However, I didn't believe the words until I came and my eyes had seen it. Behold, not even half was told me! Your wisdom and prosperity exceed the fame which I heard. 
 Happy are your men, happy are these your servants who stand continually before you, who hear your wisdom. 
-Blessed is your God, who delighted in you, to set you on the throne of Israel. Because God loved Israel for the eras, therefore he made you king, to do justice and righteousness." 
+Blessed is your God, who delighted in you, to set you on the throne of Israel. Because God loved Israel for the eras, he made you king, to do justice and righteousness." 
 She gave the king one hundred twenty talents of gold, and a very great quantity of spices, and precious stones. Never again was there such an abundance of spices as these which the queen of Sheba gave to King Solomon. 
 The fleet of Hiram that brought gold from Ophir also brought in from Ophir great quantities of almug trees and precious stones. 
 The king made of the almug trees pillars for God's house and for the king's house, harps also and stringed instruments for the singers; no such almug trees came or were seen to this day. 

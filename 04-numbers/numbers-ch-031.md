@@ -14,7 +14,7 @@ Moses and Eleazar the priest, with all the princes of the congregation, went out
 Moses was angry with the officers of the army, the captains of thousands and the captains of hundreds, who came from the service of the war. 
 Moses said to them, "Have you saved all the women alive? 
 Behold, these caused the children of Israel, through the counsel of Balaam, to commit trespass against God in the matter of Peor, and so the plague was among the congregation of God. 
-Now therefore kill every male among the little ones, and kill every woman who has known man by lying with him. 
+Now kill every male among the little ones, and kill every woman who has known man by lying with him. 
 But all the girls, who have not known man by lying with him, keep alive for yourselves. 
 "Encamp outside of the camp for seven days. Whoever has killed any person, and whoever has touched any slain, purify yourselves on the third day and on the seventh day, you and your captives. 
 You shall purify every garment, and all that is made of skin, and all work of goats' hair, and all things made of wood." 

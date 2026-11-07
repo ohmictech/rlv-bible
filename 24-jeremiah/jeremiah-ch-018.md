@@ -8,9 +8,9 @@ At the instant I speak concerning a nation, and concerning a kingdom, to pluck u
 if that nation, concerning which I have spoken, turns from their bad, I will repent of the bad that I thought to do to them. 
 At the instant I speak concerning a nation, and concerning a kingdom, to build and to plant it, 
 if they do that which is bad in my sight, that they don't obey my voice, then I will repent of the good with which I said I would benefit them. 
-"Now therefore, speak to the men of Judah, and to the inhabitants of Jerusalem, saying, 'God says: "Behold, I frame bad against you, and devise a plan against you. Everyone return from his bad way now, and amend your ways and your doings."' 
+"Now, speak to the men of Judah, and to the inhabitants of Jerusalem, saying, 'God says: "Behold, I frame bad against you, and devise a plan against you. Everyone return from his bad way now, and amend your ways and your doings."' 
 But they say, 'It is in vain; for we will walk after our own plans, and we will each follow the stubbornness of his bad heart.'" 
-Therefore God says: "Ask now among the nations, 'Who has heard such things?' The virgin of Israel has done a very horrible thing. 
+So God says: "Ask now among the nations, 'Who has heard such things?' The virgin of Israel has done a very horrible thing. 
 Will the snow of Lebanon fail from the rock of the field? Will the cold waters that flow down from afar be dried up? 
 For my people have forgotten me. They have burned incense to false gods. They have been made to stumble in their ways in the ancient paths, to walk in byways, in a way not built up, 
 to make their land an astonishment, and a perpetual hissing. Everyone who passes by it will be astonished, and shake his head. 
@@ -18,6 +18,6 @@ I will scatter them as with an east wind before the enemy. I will show them the 
 Then they said, "Come! Let's devise plans against Jeremiah; for the law won't perish from the priest, nor counsel from the wise, nor the word from the spokesman. Come, and let's strike him with the tongue, and let's not give heed to any of his words." 
 Give heed to me, God, and listen to the voice of those who contend with me. 
 Should bad be recompensed for good? For they have dug a pit for my soul. Remember how I stood before you to speak good for them, to turn away your wrath from them. 
-Therefore deliver up their children to the famine, and give them over to the power of the sword. Let their wives become childless and widows. Let their men be killed and their young men struck by the sword in battle. 
+So deliver up their children to the famine, and give them over to the power of the sword. Let their wives become childless and widows. Let their men be killed and their young men struck by the sword in battle. 
 Let a cry be heard from their houses when you bring a troop suddenly on them; for they have dug a pit to take me and hidden snares for my feet. 
 Yet, God, you know all their counsel against me to kill me. Don't forgive their guilt. Don't blot out their wrongdoing from your sight, Let them be overthrown before you. Deal with them in the time of your anger. 

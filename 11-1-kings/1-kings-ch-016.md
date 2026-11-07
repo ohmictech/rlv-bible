@@ -13,7 +13,7 @@ Thus Zimri destroyed all the house of Baasha, according to God's word which he s
 for all the drifts of Baasha, and the drifts of Elah his son, which they drifted and with which they made Israel to drift, to provoke the God of Israel, to anger with their vanities. 
 Now the rest of the acts of Elah, and all that he did, aren't they written in the book of the chronicles of the kings of Israel? 
 In the twenty-seventh year of Asa king of Judah, Zimri reigned seven days in Tirzah. Now the people were encamped against Gibbethon, which belonged to the Philistines. 
-The people who were encamped heard that Zimri had conspired, and had also killed the king. Therefore all Israel made Omri, the captain of the army, king over Israel that day in the camp. 
+The people who were encamped heard that Zimri had conspired, and had also killed the king. So all Israel made Omri, the captain of the army, king over Israel that day in the camp. 
 Omri went up from Gibbethon, and all Israel with him, and they besieged Tirzah. 
 When Zimri saw that the city was taken, he went into the fortified part of the king's house and burned the king's house over him with fire, and died, 
 for the wrongs he did in doing that which was bad in God's sight, in walking in the way of Jeroboam, and in his wrongdoing which he did to make Israel to drift. 

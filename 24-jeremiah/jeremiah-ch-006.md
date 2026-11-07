@@ -8,17 +8,17 @@ As a well produces its waters, so she produces her guilt. Violence and destructi
 Be instructed, Jerusalem, lest my soul be alienated from you, lest I make you a desolation, an uninhabited land." 
 The God of Armies says, "They will thoroughly glean the remnant of Israel like a vine. Turn again your hand as a grape gatherer into the baskets." 
 To whom should I speak and testify, that they may hear? Behold, their ear is uncircumcised, and they can't listen. Behold, God's word has become a reproach to them. They have no delight in it. 
-Therefore I am full of God's wrath. I am weary with holding it in. "Pour it out on the children in the street, and on the assembly of young men together; for even the husband with the wife will be taken, the aged with him who is full of days. 
+So I am full of God's wrath. I am weary with holding it in. "Pour it out on the children in the street, and on the assembly of young men together; for even the husband with the wife will be taken, the aged with him who is full of days. 
 Their houses will be turned to others, their fields and their wives together; for I will stretch out my hand on the inhabitants of the land, says God." 
 "For from their least even to their greatest, everyone is given to covetousness. From the spokesman even to the priest, everyone deals falsely. 
 They have healed also the hurt of my people superficially, saying, 'Peace, peace!' when there is no peace. 
-Were they ashamed when they had committed abomination? No, they were not at all ashamed, neither could they blush. Therefore they will fall among those who fall. When I visit them, they will be cast down," says God. 
+Were they ashamed when they had committed abomination? No, they were not at all ashamed, neither could they blush. So they will fall among those who fall. When I visit them, they will be cast down," says God. 
 God says, "Stand in the ways and see, and ask for the old paths, 'Where is the good way?' and walk in it, and you will find rest for your souls. But they said, 'We will not walk in it.' 
 I set watchmen over you, saying, 'Listen to the sound of the trumpet!' But they said, 'We will not listen!' 
 Therefore hear, you nations, and know, congregation, what is among them. 
 Hear, earth! Behold, I will bring bad on this people, even the fruit of their thoughts, because they have not listened to my words; and as for my law, they have rejected it. 
 To what purpose does frankincense from Sheba come to me, and the sweet cane from a far country? Your burnt offerings are not acceptable, and your sacrifices are not pleasing to me." 
-Therefore God says, "Behold, I will lay stumbling blocks before this people. The fathers and the sons together will stumble against them. The neighbor and his friend will perish." 
+So God says, "Behold, I will lay stumbling blocks before this people. The fathers and the sons together will stumble against them. The neighbor and his friend will perish." 
 God says, "Behold, a people comes from the north country. A great nation will be stirred up from the uttermost parts of the earth. 
 They take hold of bow and spear. They are cruel, and have no mercy. Their voice roars like the sea, and they ride on horses, everyone set in array, as a man to the battle, against you, daughter of Zion." 
 We have heard its report. Our hands become feeble. Anguish has taken hold of us, and pains as of a woman in labor. 

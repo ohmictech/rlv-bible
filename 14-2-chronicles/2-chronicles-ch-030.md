@@ -14,7 +14,7 @@ Many people assembled at Jerusalem to keep the feast of unleavened bread in the 
 They arose and took away the altars that were in Jerusalem, and they took away all the altars for incense and threw them into the brook Kidron. 
 Then they killed the Passover on the fourteenth day of the second month. The priests and the Levites were ashamed, and sanctified themselves, and brought burnt offerings into God's house. 
 They stood in their place after their order, according to the law of Moses the man of God. The priests sprinkled the blood which they received of the hand of the Levites. 
-For there were many in the assembly who had not sanctified themselves; therefore the Levites were in charge of killing the Passovers for everyone who was not clean, to sanctify them to God. 
+For there were many in the assembly who had not sanctified themselves; the Levites were in charge of killing the Passovers for everyone who was not clean, to sanctify them to God. 
 For a multitude of the people, even many of Ephraim, Manasseh, Issachar, and Zebulun, had not cleansed themselves, yet they ate the Passover other than the way it is written. For Hezekiah had prayed for them, saying, "May the good God pardon everyone 
 who sets his heart to seek the God of his fathers, even if they aren't clean according to the purification of the sanctuary." 
 God listened to Hezekiah, and healed the people. 

@@ -1,7 +1,7 @@
 ﻿Rehoboam went to Shechem, for all Israel had come to Shechem to make him king. 
 When Jeroboam the son of Nebat heard of it (for he was yet in Egypt, where he had fled from the presence of King Solomon, and Jeroboam lived in Egypt; 
 and they sent and called him), Jeroboam and all the assembly of Israel came, and spoke to Rehoboam, saying, 
-"Your father made our yoke difficult. Now therefore make the hard service of your father, and his heavy yoke which he put on us, lighter, and we will serve you." 
+"Your father made our yoke difficult. Now make the hard service of your father, and his heavy yoke which he put on us, lighter, and we will serve you." 
 He said to them, "Depart for three days, then come back to me." So the people departed. 
 King Rehoboam took counsel with the old men who had stood before Solomon his father while he yet lived, saying, "What counsel do you give me to answer these people?" 
 They replied, "If you will be a servant to this people today, and will serve them, and answer them with good words, then they will be your servants for the eras." 

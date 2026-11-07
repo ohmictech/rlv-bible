@@ -1,7 +1,7 @@
 ﻿Then we turned, and took our journey into the wilderness by the way to the Red Sea, as God spoke to me; and we encircled Mount Seir many days. 
 God spoke to me, saying, 
 "You have encircled this mountain long enough. Turn northward. 
-Command the people, saying, 'You are to pass through the border of your brothers, the children of Esau, who dwell in Seir; and they will be afraid of you. Therefore be careful. 
+Command the people, saying, 'You are to pass through the border of your brothers, the children of Esau, who dwell in Seir; and they will be afraid of you. So be careful. 
 Don't contend with them; for I will not give you any of their land, no, not so much as for the sole of the foot to tread on, because I have given Mount Seir to Esau for a possession. 
 You shall purchase food from them for money, that you may eat. You shall also buy water from them for money, that you may drink.'" 
 For your God has blessed you in all the work of your hands. He has known your walking through this great wilderness. These forty years, your God has been with you. You have lacked nothing. 

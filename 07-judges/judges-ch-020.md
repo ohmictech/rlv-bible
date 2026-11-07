@@ -10,7 +10,7 @@ But now this is the thing which we will do to Gibeah: we will go up against it b
 and we will take ten men of one hundred throughout all the tribes of Israel, and one hundred of one thousand, and a thousand out of ten thousand to get food for the people, that they may do, when they come to Gibeah of Benjamin, according to all the folly that the men of Gibeah have done in Israel." 
 So all the men of Israel were gathered against the city, knit together as one man. 
 The tribes of Israel sent men through all the tribe of Benjamin, saying, "What guilt is this that has happened among you? 
-Now therefore deliver up the men, the guilty fellows who are in Gibeah, that we may put them to death and put away bad from Israel." But Benjamin would not listen to the voice of their brothers, the children of Israel. 
+Now deliver up the men, the guilty fellows who are in Gibeah, that we may put them to death and put away bad from Israel." But Benjamin would not listen to the voice of their brothers, the children of Israel. 
 The children of Benjamin gathered themselves together out of the cities to Gibeah, to go out to battle against the children of Israel. 
 The children of Benjamin were counted on that day out of the cities twenty-six thousand men who drew the sword, in addition to the inhabitants of Gibeah, who were counted seven hundred chosen men. 
 Among all these soldiers there were seven hundred chosen men who were left-handed. Every one of them could sling a stone at a hair and not miss. 
@@ -39,7 +39,7 @@ Now the appointed sign between the men of Israel and the ambushers was that they
 The men of Israel turned in the battle, and Benjamin began to strike and kill of the men of Israel about thirty persons; for they said, "Surely they are struck down before us, as in the first battle." 
 But when the cloud began to arise up out of the city in a pillar of smoke, the Benjamites looked behind them; and behold, the whole city went up in smoke to the sky. 
 The men of Israel turned, and the men of Benjamin were dismayed; for they saw that disaster had come on them. 
-Therefore they turned their backs before the men of Israel to the way of the wilderness, but the battle followed hard after them; and those who came out of the cities destroyed them in the middle of it. 
+So they turned their backs before the men of Israel to the way of the wilderness, but the battle followed hard after them; and those who came out of the cities destroyed them in the middle of it. 
 They surrounded the Benjamites, chased them, and trod them down at their resting place, as far as near Gibeah toward the sunrise. 
 Eighteen thousand men of Benjamin fell; all these were men of valor. 
 They turned and fled toward the wilderness to the rock of Rimmon. They gleaned five thousand men of them in the highways, and followed hard after them to Gidom, and struck two thousand men of them. 

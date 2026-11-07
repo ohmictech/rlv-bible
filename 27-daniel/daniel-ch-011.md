@@ -27,7 +27,7 @@ Yes, those who eat of his delicacies will destroy him, and his army will be swep
 As for both these kings, their hearts will be to do bad things, and they will speak lies at one table; but it won't prosper, for the end will still be at the appointed time. 
 Then he will return into his land with great wealth. His heart will be against the holy covenant. He will take action, and return to his own land. 
 "He will return at the appointed time and come into the south; but it won't be in the latter time as it was in the former. 
-For ships of Kittim will come against him. Therefore he will be grieved, and will return, and have indignation against the holy covenant, and will take action. He will even return, and have regard to those who forsake the holy covenant. 
+For ships of Kittim will come against him. So he will be grieved, and will return, and have indignation against the holy covenant, and will take action. He will even return, and have regard to those who forsake the holy covenant. 
 "Forces from him will profane the sanctuary, even the fortress, and will take away the continual burnt offering. Then they will set up the abomination that makes desolate. 
 He will corrupt those who do guiltily against the covenant by flatteries; but the people who know their God will be strong and take action. 
 "Those who are wise among the people will instruct many; yet they will fall by the sword and by flame, by captivity and by plunder, many days. 

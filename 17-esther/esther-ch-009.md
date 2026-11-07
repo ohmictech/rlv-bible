@@ -16,14 +16,14 @@ The Jews who were in Susa gathered themselves together on the fourteenth day als
 The other Jews who were in the king's provinces gathered themselves together, defended their lives, had rest from their enemies, and killed seventy-five thousand of those who hated them; but they didn't lay their hand on the plunder. 
 This was done on the thirteenth day of the month Adar; and on the fourteenth day of that month they rested and made it a day of feasting and gladness. 
 But the Jews who were in Susa assembled together on the thirteenth and on the fourteenth days of the month; and on the fifteenth day of that month, they rested, and made it a day of feasting and gladness. 
-Therefore the Jews of the villages, who live in the unwalled towns, make the fourteenth day of the month Adar a day of gladness and feasting, a holiday, and a day of sending presents of food to one another. 
+So the Jews of the villages, who live in the unwalled towns, make the fourteenth day of the month Adar a day of gladness and feasting, a holiday, and a day of sending presents of food to one another. 
 Mordecai wrote these things, and sent letters to all the Jews who were in all the provinces of the King Ahasuerus, both near and far, 
 to enjoin them that they should keep the fourteenth and fifteenth days of the month Adar yearly, 
 as the days in which the Jews had rest from their enemies, and the month which was turned to them from sorrow to gladness, and from mourning into a holiday; that they should make them days of feasting and gladness, and of sending presents of food to one another, and gifts to the needy. 
 The Jews accepted the custom that they had begun, as Mordecai had written to them, 
 because Haman the son of Hammedatha, the Agagite, the enemy of all the Jews, had plotted against the Jews to destroy them, and had cast "Pur", that is the lot, to consume them and to destroy them; 
 but when this became known to the king, he commanded by letters that his guilty plan, which he had planned against the Jews, should return on his own head, and that he and his sons should be hanged on the gallows. 
-Therefore they called these days "Purim", from the word "Pur." Therefore because of all the words of this letter, and of that which they had seen concerning this matter, and that which had come to them, 
+So they called these days "Purim", from the word "Pur." Therefore because of all the words of this letter, and of that which they had seen concerning this matter, and that which had come to them, 
 the Jews established and imposed on themselves, on their descendants, and on everyone who joined themselves to them, so that it should not fail that they would keep these two days according to what was written and according to its appointed time every year; 
 and that these days should be remembered and kept throughout every generation, every family, every province, and every city; and that these days of Purim should not fail from among the Jews, nor their memory perish from their offspring. 
 Then Esther the queen, the daughter of Abihail, and Mordecai the Jew wrote with all authority to confirm this second letter of Purim. 

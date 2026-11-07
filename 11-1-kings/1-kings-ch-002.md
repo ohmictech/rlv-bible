@@ -1,12 +1,12 @@
 ﻿Now the days of David came near that he should die; and he commanded Solomon his son, saying, 
-"I am going the way of all the earth. You be strong therefore, and show yourself a man; 
+"I am going the way of all the earth. You be strong, and show yourself a man; 
 and keep the instruction of your God, to walk in his ways, to keep his statutes, his commandments, his ordinances, and his testimonies, according to that which is written in the law of Moses, that you may prosper in all that you do and wherever you turn yourself. 
 Then God may establish his word which he spoke concerning me, saying, 'If your children are careful of their way, to walk before me in truth with all their heart and with all their soul, there shall not fail you,' he said, 'a man on the throne of Israel.' 
 "Moreover you know also what Joab the son of Zeruiah did to me, even what he did to the two captains of the armies of Israel, to Abner the son of Ner and to Amasa the son of Jether, whom he killed, and shed the blood of war in peace, and put the blood of war on his sash that was around his waist and in his sandals that were on his feet. 
-Do therefore according to your wisdom, and don't let his gray head go down to Hades in peace. 
+Do according to your wisdom, and don't let his gray head go down to Hades in peace. 
 But show kindness to the sons of Barzillai the Gileadite, and let them be among those who eat at your table; for so they came to me when I fled from Absalom your brother. 
 "Behold, there is with you Shimei the son of Gera, the Benjamite of Bahurim, who cursed me with a grievous curse in the day when I went to Mahanaim; but he came down to meet me at the Jordan, and I swore to him by God, saying, 'I will not put you to death with the sword.' 
-Now therefore don't hold him guiltless, for you are a wise man; and you will know what you ought to do to him, and you shall bring his gray head down to Hades with blood." 
+Now don't hold him guiltless, for you are a wise man; and you will know what you ought to do to him, and you shall bring his gray head down to Hades with blood." 
 David slept with his fathers, and was buried in David's city. 
 The days that David reigned over Israel were forty years; he reigned seven years in Hebron, and he reigned thirty-three years in Jerusalem. 
 Solomon sat on David his father's throne; and his kingdom was firmly established. 
@@ -16,12 +16,12 @@ He said, "You know that the kingdom was mine, and that all Israel set their face
 Now I ask one petition of you. Don't deny me." She said to him, "Say on." 
 He said, "Please speak to Solomon the king (for he will not tell you 'no'), that he give me Abishag the Shunammite as wife." 
 Bathsheba said, "All right. I will speak for you to the king." 
-Bathsheba therefore went to King Solomon, to speak to him for Adonijah. The king rose up to meet her and bowed himself to her, and sat down on his throne and caused a throne to be set for the king's mother; and she sat on his right hand. 
+Bathsheba went to King Solomon, to speak to him for Adonijah. The king rose up to meet her and bowed himself to her, and sat down on his throne and caused a throne to be set for the king's mother; and she sat on his right hand. 
 Then she said, "I ask one small petition of you; don't deny me." The king said to her, "Ask on, my mother, for I will not deny you." 
 She said, "Let Abishag the Shunammite be given to Adonijah your brother as wife." 
 King Solomon answered his mother, "Why do you ask Abishag the Shunammite for Adonijah? Ask for him the kingdom also, for he is my elder brother; even for him, and for Abiathar the priest, and for Joab the son of Zeruiah." 
 Then King Solomon swore by God, saying, "God do so to me, and more also, if Adonijah has not spoken this word against his own life. 
-Now therefore as God lives, who has established me and set me on my father David's throne, and who has made me a house as he promised, surely Adonijah shall be put to death today." 
+Now as God lives, who has established me and set me on my father David's throne, and who has made me a house as he promised, surely Adonijah shall be put to death today." 
 King Solomon sent Benaiah the son of Jehoiada; and he fell on him, so that he died. 
 To Abiathar the priest the king said, "Go to Anathoth, to your own fields, for you are worthy of death. But I will not at this time put you to death, because you bore God's ark before David my father, and because you were afflicted in all in which my father was afflicted." 
 So Solomon thrust Abiathar out from being priest to God, that he might fulfill God's word which he spoke concerning the house of Eli in Shiloh. 
@@ -41,6 +41,6 @@ Shimei arose, saddled his donkey, and went to Gath to Achish to seek his slaves;
 Solomon was told that Shimei had gone from Jerusalem to Gath, and had come again. 
 The king sent and called for Shimei, and said to him, "Didn't I adjure you by God and warn you, saying, 'Know for certain that on the day you go out and walk anywhere else, you shall surely die'? You said to me, 'The saying that I have heard is good.' 
 Why then have you not kept the oath of God and the commandment that I have instructed you with?" 
-The king said moreover to Shimei, "You know in your heart all the guilt that you did to David my father. Therefore God will return your guilt on your own head. 
+The king said moreover to Shimei, "You know in your heart all the guilt that you did to David my father. So God will return your guilt on your own head. 
 But King Solomon will be blessed, and David's throne will be established before God for the eras." 
 So the king commanded Benaiah the son of Jehoiada; and he went out, and fell on him, so that he died. The kingdom was established in the hand of Solomon. 

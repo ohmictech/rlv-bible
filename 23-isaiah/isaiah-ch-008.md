@@ -4,7 +4,7 @@ I went to the prophetess, and she conceived, and bore a son. Then God said to me
 For before the child knows how to say, 'My father' and 'My mother,' the riches of Damascus and the plunder of Samaria will be carried away by the king of Assyria." 
 God spoke to me yet again, saying, 
 "Because this people has refused the waters of Shiloah that go softly, and rejoice in Rezin and Remaliah's son; 
-now therefore, behold, the Lord brings upon them the mighty flood waters of the River: the king of Assyria and all his glory. It will come up over all its channels, and go over all its banks. 
+now, behold, the Lord brings upon them the mighty flood waters of the River: the king of Assyria and all his glory. It will come up over all its channels, and go over all its banks. 
 It will sweep onward into Judah. It will overflow and pass through. It will reach even to the neck. The stretching out of its wings will fill the width of your land, O Immanuel. 
 Make an uproar, you peoples, and be broken in pieces! Listen, all you from far countries: dress for battle, and be shattered! Dress for battle, and be shattered! 
 Take counsel together, and it will be brought to nothing; speak the word, and it will not stand, for God is with us." 

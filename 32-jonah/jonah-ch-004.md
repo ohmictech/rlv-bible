@@ -1,6 +1,6 @@
 ﻿But it displeased Jonah exceedingly, and he was angry. 
-He prayed to God, and said, "Please, God, wasn't this what I said when I was still in my own country? Therefore I hurried to flee to Tarshish, for I knew that you are a gracious God and merciful, slow to anger, and abundant in loving kindness, and you relent of doing harm. 
-Therefore now, God, take, I beg you, my life from me, for it is better for me to die than to live." 
+He prayed to God, and said, "Please, God, wasn't this what I said when I was still in my own country? So I hurried to flee to Tarshish, for I knew that you are a gracious God and merciful, slow to anger, and abundant in loving kindness, and you relent of doing harm. 
+So now, God, take, I beg you, my life from me, for it is better for me to die than to live." 
 God said, "Is it right for you to be angry?" 
 Then Jonah went out of the city and sat on the east side of the city, and there made himself a booth and sat under it in the shade, until he might see what would become of the city. 
 God prepared a vine and made it to come up over Jonah, that it might be a shade over his head to deliver him from his discomfort. So Jonah was exceedingly glad because of the vine. 

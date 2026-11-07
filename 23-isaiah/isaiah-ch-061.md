@@ -4,7 +4,7 @@ to provide for those who mourn in Zion, to give to them a garland for ashes, the
 They will rebuild the old ruins. They will raise up the former devastated places. They will repair the ruined cities that have been devastated for many generations. 
 Strangers will stand and feed your flocks. Foreigners will work your fields and your vineyards. 
 But you will be called God's priests. Men will call you the servants of our God. You will eat the wealth of the nations. You will boast in their glory. 
-Instead of your shame you will have double. Instead of dishonor, they will rejoice in their portion. Therefore in their land they will possess double. Perpetual joy will be to them. 
+Instead of your shame you will have double. Instead of dishonor, they will rejoice in their portion. So in their land they will possess double. Perpetual joy will be to them. 
 "For I, God, love justice. I hate robbery and guilt. I will give them their reward in truth and I will make an perpetual covenant with them. 
 Their offspring will be known among the nations, and their offspring among the peoples. Everyone who sees them will acknowledge them, that they are the offspring which God has blessed." 
 I will greatly rejoice in God! My soul will be joyful in my God, for he has clothed me with the garments of salvation. He has covered me with the robe of righteousness, as a bridegroom decks himself with a garland and as a bride adorns herself with her jewels. 

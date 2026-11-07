@@ -5,7 +5,7 @@ youths in whom was no defect, but well-favored, skillful in all wisdom, endowed 
 The king appointed for them a daily portion of the king's delicacies and of the wine which he drank, and that they should be nourished three years, that at its end they should stand before the king. 
 Now among these of the children of Judah were Daniel, Hananiah, Mishael, and Azariah. 
 The prince of the eunuchs gave names to them: to Daniel he gave the name Belteshazzar; to Hananiah, Shadrach; to Mishael, Meshach; and to Azariah, Abednego. 
-But Daniel purposed in his heart that he would not defile himself with the king's delicacies, nor with the wine which he drank. Therefore he requested of the prince of the eunuchs that he might not defile himself. 
+But Daniel purposed in his heart that he would not defile himself with the king's delicacies, nor with the wine which he drank. So he requested of the prince of the eunuchs that he might not defile himself. 
 Now God made Daniel find kindness and compassion in the sight of the prince of the eunuchs. 
 The prince of the eunuchs said to Daniel, "I fear my lord the king, who has appointed your food and your drink. For why should he see your faces worse looking than the youths who are of your own age? Then you would endanger my head with the king." 
 Then Daniel said to the steward whom the prince of the eunuchs had appointed over Daniel, Hananiah, Mishael, and Azariah: 
@@ -16,6 +16,6 @@ At the end of ten days, their faces appeared fairer and they were fatter in fles
 So the steward took away their delicacies and the wine that they were given to drink, and gave them vegetables. 
 Now as for these four youths, God gave them knowledge and skill in all learning and wisdom; and Daniel had understanding in all visions and dreams. 
 At the end of the days which the king had appointed for bringing them in, the prince of the eunuchs brought them in before Nebuchadnezzar. 
-The king talked with them; and among them all was found no one like Daniel, Hananiah, Mishael, and Azariah. Therefore they stood before the king. 
+The king talked with them; and among them all was found no one like Daniel, Hananiah, Mishael, and Azariah. So they stood before the king. 
 In every matter of wisdom and understanding concerning which the king inquired of them, he found them ten times better than all the magicians and enchanters who were in all his realm. 
 Daniel continued even to the first year of King Cyrus. 

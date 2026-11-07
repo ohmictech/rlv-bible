@@ -7,12 +7,12 @@ He also hired one hundred thousand mighty men of valor out of Israel for one hun
 A man of God came to him, saying, "O king, don't let the army of Israel go with you, for God is not with Israel, with all the children of Ephraim. 
 But if you will go, take action, and be strong for the battle. God will overthrow you before the enemy; for God has power to help, and to overthrow." 
 Amaziah said to the man of God, "But what shall we do for the hundred talents which I have given to the army of Israel?" The man of God answered, "God is able to give you much more than this." 
-Then Amaziah separated them, the army that had come to him out of Ephraim, to go home again. Therefore their anger was greatly kindled against Judah, and they returned home in fierce anger. 
+Then Amaziah separated them, the army that had come to him out of Ephraim, to go home again. So their anger was greatly kindled against Judah, and they returned home in fierce anger. 
 Amaziah took courage, and led his people out and went to the Valley of Salt, and struck ten thousand of the children of Seir. 
 The children of Judah carried away ten thousand alive, and brought them to the top of the rock, and threw them down from the top of the rock, so that they all were broken in pieces. 
 But the men of the army whom Amaziah sent back, that they should not go with him to battle, fell on the cities of Judah from Samaria even to Beth Horon, and struck of them three thousand, and took much plunder. 
 Now after Amaziah had come from the slaughter of the Edomites, he brought the gods of the children of Seir, and set them up to be his gods, and bowed down himself before them and burned incense to them. 
-Therefore God's anger burned against Amaziah, and he sent to him a spokesman who said to him, "Why have you sought after the gods of the people, which have not delivered their own people out of your hand?" 
+So God's anger burned against Amaziah, and he sent to him a spokesman who said to him, "Why have you sought after the gods of the people, which have not delivered their own people out of your hand?" 
 As he talked with him, the king said to him, "Have we made you one of the king's counselors? Stop! Why should you be struck down?" Then the spokesman stopped, and said, "I know that God has determined to destroy you, because you have done this and have not listened to my counsel." 
 Then Amaziah king of Judah consulted his advisers, and sent to Joash, the son of Jehoahaz, the son of Jehu, king of Israel, saying, "Come! Let's look one another in the face." 
 Joash king of Israel sent to Amaziah king of Judah, saying, "The thistle that was in Lebanon sent to the cedar that was in Lebanon, saying, 'Give your daughter to my son as his wife. Then a wild animal that was in Lebanon passed by and trampled down the thistle. 

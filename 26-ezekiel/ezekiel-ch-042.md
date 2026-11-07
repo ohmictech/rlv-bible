@@ -3,7 +3,7 @@ Facing the length of one hundred cubits was the north door, and the width was fi
 Opposite the twenty cubits which belonged to the inner court, and opposite the pavement which belonged to the outer court, was gallery against gallery in the three stories. 
 Before the rooms was a walk of ten cubits' width inward, a way of one cubit; and their doors were toward the north. 
 Now the upper rooms were shorter; for the galleries took away from these more than from the lower and the middle in the building. 
-For they were in three stories, and they didn't have pillars as the pillars of the courts. Therefore the uppermost was set back more than the lowest and the middle from the ground. 
+For they were in three stories, and they didn't have pillars as the pillars of the courts. So the uppermost was set back more than the lowest and the middle from the ground. 
 The wall that was outside by the side of the rooms, toward the outer court before the rooms, was fifty cubits long. 
 For the length of the rooms that were in the outer court was fifty cubits. Behold, those facing the temple were one hundred cubits. 
 From under these rooms was the entry on the east side, as one goes into them from the outer court. 

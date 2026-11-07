@@ -7,13 +7,13 @@ Ask now, and see whether a man travails with child. Why do I see every man with 
 Alas, for that day is great, so that none is like it! It is even the time of Jacob's trouble; but he will be saved out of it. 
 It will come to pass in that day, says the God of Armies, that I will break his yoke from off your neck, and will burst your bonds. Strangers will no more make them their bondservants; 
 but they will serve their God, and David their king, whom I will raise up to them. 
-Therefore don't be afraid, O Jacob my servant, says God. Don't be dismayed, Israel. For, behold, I will save you from afar, and save your offspring from the land of their captivity. Jacob will return, and will be quiet and at ease. No one will make him afraid. 
+So don't be afraid, O Jacob my servant, says God. Don't be dismayed, Israel. For, behold, I will save you from afar, and save your offspring from the land of their captivity. Jacob will return, and will be quiet and at ease. No one will make him afraid. 
 For I am with you, says God, to save you; for I will make a full end of all the nations where I have scattered you, but I will not make a full end of you; but I will correct you in measure, and will in no way leave you unpunished." 
 For God says, "Your hurt is incurable. Your wound is grievous. 
 There is no one to plead your cause, that you may be bound up. You have no healing medicines. 
 All your lovers have forgotten you. They don't seek you. For I have wounded you with the wound of an enemy, with the chastisement of a cruel one, for the greatness of your guilt, because your mistakes were increased. 
 Why do you cry over your injury? Your pain is incurable. For the greatness of your guilt, because your mistakes have increased, I have done these things to you. 
-Therefore everyone who devours you will be devoured. All your adversaries, everyone of them, will go into captivity. Those who plunder you will be plunder. I will make everyone who preys on you become prey. 
+So everyone who devours you will be devoured. All your adversaries, everyone of them, will go into captivity. Those who plunder you will be plunder. I will make everyone who preys on you become prey. 
 For I will restore health to you, and I will heal you of your wounds," says God, "because they have called you an outcast, saying, 'It is Zion, whom no man seeks after.'" 
 God says: "Behold, I will reverse the captivity of Jacob's tents, and have compassion on his dwelling places. The city will be built on its own hill, and the palace will be inhabited in its own place. 
 Thanksgiving will proceed out of them with the voice of those who make merry. I will multiply them, and they will not be few; I will also glorify them, and they will not be small. 

@@ -10,7 +10,7 @@ But we made our prayer to our God, and set a watch against them day and night be
 Judah said, "The strength of the bearers of burdens is fading and there is much rubble, so that we are not able to build the wall." 
 Our adversaries said, "They will not know or see, until we come in among them and kill them, and cause the work to cease." 
 When the Jews who lived by them came, they said to us ten times from all places, "Wherever you turn, they will attack us." 
-Therefore I set guards in the lowest parts of the space behind the wall, in the open places. I set the people by family groups with their swords, their spears, and their bows. 
+So I set guards in the lowest parts of the space behind the wall, in the open places. I set the people by family groups with their swords, their spears, and their bows. 
 I looked, and rose up, and said to the nobles, to the rulers, and to the rest of the people, "Don't be afraid of them! Remember the Lord, who is great and awesome, and fight for your brothers, your sons, your daughters, your wives, and your houses." 
 When our enemies heard that it was known to us, and God had brought their counsel to nothing, all of us returned to the wall, everyone to his work. 
 From that time forth, half of my servants did the work, and half of them held the spears, the shields, the bows, and the coats of mail; and the rulers were behind all the house of Judah. 

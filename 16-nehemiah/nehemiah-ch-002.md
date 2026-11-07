@@ -17,4 +17,4 @@ The rulers didn't know where I went, or what I did. I had not as yet told it to 
 Then I said to them, "You see the bad situation that we are in, how Jerusalem lies waste, and its gates are burned with fire. Come, let's build up the wall of Jerusalem, that we won't be disgraced." 
 I told them about the hand of my God which was good on me, and also about the king's words that he had spoken to me. They said, "Let's rise up and build." So they strengthened their hands for the good work. 
 But when Sanballat the Horonite, Tobiah the Ammonite servant, and Geshem the Arabian, heard it, they ridiculed us and despised us, and said, "What is this thing that you are doing? Will you rebel against the king?" 
-Then I answered them, and said to them, "The God of the sky will prosper us. Therefore we, his servants, will arise and build; but you have no portion, nor right, nor memorial in Jerusalem." 
+Then I answered them, and said to them, "The God of the sky will prosper us. So we, his servants, will arise and build; but you have no portion, nor right, nor memorial in Jerusalem." 

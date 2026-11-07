@@ -10,7 +10,7 @@ The servant answered Saul again and said, "Behold, I have in my hand the fourth 
 Then Saul said to his servant, "Well said. Come! Let's go." So they went to the city where the man of God was. 
 As they went up the ascent to the city, they found young maidens going out to draw water, and said to them, "Is the seer here?" 
 They answered them and said, "He is. Behold, he is before you. Hurry now, for he has come today into the city; for the people have a sacrifice today in the high place. 
-As soon as you have come into the city, you will immediately find him before he goes up to the high place to eat; for the people will not eat until he comes, because he blesses the sacrifice. Afterwards those who are invited eat. Now therefore go up; for at this time you will find him." 
+As soon as you have come into the city, you will immediately find him before he goes up to the high place to eat; for the people will not eat until he comes, because he blesses the sacrifice. Afterwards those who are invited eat. Now go up; for at this time you will find him." 
 They went up to the city. As they came within the city, behold, Samuel came out toward them to go up to the high place. 
 Now God had revealed to Samuel a day before Saul came, saying, 
 "Tomorrow about this time I will send you a man out of the land of Benjamin, and you shall anoint him to be prince over my people Israel. He will save my people out of the hand of the Philistines; for I have looked upon my people, because their cry has come to me." 

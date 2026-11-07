@@ -9,7 +9,7 @@ Then the king of Israel called an officer, and said, "Get Micaiah the son of Iml
 Now the king of Israel and Jehoshaphat the king of Judah each sat on his throne, arrayed in their robes, and they were sitting in an open place at the entrance of the gate of Samaria; and all the spokesmen were prophesying before them. 
 Zedekiah the son of Chenaanah made himself horns of iron and said, "God says, 'With these you shall push the Syrians, until they are consumed.'" 
 All the spokesmen prophesied so, saying, "Go up to Ramoth Gilead, and prosper; for God will deliver it into the hand of the king." 
-The messenger who went to call Micaiah spoke to him, saying, "Behold, the words of the spokesmen declare good to the king with one mouth. Let your word therefore, please be like one of theirs, and speak good." 
+The messenger who went to call Micaiah spoke to him, saying, "Behold, the words of the spokesmen declare good to the king with one mouth. Let your word, please be like one of theirs, and speak good." 
 Micaiah said, "As God lives, I will say what my God says." 
 When he had come to the king, the king said to him, "Micaiah, shall we go to Ramoth Gilead to battle, or shall I forbear?" He said, "Go up, and prosper. They shall be delivered into your hand." 
 The king said to him, "How many times shall I adjure you that you speak to me nothing but the truth in God's name?" 
@@ -19,7 +19,7 @@ Micaiah said, "Therefore hear God's word: I saw God sitting on his throne, and a
 God said, 'Who will entice Ahab king of Israel, that he may go up and fall at Ramoth Gilead?' One spoke saying in this way, and another saying in that way. 
 A spirit came out, stood before God, and said, 'I will entice him.' "God said to him, 'How?' 
 "He said, 'I will go, and will be a lying spirit in the mouth of all his spokesmen.' "He said, 'You will entice him, and will prevail also. Go and do so.' 
-"Now therefore, behold, God has put a lying spirit in the mouth of these your spokesmen; and God has spoken bad concerning you." 
+"Now, behold, God has put a lying spirit in the mouth of these your spokesmen; and God has spoken bad concerning you." 
 Then Zedekiah the son of Chenaanah came near, and struck Micaiah on the cheek, and said, "Which way did God's Spirit go from me to speak to you?" 
 Micaiah said, "Behold, you shall see on that day, when you go into an inner room to hide yourself." 
 The king of Israel said, "Take Micaiah, and carry him back to Amon the governor of the city, and to Joash the king's son; 
@@ -30,5 +30,5 @@ The king of Israel said to Jehoshaphat, "I will disguise myself, and go into the
 Now the king of Syria had commanded the captains of his chariots, saying, "Don't fight with small nor great, except only with the king of Israel." 
 When the captains of the chariots saw Jehoshaphat, they said, "It is the king of Israel!" Therefore they turned around to fight against him. But Jehoshaphat cried out, and God helped him; and God moved them to depart from him. 
 When the captains of the chariots saw that it was not the king of Israel, they turned back from pursuing him. 
-A certain man drew his bow at random, and struck the king of Israel between the joints of the armor. Therefore he said to the driver of the chariot, "Turn around and carry me out of the battle, for I am severely wounded." 
+A certain man drew his bow at random, and struck the king of Israel between the joints of the armor. So he said to the driver of the chariot, "Turn around and carry me out of the battle, for I am severely wounded." 
 The battle increased that day. However, the king of Israel propped himself up in his chariot against the Syrians until the evening; and at about sunset, he died. 

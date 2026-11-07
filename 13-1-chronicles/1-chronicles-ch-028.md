@@ -5,7 +5,7 @@ However the God of Israel, chose me out of all the house of my father to be king
 Of all my sons (for God has given me many sons), he has chosen Solomon my son to sit on the throne of God's kingdom over Israel. 
 He said to me, 'Solomon, your son, shall build my house and my courts; for I have chosen him to be my son, and I will be his father. 
 I will establish his kingdom for the eras if he continues to do my commandments and my ordinances, as it is today.' 
-Now therefore, in the sight of all Israel, God's assembly, and in the audience of our God, observe and seek out all the commandments of your God, that you may possess this good land, and leave it for an inheritance to your children after you for the eras. 
+Now, in the sight of all Israel, God's assembly, and in the audience of our God, observe and seek out all the commandments of your God, that you may possess this good land, and leave it for an inheritance to your children after you for the eras. 
 You, Solomon my son, know the God of your father, and serve him with a perfect heart and with a willing mind; for God searches all hearts, and understands all the imaginations of the thoughts. If you seek him, he will be found by you; but if you forsake him, he will cast you off for the eras. 
 Take heed now, for God has chosen you to build a house for the sanctuary. Be strong, and do it." 
 Then David gave to Solomon his son the plans for the porch of the temple, for its houses, for its treasuries, for its upper rooms, for its inner rooms, for the place of the mercy seat; 

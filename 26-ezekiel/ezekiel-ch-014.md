@@ -1,7 +1,7 @@
 ﻿Then some of the elders of Israel came to me and sat before me. 
 God's word came to me, saying, 
 "Son of man, these men have taken their idols into their heart, and put the stumbling block of their guilt before their face. Should I be inquired of at all by them? 
-Therefore speak to them and tell them, 'The God says: "Every man of the house of Israel who takes his idols into his heart and puts the stumbling block of his guilt before his face then comes to the spokesman, I God will answer him there according to the multitude of his idols, 
+So speak to them and tell them, 'The God says: "Every man of the house of Israel who takes his idols into his heart and puts the stumbling block of his guilt before his face then comes to the spokesman, I God will answer him there according to the multitude of his idols, 
 that I may take the house of Israel in their own heart, because they are all estranged from me through their idols."' 
 "Therefore tell the house of Israel, 'The God says: "Return, and turn yourselves from your idols! Turn away your faces from all your abominations. 
 "'"For everyone of the house of Israel, or of the strangers who live in Israel, who separates himself from me and takes his idols into his heart, and puts the stumbling block of his guilt before his face, and comes to the spokesman to inquire for himself of me, I God will answer him by myself. 

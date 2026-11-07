@@ -23,7 +23,7 @@ but came back, and have eaten bread and drank water in the place of which he sai
 After he had eaten bread and after he drank, he saddled the donkey for the spokesman whom he had brought back. 
 When he had gone, a lion met him by the way and killed him. His body was thrown on the path, and the donkey stood by it. The lion also stood by the body. 
 Behold, men passed by and saw the body thrown on the path, and the lion standing by the body; and they came and told it in the city where the old spokesman lived. 
-When the spokesman who brought him back from the way heard of it, he said, "It is the man of God who was disobedient to God's word. Therefore God has delivered him to the lion, which has mauled him and slain him, according to God's word which he spoke to him." 
+When the spokesman who brought him back from the way heard of it, he said, "It is the man of God who was disobedient to God's word. So God has delivered him to the lion, which has mauled him and slain him, according to God's word which he spoke to him." 
 He said to his sons, saying, "Saddle the donkey for me," and they saddled it. 
 He went and found his body thrown on the path, and the donkey and the lion standing by the body. The lion had not eaten the body nor mauled the donkey. 
 The spokesman took up the body of the man of God, and laid it on the donkey, and brought it back. He came to the city of the old spokesman to mourn, and to bury him. 

@@ -7,7 +7,7 @@ They rose up early on the next day, and offered burnt offerings, and brought off
 God spoke to Moses, "Go, get down; for your people, whom you brought up out of the land of Egypt, have corrupted themselves! 
 They have turned away quickly out of the way which I commanded them. They have made themselves a molded calf, and have worshiped it, and have sacrificed to it, and said, 'These are your gods, Israel, which brought you up out of the land of Egypt.'" 
 God said to Moses, "I have seen these people, and behold, they are a stiff-necked people. 
-Now therefore leave me alone, that my wrath may burn hot against them, and that I may consume them; and I will make of you a great nation." 
+Now leave me alone, that my wrath may burn hot against them, and that I may consume them; and I will make of you a great nation." 
 Moses begged his God, and said, "God, why does your wrath burn hot against your people, that you have brought out of the land of Egypt with great power and with a mighty hand? 
 Why should the Egyptians talk, saying, 'He brought them out for bad, to kill them in the mountains, and to consume them from the surface of the earth'? Turn from your fierce wrath, and turn away from this bad against your people. 
 Remember Abraham, Isaac, and Israel, your servants, to whom you swore by your own self, and said to them, 'I will multiply your offspring as the stars of the sky, and all this land that I have spoken of I will give to your offspring, and they shall inherit it for the eras.'" 

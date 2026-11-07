@@ -1,11 +1,11 @@
 ﻿When Isaac was old, and his eyes were dim, so that he could not see, he called Esau his elder son, and said to him, "My son?" He said to him, "Here I am." 
 He said, "See now, I am old. I don't know the day of my death. 
-Now therefore, please take your weapons, your quiver and your bow, and go out to the field, and get me venison. 
+Now, please take your weapons, your quiver and your bow, and go out to the field, and get me venison. 
 Make me savory food, such as I love, and bring it to me, that I may eat, and that my soul may bless you before I die." 
 Rebekah heard when Isaac spoke to Esau his son. Esau went to the field to hunt for venison, and to bring it. 
 Rebekah spoke to Jacob her son, saying, "Behold, I heard your father speak to Esau your brother, saying, 
 'Bring me venison, and make me savory food, that I may eat, and bless you before God before my death.' 
-Now therefore, my son, obey my voice according to that which I command you. 
+Now, my son, obey my voice according to that which I command you. 
 Go now to the flock and get me two good young goats from there. I will make them savory food for your father, such as he loves. 
 You shall bring it to your father, that he may eat, so that he may bless you before his death." 
 Jacob said to Rebekah his mother, "Behold, Esau my brother is a hairy man, and I am a smooth man. 
@@ -40,7 +40,7 @@ Isaac his father answered him, "Behold, your dwelling will be of the fatness of 
 You will live by your sword, and you will serve your brother. It will happen, when you will break loose, that you will shake his yoke from off your neck." 
 Esau hated Jacob because of the blessing with which his father blessed him. Esau said in his heart, "The days of mourning for my father are at hand. Then I will kill my brother Jacob." 
 The words of Esau, her elder son, were told to Rebekah. She sent and called Jacob, her younger son, and said to him, "Behold, your brother Esau comforts himself about you by planning to kill you. 
-Now therefore, my son, obey my voice. Arise, flee to Laban, my brother, in Haran. 
+Now, my son, obey my voice. Arise, flee to Laban, my brother, in Haran. 
 Stay with him a few days, until your brother's fury turns away 
 until your brother's anger turns away from you, and he forgets what you have done to him. Then I will send, and get you from there. Why should I be bereaved of you both in one day?" 
 Rebekah said to Isaac, "I am weary of my life because of the daughters of Heth. If Jacob takes a wife of the daughters of Heth, such as these, of the daughters of the land, what good will my life do me?" 

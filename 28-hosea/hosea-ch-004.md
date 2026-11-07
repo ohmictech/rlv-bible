@@ -1,6 +1,6 @@
 ﻿Hear God's word, you children of Israel, for God has a charge against the inhabitants of the land: "Indeed there is no truth, nor goodness, nor knowledge of God in the land. 
 There is cursing, lying, murder, stealing, and committing adultery; they break boundaries, and bloodshed causes bloodshed. 
-Therefore the land will mourn, and everyone who dwells in it will waste away, with all living things in her, even the animals of the field and the birds of the sky; yes, the fish of the sea also die. 
+So the land will mourn, and everyone who dwells in it will waste away, with all living things in her, even the animals of the field and the birds of the sky; yes, the fish of the sea also die. 
 "Yet let no man bring a charge, neither let any man accuse; for your people are like those who bring charges against a priest. 
 You will stumble in the day, and the spokesman will also stumble with you in the night; and I will destroy your mother. 
 My people are destroyed for lack of knowledge. Because you have rejected knowledge, I will also reject you, that you may be no priest to me. Because you have forgotten your God's law, I will also forget your children. 
@@ -10,7 +10,7 @@ It will be like people, like priest; and I will punish them for their ways, and 
 They will eat, and not have enough. They will play the prostitute, and will not increase; because they have abandoned listening to God. 
 Prostitution, wine, and new wine take away understanding. 
 My people consult with their wooden idol, and answer to a stick of wood. Indeed the spirit of prostitution has led them astray, and they have been unfaithful to their God. 
-They sacrifice on the tops of the mountains, and burn incense on the hills, under oaks, poplars, and terebinths, because its shade is good. Therefore your daughters play the prostitute, and your brides commit adultery. 
+They sacrifice on the tops of the mountains, and burn incense on the hills, under oaks, poplars, and terebinths, because its shade is good. So your daughters play the prostitute, and your brides commit adultery. 
 I will not punish your daughters when they play the prostitute, nor your brides when they commit adultery; because the men consort with prostitutes, and they sacrifice with the shrine prostitutes; so the people without understanding will come to ruin. 
 "Though you, Israel, play the prostitute, yet don't let Judah offend; and don't come to Gilgal, neither go up to Beth Aven, nor swear, 'As God lives.' 
 For Israel has behaved extremely stubbornly, like a stubborn heifer. Then how will God feed them like a lamb in a meadow? 

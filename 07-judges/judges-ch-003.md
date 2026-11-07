@@ -5,7 +5,7 @@ They were left to test Israel by them, to know whether they would listen to God'
 The children of Israel lived among the Canaanites, the Hittites, the Amorites, the Perizzites, the Hivites, and the Jebusites. 
 They took their daughters to be their wives, and gave their own daughters to their sons and served their gods. 
 The children of Israel did that which was bad in God's sight, and forgot their God, and served the Baals and the Asheroth. 
-Therefore God's anger burned against Israel, and he sold them into the hand of Cushan Rishathaim king of Mesopotamia; and the children of Israel served Cushan Rishathaim eight years. 
+So God's anger burned against Israel, and he sold them into the hand of Cushan Rishathaim king of Mesopotamia; and the children of Israel served Cushan Rishathaim eight years. 
 When the children of Israel cried to God, God raised up a savior to the children of Israel, who saved them, even Othniel the son of Kenaz, Caleb's younger brother. 
 God's Spirit came on him, and he judged Israel; and he went out to war, and God delivered Cushan Rishathaim king of Mesopotamia into his hand. His hand prevailed against Cushan Rishathaim. 
 The land had rest forty years, then Othniel the son of Kenaz died. 
@@ -22,7 +22,7 @@ Ehud put out his left hand, and took the sword from his right thigh, and thrust 
 The handle also went in after the blade; and the fat closed on the blade, for he didn't draw the sword out of his body; and it came out behind. 
 Then Ehud went out onto the porch, and shut the doors of the upper room on him, and locked them. 
 After he had gone, his servants came and saw that the doors of the upper room were locked. They said, "Surely he is covering his feet in the upper room." 
-They waited until they were ashamed; and behold, he didn't open the doors of the upper room. Therefore they took the key and opened them, and behold, their lord had fallen down dead on the floor. 
+They waited until they were ashamed; and behold, he didn't open the doors of the upper room. So they took the key and opened them, and behold, their lord had fallen down dead on the floor. 
 Ehud escaped while they waited, passed beyond the stone idols, and escaped to Seirah. 
 When he had come, he blew a trumpet in the hill country of Ephraim; and the children of Israel went down with him from the hill country, and he led them. 
 He said to them, "Follow me; for God has delivered your enemies the Moabites into your hand." They followed him, and took the fords of the Jordan against the Moabites, and didn't allow any man to pass over. 

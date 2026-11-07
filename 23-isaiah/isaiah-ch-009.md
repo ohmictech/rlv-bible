@@ -8,13 +8,13 @@ Of the increase of his government and of peace there shall be no end, on David's
 The Lord sent a word into Jacob, and it falls on Israel. 
 Everyone will know, including Ephraim and the inhabitants of Samaria, who say in pride and in arrogance of heart, 
 "The bricks have fallen, but we will build with cut stone. The sycamore fig trees have been cut down, but we will put cedars in their place." 
-Therefore God will set up on high against him the adversaries of Rezin, and will stir up his enemies, 
+So God will set up on high against him the adversaries of Rezin, and will stir up his enemies, 
 The Syrians in front, and the Philistines behind; and they will devour Israel with open mouth. For all this, his anger is not turned away, but his hand is stretched out still. 
 Yet the people have not turned to him who struck them, neither have they sought the God of Armies. 
-Therefore God will cut off from Israel head and tail, palm branch and reed, in one day. 
+So God will cut off from Israel head and tail, palm branch and reed, in one day. 
 The elder and the honorable man is the head, and the spokesman who teaches lies is the tail. 
 For those who lead this people lead them astray; and those who are led by them are destroyed. 
-Therefore the Lord will not rejoice over their young men, neither will he have compassion on their fatherless and widows; for everyone is profane and an one who does bad, and every mouth speaks folly. For all this his anger is not turned away, but his hand is stretched out still. 
+So the Lord will not rejoice over their young men, neither will he have compassion on their fatherless and widows; for everyone is profane and an one who does bad, and every mouth speaks folly. For all this his anger is not turned away, but his hand is stretched out still. 
 For guilt burns like a fire. It devours the briers and thorns; yes, it kindles in the thickets of the forest, and they roll upward in a column of smoke. 
 Through the God of Armies' wrath, the land is burned up; and the people are the fuel for the fire. No one spares his brother. 
 One will devour on the right hand, and be hungry; and he will eat on the left hand, and they will not be satisfied. Everyone will eat the flesh of his own arm: 

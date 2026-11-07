@@ -3,8 +3,8 @@ Now they drift more and more, and have made themselves molten images of their si
 Therefore they will be like the morning mist, like the dew that passes away early, like the chaff that is driven with the whirlwind out of the threshing floor, and like the smoke out of the chimney. 
 "Yet I am your God from the land of Egypt; and you shall acknowledge no god but me, and besides me there is no savior. 
 I knew you in the wilderness, in the land of great drought. 
-According to their pasture, so were they filled; they were filled, and their heart was exalted. Therefore they have forgotten me. 
-Therefore I am like a lion to them. Like a leopard, I will lurk by the path. 
+According to their pasture, so were they filled; they were filled, and their heart was exalted. So they have forgotten me. 
+So I am like a lion to them. Like a leopard, I will lurk by the path. 
 I will meet them like a bear that is bereaved of her cubs, and will tear the covering of their heart. There I will devour them like a lioness. The wild animal will tear them. 
 You are destroyed, Israel, because you are against me, against your helper. 
 Where is your king now, that he may save you in all your cities? And your judges, of whom you said, 'Give me a king and princes'? 

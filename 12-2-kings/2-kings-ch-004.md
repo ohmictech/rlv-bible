@@ -28,9 +28,9 @@ When she came to the man of God to the hill, she caught hold of his feet. Gehazi
 Then she said, "Did I ask you for a son, my lord? Didn't I say, 'Do not deceive me'?" 
 Then he said to Gehazi, "Tuck your cloak into your belt, take my staff in your hand, and go your way. If you meet any man, don't greet him; and if anyone greets you, don't answer him again. Then lay my staff on the child's face." 
 The child's mother said, "As God lives, and as your soul lives, I will not leave you." So he arose, and followed her. 
-Gehazi went ahead of them, and laid the staff on the child's face; but there was no voice and no hearing. Therefore he returned to meet him, and told him, "The child has not awakened." 
+Gehazi went ahead of them, and laid the staff on the child's face; but there was no voice and no hearing. So he returned to meet him, and told him, "The child has not awakened." 
 When Elisha had come into the house, behold, the child was dead, and lying on his bed. 
-He went in therefore, and shut the door on them both, and prayed to God. 
+He went in, and shut the door on them both, and prayed to God. 
 He went up and lay on the child, and put his mouth on his mouth, and his eyes on his eyes, and his hands on his hands. He stretched himself on him; and the child's flesh grew warm. 
 Then he returned, and walked in the house once back and forth, then went up and stretched himself out on him. Then the child sneezed seven times, and the child opened his eyes. 
 He called Gehazi, and said, "Call this Shunammite!" So he called her. When she had come in to him, he said, "Take up your son." 

@@ -3,7 +3,7 @@
 It may be that the house of Judah will hear all the bad which I intend to do to them, that they may each return from his bad way; that I may forgive their guilt and their wrongdoing." 
 Then Jeremiah called Baruch the son of Neriah; and Baruch wrote from the mouth of Jeremiah all God's words, which he had spoken to him, on a scroll of a book. 
 Jeremiah commanded Baruch, saying, "I am restricted. I can't go into God's house. 
-Therefore you go, and read from the scroll which you have written from my mouth, God's words, in the ears of the people in God's house on the fast day. Also you shall read them in the ears of all Judah who come out of their cities. 
+So you go, and read from the scroll which you have written from my mouth, God's words, in the ears of the people in God's house on the fast day. Also you shall read them in the ears of all Judah who come out of their cities. 
 It may be they will present their supplication before God, and will each return from his bad way; for God has pronounced great anger and wrath against this people." 
 Baruch the son of Neriah did according to all that Jeremiah the spokesman commanded him, reading in the book God's words in God's house. 
 Now in the fifth year of Jehoiakim the son of Josiah, king of Judah, in the ninth month, everyone in Jerusalem and everyone who came from the cities of Judah to Jerusalem, proclaimed a fast before God. 
@@ -11,7 +11,7 @@ Then Baruch read the words of Jeremiah from the book in God's house, in the room
 When Micaiah the son of Gemariah, the son of Shaphan, had heard out of the book all God's words, 
 he went down into the king's house, into the secretary's room; and behold, all the princes were sitting there, Elishama the secretary, Delaiah the son of Shemaiah, Elnathan the son of Achbor, Gemariah the son of Shaphan, Zedekiah the son of Hananiah, and all the princes. 
 Then Micaiah declared to them all the words that he had heard, when Baruch read the book in the ears of the people. 
-Therefore all the princes sent Jehudi the son of Nethaniah, the son of Shelemiah, the son of Cushi, to Baruch, saying, "Take in your hand the scroll in which you have read in the ears of the people, and come." So Baruch the son of Neriah took the scroll in his hand, and came to them. 
+So all the princes sent Jehudi the son of Nethaniah, the son of Shelemiah, the son of Cushi, to Baruch, saying, "Take in your hand the scroll in which you have read in the ears of the people, and come." So Baruch the son of Neriah took the scroll in his hand, and came to them. 
 They said to him, "Sit down now, and read it in our hearing." So Baruch read it in their hearing. 
 Now when they had heard all the words, they turned in fear one toward another, and said to Baruch, "We will surely tell the king of all these words." 
 They asked Baruch, saying, "Tell us now, how did you write all these words at his mouth?" 
@@ -27,6 +27,6 @@ The king commanded Jerahmeel the king's son, and Seraiah the son of Azriel, and 
 Then God's word came to Jeremiah, after the king had burned the scroll, and the words which Baruch wrote at the mouth of Jeremiah, saying, 
 "Take again another scroll, and write in it all the former words that were in the first scroll, which Jehoiakim the king of Judah has burned. 
 Concerning Jehoiakim king of Judah you shall say, 'God says: "You have burned this scroll, saying, 'Why have you written therein, saying, "The king of Babylon will certainly come and destroy this land, and will cause to cease from there man and animal"?'" 
-Therefore God says concerning Jehoiakim king of Judah: "He will have no one to sit on David's throne. His dead body will be cast out in the day to the heat, and in the night to the frost. 
+So God says concerning Jehoiakim king of Judah: "He will have no one to sit on David's throne. His dead body will be cast out in the day to the heat, and in the night to the frost. 
 I will punish him, his offspring, and his servants for their guilt. I will bring on them, on the inhabitants of Jerusalem, and on the men of Judah, all the bad that I have pronounced against them, but they didn't listen."'" 
 Then Jeremiah took another scroll, and gave it to Baruch the secretary, the son of Neriah, who wrote therein from the mouth of Jeremiah all the words of the book which Jehoiakim king of Judah had burned in the fire; and many similar words were added to them. 

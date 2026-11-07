@@ -1,6 +1,6 @@
 ﻿God, you are my God. I will exalt you! I will praise your name, for you have done wonderful things, things planned long ago, in complete faithfulness and truth. 
 For you have made a city into a heap, a fortified city into a ruin, a palace of strangers to be no city. It will never be built. 
-Therefore a strong people will glorify you. A city of awesome nations will fear you. 
+So a strong people will glorify you. A city of awesome nations will fear you. 
 For you have been a stronghold to the poor, a stronghold to the needy in his distress, a refuge from the storm, a shade from the heat, when the blast of the dreaded ones is like a storm against the wall. 
 As the heat in a dry place you will bring down the noise of strangers; as the heat by the shade of a cloud, the song of the dreaded ones will be brought low. 
 In this mountain, the God of Armies will make all peoples a feast of choice meat, a feast of choice wines, of choice meat full of marrow, of well refined choice wines. 

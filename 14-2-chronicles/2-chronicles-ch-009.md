@@ -5,7 +5,7 @@ the food of his table, the seating of his servants, the attendance of his minist
 She said to the king, "It was a true report that I heard in my own land of your acts and of your wisdom. 
 However I didn't believe their words until I came, and my eyes had seen it; and behold half of the greatness of your wisdom wasn't told me. You exceed the fame that I heard! 
 Happy are your men, and happy are these your servants, who stand continually before you and hear your wisdom. 
-Blessed be your God, who delighted in you and set you on his throne to be king for your God, because your God loved Israel, to establish them for the eras. Therefore he made you king over them, to do justice and righteousness." 
+Blessed be your God, who delighted in you and set you on his throne to be king for your God, because your God loved Israel, to establish them for the eras. So he made you king over them, to do justice and righteousness." 
 She gave the king one hundred and twenty talents of gold, spices in great abundance, and precious stones. There was never before such spice as the queen of Sheba gave to King Solomon. 
 The servants of Huram and the servants of Solomon, who brought gold from Ophir, also brought algum trees and precious stones. 
 The king used algum tree wood to make terraces for God's house and for the king's house, and harps and stringed instruments for the singers. There were none like these seen before in the land of Judah. 

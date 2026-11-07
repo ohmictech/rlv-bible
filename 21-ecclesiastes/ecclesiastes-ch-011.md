@@ -7,4 +7,4 @@ In the morning sow your seed, and in the evening don't withhold your hand; for y
 Truly the light is sweet, and it is a pleasant thing for the eyes to see the sun. 
 Yes, if a man lives many years, let him rejoice in them all; but let him remember the days of darkness, for they shall be many. All that comes is vanity. 
 Rejoice, young man, in your youth, and let your heart cheer you in the days of your youth, and walk in the ways of your heart, and in the sight of your eyes; but know that for all these things God will bring you into judgment. 
-Therefore remove sorrow from your heart, and put away bad from your flesh; for youth and the dawn of life are vanity. 
+So remove sorrow from your heart, and put away bad from your flesh; for youth and the dawn of life are vanity. 

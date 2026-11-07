@@ -12,7 +12,7 @@ But Naaman was angry, and went away and said, "Behold, I thought, 'He will surel
 Aren't Abanah and Pharpar, the rivers of Damascus, better than all the waters of Israel? Couldn't I wash in them and be clean?" So he turned and went away in a rage. 
 His servants came near and spoke to him, and said, "My father, if the spokesman had asked you do some great thing, wouldn't you have done it? How much rather then, when he says to you, 'Wash, and be clean'?" 
 Then he went down and dipped himself seven times in the Jordan, according to the saying of the man of God; and his flesh was restored like the flesh of a little child, and he was clean. 
-He returned to the man of God, he and all his company, and came, and stood before him; and he said, "See now, I know that there is no God in all the earth, but in Israel. Now therefore, please take a gift from your servant." 
+He returned to the man of God, he and all his company, and came, and stood before him; and he said, "See now, I know that there is no God in all the earth, but in Israel. Now, please take a gift from your servant." 
 But he said, "As God lives, before whom I stand, I will receive none." He urged him to take it; but he refused. 
 Naaman said, "If not, then, please let two mules' load of earth be given to your servant; for your servant will from now on offer neither burnt offering nor sacrifice to other gods, but to God. 
 In this thing may God pardon your servant: when my master goes into the house of Rimmon to worship there, and he leans on my hand, and I bow myself in the house of Rimmon. When I bow myself in the house of Rimmon, may God pardon your servant in this thing." 
@@ -24,4 +24,4 @@ Naaman said, "Be pleased to take two talents." He urged him, and bound two talen
 When he came to the hill, he took them from their hand, and stored them in the house. Then he let the men go, and they departed. 
 But he went in, and stood before his master. Elisha said to him, "Where did you come from, Gehazi?" He said, "Your servant went nowhere." 
 He said to him, "Didn't my heart go with you when the man turned from his chariot to meet you? Is it a time to receive money, and to receive garments, and olive groves and vineyards, and sheep and cattle, and male servants and female servants? 
-Therefore the leprosy of Naaman will cling to you and to your offspring for the eras." He went out from his presence a leper, as white as snow. 
+So the leprosy of Naaman will cling to you and to your offspring for the eras." He went out from his presence a leper, as white as snow. 

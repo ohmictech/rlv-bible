@@ -7,7 +7,7 @@ Moreover he said, "I am the God of your father, the God of Abraham, the God of I
 God said, "I have surely seen the affliction of my people who are in Egypt, and have heard their cry because of their taskmasters, for I know their sorrows. 
 I have come down to deliver them out of the hand of the Egyptians, and to bring them up out of that land to a good and large land, to a land flowing with milk and honey; to the place of the Canaanite, the Hittite, the Amorite, the Perizzite, the Hivite, and the Jebusite. 
 Now, behold, the cry of the children of Israel has come to me. Moreover I have seen the oppression with which the Egyptians oppress them. 
-Come now therefore, and I will send you to Pharaoh, that you may bring my people, the children of Israel, out of Egypt." 
+Come now, and I will send you to Pharaoh, that you may bring my people, the children of Israel, out of Egypt." 
 Moses said to God, "Who am I, that I should go to Pharaoh, and that I should bring the children of Israel out of Egypt?" 
 He said, "Certainly I will be with you. This will be the token to you, that I have sent you: when you have brought the people out of Egypt, you shall serve God on this mountain." 
 Moses said to God, "Behold, when I come to the children of Israel, and tell them, 'The God of your fathers has sent me to you,' and they ask me, 'What is his name?' what should I tell them?" 

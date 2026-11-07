@@ -6,6 +6,6 @@ God assigned my portion and my cup. You made my lot secure.
 The lines have fallen to me in pleasant places. Yes, I have a good inheritance. 
 I will bless God, who has given me counsel. Yes, my heart instructs me in the night seasons. 
 I have set God always before me. Because he is at my right hand, I shall not be moved. 
-Therefore my heart is glad, and my tongue rejoices. My body shall also dwell in safety. 
+So my heart is glad, and my tongue rejoices. My body shall also dwell in safety. 
 For you will not leave my life in Hades, neither will you allow your Holy One to see decay. 
 You will show me the path of life. In your presence is fullness of joy. In your right hand there are pleasures for the eras more. 

@@ -6,7 +6,7 @@ I have led you forty years in the wilderness. Your clothes have not grown old on
 You have not eaten bread, neither have you drunk wine or strong drink, that you may know that I am your God. 
 When you came to this place, Sihon the king of Heshbon and Og the king of Bashan came out against us to battle, and we struck them. 
 We took their land, and gave it for an inheritance to the Reubenites, and to the Gadites, and to the half-tribe of the Manassites. 
-Therefore keep the words of this covenant and do them, that you may prosper in all that you do. 
+So keep the words of this covenant and do them, that you may prosper in all that you do. 
 All of you stand today in the presence of your God: your heads, your tribes, your elders, and your officers, even all the men of Israel, 
 your little ones, your wives, and the foreigners who are in the middle of your camps, from the one who cuts your wood to the one who draws your water, 
 that you may enter into the covenant of your God, and into his oath, which your God makes with you today, 
@@ -24,6 +24,6 @@ that all of its land is sulfur, salt, and burning, that it is not sown, doesn't 
 Even all the nations will say, "Why has God done this to this land? What does the heat of this great anger mean?" 
 Then men will say, "Because they abandoned the covenant of the God of their fathers, which he made with them when he brought them out of the land of Egypt, 
 and went and served other gods and worshiped them, gods that they didn't know and that he had not given to them. 
-Therefore God's anger burned against this land, to bring on it all the curses that are written in this book. 
+So God's anger burned against this land, to bring on it all the curses that are written in this book. 
 God rooted them out of their land in anger, in wrath, and in great indignation, and thrust them into another land, as it is today." 
 The secret things belong to our God; but the things that are revealed belong to us and to our children for the eras, that we may do all the words of this law. 

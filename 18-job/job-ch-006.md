@@ -1,6 +1,6 @@
 ﻿Then Job answered, 
 "Oh that my anguish were weighed, and all my calamity laid in the balances! 
-For now it would be heavier than the sand of the seas, therefore my words have been rash. 
+For now it would be heavier than the sand of the seas, my words have been rash. 
 For the arrows of the Almighty are within me. My spirit drinks up their poison. The terrors of God set themselves in array against me. 
 Does the wild donkey bray when he has grass? Or does the ox low over his fodder? 
 Can that which has no flavor be eaten without salt? Or is there any taste in the white of an egg? 
@@ -25,6 +25,6 @@ or, 'Deliver me from the adversary's hand'? or, 'Buy me back from the hand of th
 How forcible are words of uprightness! But your reproof, what does it reprove? 
 Do you intend to reprove words, since the speeches of one who is desperate are as wind? 
 Yes, you would even cast lots for the fatherless, and make merchandise of your friend. 
-Now therefore be pleased to look at me, for surely I will not lie to your face. 
+Now be pleased to look at me, for surely I will not lie to your face. 
 Please return. Let there be no injustice. Yes, return again. My cause is righteous. 
 Is there injustice on my tongue? Can't my taste discern mischievous things? 

@@ -10,7 +10,7 @@ For the God of Armies, the God of Israel says: "Behold, I will cause to cease ou
 It will happen, when you tell this people all these words, and they ask you, 'Why has God pronounced all this great bad against us?' or 'What is our guilt?' or 'What is our wrong we have done against our God?' 
 then you shall tell them, 'Because your fathers have forsaken me,' says God, 'and have walked after other gods, have served them, have worshiped them, have forsaken me, and have not kept my law. 
 You have done bad more than your fathers, for behold, you each walk after the stubbornness of his bad heart, so that you don't listen to me. 
-Therefore I will cast you out of this land into the land that you have not known, neither you nor your fathers. There you will serve other gods day and night, for I will show you no favor.' 
+So I will cast you out of this land into the land that you have not known, neither you nor your fathers. There you will serve other gods day and night, for I will show you no favor.' 
 "Therefore behold, the days come," says God, "that it will no more be said, 'As God lives, who brought up the children of Israel out of the land of Egypt;' 
 but, 'As God lives, who brought up the children of Israel from the land of the north, and from all the countries where he had driven them.' I will bring them again into their land that I gave to their fathers. 
 "Behold, I will send for many fishermen," says God, "and they will fish them up. Afterward I will send for many hunters, and they will hunt them from every mountain, from every hill, and out of the clefts of the rocks. 
@@ -18,4 +18,4 @@ For my eyes are on all their ways. They are not hidden from my face. Their guilt
 First I will recompense their guilt and their wrongdoing double, because they have polluted my land with the carcasses of their detestable things, and have filled my inheritance with their abominations." 
 God, my strength, my stronghold, and my refuge in the day of affliction, the nations will come to you from the ends of the earth, and will say, "Our fathers have inherited nothing but lies, vanity and things in which there is no profit. 
 Should a man make to himself gods which yet are no gods?" 
-"Therefore behold, I will cause them to know, this once I will cause them to know my hand and my might. Then they will know that my name is God." 
+"So behold, I will cause them to know, this once I will cause them to know my hand and my might. Then they will know that my name is God." 

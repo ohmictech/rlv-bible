@@ -7,7 +7,7 @@ Sarah said, "God has made me laugh. Everyone who hears will laugh with me."
 She said, "Who would have said to Abraham that Sarah would nurse children? For I have borne him a son in his old age." 
 The child grew and was weaned. Abraham made a great feast on the day that Isaac was weaned. 
 Sarah saw the son of Hagar the Egyptian, whom she had borne to Abraham, mocking. 
-Therefore she said to Abraham, "Cast out this servant and her son! For the son of this servant will not be heir with my son, Isaac." 
+So she said to Abraham, "Cast out this servant and her son! For the son of this servant will not be heir with my son, Isaac." 
 The thing was very grievous in Abraham's sight on account of his son. 
 God said to Abraham, "Don't let it be grievous in your sight because of the boy, and because of your servant. In all that Sarah says to you, listen to her voice. For your offspring will be named through Isaac. 
 I will also make a nation of the son of the servant, because he is your child." 
@@ -20,7 +20,7 @@ God opened her eyes, and she saw a well of water. She went, filled the container
 God was with the boy, and he grew. He lived in the wilderness, and as he grew up, he became an archer. 
 He lived in the wilderness of Paran. His mother got a wife for him out of the land of Egypt. 
 At that time, Abimelech and Phicol the captain of his army spoke to Abraham, saying, "God is with you in all that you do. 
-Now, therefore, swear to me here by God that you will not deal falsely with me, nor with my son, nor with my son's son. But according to the kindness that I have done to you, you shall do to me, and to the land in which you have lived as a foreigner." 
+Now, swear to me here by God that you will not deal falsely with me, nor with my son, nor with my son's son. But according to the kindness that I have done to you, you shall do to me, and to the land in which you have lived as a foreigner." 
 Abraham said, "I will swear." 
 Abraham complained to Abimelech because of a water well, which Abimelech's servants had violently taken away. 
 Abimelech said, "I don't know who has done this thing. You didn't tell me, and I didn't hear of it until today." 
@@ -28,7 +28,7 @@ Abraham took sheep and cattle, and gave them to Abimelech. Those two made a cove
 Abraham set seven ewe lambs of the flock by themselves. 
 Abimelech said to Abraham, "What do these seven ewe lambs, which you have set by themselves, mean?" 
 He said, "You shall take these seven ewe lambs from my hand, that it may be a witness to me, that I have dug this well." 
-Therefore he called that place Beersheba, because they both swore an oath there. 
+So he called that place Beersheba, because they both swore an oath there. 
 So they made a covenant at Beersheba. Abimelech rose up with Phicol, the captain of his army, and they returned into the land of the Philistines. 
 Abraham planted a tamarisk tree in Beersheba, and there he called on the name of the God of the eras. 
 Abraham lived as a foreigner in the land of the Philistines many days. 

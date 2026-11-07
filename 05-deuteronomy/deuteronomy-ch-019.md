@@ -4,7 +4,7 @@ You shall prepare the way, and divide the borders of your land which your God ca
 This is the case of the man slayer who shall flee there and live: Whoever kills his neighbor unintentionally, and didn't hate him in time past 
 as when a man goes into the forest with his neighbor to chop wood and his hand swings the ax to cut down the tree, and the head slips from the handle and hits his neighbor so that he dies, he shall flee to one of these cities and live. 
 Otherwise, the avenger of blood might pursue the man slayer while hot anger is in his heart and overtake him, because the way is long, and strike him mortally, even though he was not worthy of death, because he didn't hate him in time past. 
-Therefore I command you to set apart three cities for yourselves. 
+So I command you to set apart three cities for yourselves. 
 If your God enlarges your border, as he has sworn to your fathers, and gives you all the land which he promised to give to your fathers; 
 and if you keep all this commandment to do it, which I command you today, to love your God, and to walk ever in his ways, then you shall add three cities more for yourselves, in addition to these three. 
 This is so that innocent blood will not be shed in the middle of your land which your God gives you for an inheritance, leaving blood guilt on you. 

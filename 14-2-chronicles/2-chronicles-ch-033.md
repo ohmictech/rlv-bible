@@ -8,7 +8,7 @@ He set the engraved image of the idol, which he had made, in God's house, of whi
 I will not any more remove the foot of Israel from off the land which I have appointed for your fathers, if only they will observe to do all that I have commanded them, even all the law, the statutes, and the ordinances given by Moses." 
 Manasseh seduced Judah and the inhabitants of Jerusalem, so that they did more bad than did the nations whom God destroyed before the children of Israel. 
 God spoke to Manasseh and to his people, but they didn't listen. 
-Therefore God brought on them the captains of the army of the king of Assyria, who took Manasseh in chains, bound him with fetters, and carried him to Babylon. 
+So God brought on them the captains of the army of the king of Assyria, who took Manasseh in chains, bound him with fetters, and carried him to Babylon. 
 When he was in distress, he begged his God, and humbled himself greatly before the God of his fathers. 
 He prayed to him; and he was entreated by him, and heard his supplication, and brought him again to Jerusalem into his kingdom. Then Manasseh knew that God was God. 
 Now after this, he built an outer wall to David's city on the west side of Gihon, in the valley, even to the entrance at the fish gate. He encircled Ophel with it, and raised it up to a very great height; and he put valiant captains in all the fortified cities of Judah. 

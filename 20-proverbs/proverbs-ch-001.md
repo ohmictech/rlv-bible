@@ -28,6 +28,6 @@ when calamity overtakes you like a storm, when your disaster comes on like a whi
 Then they will call on me, but I will not answer. They will seek me diligently, but they will not find me, 
 because they hated knowledge, and didn't choose the fear of God. 
 They wanted none of my counsel. They despised all my reproof. 
-Therefore they will eat of the fruit of their own way, and be filled with their own schemes. 
+So they will eat of the fruit of their own way, and be filled with their own schemes. 
 For the backsliding of the simple will kill them. The careless ease of fools will destroy them. 
 But whoever listens to me will dwell securely, and will be at ease, without fear of harm." 

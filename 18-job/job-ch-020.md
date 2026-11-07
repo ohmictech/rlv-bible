@@ -18,7 +18,7 @@ He will not look at the rivers, the flowing streams of honey and butter.
 He will restore that for which he labored, and will not swallow it down. He will not rejoice according to the substance that he has gotten. 
 For he has oppressed and forsaken the poor. He has violently taken away a house, and he will not build it up. 
 "Because he knew no quietness within him, he will not save anything of that in which he delights. 
-There was nothing left that he didn't devour, therefore his prosperity will not endure. 
+There was nothing left that he didn't devour, his prosperity will not endure. 
 In the fullness of his sufficiency, distress will overtake him. The hand of everyone who is in misery will come on him. 
 When he is about to fill his belly, God will cast the fierceness of his wrath on him. It will rain on him while he is eating. 
 He will flee from the iron weapon. The bronze arrow will strike him through. 

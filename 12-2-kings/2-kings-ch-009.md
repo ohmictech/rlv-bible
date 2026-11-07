@@ -23,7 +23,7 @@ When Joram saw Jehu, he said, "Is it peace, Jehu?" He answered, "What peace, so 
 Joram turned his hands and fled, and said to Ahaziah, "This is treason, Ahaziah!" 
 Jehu drew his bow with his full strength, and struck Joram between his arms; and the arrow went out at his heart, and he sunk down in his chariot. 
 Then Jehu said to Bidkar his captain, "Pick him up, and throw him in the plot of the field of Naboth the Jezreelite; for remember how, when you and I rode together after Ahab his father, God laid this burden on him: 
-'Surely I have seen yesterday the blood of Naboth, and the blood of his sons,' says God; 'and I will repay you in this plot of ground,' says God. Now therefore take and cast him onto the plot of ground, according to God's word." 
+'Surely I have seen yesterday the blood of Naboth, and the blood of his sons,' says God; 'and I will repay you in this plot of ground,' says God. Now take and cast him onto the plot of ground, according to God's word." 
 But when Ahaziah the king of Judah saw this, he fled by the way of the garden house. Jehu followed after him, and said, "Strike him also in the chariot!" They struck him at the ascent of Gur, which is by Ibleam. He fled to Megiddo, and died there. 
 His servants carried him in a chariot to Jerusalem, and buried him in his tomb with his fathers in David's city. 
 In the eleventh year of Joram the son of Ahab, Ahaziah began to reign over Judah. 
@@ -33,5 +33,5 @@ He lifted up his face to the window, and said, "Who is on my side? Who?" Two or 
 He said, "Throw her down!" So they threw her down; and some of her blood was sprinkled on the wall, and on the horses. Then he trampled her under foot. 
 When he had come in, he ate and drank. Then he said, "See now to this cursed woman, and bury her; for she is a king's daughter." 
 They went to bury her, but they found no more of her than the skull, the feet, and the palms of her hands. 
-Therefore they came back, and told him. He said, "This is God's word, which he spoke by his servant Elijah the Tishbite, saying, 'The dogs will eat the flesh of Jezebel on the plot of Jezreel, 
+So they came back, and told him. He said, "This is God's word, which he spoke by his servant Elijah the Tishbite, saying, 'The dogs will eat the flesh of Jezebel on the plot of Jezreel, 
 and the body of Jezebel will be as dung on the surface of the field on Jezreel's land, so that they won't say, "This is Jezebel."'" 

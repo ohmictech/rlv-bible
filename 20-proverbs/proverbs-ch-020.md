@@ -1,7 +1,7 @@
 ﻿Wine is a mocker and beer is a brawler. Whoever is led astray by them is not wise. 
 The terror of a king is like the roaring of a lion. He who provokes him to anger forfeits his own life. 
 It is an honor for a man to keep aloof from strife, but every fool will be quarreling. 
-The sluggard will not plow by reason of the winter; therefore he shall beg in harvest, and have nothing. 
+The sluggard will not plow by reason of the winter; he shall beg in harvest, and have nothing. 
 Counsel in the heart of man is like deep water, but a man of understanding will draw it out. 
 Many men claim to be men of unfailing love, but who can find a faithful man? 
 A righteous man walks in integrity. Blessed are his children after him. 
@@ -16,7 +16,7 @@ There is gold and abundance of rubies, but the lips of knowledge are a rare jewe
 Take the garment of one who puts up collateral for a stranger; and hold him in pledge for a wayward woman. 
 Fraudulent food is sweet to a man, but afterwards his mouth is filled with gravel. 
 Plans are established by advice; by wise guidance you wage war! 
-He who goes about as a tale-bearer reveals secrets; therefore don't keep company with him who opens wide his lips. 
+He who goes about as a tale-bearer reveals secrets; don't keep company with him who opens wide his lips. 
 Whoever curses his father or his mother, his lamp shall be put out in blackness of darkness. 
 An inheritance quickly gained at the beginning won't be blessed in the end. 
 Don't say, "I will pay back bad." Wait for God, and he will save you. 

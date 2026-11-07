@@ -4,4 +4,4 @@ Your people offer themselves willingly in the day of your power, in holy array. 
 God has sworn, and will not change his mind: "You are a priest for the eras in the order of Melchizedek." 
 The Lord is at your right hand. He will crush kings in the day of his wrath. 
 He will judge among the nations. He will heap up dead bodies. He will crush the ruler of the whole earth. 
-He will drink of the brook on the way; therefore he will lift up his head. 
+He will drink of the brook on the way; he will lift up his head. 

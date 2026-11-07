@@ -9,7 +9,7 @@ Let them praise God for his loving kindness, for his wonderful deeds to the chil
 For he satisfies the longing soul. He fills the hungry soul with good. 
 Some sat in darkness and in the shadow of death, being bound in affliction and iron, 
 because they rebelled against the words of God, and condemned the counsel of the Most High. 
-Therefore he brought down their heart with labor. They fell down, and there was no one to help. 
+So he brought down their heart with labor. They fell down, and there was no one to help. 
 Then they cried to God in their trouble, and he saved them out of their distresses. 
 He brought them out of darkness and the shadow of death, and broke away their chains. 
 Let them praise God for his loving kindness, for his wonderful deeds to the children of men! 

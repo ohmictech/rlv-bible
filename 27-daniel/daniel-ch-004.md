@@ -3,7 +3,7 @@ It has seemed good to me to show the signs and wonders that the Most High God ha
 How great are his signs! How mighty are his wonders! His kingdom is an perpetual kingdom. His dominion is from generation to generation. 
 I, Nebuchadnezzar, was at rest in my house, and flourishing in my palace. 
 I saw a dream which made me afraid; and the thoughts on my bed and the visions of my head troubled me. 
-Therefore I made a decree to bring in all the wise men of Babylon before me, that they might make known to me the interpretation of the dream. 
+So I made a decree to bring in all the wise men of Babylon before me, that they might make known to me the interpretation of the dream. 
 Then the magicians, the enchanters, the Chaldeans, and the soothsayers came in; and I told them the dream, but they didn't make known to me its interpretation. 
 But at last, Daniel came in before me, whose name was Belteshazzar according to the name of my god, and in whom is the spirit of the holy gods. I told the dream before him, saying, 
 "Belteshazzar, master of the magicians, because I know that the spirit of the holy gods is in you and no secret troubles you, tell me the visions of my dream that I have seen, and its interpretation. 
@@ -24,7 +24,7 @@ it is you, O king, that have grown and become strong; for your greatness has gro
 "This is the interpretation, O king, and it is the decree of the Most High, which has come on my lord the king: 
 You will be driven from men and your dwelling shall be with the animals of the field. You will be made to eat grass as oxen, and will be wet with the dew of the sky, and seven times shall pass over you, until you know that the Most High rules in the kingdom of men, and gives it to whomever he will. 
 Whereas it was commanded to leave the stump of the roots of the tree, your kingdom will be restored to you after you learn that Sky rules. 
-Therefore, O king, let my counsel be acceptable to you, and break off your mistakes by righteousness, and your guilt by showing mercy to the poor. Perhaps there may be a lengthening of your tranquility." 
+So, O king, let my counsel be acceptable to you, and break off your mistakes by righteousness, and your guilt by showing mercy to the poor. Perhaps there may be a lengthening of your tranquility." 
 All this came on the King Nebuchadnezzar. 
 At the end of twelve months he was walking in the royal palace of Babylon. 
 The king spoke and said, "Is not this great Babylon, which I have built for the royal dwelling place by the might of my power and for the glory of my majesty?" 

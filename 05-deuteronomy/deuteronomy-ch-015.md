@@ -8,11 +8,11 @@ If a poor man, one of your brothers, is with you within any of your gates in you
 but you shall surely open your hand to him, and shall surely lend him sufficient for his need, which he lacks. 
 Beware that there not be a guilty thought in your heart, saying, "The seventh year, the year of release, is at hand," and your eye be bad against your poor brother and you give him nothing; and he cry to God against you, and it be guilt on you. 
 You shall surely give, and your heart shall not be grieved when you give to him, because it is for this thing your God will bless you in all your work and in all that you put your hand to. 
-For the poor will never cease out of the land. Therefore I command you to surely open your hand to your brother, to your needy, and to your poor, in your land. 
+For the poor will never cease out of the land. So I command you to surely open your hand to your brother, to your needy, and to your poor, in your land. 
 If your brother, a Hebrew man, or a Hebrew woman, is sold to you and serves you six years, then in the seventh year you shall let him go free from you. 
 When you let him go free from you, you shall not let him go empty. 
 You shall furnish him liberally out of your flock, out of your threshing floor, and out of your wine press. As your God has blessed you, you shall give to him. 
-You shall remember that you were a slave in the land of Egypt, and your God bought back you. Therefore I command you this thing today. 
+You shall remember that you were a slave in the land of Egypt, and your God bought back you. So I command you this thing today. 
 It shall be, if he tells you, "I will not go out from you," because he loves you and your house, because he is well with you, 
 then you shall take an awl, and thrust it through his ear to the door, and he shall be your servant for the eras. Also to your female servant you shall do likewise. 
 It shall not seem hard to you when you let him go free from you, for he has been double the value of a hired hand as he served you six years. Your God will bless you in all that you do. 

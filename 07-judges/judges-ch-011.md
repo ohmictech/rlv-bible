@@ -10,7 +10,7 @@ Jephthah said to the elders of Gilead, "If you bring me home again to fight with
 The elders of Gilead said to Jephthah, "God will be witness between us. Surely we will do what you say." 
 Then Jephthah went with the elders of Gilead, and the people made him head and chief over them. Jephthah spoke all his words before God in Mizpah. 
 Jephthah sent messengers to the king of the children of Ammon, saying, "What do you have to do with me, that you have come to me to fight against my land?" 
-The king of the children of Ammon answered the messengers of Jephthah, "Because Israel took away my land when he came up out of Egypt, from the Arnon even to the Jabbok, and to the Jordan. Now therefore restore that territory again peaceably." 
+The king of the children of Ammon answered the messengers of Jephthah, "Because Israel took away my land when he came up out of Egypt, from the Arnon even to the Jabbok, and to the Jordan. Now restore that territory again peaceably." 
 Jephthah sent messengers again to the king of the children of Ammon; 
 and he said to him, "Jephthah says: Israel didn't take away the land of Moab, nor the land of the children of Ammon; 
 but when they came up from Egypt, and Israel went through the wilderness to the Red Sea, and came to Kadesh, 
@@ -24,7 +24,7 @@ So now the God of Israel has dispossessed the Amorites from before his people Is
 Won't you possess that which Chemosh your god gives you to possess? So whoever our God has dispossessed from before us, them will we possess. 
 Now are you anything better than Balak the son of Zippor, king of Moab? Did he ever strive against Israel, or did he ever fight against them? 
 Israel lived in Heshbon and its towns, and in Aroer and its towns, and in all the cities that are along the side of the Arnon for three hundred years! Why didn't you recover them within that time? 
-Therefore I have not wronged you, but you do me wrong to war against me. May God the Judge be judge today between the children of Israel and the children of Ammon." 
+So I have not wronged you, but you do me wrong to war against me. May God the Judge be judge today between the children of Israel and the children of Ammon." 
 However, the king of the children of Ammon didn't listen to the words of Jephthah which he sent him. 
 Then God's Spirit came on Jephthah, and he passed over Gilead and Manasseh, and passed over Mizpah of Gilead, and from Mizpah of Gilead he passed over to the children of Ammon. 
 Jephthah vowed a vow to God, and said, "If you will indeed deliver the children of Ammon into my hand, 

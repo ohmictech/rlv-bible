@@ -20,5 +20,5 @@ You will eat food by the sweat of your brow until you return to the ground, for 
 The man called his wife Eve because she would be the mother of all the living. 
 God made clothes of animal skin for Adam and for his wife, and clothed them. 
 God said, "Look, the man has become like one of us, knowing good and bad. He must not be allowed to reach out his hand and take from the tree of life and eat, and live for the eras." 
-Therefore God sent him out from the garden of Eden, to work the ground he was taken from. 
+So God sent him out from the garden of Eden, to work the ground he was taken from. 
 So he drove out the man; and he placed cherubim at the east of the garden of Eden, and a flaming sword flashing back and forth to guard the way to the tree of life. 

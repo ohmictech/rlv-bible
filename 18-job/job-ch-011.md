@@ -3,7 +3,7 @@
 Should your boastings make men hold their peace? When you mock, will no man make you ashamed? 
 For you say, 'My doctrine is pure. I am clean in your eyes.' 
 But oh that God would speak, and open his lips against you, 
-that he would show you the secrets of wisdom! For true wisdom has two sides. Know therefore that God exacts of you less than your guilt deserves. 
+that he would show you the secrets of wisdom! For true wisdom has two sides. Know that God exacts of you less than your guilt deserves. 
 "Can you fathom the mystery of God? Or can you probe the limits of the Almighty? 
 They are high as sky. What can you do? They are deeper than Hades. What can you know? 
 Its measure is longer than the earth, and broader than the sea. 

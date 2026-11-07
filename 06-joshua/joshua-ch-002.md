@@ -9,7 +9,7 @@ Before they had lain down, she came up to them on the roof.
 She said to the men, "I know that God has given you the land, and that the fear of you has fallen upon us, and that all the inhabitants of the land melt away before you. 
 For we have heard how God dried up the water of the Red Sea before you, when you came out of Egypt; and what you did to the two kings of the Amorites, who were beyond the Jordan, to Sihon and to Og, whom you utterly destroyed. 
 As soon as we had heard it, our hearts melted, and there wasn't any more spirit in any man, because of you: for your God is God in the sky above, and on earth beneath. 
-Now therefore, please swear to me by God, since I have dealt kindly with you, that you also will deal kindly with my father's house, and give me a true sign; 
+Now, please swear to me by God, since I have dealt kindly with you, that you also will deal kindly with my father's house, and give me a true sign; 
 and that you will save alive my father, my mother, my brothers, and my sisters, and all that they have, and will deliver our lives from death." 
 The men said to her, "Our life for yours, if you don't talk about this business of ours; and it shall be, when God gives us the land, that we will deal kindly and truly with you." 
 Then she let them down by a cord through the window; for her house was on the side of the wall, and she lived on the wall. 

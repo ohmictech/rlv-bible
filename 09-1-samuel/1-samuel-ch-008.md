@@ -6,7 +6,7 @@ They said to him, "Behold, you are old, and your sons don't walk in your ways. N
 But the thing displeased Samuel when they said, "Give us a king to judge us." Samuel prayed to God. 
 God said to Samuel, "Listen to the voice of the people in all that they tell you; for they have not rejected you, but they have rejected me as the king over them. 
 According to all the works which they have done since the day that I brought them up out of Egypt even to this day, in that they have forsaken me and served other gods, so they also do to you. 
-Now therefore, listen to their voice. However, you shall protest solemnly to them, and shall show them the way of the king who will reign over them." 
+Now, listen to their voice. However, you shall protest solemnly to them, and shall show them the way of the king who will reign over them." 
 Samuel told all God's words to the people who asked him for a king. 
 He said, "This will be the way of the king who shall reign over you: he will take your sons and appoint them as his servants, for his chariots and to be his horsemen; and they will run before his chariots. 
 He will appoint them to him for captains of thousands and captains of fifties; and he will assign some to plow his ground and to reap his harvest; and to make his instruments of war and the instruments of his chariots. 

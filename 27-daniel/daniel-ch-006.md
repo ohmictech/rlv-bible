@@ -6,7 +6,7 @@ Then these men said, "We won't find any occasion against this Daniel, unless we 
 Then these presidents and local governors assembled together to the king, and said this to him, "King Darius, live for the eras! 
 All the presidents of the kingdom, the deputies and the local governors, the counselors and the governors, have consulted together to establish a royal statute and to make a strong decree, that whoever asks a petition of any god or man for thirty days, except of you, O king, he shall be cast into the den of lions. 
 Now, O king, establish the decree and sign the writing, that it not be changed, according to the law of the Medes and Persians, which doesn't alter." 
-Therefore King Darius signed the writing and the decree. 
+So King Darius signed the writing and the decree. 
 When Daniel knew that the writing was signed, he went into his house (now his windows were open in his room toward Jerusalem) and he kneeled on his knees three times a day, and prayed, and gave thanks before his God, as he did before. 
 Then these men assembled together, and found Daniel making petition and supplication before his God. 
 Then they came near, and spoke before the king concerning the king's decree: "Haven't you signed a decree that every man who makes a petition to any god or man within thirty days, except to you, O king, shall be cast into the den of lions?" The king answered, "This thing is true, according to the law of the Medes and Persians, which doesn't alter." 

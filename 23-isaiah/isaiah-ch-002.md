@@ -6,7 +6,7 @@ House of Jacob, come, and let's walk in the light of God.
 For you have forsaken your people, the house of Jacob, because they are filled from the east, with those who practice divination like the Philistines, and they clasp hands with the children of foreigners. 
 Their land is full of silver and gold, neither is there any end of their treasures. Their land also is full of horses, neither is there any end of their chariots. 
 Their land also is full of idols. They worship the work of their own hands, that which their own fingers have made. 
-Man is brought low, and mankind is humbled; therefore don't forgive them. 
+Man is brought low, and mankind is humbled; don't forgive them. 
 Enter into the rock, and hide in the dust, from before the terror of God, and from the glory of his majesty. 
 The lofty looks of man will be brought low, the arrogance of men will be bowed down, and God alone will be exalted in that day. 
 For there will be a day of the God of Armies for all that is proud and arrogant, and for all that is lifted up, and it shall be brought low 

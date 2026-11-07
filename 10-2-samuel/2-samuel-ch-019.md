@@ -4,10 +4,10 @@ The people sneaked into the city that day, as people who are ashamed steal away 
 The king covered his face, and the king cried with a loud voice, "My son Absalom, Absalom, my son, my son!" 
 Joab came into the house to the king, and said, "Today you have shamed the faces of all your servants who today have saved your life, and the lives of your sons and of your daughters, and the lives of your wives, and the lives of your concubines; 
 in that you love those who hate you and hate those who love you. For you have declared today that princes and servants are nothing to you. For today I perceive that if Absalom had lived and we had all died today, then it would have pleased you well. 
-Now therefore arise, go out and speak to comfort your servants; for I swear by God, if you don't go out, not a man will stay with you this night. That would be worse to you than all the bad that has happened to you from your youth until now." 
+Now arise, go out and speak to comfort your servants; for I swear by God, if you don't go out, not a man will stay with you this night. That would be worse to you than all the bad that has happened to you from your youth until now." 
 Then the king arose and sat in the gate. The people were all told, "Behold, the king is sitting in the gate." Everyone came before the king. Now Israel had fled every man to his tent. 
 Everyone was at strife throughout all the tribes of Israel, saying, "The king delivered us out of the hand of our enemies, and he saved us out of the hand of the Philistines; and now he has fled out of the land from Absalom. 
-Absalom, whom we anointed over us, is dead in battle. Now therefore why don't you speak a word of bringing the king back?" 
+Absalom, whom we anointed over us, is dead in battle. Now why don't you speak a word of bringing the king back?" 
 King David sent to Zadok and to Abiathar the priests, saying, "Speak to the elders of Judah, saying, 'Why are you the last to bring the king back to his house, since the speech of all Israel has come to the king, to return him to his house? 
 You are my brothers. You are my bone and my flesh. Why then are you the last to bring back the king?' 
 Say to Amasa, 'Aren't you my bone and my flesh? God do so to me, and more also, if you aren't captain of the army before me continually instead of Joab.'" 
@@ -17,15 +17,15 @@ Shimei the son of Gera, the Benjamite, who was of Bahurim, hurried and came down
 There were a thousand men of Benjamin with him, and Ziba the servant of Saul's house, and his fifteen sons and his twenty servants with him; and they went through the Jordan in the presence of the king. 
 A ferry boat went to bring over the king's household, and to do what he thought good. Shimei the son of Gera fell down before the king when he had come over the Jordan. 
 He said to the king, "Don't let my lord impute guilt to me, or remember that which your servant did perversely the day that my lord the king went out of Jerusalem, that the king should take it to his heart. 
-For your servant knows that I have drifted. Therefore behold, I have come today as the first of all the house of Joseph to go down to meet my lord the king." 
+For your servant knows that I have drifted. So behold, I have come today as the first of all the house of Joseph to go down to meet my lord the king." 
 But Abishai the son of Zeruiah answered, "Shouldn't Shimei be put to death for this, because he cursed God's anointed?" 
 David said, "What have I to do with you, you sons of Zeruiah, that you should be adversaries to me today? Shall any man be put to death today in Israel? For don't I know that I am king over Israel today?" 
 The king said to Shimei, "You will not die." The king swore to him. 
 Mephibosheth the son of Saul came down to meet the king; and he had neither groomed his feet, nor trimmed his beard, nor washed his clothes, from the day the king departed until the day he came home in peace. 
 When he had come to Jerusalem to meet the king, the king said to him, "Why didn't you go with me, Mephibosheth?" 
 He answered, "My lord, O king, my servant deceived me. For your servant said, 'I will saddle a donkey for myself, that I may ride on it and go with the king,' because your servant is lame. 
-He has slandered your servant to my lord the king, but my lord the king is as an messenger of God. Therefore do what is good in your eyes. 
-For all my father's house were but dead men before my lord the king; yet you set your servant among those who ate at your own table. What right therefore have I yet that I should appeal any more to the king?" 
+He has slandered your servant to my lord the king, but my lord the king is as an messenger of God. So do what is good in your eyes. 
+For all my father's house were but dead men before my lord the king; yet you set your servant among those who ate at your own table. What right have I yet that I should appeal any more to the king?" 
 The king said to him, "Why do you speak any more of your matters? I say, you and Ziba divide the land." 
 Mephibosheth said to the king, "Yes, let him take all, because my lord the king has come in peace to his own house." 
 Barzillai the Gileadite came down from Rogelim; and he went over the Jordan with the king to conduct him over the Jordan. 

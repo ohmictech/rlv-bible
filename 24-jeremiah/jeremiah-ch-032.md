@@ -20,12 +20,12 @@ great in counsel, and mighty in work; whose eyes are open to all the ways of the
 who performed signs and wonders in the land of Egypt, even to this day, both in Israel and among other men; and made yourself a name, as it is today; 
 and brought your people Israel out of the land of Egypt with signs, with wonders, with a strong hand, with an outstretched arm, and with great terror; 
 and gave them this land, which you swore to their fathers to give them, a land flowing with milk and honey. 
-They came in and possessed it, but they didn't obey your voice and didn't walk in your law. They have done nothing of all that you commanded them to do. Therefore you have caused all this bad to come upon them. 
+They came in and possessed it, but they didn't obey your voice and didn't walk in your law. They have done nothing of all that you commanded them to do. So you have caused all this bad to come upon them. 
 "Behold, siege ramps have been built against the city to take it. The city is given into the hand of the Chaldeans who fight against it, because of the sword, of the famine, and of the pestilence. What you have spoken has happened. Behold, you see it. 
 You have said to me, God, 'Buy the field for money, and call witnesses;' whereas the city is given into the hand of the Chaldeans." 
 Then God's word came to Jeremiah, saying, 
 "Behold, I am the God of all flesh. Is there anything too hard for me? 
-Therefore God says: Behold, I will give this city into the hand of the Chaldeans, and into the hand of Nebuchadnezzar king of Babylon, and he will take it. 
+So God says: Behold, I will give this city into the hand of the Chaldeans, and into the hand of Nebuchadnezzar king of Babylon, and he will take it. 
 The Chaldeans, who fight against this city, will come and set this city on fire, and burn it with the houses on whose roofs they have offered incense to Baal, and poured out drink offerings to other gods, to provoke me to anger. 
 "For the children of Israel and the children of Judah have done only that which was bad in my sight from their youth; for the children of Israel have only provoked me to anger with the work of their hands, says God. 
 For this city has been to me a provocation of my anger and of my wrath from the day that they built it even to this day, so that I should remove it from before my face, 
@@ -33,7 +33,7 @@ because of all the bad of the children of Israel and of the children of Judah, w
 They have turned their backs to me, and not their faces. Although I taught them, rising up early and teaching them, yet they have not listened to receive instruction. 
 But they set their abominations in the house which is called by my name, to defile it. 
 They built the high places of Baal, which are in the valley of the son of Hinnom, to cause their sons and their daughters to pass through fire to Molech, which I didn't command them. It didn't even come into my mind, that they should do this abomination, to cause Judah to drift." 
-Now therefore the God of Israel says concerning this city, about which you say, "It is given into the hand of the king of Babylon by the sword, by the famine, and by the pestilence:" 
+Now the God of Israel says concerning this city, about which you say, "It is given into the hand of the king of Babylon by the sword, by the famine, and by the pestilence:" 
 "Behold, I will gather them out of all the countries where I have driven them in my anger, and in my wrath, and in great indignation; and I will bring them again to this place. I will cause them to dwell safely. 
 Then they will be my people, and I will be their God. 
 I will give them one heart and one way, that they may fear me for the eras, for their good and the good of their children after them. 

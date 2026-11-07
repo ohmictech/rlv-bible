@@ -17,6 +17,6 @@ to deliver you from the strange woman, even from the foreigner who flatters with
 who forsakes the friend of her youth, and forgets the covenant of her God; 
 for her house leads down to death, her paths to the departed spirits. 
 None who go to her return again, neither do they attain to the paths of life. 
-Therefore walk in the way of good men, and keep the paths of the righteous. 
+So walk in the way of good men, and keep the paths of the righteous. 
 For the upright will dwell in the land. The perfect will remain in it. 
 But the guilty will be cut off from the land. The treacherous will be rooted out of it. 

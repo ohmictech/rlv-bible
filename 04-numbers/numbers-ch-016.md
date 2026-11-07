@@ -8,7 +8,7 @@ put fire in them, and put incense on them before God tomorrow. It shall be that 
 Moses said to Korah, "Hear now, you sons of Levi! 
 Is it a small thing to you that the God of Israel has separated you from the congregation of Israel, to bring you near to himself, to do the service of God's tabernacle, and to stand before the congregation to minister to them; 
 and that he has brought you near, and all your brothers the sons of Levi with you? Do you seek the priesthood also? 
-Therefore you and all your company have gathered together against God! What is Aaron that you complain against him?" 
+So you and all your company have gathered together against God! What is Aaron that you complain against him?" 
 Moses sent to call Dathan and Abiram, the sons of Eliab; and they said, "We won't come up! 
 Is it a small thing that you have brought us up out of a land flowing with milk and honey, to kill us in the wilderness, but you must also make yourself a prince over us? 
 Moreover you haven't brought us into a land flowing with milk and honey, nor given us inheritance of fields and vineyards. Will you put out the eyes of these men? We won't come up." 
@@ -35,7 +35,7 @@ All Israel that were around them fled at their cry; for they said, "Lest the ear
 Fire came out from God, and devoured the two hundred fifty men who offered the incense. 
 God spoke to Moses, saying, 
 "Speak to Eleazar the son of Aaron the priest, that he take up the censers out of the burning, and scatter the fire away from the camp; for they are holy, 
-even the censers of those who wronged their own lives. Let them be beaten into plates for a covering of the altar, for they offered them before God. Therefore they are holy. They shall be a sign to the children of Israel." 
+even the censers of those who wronged their own lives. Let them be beaten into plates for a covering of the altar, for they offered them before God. So they are holy. They shall be a sign to the children of Israel." 
 Eleazar the priest took the bronze censers which those who were burned had offered; and they beat them out for a covering of the altar, 
 to be a memorial to the children of Israel, to the end that no stranger who isn't of the offspring of Aaron, would come near to burn incense before God, that he not be as Korah and as his company; as God spoke to him by Moses. 
 But on the next day all the congregation of the children of Israel complained against Moses and against Aaron, saying, "You have killed God's people!" 

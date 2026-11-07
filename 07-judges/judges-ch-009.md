@@ -13,7 +13,7 @@ The trees set out to anoint a king over themselves. They said to the olive tree,
 "The vine said to them, 'Should I leave my new wine, which cheers God and man, and go to wave back and forth over the trees?' 
 "Then all the trees said to the bramble, 'Come and reign over us.' 
 "The bramble said to the trees, 'If in truth you anoint me king over you, then come and take refuge in my shade; and if not, let fire come out of the bramble, and devour the cedars of Lebanon.' 
-"Now therefore, if you have dealt truly and righteously, in that you have made Abimelech king, and if you have dealt well with Jerubbaal and his house, and have done to him according to the deserving of his hands 
+"Now, if you have dealt truly and righteously, in that you have made Abimelech king, and if you have dealt well with Jerubbaal and his house, and have done to him according to the deserving of his hands 
 (for my father fought for you, risked his life, and delivered you out of the hand of Midian; 
 and you have risen up against my father's house today and have slain his sons, seventy persons, on one stone, and have made Abimelech, the son of his female servant, king over the men of Shechem, because he is your brother); 
 if you then have dealt truly and righteously with Jerubbaal and with his house today, then rejoice in Abimelech, and let him also rejoice in you; 
@@ -29,7 +29,7 @@ Gaal the son of Ebed said, "Who is Abimelech, and who is Shechem, that we should
 I wish that this people were under my hand! Then I would remove Abimelech." He said to Abimelech, "Increase your army and come out!" 
 When Zebul the ruler of the city heard the words of Gaal the son of Ebed, his anger burned. 
 He sent messengers to Abimelech craftily, saying, "Behold, Gaal the son of Ebed and his brothers have come to Shechem; and behold, they incite the city against you. 
-Now therefore, go up by night, you and the people who are with you, and lie in wait in the field. 
+Now, go up by night, you and the people who are with you, and lie in wait in the field. 
 It shall be that in the morning, as soon as the sun is up, you shall rise early and rush on the city. Behold, when he and the people who are with him come out against you, then may you do to them as you shall find occasion." 
 Abimelech rose up, and everyone who was with him, by night, and they laid wait against Shechem in four companies. 
 Gaal the son of Ebed went out, and stood in the entrance of the gate of the city. Abimelech rose up, and the people who were with him, from the ambush. 

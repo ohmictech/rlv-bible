@@ -22,7 +22,7 @@ You shall be filled at my table with horses and charioteers, with mighty men, an
 So the house of Israel will know that I am their God, from that day and forward. 
 The nations will know that the house of Israel went into captivity for their guilt, because they trespassed against me, and I hid my face from them; so I gave them into the hand of their adversaries, and they all fell by the sword. 
 I did to them according to their uncleanness and according to their rebellion. I hid my face from them. 
-"Therefore God says: 'Now I will reverse the captivity of Jacob and have mercy on the whole house of Israel. I will be jealous for my holy name. 
+"So God says: 'Now I will reverse the captivity of Jacob and have mercy on the whole house of Israel. I will be jealous for my holy name. 
 They will forget their shame and all their trespasses by which they have trespassed against me, when they dwell securely in their land. No one will make them afraid 
 when I have brought them back from the peoples, gathered them out of their enemies' lands, and am shown holy among them in the sight of many nations. 
 They will know that I am their God, in that I caused them to go into captivity among the nations, and have gathered them to their own land. Then I will leave none of them captive any more. 

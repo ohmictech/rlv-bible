@@ -5,7 +5,7 @@ Then Jonathan said to David, "Whatever your soul desires, I will even do it for 
 David said to Jonathan, "Behold, tomorrow is the new moon, and I should not fail to dine with the king; but let me go, that I may hide myself in the field to the third day at evening. 
 If your father misses me at all, then say, 'David earnestly asked leave of me that he might run to Bethlehem, his city; for it is the yearly sacrifice there for all the family.' 
 If he says, 'It is well,' your servant shall have peace; but if he is angry, then know that bad is determined by him. 
-Therefore deal kindly with your servant, for you have brought your servant into a covenant of God with you; but if there is guilt in me, kill me yourself, for why should you bring me to your father?" 
+So deal kindly with your servant, for you have brought your servant into a covenant of God with you; but if there is guilt in me, kill me yourself, for why should you bring me to your father?" 
 Jonathan said, "Far be it from you; for if I should at all know that bad were determined by my father to come on you, then wouldn't I tell you that?" 
 Then David said to Jonathan, "Who will tell me if your father answers you roughly?" 
 Jonathan said to David, "Come! Let's go out into the field." They both went out into the field. 
@@ -28,7 +28,7 @@ On the next day after the new moon, the second day, David's place was empty. Sau
 Jonathan answered Saul, "David earnestly asked permission of me to go to Bethlehem. 
 He said, 'Please let me go, for our family has a sacrifice in the city. My brother has commanded me to be there. Now, if I have found favor in your eyes, please let me go away and see my brothers.' Therefore he has not come to the king's table." 
 Then Saul's anger burned against Jonathan, and he said to him, "You son of a perverse rebellious woman, don't I know that you have chosen the son of Jesse to your own shame, and to the shame of your mother's nakedness? 
-For as long as the son of Jesse lives on the earth, you will not be established, nor will your kingdom. Therefore now send and bring him to me, for he shall surely die!" 
+For as long as the son of Jesse lives on the earth, you will not be established, nor will your kingdom. So now send and bring him to me, for he shall surely die!" 
 Jonathan answered Saul his father, and said to him, "Why should he be put to death? What has he done?" 
 Saul cast his spear at him to strike him. By this Jonathan knew that his father was determined to put David to death. 
 So Jonathan arose from the table in fierce anger, and ate no food the second day of the month; for he was grieved for David, because his father had treated him shamefully. 

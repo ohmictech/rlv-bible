@@ -1,10 +1,10 @@
 ﻿For the Chief Musician. Set to "The Lilies." A contemplation by the sons of Korah. A wedding song. My heart overflows with a noble theme. I recite my verses for the king. My tongue is like the pen of a skillful writer. 
-You are the most excellent of the sons of men. Grace has anointed your lips, therefore God has blessed you for the eras. 
+You are the most excellent of the sons of men. Grace has anointed your lips, God has blessed you for the eras. 
 Strap your sword on your thigh, O mighty one, in your splendor and your majesty. 
 In your majesty ride on victoriously on behalf of truth, humility, and righteousness. Let your right hand display awesome deeds. 
 Your arrows are sharp. The nations fall under you, with arrows in the heart of the king's enemies. 
 Your throne, God, is for all the eras. A scepter of equity is the scepter of your kingdom. 
-You have loved righteousness, and hated guilt. Therefore God, your God, has anointed you with the oil of gladness above your fellows. 
+You have loved righteousness, and hated guilt. So God, your God, has anointed you with the oil of gladness above your fellows. 
 All your garments smell like myrrh, aloes, and cassia. Out of ivory palaces stringed instruments have made you glad. 
 Kings' daughters are among your honorable women. At your right hand the queen stands in gold of Ophir. 
 Listen, daughter, consider, and turn your ear. Forget your own people, and also your father's house. 
@@ -14,4 +14,4 @@ The princess inside is all glorious. Her clothing is interwoven with gold.
 She shall be led to the king in embroidered work. The virgins, her companions who follow her, shall be brought to you. 
 With gladness and rejoicing they shall be led. They shall enter into the king's palace. 
 Your sons will take the place of your fathers. You shall make them princes in all the earth. 
-I will make your name to be remembered in all generations. Therefore the peoples shall give you thanks for all the eras. 
+I will make your name to be remembered in all generations. So the peoples shall give you thanks for all the eras. 

@@ -19,4 +19,4 @@ then I will establish the throne of your kingdom, according as I covenanted with
 But if you turn away and forsake my statutes and my commandments which I have set before you, and go and serve other gods and worship them, 
 then I will pluck them up by the roots out of my land which I have given them; and this house, which I have made holy for my name, I will cast out of my sight, and I will make it a proverb and a byword among all peoples. 
 This house, which is so high, everyone who passes by it will be astonished and say, 'Why has God done this to this land and to this house?' 
-They shall answer, 'Because they abandoned the God of their fathers, who brought them out of the land of Egypt, and took other gods, worshiped them, and served them. Therefore he has brought all this bad on them.'" 
+They shall answer, 'Because they abandoned the God of their fathers, who brought them out of the land of Egypt, and took other gods, worshiped them, and served them. So he has brought all this bad on them.'" 

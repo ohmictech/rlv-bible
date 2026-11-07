@@ -11,7 +11,7 @@ The children of Israel traveled, and encamped in Oboth.
 They traveled from Oboth, and encamped at Iyeabarim, in the wilderness which is before Moab, toward the sunrise. 
 From there they traveled, and encamped in the valley of Zered. 
 From there they traveled, and encamped on the other side of the Arnon, which is in the wilderness that comes out of the border of the Amorites; for the Arnon is the border of Moab, between Moab and the Amorites. 
-Therefore it is said in The Book of the Wars of God, "Vaheb in Suphah, the valleys of the Arnon, 
+So it is said in The Book of the Wars of God, "Vaheb in Suphah, the valleys of the Arnon, 
 the slope of the valleys that incline toward the dwelling of Ar, leans on the border of Moab." 
 From there they traveled to Beer; that is the well of which God said to Moses, "Gather the people together, and I will give them water." 
 Then Israel sang this song: "Spring up, well! Sing to it, 
@@ -24,7 +24,7 @@ Sihon would not allow Israel to pass through his border, but Sihon gathered all 
 Israel struck him with the edge of the sword, and possessed his land from the Arnon to the Jabbok, even to the children of Ammon; for the border of the children of Ammon was fortified. 
 Israel took all these cities. Israel lived in all the cities of the Amorites, in Heshbon, and in all its villages. 
 For Heshbon was the city of Sihon the king of the Amorites, who had fought against the former king of Moab, and taken all his land out of his hand, even to the Arnon. 
-Therefore those who speak in proverbs say, "Come to Heshbon. Let the city of Sihon be built and established; 
+So those who speak in proverbs say, "Come to Heshbon. Let the city of Sihon be built and established; 
 for a fire has gone out of Heshbon, a flame from the city of Sihon. It has devoured Ar of Moab, The lords of the high places of the Arnon. 
 Woe to you, Moab! You are undone, people of Chemosh! He has given his sons as fugitives, and his daughters into captivity, to Sihon king of the Amorites. 
 We have shot at them. Heshbon has perished even to Dibon. We have laid waste even to Nophah, Which reaches to Medeba." 

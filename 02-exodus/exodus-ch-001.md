@@ -8,7 +8,7 @@ The children of Israel were fruitful, and increased abundantly, and multiplied, 
 Now there arose a new king over Egypt, who didn't know Joseph. 
 He said to his people, "Behold, the people of the children of Israel are more and mightier than we. 
 Come, let's deal wisely with them, lest they multiply, and it happen that when any war breaks out, they also join themselves to our enemies and fight against us, and escape out of the land." 
-Therefore they set taskmasters over them to afflict them with their burdens. They built storage cities for Pharaoh: Pithom and Raamses. 
+So they set taskmasters over them to afflict them with their burdens. They built storage cities for Pharaoh: Pithom and Raamses. 
 But the more they afflicted them, the more they multiplied and the more they spread out. They started to dread the children of Israel. 
 The Egyptians ruthlessly made the children of Israel serve, 
 and they made their lives bitter with hard service in mortar and in brick, and in all kinds of service in the field, all their service, in which they ruthlessly made them serve. 

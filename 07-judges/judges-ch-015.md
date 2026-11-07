@@ -1,5 +1,5 @@
 ﻿But after a while, in the time of wheat harvest, Samson visited his wife with a young goat. He said, "I will go in to my wife's room." But her father wouldn't allow him to go in. 
-Her father said, "I most certainly thought that you utterly hated her; therefore I gave her to your companion. Isn't her younger sister more beautiful than she? Please, take her instead." 
+Her father said, "I most certainly thought that you utterly hated her; I gave her to your companion. Isn't her younger sister more beautiful than she? Please, take her instead." 
 Samson said to them, "This time I will be blameless in the case of the Philistines when I harm them." 
 Samson went and caught three hundred foxes, and took torches, and turned tail to tail, and put a torch in the middle between every two tails. 
 When he had set the torches on fire, he let them go into the standing grain of the Philistines, and burned up both the shocks and the standing grain, and also the olive groves. 
@@ -16,5 +16,5 @@ He found a fresh jawbone of a donkey, put out his hand, took it, and struck a th
 Samson said, "With the jawbone of a donkey, heaps on heaps; with the jawbone of a donkey I have struck a thousand men." 
 When he had finished speaking, he threw the jawbone out of his hand; and that place was called Ramath Lehi. 
 He was very thirsty, and called on God and said, "You have given this great deliverance by the hand of your servant; and now shall I die of thirst, and fall into the hands of the uncircumcised?" 
-But God split the hollow place that is in Lehi, and water came out of it. When he had drunk, his spirit came again, and he revived. Therefore its name was called En Hakkore, which is in Lehi, to this day. 
+But God split the hollow place that is in Lehi, and water came out of it. When he had drunk, his spirit came again, and he revived. So its name was called En Hakkore, which is in Lehi, to this day. 
 He judged Israel twenty years in the days of the Philistines. 

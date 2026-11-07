@@ -4,13 +4,13 @@ I have commanded my consecrated ones; yes, I have called my mighty men for my an
 The noise of a multitude is in the mountains, as of a great people; the noise of an uproar of the kingdoms of the nations gathered together! The God of Armies is mustering the army for the battle. 
 They come from a far country, from the uttermost part of the sky, even God, and the weapons of his indignation, to destroy the whole land. 
 Wail, for God's day is at hand! It will come as destruction from the Almighty. 
-Therefore all hands will be feeble, and everyone's heart will melt. 
+So all hands will be feeble, and everyone's heart will melt. 
 They will be dismayed. Pangs and sorrows will seize them. They will be in pain like a woman in labor. They will look in amazement one at another. Their faces will be faces of flame. 
 Behold, the day of God comes, cruel, with wrath and fierce anger; to make the land a desolation, and to destroy its those who have drifted out of it. 
 For the stars of the sky and its constellations will not give their light. The sun will be darkened in its going out, and the moon will not cause its light to shine. 
 I will punish the world for their bad, and the guilty for their guilt. I will cause the arrogance of the proud to cease, and will humble the arrogance of the terrible. 
 I will make people more rare than fine gold, even a person than the pure gold of Ophir. 
-Therefore I will make the sky tremble, and the earth will be shaken out of its place in the God of Armies' wrath, and in the day of his fierce anger. 
+So I will make the sky tremble, and the earth will be shaken out of its place in the God of Armies' wrath, and in the day of his fierce anger. 
 It will happen that like a hunted gazelle and like sheep that no one gathers, they will each turn to their own people, and will each flee to their own land. 
 Everyone who is found will be thrust through. Everyone who is captured will fall by the sword. 
 Their infants also will be dashed in pieces before their eyes. Their houses will be ransacked, and their wives raped. 

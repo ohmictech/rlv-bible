@@ -8,7 +8,7 @@ Oh remember that my life is a breath. My eye will no more see good.
 The eye of him who sees me will see me no more. Your eyes will be on me, but I will not be. 
 As the cloud is consumed and vanishes away, so he who goes down to Hades will come up no more. 
 He will return no more to his house, neither will his place know him any more. 
-"Therefore I will not keep silent. I will speak in the anguish of my spirit. I will complain in the bitterness of my soul. 
+"So I will not keep silent. I will speak in the anguish of my spirit. I will complain in the bitterness of my soul. 
 Am I a sea, or a sea monster, that you put a guard over me? 
 When I say, 'My bed will comfort me. My couch will ease my complaint,' 
 then you scare me with dreams and terrify me through visions, 

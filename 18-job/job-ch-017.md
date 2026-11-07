@@ -1,7 +1,7 @@
 ﻿"My spirit is consumed. My days are extinct and the grave is ready for me. 
 Surely there are mockers with me. My eye dwells on their provocation. 
 "Now give a pledge. Be collateral for me with yourself. Who is there who will strike hands with me? 
-For you have hidden their heart from understanding, therefore you will not exalt them. 
+For you have hidden their heart from understanding, you will not exalt them. 
 He who denounces his friends for plunder, even the eyes of his children will fail. 
 "But he has made me a byword of the people. They spit in my face. 
 My eye also is dim by reason of sorrow. All my members are as a shadow. 

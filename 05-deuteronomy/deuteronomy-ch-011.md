@@ -1,11 +1,11 @@
-﻿Therefore you shall love your God, and keep his instructions, his statutes, his ordinances, and his commandments, always. 
+﻿So you shall love your God, and keep his instructions, his statutes, his ordinances, and his commandments, always. 
 Know this day, for I don't speak with your children who have not known, and who have not seen the chastisement of your God, his greatness, his mighty hand, his outstretched arm, 
 his signs, and his works, which he did in the middle of Egypt to Pharaoh the king of Egypt, and to all his land; 
 and what he did to the army of Egypt, to their horses, and to their chariots; how he made the water of the Red Sea to overflow them as they pursued you, and how God has destroyed them to this day; 
 and what he did to you in the wilderness until you came to this place; 
 and what he did to Dathan and Abiram, the sons of Eliab, the son of Reuben, how the earth opened its mouth and swallowed them up, with their households, their tents, and every living thing that followed them, in the middle of all Israel; 
 but your eyes have seen all of God's great work which he did. 
-Therefore you shall keep the entire commandment which I command you today, that you may be strong, and go in and possess the land that you go over to possess; 
+So you shall keep the entire commandment which I command you today, that you may be strong, and go in and possess the land that you go over to possess; 
 and that you may prolong your days in the land which God swore to your fathers to give to them and to their offspring, a land flowing with milk and honey. 
 For the land, where you go in to possess isn't like the land of Egypt that you came out of, where you sowed your seed and watered it with your foot, as a garden of herbs; 
 but the land that you go over to possess is a land of hills and valleys which drinks water from the rain of the sky, 
@@ -15,7 +15,7 @@ that I will give the rain for your land in its season, the early rain and the la
 I will give grass in your fields for your livestock, and you shall eat and be full. 
 Be careful, lest your heart be deceived, and you turn away to serve other gods and worship them; 
 and God's anger be kindled against you, and he shut up the sky so that there is no rain, and the land doesn't yield its fruit; and you perish quickly from off the good land which God gives you. 
-Therefore you shall lay up these words of mine in your heart and in your soul. You shall bind them for a sign on your hand, and they shall be for frontlets between your eyes. 
+So you shall lay up these words of mine in your heart and in your soul. You shall bind them for a sign on your hand, and they shall be for frontlets between your eyes. 
 You shall teach them to your children, talking of them when you sit in your house, when you walk by the way, when you lie down, and when you rise up. 
 You shall write them on the door posts of your house and on your gates; 
 that your days and your children's days may be multiplied in the land which God swore to your fathers to give them, as the days of the sky above the earth. 

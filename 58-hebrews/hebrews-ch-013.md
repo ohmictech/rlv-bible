@@ -14,9 +14,9 @@ So let's go out to him, outside of the camp, carrying the shame he carried.
 We don't have here a lasting city, but we're looking for the one that's coming. 
 Through him, then, let's always offer God a sacrifice of praise, that's, the fruit of lips that openly declare his name. 
 But don't forget to do good and to share, because God is pleased with sacrifices like that. 
-Do what your leaders tell you and follow them, because they keep watch over your life, as those who will have to give an account, so that they may do this with joy and not with groaning, because that would be no help to you. 
+Do what your leaders tell you and follow them, because they keep watch over your life, as those who will have to give an account, so that they can do this with joy and not with groaning, because that would be no help to you. 
 Pray for us, for we're persuaded that we have a clean conscience, and we want to live honorably in all things. 
-I especially urge you to pray, so that I may be given back to you sooner. 
+I especially urge you to pray, so that I can be given back to you sooner. 
 Now may the God of wholeness, who brought back from the dead our Lord Jesus, the great shepherd of the sheep, by the blood of the arrangement of the eras, 
 make you complete in every good deed so that you can do his will, working in you what's pleasing in his sight, through Jesus Christ, to whom be the weight for all the eras. Amen. 
 But I urge you, brothers and sisters, to bear with this word of encouragement, because I have written to you only briefly. 

@@ -2,7 +2,7 @@
 When the king saw Esther the queen standing in the court, she obtained favor in his sight; and the king held out to Esther the golden scepter that was in his hand. So Esther came near and touched the top of the scepter. 
 Then the king asked her, "What would you like, queen Esther? What's your request? It will be given you even to the half of the kingdom." 
 Esther said, "If it seems good to the king, let the king and Haman come today to the banquet that I have prepared for him." 
-Then the king said, "Bring Haman quickly, so that it may be done as Esther has said." So the king and Haman came to the banquet that Esther had prepared. 
+Then the king said, "Bring Haman quickly, so that it can be done as Esther has said." So the king and Haman came to the banquet that Esther had prepared. 
 The king said to Esther at the banquet of wine, "What's your petition? It will be granted you. What's your request? Even to the half of the kingdom it will be performed." 
 Then Esther answered and said, "My petition and my request is this. 
 If I have found favor in the sight of the king, and if it pleases the king to grant my petition and to perform my request, let the king and Haman come to the banquet that I'll prepare for them, and I'll do tomorrow as the king has said." 

@@ -7,7 +7,7 @@ But some of the Bible teachers were sitting there, reasoning in their hearts,
 "Why does this man speak like that? He's slandering! Who can release mistakes but God alone?" 
 Immediately Jesus, knowing in his spirit that they were reasoning this way among themselves, said to them, "Why are you reasoning like this in your hearts? 
 Which is easier, to tell the paralyzed man, 'Your mistakes are released,' or to say, 'Get up, take your mat, and walk'? 
-But so that you may know that the Human One has authority on earth to release mistakes" (he said to the paralyzed man), 
+But so that you can know that the Human One has authority on earth to release mistakes" (he said to the paralyzed man), 
 "I tell you, get up, take your mat, and go to your house." 
 He got up, and immediately took the mat and went out in front of them all, so that they were all amazed and gave honor to God, saying, "We never saw anything like this!" 
 He went out again by the seashore. All the crowd came to him, and he taught them. 

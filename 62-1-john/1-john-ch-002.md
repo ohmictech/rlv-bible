@@ -25,5 +25,5 @@ As for you, let what you heard from the beginning make its home in you. If what 
 And this is what he promised us: the real life of the era. 
 I have written these things to you about those who are trying to lead you astray. 
 As for you, the anointing you received from him makes its home in you, and you don't need anyone to teach you. His anointing teaches you about everything, and it's true and not a lie. So make your home in him, just as it taught you. 
-And now, dear children, make your home in him, so that when he appears we may have boldness and not be ashamed in front of him at his arrival. 
+And now, dear children, make your home in him, so that when he appears we can have boldness and not be ashamed in front of him at his arrival. 
 If you know that he's upright, you know that everyone who does what's right has been born of him. 

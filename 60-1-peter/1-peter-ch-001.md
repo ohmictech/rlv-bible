@@ -4,7 +4,7 @@ Praise be to the God and Father of our Lord Jesus Christ! In his great mercy he 
 into a charge handed down that can never decay, be spoiled, or fade, kept in the sky for you, 
 who through trust are guarded by God's power for a rescue that's ready to be unveiled in the last stretch of time. 
 In this you celebrate, even though for a little while now you have had to be saddened by all kinds of hard times. 
-These have come so that the proof of your trust, worth far more than gold, which wears out even though it's tested by fire, may be found to bring praise, weight, and honor when Jesus Christ is unveiled. 
+These have come so that the proof of your trust, worth far more than gold, which wears out even though it's tested by fire, can be found to bring praise, weight, and honor when Jesus Christ is unveiled. 
 You haven't seen him, yet you love him. You don't see him now, yet you trust him, and you celebrate with a joy too great for words, a joy full of weight, 
 as you receive what your trust is working toward, the rescue of your life. 
 The spokesmen searched carefully and asked hard questions about this rescue. They spoke of the gift that was going to come to you, 

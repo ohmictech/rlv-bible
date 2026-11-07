@@ -10,7 +10,7 @@ When Moses entered into the Tent, the pillar of cloud descended, stood at the do
 Everyone saw the pillar of cloud stand at the door of the Tent, and everyone rose up and worshiped, everyone at their tent door. 
 God spoke to Moses face to face, as a man speaks to his friend. He turned again into the camp, but his servant Joshua, the son of Nun, a young man, didn't depart from the Tent. 
 Moses said to God, "Look, you tell me, 'Bring up this people;' and you haven't let me know whom you'll send with me. Yet you have said, 'I know you by name, and you have also found favor in my sight.' 
-Now, if I have found favor in your sight, please show me your way, now, that I may know you, so that I may find favor in your sight; and consider that this nation is your people." 
+Now, if I have found favor in your sight, please show me your way, now, that I can know you, so that I can find favor in your sight; and consider that this nation is your people." 
 He said, "My presence will go with you, and I'll give you rest." 
 Moses said to him, "If your presence doesn't go with me, don't carry us up from here. 
 How would people know that I have found favor in your sight, I and your people? Isn't it that you go with us, so that we're separated, I and your people, from everyone who's on the surface of the earth?" 

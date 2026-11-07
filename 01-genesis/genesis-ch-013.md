@@ -13,6 +13,6 @@ Abram lived in the land of Canaan, and Lot lived in the cities of the plain, and
 Now the men of Sodom were deeply guilty and did great wrong against God. 
 God said to Abram, after Lot had separated from him, "Now look up from where you're, and look north, south, east, and west, 
 for I'll give all the land which you see to you and to your offspring for the eras. 
-I'll make your offspring as the dust of the earth, so that if a man can count the dust of the earth, then your offspring may also be counted. 
+I'll make your offspring as the dust of the earth, so that if a man can count the dust of the earth, then your offspring can also be counted. 
 Get up and walk through the land, its length and its width, because I'll give it to you." 
 Abram moved his tent and came to live by the great trees of Mamre at Hebron, and he built an altar there to God. 

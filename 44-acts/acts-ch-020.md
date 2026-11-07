@@ -21,7 +21,7 @@ how I didn't shrink from declaring to you anything that was profitable, teaching
 witnessing both to Jewish people and to Greeks a change of heart toward God and trust toward our Lord Jesus. 
 Now, look, I go bound by the Spirit to Jerusalem, not knowing what will happen to me there; 
 except that the Holy Spirit testifies in every city, saying that bonds and afflictions wait for me. 
-But these things don't count; nor do I hold my life dear to myself, so that I may finish my race with joy, and the work which I received from the Lord Jesus, to fully witness to the Good News of the favor of God. 
+But these things don't count; nor do I hold my life dear to myself, so that I can finish my race with joy, and the work which I received from the Lord Jesus, to fully witness to the Good News of the favor of God. 
 "Now, look, I know that you all, among whom I went about announcing God's reign, will see my face no more. 
 So I testify to you today that I'm clean from the blood of everyone, 
 for I didn't shrink from declaring to you the whole counsel of God. 

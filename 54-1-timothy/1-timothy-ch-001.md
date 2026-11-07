@@ -15,6 +15,6 @@ The favor of our Lord overflowed far more, along with the trust and love that ar
 This saying is trustworthy and deserves to be accepted without question: Christ Jesus came into the world to rescue those who have drifted, and I'm the worst of them. 
 But this is why I was shown mercy: so that in me, the worst of them, Christ Jesus could show how patient he's, as an example for those who would trust in him for the real life of the era. 
 Now to the King of the eras, undying, unseen, to the only God, who alone is wise, be honor and weight for all the eras. Amen. 
-Timothy, my child, I put this instruction in your hands, in keeping with the words spoken for God about you earlier, so that by them you may fight the good fight, 
+Timothy, my child, I put this instruction in your hands, in keeping with the words spoken for God about you earlier, so that by them you can fight the good fight, 
 holding on to trust and a good conscience. Some have pushed those aside and wrecked their trust, 
-Hymenaeus and Alexander are among them. I have handed them over to the Adversary, so that they may be taught not to speak slander. 
+Hymenaeus and Alexander are among them. I have handed them over to the Adversary, so that they can be taught not to speak slander. 

@@ -9,7 +9,7 @@ But God's word came to me, saying, 'You have shed blood abundantly and have made
 Look, a son will be born to you, who will be a man of peace. I'll give him rest from all his enemies all around; for his name will be Solomon, and I'll give peace and quietness to Israel in his days. 
 He will build a house for my name; and he'll be my son, and I'll be his father; and I'll establish the throne of his kingdom over Israel for the eras.' 
 Now, my son, may God be with you and prosper you, and build the house of your God, as he has spoken concerning you. 
-May God give you discretion and understanding, and put you in charge of Israel, so that you may keep the law of your God. 
+May God give you discretion and understanding, and put you in charge of Israel, so that you can keep the law of your God. 
 Then you'll prosper, if you observe to do the statutes and the ordinances which God gave Moses concerning Israel. Be strong and courageous. Don't be afraid and don't be dismayed. 
 Now, look, in my affliction I have prepared for God's house one hundred thousand talents of gold, one million talents of silver, and bronze and iron without weight; for it's in abundance. I have also prepared timber and stone; and you may add to them. 
 There are also workmen with you in abundance, cutters and workers of stone and timber, and all kinds of men who are skillful in every kind of work; 

@@ -9,7 +9,7 @@ Their tongue is a deadly arrow. It speaks deceit. One speaks peaceably to his ne
 Shouldn't I punish them for these things?" says God. "Shouldn't my soul be avenged on a nation such as this? 
 I'll weep and wail for the mountains, and lament for the pastures of the wilderness, because they're burned up, so that no one passes through; Men can't hear the voice of the livestock. Both the birds of the sky and the animals have fled. They're gone. 
 "I'll make Jerusalem heaps, a dwelling place of jackals. I'll make the cities of Judah a desolation, without inhabitant." 
-Who's wise enough to understand this? Who's he to whom the mouth of God has spoken, that he may declare it? Why has the land perished and burned up like a wilderness, so that no one passes through? 
+Who's wise enough to understand this? Who's he to whom the mouth of God has spoken, that he can declare it? Why has the land perished and burned up like a wilderness, so that no one passes through? 
 God says, "Because they have forsaken my law which I set before them, and haven't obeyed my voice or walked in my ways, 
 but have walked after the stubbornness of their own heart and after the Baals, which their fathers taught them." 
 So the God of Armies, the God of Israel says, "Look, I'll feed them, even this people, with wormwood and give them poisoned water to drink. 

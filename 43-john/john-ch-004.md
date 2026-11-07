@@ -33,7 +33,7 @@ But he said to them, "I have food to eat that you don't know about."
 The students said to one another, "Has anyone brought him something to eat?" 
 Jesus said to them, "My food is to do the will of him who sent me and to finish his work. 
 Don't you say, 'There are yet four months until the harvest'? Look, I tell you, lift up your eyes and look at the fields: they're already ripe for harvest. 
-The one who reaps earns wages and gathers fruit for the real life of the era, so that the one who sows and the one who reaps may celebrate together. 
+The one who reaps earns wages and gathers fruit for the real life of the era, so that the one who sows and the one who reaps can celebrate together. 
 In this the saying is true, 'One sows, and another reaps.' 
 I sent you to reap what you haven't worked for. Others have done the work, and you have stepped into their work." 
 From that city many of the Samaritans trusted in him because of the word of the woman, who testified, "He told me everything that I have done." 

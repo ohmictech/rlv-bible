@@ -20,7 +20,7 @@ The avenger of blood will himself put the murderer to death. When he meets him, 
 If he shoved him out of hatred, or hurled something at him while lying in wait, so that he died, 
 or in hostility struck him with his hand, so that he died, he who struck him will surely be put to death. He's a murderer. The avenger of blood will put the murderer to death when he meets him. 
 "'But if he shoved him suddenly without hostility, or hurled on him anything without lying in wait, 
-or with any stone, by which a man may die, not seeing him, and cast it on him so that he died, and he wasn't his enemy and not seeking his harm, 
+or with any stone, by which a man can die, not seeing him, and cast it on him so that he died, and he wasn't his enemy and not seeking his harm, 
 then the congregation will judge between the striker and the avenger of blood according to these ordinances. 
 The congregation will deliver the man slayer out of the hand of the avenger of blood, and the congregation will restore him to his city of refuge, where he had fled. He will dwell therein until the death of the high priest, who was anointed with the holy oil. 
 "'But if the man slayer will at any time go beyond the border of his city of refuge where he flees, 

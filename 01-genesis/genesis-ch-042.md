@@ -1,5 +1,5 @@
 ﻿Now Jacob saw that there was grain in Egypt, and Jacob said to his sons, "Why do you look at one another?" 
-He said, "Look, I have heard that there's grain in Egypt. Go down there, and buy for us from there, so that we may live, and not die." 
+He said, "Look, I have heard that there's grain in Egypt. Go down there, and buy for us from there, so that we can live, and not die." 
 Joseph's ten brothers went down to buy grain from Egypt. 
 But Jacob didn't send Benjamin, Joseph's brother, with his brothers; for he said, "Lest perhaps harm happen to him." 
 The sons of Israel came to buy among those who came, for the famine was in the land of Canaan. 

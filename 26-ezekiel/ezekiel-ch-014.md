@@ -12,7 +12,7 @@ that the house of Israel may no more go astray from me, neither defile themselve
 God's word came to me, saying, 
 "Son of man, when a land wrongs me by committing a trespass, and I stretch out my hand on it, and break the staff of its bread and send famine on it, and cut off from it man and animal 
 though these three men, Noah, Daniel, and Job, were in it, they'd deliver only their own souls by their righteousness," says God. 
-"If I cause bad animals to pass through the land, and they ravage it and it's made desolate, so that no man may pass through because of the animals 
+"If I cause bad animals to pass through the land, and they ravage it and it's made desolate, so that no man can pass through because of the animals 
 though these three men were in it, as I live," says God, "they'd deliver neither sons nor daughters. They only would be delivered, but the land would be desolate. 
 "Or if I bring a sword on that land, and say, 'Sword, go through the land, so that I cut off from it man and animal' 
 though these three men were in it, as I live," says God, "they'd deliver neither sons nor daughters, but they only would be delivered themselves. 

@@ -25,5 +25,5 @@ Now I celebrate in my sufferings for your sake, and in my own flesh I'm filling 
 Of it I became a servant, by the household plan God gave me for you, so that I could complete God's word, 
 the secret that was hidden for eras and generations, but has now been unveiled to his set-apart ones. 
 To them God chose to make known how rich the weight of this secret is among the nations: Christ in you, the expectation of weight. 
-We announce him, warning everyone and teaching everyone with all wisdom, so that we may present everyone mature in Christ Jesus. 
+We announce him, warning everyone and teaching everyone with all wisdom, so that we can present everyone mature in Christ Jesus. 
 That's what I work for, struggling with all the energy he pours into me so powerfully. 

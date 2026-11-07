@@ -10,7 +10,7 @@ He must hold firmly to the trustworthy word just as he was taught, so that he ca
 There are many who refuse to be told what to do, who talk empty nonsense and lead people astray, especially those from the circumcision group. 
 They must be silenced, because they're wrecking whole households by teaching what they shouldn't, for the sake of shameful gain. 
 One of their own spokesmen said, "Cretans are always liars, vicious animals, and lazy bellies." 
-That witness is true. So correct them sharply, so that they may be healthy in the trust, 
+That witness is true. So correct them sharply, so that they can be healthy in the trust, 
 and stop paying attention to Jewish old stories and to the commands of people who turn their backs on the truth. 
 To those who are clean, everything is clean; but to those who are stained and have no trust, nothing is clean. Their minds and their consciences are stained too. 
 They claim to know God, but they disown him by what they do. They're hateful, they refuse to be told what to do, and they're useless for any good deed. 

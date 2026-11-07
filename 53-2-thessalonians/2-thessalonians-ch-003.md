@@ -11,7 +11,7 @@ Even when we were with you, we gave you this rule: "If anyone won't work, he doe
 We hear that some among you're living out of line, not working at all, but sticking their noses into everything. 
 People like that we tell, and urge in the Lord Jesus Christ, to settle down, get to work, and eat their own bread. 
 And you, brothers and sisters, don't get tired of doing what's right. 
-If anyone won't listen to what we say in this letter, take note of him and don't keep company with him, so that he may feel ashamed. 
+If anyone won't listen to what we say in this letter, take note of him and don't keep company with him, so that he can feel ashamed. 
 Don't treat him as an enemy, but warn him as a brother or sister. 
 May the Lord of wholeness himself give you wholeness at all times and in every way. The Lord be with you all. 
 I, Paul, write this greeting with my own hand. That's the sign in every letter of mine; this is how I write. 

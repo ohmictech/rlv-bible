@@ -35,7 +35,7 @@ He said to them, "My life is crushed with grief, even to death. Stay here and st
 He went a little further, fell on the ground, and prayed that, if it were possible, the hour would pass from him. 
 He said, "Abba, Father, all things are possible for you. Take this cup away from me. Yet not what I want, but what you want." 
 He came and found them sleeping, and said to Peter, "Simon, are you sleeping? Couldn't you stay awake one hour? 
-Stay awake and pray, so that you may not come into testing. The spirit is willing, but the flesh is weak." 
+Stay awake and pray, so that you can't come into testing. The spirit is willing, but the flesh is weak." 
 Again he went away and prayed, saying the same words. 
 Again he returned and found them sleeping, for their eyes were very heavy; and they didn't know what to answer him. 
 He came the third time and said to them, "Sleep on now and rest. That's enough. The time has come. Look, the Human One is being handed over into the hands of those who have drifted. 

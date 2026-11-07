@@ -9,4 +9,4 @@ bringing payback on those who don't know God and on those who won't listen to th
 They'll pay the penalty: the ruin of the era, coming from the face of the Lord and from the weight of his might, 
 when he comes on that day to be honored among his set-apart ones and to be admired by everyone who has trusted, and you trusted our witness to you. 
 That's what we always pray for you: that our God may count you worthy of the calling he gave you, and may bring to completion with power every good intent and every work of trust, 
-so that the name of our Lord Jesus may be honored in you, and you in him, by the favor of our God and the Lord Jesus Christ. 
+so that the name of our Lord Jesus can be honored in you, and you in him, by the favor of our God and the Lord Jesus Christ. 

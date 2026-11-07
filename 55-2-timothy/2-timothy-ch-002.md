@@ -7,7 +7,7 @@ The farmer who does the hard work should be the first to get a share of the crop
 Think about what I'm saying, and the Lord will give you understanding in everything. 
 Remember Jesus Christ, raised from the dead, from the family line of David, that's my Good News. 
 That's what I'm suffering for, right up to being chained like a criminal. But God's word isn't chained. 
-So I put up with everything for the sake of the chosen ones, so that they too may receive the rescue that's in Christ Jesus, with weight that lasts for the eras. 
+So I put up with everything for the sake of the chosen ones, so that they too can receive the rescue that's in Christ Jesus, with weight that lasts for the eras. 
 This saying is trustworthy: "If we died with him, we'll also truly live with him. 
 If we hold on, we'll also reign with him. If we disown him, he'll disown us too. 
 If we have no trust, he still stays trustworthy, because he can't disown himself." 

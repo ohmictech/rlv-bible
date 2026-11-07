@@ -29,7 +29,7 @@ The Scripture was fulfilled which says, "He was counted with those who break the
 Those who passed by slandered him, shaking their heads and saying, "Ha! You who would tear down the temple and build it in three days, 
 rescue yourself, and come down from the cross!" 
 In the same way the chief priests also, mocking him among themselves with the Bible teachers, said, "He rescued others. He can't rescue himself. 
-Let the Christ, the King of Israel, come down from the cross now, so that we may see and trust him." And those who were crucified with him also insulted him. 
+Let the Christ, the King of Israel, come down from the cross now, so that we can see and trust him." And those who were crucified with him also insulted him. 
 When noon came, there was darkness over the whole land until mid-afternoon. 
 At mid-afternoon Jesus cried with a loud voice, saying, "Eloi, Eloi, lama sabachthani?" which means "My God, my God, why have you abandoned me?" 
 Some of those standing by, when they heard it, said, "Look, he's calling Elijah." 

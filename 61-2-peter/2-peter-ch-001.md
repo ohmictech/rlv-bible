@@ -1,7 +1,7 @@
 ﻿Simon Peter, a slave and sent one of Jesus Christ, to those who have been given the same precious trust as we have, through the rightness of our God and Restorer, Jesus Christ: 
 Favor and wholeness to you in abundance, as you come to know God and Jesus our Lord, 
 because his divine power has given us everything we need for real life and devotion to God, through knowing the one who called us by his own weight and goodness. 
-By these he has given us his precious and very great promises, so that through them you may share in the divine nature, having escaped the decay that's in the world because of craving. 
+By these he has given us his precious and very great promises, so that through them you can share in the divine nature, having escaped the decay that's in the world because of craving. 
 This very reason, make every effort to add to your trust goodness, and to goodness, knowing, 
 and to knowing, good judgment, and to good judgment, staying power, and to staying power, devotion to God, 
 and to devotion to God, affection for your brothers and sisters, and to that affection, love. 

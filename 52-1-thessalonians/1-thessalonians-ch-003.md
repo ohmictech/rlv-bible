@@ -10,4 +10,4 @@ How can we thank God enough for you, for all the joy we celebrate in before our 
 Night and day we pray as hard as we can that we may see you face to face and make up what's still missing in your trust. 
 Now may our God and Father himself, and our Lord Jesus Christ, clear the road for us to come to you. 
 May the Lord make your love overflow and increase for one another and for everyone, just as ours does for you, 
-so that he may make your hearts strong and without fault in set-apartness before our God and Father, at the arrival of our Lord Jesus with all his set-apart ones. 
+so that he can make your hearts strong and without fault in set-apartness before our God and Father, at the arrival of our Lord Jesus with all his set-apart ones. 

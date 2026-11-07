@@ -12,7 +12,7 @@ But Christ came as high priest of the good things that have come, and he went th
 He didn't enter by the blood of goats and calves, but by his own blood, and he entered the Holy Place once and for all, having won release of the era. 
 If the blood of goats and bulls, and the ashes of a young cow sprinkled on those who have become unclean, set them apart so that their bodies are clean, 
 how much more will the blood of Christ, who offered himself without any fault to God through the Spirit of the eras, make your conscience clean from dead deeds, so that you can serve the living God? 
-That's why he's the mediator of a new binding arrangement: a death has taken place that brings release from the false steps committed under the first arrangement, so that those who are called may receive the promise of the charge handed down for the eras. 
+That's why he's the mediator of a new binding arrangement: a death has taken place that brings release from the false steps committed under the first arrangement, so that those who are called can receive the promise of the charge handed down for the eras. 
 Where there's a will, the one who made it must be shown to have died. 
 A will only takes effect when someone has died; it never takes effect while the one who made it's still alive. 
 That's why even the first arrangement wasn't put into effect without blood. 

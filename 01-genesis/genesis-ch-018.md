@@ -16,7 +16,7 @@ Then Sarah denied it, saying, "I didn't laugh," for she was afraid. He said, "No
 The men rose up from there, and looked toward Sodom. Abraham went with them to see them on their way. 
 God said, "Will I hide from Abraham what I do, 
 since Abraham will surely become a great and mighty nation, and all the nations of the earth will be blessed in him? 
-I have chosen him, so that he'll command his children and his household after him to keep the way of God by doing what's right and just, so that God may bring about for Abraham what he has promised him." 
+I have chosen him, so that he'll command his children and his household after him to keep the way of God by doing what's right and just, so that God can bring about for Abraham what he has promised him." 
 God said, "Because the outcry against Sodom and Gomorrah is great, and because their wrongdoing is very serious, 
 I'll go down now, and see whether their deeds are as bad as the reports which have come to me. If not, I'll know." 
 The men turned from there and went toward Sodom, but Abraham still stood before God. 

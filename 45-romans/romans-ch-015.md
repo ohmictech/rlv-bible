@@ -10,7 +10,7 @@ so that the nations would give honor to God for his mercy. As it's written, "The
 Again he says, "Celebrate, you nations, with his people." 
 Again, "Praise the Lord, all you nations! Let everyones praise him." 
 Again, Isaiah says, "There will be the root of Jesse, he who arises to rule over the nations; in him the nations will put their expectation." 
-Now may the God of expectation fill you with all joy and wholeness as you trust, so that you may overflow with expectation in the power of the Holy Spirit. 
+Now can the God of expectation fill you with all joy and wholeness as you trust, so that you can overflow with expectation in the power of the Holy Spirit. 
 I myself am also persuaded about you, my brothers, that you yourselves are full of goodness, filled with all knowledge, able also to admonish others. 
 But I write the more boldly to you in part as reminding you, because of the gift that was given to me by God, 
 that I should be a servant of Christ Jesus to the nations, serving as a priest of the Good News of God, so that the offering up of the nations would be acceptable, set apart by the Holy Spirit. 

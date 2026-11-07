@@ -16,9 +16,9 @@ and your feet fitted with the readiness that comes from the Good News of wholene
 And above all, take up the shield of trust, with which you can put out all the burning arrows of the malicious one. 
 And take the helmet of rescue, and the sword of the Spirit, which is the word of God. 
 Pray at all times in the Spirit, with every kind of prayer and request. Keep awake and keep at it, praying for all the set-apart ones, 
-and pray for me too, that words may be given to me when I open my mouth, so that I can speak out in the open and make known the secret of the Good News, 
+and pray for me too, that words can be given to me when I open my mouth, so that I can speak out in the open and make known the secret of the Good News, 
 for which I'm an ambassador in chains. Pray that I may speak out in the open as I should. 
-Tychicus, our truly loved brother and trustworthy servant in the Lord, will tell you everything, so that you also may know how I'm doing. 
-I'm sending him to you for this very reason, so that you may know how we're doing and so that he may encourage your hearts. 
+Tychicus, our truly loved brother and trustworthy servant in the Lord, will tell you everything, so that you also can know how I'm doing. 
+I'm sending him to you for this very reason, so that you can know how we're doing and so that he can encourage your hearts. 
 Wholeness to the brothers and sisters, and love with trust, from God the Father and the Lord Jesus Christ. 
 Favor be with everyone who truly loves our Lord Jesus Christ with a love that never decays. Amen. 

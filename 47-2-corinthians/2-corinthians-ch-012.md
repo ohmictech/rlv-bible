@@ -3,10 +3,10 @@ I know a man in Christ who was caught up to the third sky fourteen years ago, wh
 I know such a man (whether in the body, or outside of the body, I don't know; God knows), 
 how he was caught up into paradise and heard words that can't be put into speech, which no one is allowed to say. 
 On behalf of such a person I'll take pride, but on my own behalf I won't take pride, except in my weaknesses. 
-If I wanted to take pride, I wouldn't be foolish, because I'd be speaking the truth. But I refrain, so that no man may think more of me than that which he sees in me or hears from me. 
+If I wanted to take pride, I wouldn't be foolish, because I'd be speaking the truth. But I refrain, so that no man can think more of me than that which he sees in me or hears from me. 
 Because of the greatness of the unveilings, so that I wouldn't be lifted up too high, a thorn was given me in the flesh: a messenger of the Adversary to test me, so that I wouldn't be lifted up too high. 
 Concerning this thing, I begged the Lord three times that it might depart from me. 
-He said to me, "My gift is enough for you, for my power is made complete in weakness." So I'll most gladly take pride all the more in my weaknesses, so that the power of Christ may rest on me. 
+He said to me, "My gift is enough for you, for my power is made complete in weakness." So I'll most gladly take pride all the more in my weaknesses, so that the power of Christ can rest on me. 
 So I take pleasure in weaknesses, in insults, in hardships, in being hunted down, and in tight spots, for Christ's sake. When I'm weak, then I'm strong. 
 I have become foolish in boasting. You forced me to it, for I ought to have been commended by you. I'm in no way behind those super-sent ones, though I'm nothing. 
 The signs of a sent one were worked among you with all staying power, in signs and wonders and powerful works. 

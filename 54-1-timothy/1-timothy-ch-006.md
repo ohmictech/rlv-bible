@@ -16,6 +16,6 @@ which he'll make visible at the right time, he who's the flourishing and only Ru
 He alone is undying and lives in light no one can come near, whom no one has seen or can see. To him be honor and might for the eras. Amen. 
 Tell those who are rich in this present era not to look down on others, and not to set their expectation on riches, which are so uncertain, but on the living God, who gives us everything richly to enjoy; 
 tell them to do good, to be rich in good deeds, to be generous, and ready to share. 
-In this way they store up a good foundation for the time to come, so that they may take hold of the real life. 
+In this way they store up a good foundation for the time to come, so that they can take hold of the real life. 
 Timothy, guard what has been put in your care. Turn away from the empty talk and the contradictions of what's falsely called knowledge, 
 which some have claimed and then missed the way of the trust. Favor be with you. Amen. 

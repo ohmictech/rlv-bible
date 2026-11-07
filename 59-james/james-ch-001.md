@@ -1,7 +1,7 @@
 ﻿James, a slave of God and of the Lord Jesus Christ, to the twelve tribes scattered among the nations: Greetings. 
 Consider it pure joy, my brothers and sisters, when you go through all kinds of tests, 
 because you know that the testing of your trust produces staying power. 
-Let staying power do its full work, so that you may be complete and whole, lacking nothing. 
+Let staying power do its full work, so that you can be complete and whole, lacking nothing. 
 If any of you lacks wisdom, ask God, who gives generously to everyone and never finds fault, and it'll be given to you. 
 But ask in trust, without doubting, because anyone who doubts is like a wave on the sea, blown and tossed by the wind. 
 That person shouldn't expect to receive anything from the Lord. 

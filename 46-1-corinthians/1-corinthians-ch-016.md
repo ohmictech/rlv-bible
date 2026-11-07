@@ -3,12 +3,12 @@ On the first day of every week, let each one of you set something aside as he's 
 When I arrive, I'll send the people you approve, with letters, to carry your gift to Jerusalem. 
 If it's appropriate for me to go also, they'll go with me. 
 I'll come to you when I have passed through Macedonia, for I'm passing through Macedonia. 
-But I may stay with you, or even spend the winter with you, so that you may send me on my way wherever I go. 
+But I can stay with you, or even spend the winter with you, so that you can send me on my way wherever I go. 
 I don't want to see you now just in passing, but I hope to stay a while with you, if the Lord permits. 
 But I'll stay at Ephesus until Pentecost, 
 for a great and effective door has opened to me, and there are many adversaries. 
 Now if Timothy comes, see that he's with you without fear, for he does the work of the Lord, as I also do. 
-So let no one look down on him. Send him on his way in wholeness, so that he may come to me; for I'm expecting him with the brothers. 
+So let no one look down on him. Send him on his way in wholeness, so that he can come to me; for I'm expecting him with the brothers. 
 Now concerning Apollos the brother, I strongly urged him to come to you with the brothers, but it wasn't at all his desire to come now; but he'll come when he has an opportunity. 
 Stay awake! Stand firm in the trust! Be brave! Be strong! 
 Let all that you do be done in love. 

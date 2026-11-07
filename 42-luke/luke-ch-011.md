@@ -30,7 +30,7 @@ When the crowds were gathering together to him, he began to say, "This is a mali
 Even as Jonah became a sign to the Ninevites, so the Human One will also be to this generation. 
 The Queen of the South will rise up at the verdict with the men of this generation and will sentence them, for she came from the ends of the earth to hear the wisdom of Solomon; and look, one greater than Solomon is here. 
 The men of Nineveh will stand up at the verdict with this generation, and will sentence it, for they had a change of heart at the preaching of Jonah; and look, one greater than Jonah is here. 
-"No one who lights a lamp puts it in a cellar or under a basket, but on a stand, so that those who come in may see the light. 
+"No one who lights a lamp puts it in a cellar or under a basket, but on a stand, so that those who come in can see the light. 
 The lamp of the body is the eye. So when your eye is good, your whole body is also full of light; but when it's malicious, your body also is full of darkness. 
 So see to it that the light in you isn't darkness. 
 If your whole body is full of light, having no part dark, it'll be wholly full of light, as when the lamp with its bright shining gives you light." 

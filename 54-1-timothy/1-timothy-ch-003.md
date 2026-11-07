@@ -12,5 +12,5 @@ Their wives must be serious in the same way, not slanderers, clear-headed, and t
 Servants must be faithful to one wife, leading their children and their own households well. 
 Those who have served well gain a good standing for themselves, and great openness in the trust that's in Christ Jesus. 
 I'm writing this to you, hoping to come to you before long, 
-but if I'm delayed, so that you may know how people should live in God's house, which is the gathering of the living God, the pillar and foundation of the truth. 
+but if I'm delayed, so that you can know how people should live in God's house, which is the gathering of the living God, the pillar and foundation of the truth. 
 And everyone agrees: the secret of devotion to God is great. He was made visible in the flesh, made right in the Spirit, seen by messengers, announced among the nations, trusted in the world, and taken up in weight. 

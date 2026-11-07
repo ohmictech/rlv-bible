@@ -1,7 +1,7 @@
 ﻿"I have said these things to you so that you wouldn't be tripped up. 
 They'll put you out of the gathering places. Yes, the time is coming that whoever kills you'll think that they offer service to God. 
 They'll do these things because they haven't known the Father nor me. 
-But I have told you these things so that when the time comes, you may remember that I told you about them. I didn't tell you these things from the beginning, because I was with you. 
+But I have told you these things so that when the time comes, you can remember that I told you about them. I didn't tell you these things from the beginning, because I was with you. 
 But now I'm going to him who sent me, and none of you asks me, 'Where are you going?' 
 But because I have told you these things, sorrow has filled your heart. 
 Nevertheless I tell you the truth: It's to your advantage that I go away; for if I don't go away, the one who comes alongside won't come to you. But if I go, I'll send him to you. 

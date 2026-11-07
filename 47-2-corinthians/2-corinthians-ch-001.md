@@ -8,7 +8,7 @@ Our expectation for you is firm, knowing that as you share the sufferings, so yo
 We don't want you to be unaware, brothers, of the hard times that came on us in Asia: we were weighed down far beyond our strength, so much that we gave up hope even of living. 
 Yes, we had the sentence of death within ourselves, so that we wouldn't trust in ourselves, but in God who raises the dead, 
 who rescued us out of so great a death, and does rescue, and on whom we have set our expectation that he'll also still rescue us, 
-you also helping together on our behalf by your prayer; so that, for the gift given to us through many, thanks may be given by many people on your behalf. 
+you also helping together on our behalf by your prayer; so that, for the gift given to us through many, thanks can be given by many people on your behalf. 
 Our pride is this: the witness of our conscience that we behaved in the world with set-apartness and God-given sincerity, not with fleshly wisdom but with the favor of God, and all the more toward you. 
 We write no other things to you than what you read or even acknowledge, and I hope you'll acknowledge to the end, 
 as also you acknowledged us in part, that we're your reason to be proud, even as you also are ours, in the day of our Lord Jesus. 

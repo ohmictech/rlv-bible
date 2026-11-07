@@ -5,7 +5,7 @@ I have no greater joy than this: to hear that my children are walking in the tru
 My truly loved friend, you're doing a trustworthy work in whatever you do for the brothers and sisters, even though they're strangers to you. 
 They have told the gathering about your love. You'll do well to send them on their way in a way that honors God, 
 because they went out for the sake of the Name, taking nothing from the nations. 
-So we should welcome people like that, so that we may work alongside them for the truth. 
+So we should welcome people like that, so that we can work alongside them for the truth. 
 I wrote to the gathering, but Diotrephes, who loves to be the most important among them, doesn't accept what we say. 
 So if I come, I'll bring up what he's doing, spreading wicked rumors about us. And he isn't satisfied with that: he refuses to welcome the brothers and sisters himself, and he stops those who would, and throws them out of the gathering. 
 My truly loved friend, don't imitate what's bad; imitate what's good. Whoever does good belongs to God. Whoever does bad hasn't seen God. 

@@ -33,7 +33,7 @@ They went away in the boat to an empty place by themselves.
 The crowds saw them going, and many recognized him and ran there on foot from all the cities, and they got there ahead of them and gathered to him. 
 Jesus came out and saw a great crowd, and he had deep compassion on them because they were like sheep without a shepherd, and he began to teach them many things. 
 When the day was almost over, his students came to him and said, "This place is empty, and it's already late. 
-Send them away, so that they may go into the surrounding countryside and villages and buy themselves something to eat." 
+Send them away, so that they can go into the surrounding countryside and villages and buy themselves something to eat." 
 But he answered them, "You give them something to eat." They asked him, "Should we go and buy two hundred silver coins' worth of bread and give them something to eat?" 
 He said to them, "How many loaves do you have? Go see." When they knew, they said, "Five, and two fish." 
 He commanded them to have everyone sit down in groups on the green grass. 

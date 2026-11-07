@@ -35,7 +35,7 @@ He healed many who were sick with various diseases and drove out many unclean sp
 Early in the morning, while it was still dark, he got up and went out, and left for an empty place, and prayed there. 
 Simon and those who were with him searched for him. 
 They found him and told him, "Everyone is looking for you." 
-He said to them, "Let's go somewhere else, into the next towns, so that I may preach there too, because that's why I came out." 
+He said to them, "Let's go somewhere else, into the next towns, so that I can preach there too, because that's why I came out." 
 He went into their gathering places throughout all Galilee, preaching and driving out unclean spirits. 
 A man with leprosy came to him, begging him and kneeling down to him, saying, "If you want to, you can make me clean." 
 Moved with deep compassion, he stretched out his hand, touched him, and said to him, "I want to. Be made clean." 

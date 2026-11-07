@@ -30,4 +30,4 @@ Conscience, I say, not your own, but the other's conscience. Why should my freed
 If I partake with thanks, why am I denounced for something I give thanks for? 
 Whether you eat or drink, or whatever you do, do it all to the weight of God. 
 Give no cause for stumbling, whether to Jewish people, to Greeks, or to the gathering of God; 
-just as I also please everyone in all things, not seeking my own good, but the good of everyone, so that they may be made whole. 
+just as I also please everyone in all things, not seeking my own good, but the good of everyone, so that they can be made whole. 

@@ -37,5 +37,5 @@ All the congregation brought him outside of the camp, and stoned him to death wi
 God spoke to Moses, saying, 
 "Speak to the children of Israel, and tell them that they should make themselves fringes on the borders of their garments throughout their generations, and that they put on the fringe of each border a cord of blue. 
 It will be to you for a fringe, that you may see it, and remember all God's commandments, and do them; and that you don't follow your own heart and your own eyes, after which you used to play the prostitute; 
-so that you may remember and do all my commandments, and be holy to your God. 
+so that you can remember and do all my commandments, and be holy to your God. 
 I'm your God, who brought you out of the land of Egypt, to be your God: I'm your God." 

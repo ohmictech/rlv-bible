@@ -1,4 +1,4 @@
-﻿Every high priest is chosen from among people and appointed to act for people in matters that concern God, so that he may offer gifts and sacrifices for wrongdoing. 
+﻿Every high priest is chosen from among people and appointed to act for people in matters that concern God, so that he can offer gifts and sacrifices for wrongdoing. 
 He can be gentle with those who don't know any better and are going astray, because he himself is also weak. 
 That's why he has to offer sacrifices for his own mistakes as well as for the people's. 
 And no one takes this honor on himself; he receives it when God calls him, just as Aaron did. 

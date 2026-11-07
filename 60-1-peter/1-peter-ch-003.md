@@ -1,4 +1,4 @@
-﻿In the same way, wives, submit to your own husbands, so that even if some of them refuse to obey the message, they may be won over without a word by the way their wives live, 
+﻿In the same way, wives, submit to your own husbands, so that even if some of them refuse to obey the message, they can be won over without a word by the way their wives live, 
 as they see the pure way you live, with respect. 
 Your beauty shouldn't come from the outside, from braided hair, gold jewelry, or fine clothes, 
 It should come from the inner person, from the heart, from a gentle and quiet spirit that never decays. That's what God counts precious. 
@@ -6,7 +6,7 @@ This is how the set-apart women of the past who put their expectation in God mad
 Sarah obeyed Abraham and called him her master. You're her daughters if you do good and don't give in to fear. 
 Husbands, in the same way, live with your wives with understanding. Give them honor as the weaker partner, and remember that they're heirs with you of the gift of life, so that nothing blocks your prayers. 
 Finally, all of you should be of one mind. Sympathize with each other. Love each other as brothers and sisters. Be tenderhearted and humble. 
-Don't pay back evil with evil or insult with insult. Instead, bless, because you were called to that, so that you may receive a blessing. 
+Don't pay back evil with evil or insult with insult. Instead, bless, because you were called to that, so that you can receive a blessing. 
 For, "Whoever wants to love life and see good days must keep their tongue from evil and their lips from deceit. 
 They must turn away from evil and do good. They must chase wholeness and go after it. 
 The eyes of the Lord are on the upright, and his ears are open to their prayer; but the face of the Lord is against those who do evil." 

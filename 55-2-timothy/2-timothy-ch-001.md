@@ -1,7 +1,7 @@
 ﻿Paul, a sent one of Christ Jesus through the will of God, for the promise of the life that's in Christ Jesus, 
 to Timothy, my truly loved child: Favor, mercy, and wholeness to you from God the Father and Christ Jesus our Lord. 
 I thank God, whom I serve the way my ancestors did, with a clean conscience, as I remember you constantly in my prayers, night and day. 
-I long to see you, remembering your tears, so that I may be full of joy. 
+I long to see you, remembering your tears, so that I can be full of joy. 
 I remember the genuine trust in you, which lived first in your grandmother Lois and your mother Eunice, and I'm sure it lives in you too. 
 That's why I remind you to fan into flame the gift God gave you when I laid my hands on you. 
 God didn't give us a spirit of cowardice, but of power, love, and good judgment. 

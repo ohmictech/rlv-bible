@@ -2,7 +2,7 @@
 The one who speaks in another language speaks not to people but to God, for no one understands, but in the Spirit he speaks secrets. 
 But the one who speaks for God speaks to people for their building up, encouragement, and comfort. 
 The one who speaks in another language builds himself up, but the one who speaks for God builds up the gathering. 
-Now I want you all to speak with other languages, but even more that you'd speak for God. The one who speaks for God is greater than the one who speaks with other languages, unless he interprets, so that the gathering may be built up. 
+Now I want you all to speak with other languages, but even more that you'd speak for God. The one who speaks for God is greater than the one who speaks with other languages, unless he interprets, so that the gathering can be built up. 
 But now, brothers, if I come to you speaking with other languages, what good would I do you unless I speak to you either by way of unveiling, or of knowledge, or of speaking for God, or of teaching? 
 Even lifeless things that make a sound, whether pipe or harp, if they didn't give a distinction in the sounds, how would it be known what's piped or harped? 
 If the trumpet gave an uncertain sound, who would prepare himself for war? 
@@ -28,7 +28,7 @@ If any man speaks in another language, let there be two, or at the most three, a
 But if there's no interpreter, let him keep quiet in the gathering, and speak to himself and to God. 
 Let two or three spokesmen speak, and let the others weigh what's said. 
 But if something is unveiled to another who's sitting by, let the first keep quiet. 
-You can all speak for God one by one, so that all may learn and all may be encouraged. 
+You can all speak for God one by one, so that all can learn and all can be encouraged. 
 The spirits of the spokesmen are subject to the spokesmen, 
 for God isn't a God of confusion but of wholeness, as in all the gatherings of the set-apart ones. 
 Let the wives keep quiet in the gatherings, for they aren't permitted to talk, but are to be under authority, as the law also says, 

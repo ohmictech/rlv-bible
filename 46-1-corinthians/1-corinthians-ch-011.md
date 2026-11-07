@@ -16,7 +16,7 @@ but if a woman has long hair, it's a weight to her, for her hair is given to her
 But if any man seems to be contentious, we have no such custom, and neither do God's gatherings. 
 But in giving you this command I don't praise you, because you come together not for the better but for the worse. 
 First of all, when you come together as a gathering, I hear that divisions exist among you, and I partly accept it. 
-There must also be factions among you, so that those who pass the test may become visible among you. 
+There must also be factions among you, so that those who pass the test can become visible among you. 
 When you come together then, it isn't the Lord's meal that you eat. 
 In your eating each one takes his own dinner first. One is hungry, and another is drunk. 
 What? Don't you have houses to eat and drink in? Or do you look down on God's gathering and shame those who have nothing? What should I tell you? Should I praise you? In this I don't praise you. 
@@ -29,6 +29,6 @@ But let a person examine himself, and then eat of the bread and drink of the cup
 The one who eats and drinks in an unworthy way eats and drinks a verdict against himself if he doesn't recognize the Lord's body. 
 That's why many among you're weak and sickly, and not a few sleep. 
 If we passed a verdict on ourselves, we wouldn't be judged. 
-But when we're judged, we're disciplined by the Lord, so that we may not be sentenced with the world. 
+But when we're judged, we're disciplined by the Lord, so that we can't be sentenced with the world. 
 So, my brothers, when you come together to eat, wait for one another. 
 But if anyone is hungry, let him eat at home, so that your coming together doesn't bring a verdict. The rest I'll set in order when I come. 

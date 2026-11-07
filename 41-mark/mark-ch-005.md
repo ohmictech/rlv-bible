@@ -9,7 +9,7 @@ He said to him, "Come out of the man, you unclean spirit!"
 He asked him, "What's your name?" He said to him, "My name is Legion, for we're many." 
 He begged him earnestly not to send them out of the region. 
 Now on the mountainside there was a great herd of pigs feeding. 
-The unclean spirits begged him, saying, "Send us into the pigs, so that we may enter them." 
+The unclean spirits begged him, saying, "Send us into the pigs, so that we can enter them." 
 At once Jesus gave them permission. The unclean spirits came out and entered the pigs. The herd of about two thousand rushed down the steep bank into the sea, and they were drowned in the sea. 
 Those who fed the pigs fled and told it in the city and in the countryside. The people came to see what had happened. 
 They came to Jesus and saw the man who had been possessed by unclean spirits sitting there, clothed and in his right mind, the man who had had the legion. And they were afraid. 
@@ -20,7 +20,7 @@ He didn't let him, but said to him, "Go home to your own people, and tell them w
 He went his way and began to proclaim in the Decapolis how Jesus had done great things for him, and everyone was amazed. 
 When Jesus had crossed back over in the boat to the other side, a great crowd gathered to him, and he was by the sea. 
 Look, one of the leaders of the gathering place, Jairus by name, came and, seeing him, fell at his feet 
-and begged him earnestly, saying, "My little daughter is at the point of death. Please come and lay your hands on her, so that she may be made healthy and live." 
+and begged him earnestly, saying, "My little daughter is at the point of death. Please come and lay your hands on her, so that she can be made healthy and live." 
 He went with him, and a great crowd followed him and pressed in on him from all sides. 
 A woman who had been bleeding for twelve years, 
 and had suffered a great deal at the hands of many doctors, and had spent all that she had, and was no better, but only grew worse, 

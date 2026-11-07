@@ -11,7 +11,7 @@ He said to me, "Don't seal up the words spoken for God in this scroll, because t
 Let the one who does wrong keep on doing wrong, and the one who's filthy keep on being filthy. Let the one who's right keep on doing right, and the one who's set apart keep on being set apart." 
 "Look, I'm coming soon, and my reward is with me, to pay each person back for what they have done. 
 I am the Alpha and the Omega, the First and the Last, the Beginning and the End. 
-Flourishing are those who do his commands, so that they may have the right to the tree of real life and may enter the city through its gates. 
+Flourishing are those who do his commands, so that they can have the right to the tree of real life and can enter the city through its gates. 
 Outside are the dogs, the drug-magicians, those who sleep around, the murderers, the idol worshipers, and everyone who loves and tells lies. 
 I, Jesus, have sent my messenger to give you this witness for the gatherings. I'm the root and the offspring of David, the bright morning star." 
 The Spirit and the bride say, "Come!" Let everyone who hears say, "Come!" Let anyone who's thirsty come. Let anyone who wants take the water of real life freely. 

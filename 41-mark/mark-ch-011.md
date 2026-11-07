@@ -22,7 +22,7 @@ Peter, remembering, said to him, "Rabbi, look! The fig tree which you cursed has
 Jesus answered them, "Have trust in God. 
 Truly I tell you, whoever says to this mountain, 'Be lifted up and thrown into the sea,' and doesn't doubt in his heart, but trusts that what he says is happening, will have whatever he says. 
 So I tell you, whatever you pray and ask for, trust that you have received it, and you'll have it. 
-Whenever you stand praying, if you have anything against anyone, release them, so that your Father in the sky may also release you from your false steps. 
+Whenever you stand praying, if you have anything against anyone, release them, so that your Father in the sky can also release you from your false steps. 
 But if you don't release them, neither will your Father in the sky release you from your false steps." 
 They came again to Jerusalem, and as he was walking in the temple courts, the chief priests, the Bible teachers, and the elders came to him, 
 and they began saying to him, "By what authority are you doing these things? And who gave you this authority to do them?" 

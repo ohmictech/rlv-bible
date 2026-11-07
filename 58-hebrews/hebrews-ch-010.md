@@ -33,7 +33,7 @@ But remember the earlier days, when, after you were given light, you went throug
 partly by being publicly shamed and treated badly, and partly by standing alongside those who were treated that way. 
 You had compassion on me in my chains, and you joyfully accepted the plundering of your possessions, knowing that you have for yourselves a better possession and one that lasts, in the skies. 
 So don't throw away your boldness, which brings a great reward. 
-You need staying power, so that after you have done the will of God, you may receive what was promised. 
+You need staying power, so that after you have done the will of God, you can receive what was promised. 
 "In just a little while, the one who's coming will come and won't be late. 
 But the one who's right will live by trust. And if he draws back, I take no pleasure in him." 
 But we aren't among those who draw back and are ruined; we're among those who trust, and so our life is rescued. 

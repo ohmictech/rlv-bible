@@ -13,7 +13,7 @@ The Human One came to rescue what was lost.
 If he finds it, truly I tell you, he celebrates over it more than over the ninety-nine that didn't wander off. 
 Even so it isn't the will of your Father in the sky that one of these little ones should be lost. 
 "If your brother wrongs you, go, show him his fault between you and him alone. If he listens to you, you have gained back your brother. 
-But if he doesn't listen, take one or two more with you, so that at the mouth of two or three witnesses every word may be established. 
+But if he doesn't listen, take one or two more with you, so that at the mouth of two or three witnesses every word can be established. 
 If he refuses to listen to them, tell it to the gathering. If he refuses to hear the gathering also, let him be to you as an outsider or a tax collector. 
 Truly I tell you, whatever you forbid on earth will have been forbidden in the sky, and whatever you permit on earth will have been permitted in the sky. 
 Again, truly I tell you, that if two of you agree on earth about anything that they ask, it'll be done for them by my Father in the sky. 

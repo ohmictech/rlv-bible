@@ -15,7 +15,7 @@ I know that whatever God does, it will be for the eras. Nothing can be added to 
 That which is has been long ago, and that which is to be has been long ago. God seeks again that which is passed away. 
 Moreover I saw under the sun, in the place of justice, that guilt was there; and in the place of righteousness, that guilt was there. 
 I said in my heart, "God will judge the righteous and the guilty; for there's a time there for every purpose and for every work." 
-I said in my heart, "As for the sons of men, God tests them, so that they may see that they themselves are like animals. 
+I said in my heart, "As for the sons of men, God tests them, so that they can see that they themselves are like animals. 
 That which happens to the sons of men happens to animals. Even one thing happens to them. As the one dies, so the other dies. Yes, they have all one breath; and man has no advantage over the animals, for all is vanity. 
 All go to one place. All are from the dust, and all turn to dust again. 
 Who knows the spirit of man, whether it goes upward, and the spirit of the animal, whether it goes downward to the earth?" 

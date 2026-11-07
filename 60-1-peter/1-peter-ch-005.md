@@ -3,7 +3,7 @@ shepherd God's flock that's in your care. Watch over it, not because you have to
 don't boss around those in your charge, but make yourselves examples to the flock. 
 And when the chief Shepherd appears, you'll receive the wreath of weight that never fades. 
 In the same way, you who are younger, submit to the elders. And all of you, wrap yourselves in humility as you serve one another, because "God stands against the proud, but gives favor to the humble." 
-So humble yourselves under God's mighty hand, so that he may lift you up at the right time, 
+So humble yourselves under God's mighty hand, so that he can lift you up at the right time, 
 throwing all your worries on him, because he cares about you. 
 Stay clear-headed and stay awake. The one who's against you, the Slanderer, prowls around like a roaring lion, looking for someone to swallow up. 
 Stand against him, firm in your trust, knowing that your brothers and sisters all over the world are going through the same kinds of suffering. 

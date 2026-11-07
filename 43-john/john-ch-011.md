@@ -1,7 +1,7 @@
 ﻿Now a certain man was sick, Lazarus from Bethany, of the village of Mary and her sister, Martha. 
 It was that Mary who had put perfume on the Lord and wiped his feet with her hair, whose brother Lazarus was sick. 
 The sisters sent to him, saying, "Lord, look, he for whom you have great affection is sick." 
-But when Jesus heard it, he said, "This sickness won't end in death. It's for God's honor, so that God's Son may be honored through it." 
+But when Jesus heard it, he said, "This sickness won't end in death. It's for God's honor, so that God's Son can be honored through it." 
 Now Jesus loved Martha, and her sister, and Lazarus. 
 When he heard that he was sick, he stayed two days in the place where he was. 
 Then after this he said to his students, "Let's go into Judea again." 
@@ -12,7 +12,7 @@ He said these things, and after that, he said to them, "Our friend Lazarus has f
 His students said, "Lord, if he has fallen asleep, he'll get better." 
 Now Jesus had spoken of his death, but they thought that he spoke of taking rest in sleep. 
 So Jesus said to them plainly then, "Lazarus is dead. 
-I'm glad for your sakes that I wasn't there, so that you may trust. Nevertheless, let's go to him." 
+I'm glad for your sakes that I wasn't there, so that you can trust. Nevertheless, let's go to him." 
 Thomas, who's called Didymus, said to his fellow students, "Let's also go, that we may die with him." 
 So when Jesus came, he found that he had been in the tomb four days already. 
 Now Bethany was near Jerusalem, about two miles away. 

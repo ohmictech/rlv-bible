@@ -10,7 +10,7 @@ If we accept what people bear witness to, what God bears witness to is greater, 
 Whoever trusts in the Son of God has that witness in themselves. Whoever doesn't trust God has made God out to be a liar, because they haven't trusted the witness God gave about his Son. 
 And this is the witness: God gave us the real life of the era, and this life is in his Son. 
 Whoever has the Son has the life. Whoever doesn't have God's Son doesn't have the life. 
-I have written these things to you who trust in the name of the Son of God, so that you may know that you have the real life of the era, and so that you may keep on trusting in the name of the Son of God. 
+I have written these things to you who trust in the name of the Son of God, so that you can know that you have the real life of the era, and so that you can keep on trusting in the name of the Son of God. 
 This is the boldness we have before him: if we ask anything that's in line with his will, he listens to us. 
 And if we know that he listens to us whenever we ask, we know that we already have what we asked him for. 
 If anyone sees a brother or sister committing wrongdoing that doesn't lead to death, they should ask, and God will give them life; I mean those whose wrongdoing doesn't lead to death. There's wrongdoing that leads to death, and I'm not saying they should ask about that one. 

@@ -26,7 +26,7 @@ You must not offer any of these as the bread of your God from the hand of a fore
 God spoke to Moses, saying, 
 "When a bull, a sheep, or a goat is born, it will remain seven days with its mother. From the eighth day on it will be accepted for the offering of an offering made by fire to God. 
 Whether it's a cow or ewe, you won't kill it and its young both in one day. 
-"When you sacrifice a sacrifice of thanksgiving to God, you will sacrifice it so that you may be accepted. 
+"When you sacrifice a sacrifice of thanksgiving to God, you will sacrifice it so that you can be accepted. 
 It will be eaten on the same day; you will leave none of it until the morning. I'm God. 
 "So you will keep my commandments, and do them. I'm God. 
 Don't profane my holy name, but I'll be made holy among the children of Israel. I'm God who makes you holy, 

@@ -32,7 +32,7 @@ which you have prepared in the presence of all peoples,
 a light to unveil the nations, and the weight of your people Israel." 
 Joseph and his mother were amazed at the things which were spoken concerning him. 
 Simeon blessed them, and said to Mary, his mother, "Look, this child is appointed for the falling and the rising of many in Israel, and as a sign that's spoken against. 
-And a sword will pierce through your own life too, so that the thoughts of many hearts may be revealed." 
+And a sword will pierce through your own life too, so that the thoughts of many hearts can be revealed." 
 There was also Anna, a spokeswoman, the daughter of Phanuel, of the tribe of Asher (she was very old, having lived with a husband seven years after her marriage, 
 and she had been a widow for about eighty-four years), who never left the temple, worshiping with going without food and prayers night and day. 
 Coming up at that very hour, she gave thanks to the Lord, and spoke of him to everyone who was waiting for the setting free in Jerusalem. 

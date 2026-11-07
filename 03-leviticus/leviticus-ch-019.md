@@ -2,7 +2,7 @@
 "Speak to all the congregation of the children of Israel, and tell them, 'You will be holy; for I, your God, am holy. 
 "'Each one of you will respect his mother and his father. You will keep my Sabbaths. I'm your God. 
 "'Don't turn to idols, nor make molten gods for yourselves. I'm your God. 
-"'When you offer a sacrifice of offerings for wholeness to God, you will offer it so that you may be accepted. 
+"'When you offer a sacrifice of offerings for wholeness to God, you will offer it so that you can be accepted. 
 It will be eaten the same day you offer it, and on the next day. If anything remains until the third day, it will be burned with fire. 
 If it's eaten at all on the third day, it's an abomination. It won't be accepted; 
 but everyone who eats it will bear his guilt, because he has profaned the holy thing of God, and that soul will be cut off from his people. 

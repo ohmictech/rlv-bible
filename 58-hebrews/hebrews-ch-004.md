@@ -13,4 +13,4 @@ God's word is alive and active, sharper than any double-edged sword. It cuts all
 No creature is hidden from his sight. Everything is naked and laid bare before the eyes of the one we must answer to. 
 So then, since we have a great high priest who has gone through the skies, Jesus the Son of God, let's hold tightly to what we declare. 
 We don't have a high priest who can't feel for our weaknesses. We have one who has been tested in every way, just as we're, yet without drift. 
-So let's come near to the throne of favor with boldness, so that we may receive mercy and find favor to help us when we need it. 
+So let's come near to the throne of favor with boldness, so that we can receive mercy and find favor to help us when we need it. 

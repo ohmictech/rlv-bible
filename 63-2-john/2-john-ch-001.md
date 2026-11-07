@@ -9,5 +9,5 @@ Watch yourselves, so that you don't lose what we have worked for, but receive a 
 Anyone who goes too far and doesn't make their home in the teaching of Christ doesn't have God. Whoever makes their home in the teaching has both the Father and the Son. 
 If anyone comes to you and doesn't bring this teaching, don't take them into your house and don't welcome them, 
 because anyone who welcomes them shares in their evil deeds. 
-I have many things to write to you, but I'd rather not do it with paper and ink. I hope to come to you and speak face to face, so that our joy may be complete. 
+I have many things to write to you, but I'd rather not do it with paper and ink. I hope to come to you and speak face to face, so that our joy can be complete. 
 The children of your chosen sister send you greetings. Amen. 

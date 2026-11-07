@@ -13,7 +13,7 @@ But above all things, my brothers and sisters, don't swear, not by the sky, or b
 Is any among you in trouble? Let them pray. Is any cheerful? Let them sing praises. 
 Is any among you sick? Let them call for the elders of the gathering, and let them pray over them, anointing them with oil in the Lord's name; 
 and the prayer of trust will heal the one who's sick, and the Lord will raise them up. If they have committed mistakes, they'll be released. 
-Confess your mistakes to one another, and pray for one another, so that you may be healed. The earnest prayer of an upright person is powerful and at work. 
+Confess your mistakes to one another, and pray for one another, so that you can be healed. The earnest prayer of an upright person is powerful and at work. 
 Elijah was a person just like us, and he prayed earnestly that it might not rain, and it didn't rain on the land for three years and six months. 
 Then he prayed again, and the sky gave rain, and the land produced its crop. 
 My brothers and sisters, if anyone among you wanders away from the truth and someone brings them back, 

@@ -2,7 +2,7 @@
 But because of so much sleeping around, let each man have his own wife, and each woman her own husband. 
 Let the husband give his wife the affection owed her, and likewise also the wife her husband. 
 The wife doesn't have authority over her own body, but the husband does. Likewise also the husband doesn't have authority over his own body, but the wife does. 
-Don't hold back from one another, unless you both agree for a time, so that you may give yourselves to going without food and prayer, and then be together again, so that the Adversary doesn't test you because of your lack of self-control. 
+Don't hold back from one another, unless you both agree for a time, so that you can give yourselves to going without food and prayer, and then be together again, so that the Adversary doesn't test you because of your lack of self-control. 
 But this I say by way of concession, not of commandment. 
 Yet I wish that everyone was like me. But each person has his own gift from God, one of one kind, and another of another. 
 But I say to the unmarried and to widows, it's good for them if they remain even as I'm. 
@@ -31,7 +31,7 @@ and those who weep, as though they didn't weep; and those who celebrate, as thou
 and those who use the world, as though they weren't using it to the full. The shape of this world is passing away. 
 But I want you to be free from worries. The unmarried man is concerned with the things of the Lord, how he may please the Lord; 
 but he who's married is concerned about the things of the world, how he may please his wife. 
-There's also a difference between a wife and a virgin. The unmarried woman cares about the things of the Lord, so that she may be set apart in both body and spirit. But the married woman cares about the things of the world: how she may please her husband. 
+There's also a difference between a wife and a virgin. The unmarried woman cares about the things of the Lord, so that she can be set apart in both body and spirit. But the married woman cares about the things of the world: how she can please her husband. 
 This I say for your own benefit, not that I may ensnare you, but for that which is appropriate, and that you may attend to the Lord without distraction. 
 But if anyone thinks he's behaving improperly toward the woman he's pledged to, and she's past the age for marrying, and it seems necessary, let him do what he wants. He isn't drifting. Let them marry. 
 But the one who stands firm in his heart, under no pressure, but has control over his own will, and has decided in his own heart to keep the woman he's pledged to, does well. 

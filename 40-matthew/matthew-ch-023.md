@@ -23,7 +23,7 @@ He who swears by the sky, swears by the throne of God and by the one who sits on
 "How terrible for you, Bible teachers and strict religious ones, pretenders! You give a tenth of mint, dill, and cumin, have left the heavier matters of the law undone: right judgment, mercy, and trust. You should have done these without leaving the others undone. 
 You blind guides, who strain out a gnat, and swallow a camel! 
 "How terrible for you, Bible teachers and strict religious ones, pretenders! You clean the outside of the cup and of the plate, but within they're full of robbery and wrong. 
-You blind strict religious man, first clean the inside of the cup and of the plate, so that its outside may become clean also. 
+You blind strict religious man, first clean the inside of the cup and of the plate, so that its outside can become clean also. 
 "How terrible for you, Bible teachers and strict religious ones, pretenders! You're like whitewashed tombs, which outwardly appear beautiful, but inwardly are full of dead bones and of all uncleanness. 
 Even so you also outwardly appear upright to people, but inwardly you're full of pretending and living as if there were no law. 
 "How terrible for you, Bible teachers and strict religious ones, pretenders! You build the tombs of the spokesmen and decorate the tombs of the upright, 

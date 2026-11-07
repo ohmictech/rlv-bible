@@ -1,7 +1,7 @@
 ﻿In the twenty-fifth year of our captivity, in the beginning of the year, in the tenth day of the month, in the fourteenth year after the city was struck, in the same day, God's hand was on me, and he brought me there. 
 In the visions of God he brought me into the land of Israel, and set me down on a very high mountain, on which was something like the frame of a city to the south. 
 He brought me there; and, look, there was a man whose appearance was like the appearance of bronze, with a line of flax in his hand and a measuring reed; and he stood in the gate. 
-The man said to me, "Son of man, see with your eyes, and hear with your ears, and set your heart on all that I'll show you; for you have been brought here so that I may show them to you. Declare all that you see to the house of Israel." 
+The man said to me, "Son of man, see with your eyes, and hear with your ears, and set your heart on all that I'll show you; for you have been brought here so that I can show them to you. Declare all that you see to the house of Israel." 
 Look, there was a wall on the outside of the house all around, and in the man's hand a measuring reed six cubits long, of a cubit and a hand width each. So he measured the thickness of the building, one reed; and the height, one reed. 
 Then he came to the gate which looks toward the east, and went up its steps. He measured the threshold of the gate, one reed wide; and the other threshold, one reed wide. 
 Every lodge was one reed long and one reed wide. Between the lodges was five cubits. The threshold of the gate by the porch of the gate toward the house was one reed. 

@@ -1,5 +1,5 @@
 ﻿So I urge you, brothers, by the mercies of God, to present your bodies a living sacrifice, set apart, acceptable to God, which is your spiritual service. 
-Don't be conformed to this world, but be transformed by the renewing of your mind, so that you may prove what's the good, well-pleasing, and complete will of God. 
+Don't be conformed to this world, but be transformed by the renewing of your mind, so that you can prove what's the good, well-pleasing, and complete will of God. 
 I say through the gift that was given me, to everyone who's among you, not to think of yourself more highly than you ought to think; but to think reasonably, as God has apportioned to each person a measure of trust. 
 Even as we have many members in one body, and all the members don't have the same function, 
 so we, who are many, are one body in Christ, and individually members of one another, 

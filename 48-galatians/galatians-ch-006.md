@@ -10,7 +10,7 @@ Let's not be weary in doing good, for we'll reap in due season if we don't give 
 So then, as we have opportunity, let's do good to everyone, and especially to those of the household of trust. 
 See with what large letters I write to you with my own hand. 
 As many as desire to make a good impression in the flesh compel you to be circumcised, only so that they won't be hunted down for the cross of Christ. 
-Even they who receive circumcision don't keep the law themselves, but they desire to have you circumcised, so that they may boast in your flesh. 
+Even they who receive circumcision don't keep the law themselves, but they desire to have you circumcised, so that they can boast in your flesh. 
 But far be it from me to take pride except in the cross of our Lord Jesus Christ, through which the world has been crucified to me, and I to the world. 
 In Christ Jesus neither being circumcised nor not being circumcised is anything, but a new creation is. 
 As many as walk by this rule, wholeness and mercy be on them, and on God's Israel. 

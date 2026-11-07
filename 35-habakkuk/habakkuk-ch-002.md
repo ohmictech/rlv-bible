@@ -12,7 +12,7 @@ The stone will cry out of the wall, and the beam out of the woodwork will answer
 Woe to him who builds a town with blood, and establishes a city by guilt! 
 Look, isn't it from the God of Armies that the peoples labor for the fire, and the nations weary themselves for vanity? 
 The earth will be filled with the knowledge of God's glory, as the waters cover the sea. 
-"Woe to him who gives his neighbor drink, pouring your inflaming wine until they're drunk, so that you may gaze at their naked bodies! 
+"Woe to him who gives his neighbor drink, pouring your inflaming wine until they're drunk, so that you can gaze at their naked bodies! 
 You're filled with shame, and not glory. You'll also drink and be exposed! The cup of God's right hand will come around to you, and disgrace will cover your glory. 
 The violence done to Lebanon will overwhelm you, and the destruction of the animals will terrify you, because of men's blood and for the violence done to the land, to every city and to those who dwell in them. 
 "What value does the engraved image have, that its maker has engraved it; the molten image, even the teacher of lies, that he who fashions its form trusts in it, to make mute idols? 

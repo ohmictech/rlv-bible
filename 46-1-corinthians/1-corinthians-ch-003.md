@@ -15,7 +15,7 @@ If anyone's work remains, the work he built on it, he'll receive his earned resu
 If anyone's work is burned up, he'll suffer loss, but he himself will be made whole, but as through fire. 
 Don't you know that you're God's temple and that God's Spirit lives in you? 
 If anyone spoils God's temple, God will spoil him; for God's temple is set apart, and that's what you're. 
-Let no one lead himself astray. If anyone thinks he's wise among you in this world, let him become a fool, so that he may become wise. 
+Let no one lead himself astray. If anyone thinks he's wise among you in this world, let him become a fool, so that he can become wise. 
 The wisdom of this world is foolishness with God. It's written, "He has taken the wise in their craftiness." 
 And again, "The Lord knows the reasoning of the wise, that it's worthless." 
 So let no one boast in men. All things are yours, 

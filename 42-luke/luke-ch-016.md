@@ -1,12 +1,12 @@
 ﻿He also said to his students, "There was a certain rich man who had a manager. An accusation was made to him that this man was wasting his possessions. 
 He called him, and said to him, 'What's this that I hear about you? Give an accounting of your management, for you can no longer be manager.' 
 "The manager said within himself, 'What will I do, seeing that my lord is taking away the management position from me? I don't have strength to dig. I'm ashamed to beg. 
-I know what I'll do, so that when I'm removed from management, they may receive me into their houses.' 
+I know what I'll do, so that when I'm removed from management, they can receive me into their houses.' 
 Calling each one of his lord's debtors to him, he said to the first, 'How much do you owe to my lord?' 
 He said, 'A hundred measures of oil.' He said to him, 'Take your bill, and sit down quickly and write fifty.' 
 Then he said to another, 'How much do you owe?' He said, 'A hundred measures of wheat.' He said to him, 'Take your bill, and write eighty.' 
 "His lord commended the dishonest manager because he had done wisely, for the children of this world are, in their own generation, more sensible than the children of the light. 
-I tell you, make for yourselves friends by means of dishonest wealth, so that when you fail, they may receive you into the tents of the era. 
+I tell you, make for yourselves friends by means of dishonest wealth, so that when you fail, they can receive you into the tents of the era. 
 He who's faithful in a very little is faithful also in much. He who's dishonest in a very little is also dishonest in much. 
 If you haven't been faithful in the dishonest wealth, who will commit to your trust the true riches? 
 If you haven't been faithful in that which is another's, who will give you that which is your own? 

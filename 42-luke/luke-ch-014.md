@@ -7,7 +7,7 @@ They couldn't answer him regarding these things.
 He spoke a story to those who were invited, when he noticed how they chose the best seats, and said to them, 
 "When you're invited by anyone to a wedding feast, don't sit in the best seat, since perhaps someone more honorable than you might be invited by him, 
 and he who invited both of you'd come and tell you, 'Make room for this person.' Then you'd begin, with shame, to take the lowest place. 
-But when you're invited, go and sit in the lowest place, so that when he who invited you comes, he may tell you, 'Friend, move up higher.' Then you'll be honored in the presence of everyone who sits at the table with you. 
+But when you're invited, go and sit in the lowest place, so that when he who invited you comes, he can tell you, 'Friend, move up higher.' Then you'll be honored in the presence of everyone who sits at the table with you. 
 Everyone who lifts himself up will be humbled, and whoever humbles himself will be lifted up." 
 He also said to the one who had invited him, "When you make a dinner or a supper, don't call your friends, nor your brothers, nor your kinsmen, nor rich neighbors, or perhaps they might also return the favor, and pay you back. 
 But when you make a feast, ask the poor, the maimed, the lame, or the blind; 

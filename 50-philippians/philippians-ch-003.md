@@ -5,9 +5,9 @@ though I myself could have confidence in the flesh too. If anyone else thinks th
 circumcised on the eighth day, from the people of Israel, from the tribe of Benjamin, a Hebrew born of Hebrews; as to the law, a strict religious man; 
 as to passion, hunting down the gathering; as to the rightness that the law demands, blameless. 
 But whatever used to be my gain, I have counted as loss for the sake of Christ. 
-Yes, and more than that: I count everything as loss because of the greater worth of knowing Christ Jesus my Lord. His sake I have thrown everything away, and I count it all as garbage, so that I may gain Christ 
+Yes, and more than that: I count everything as loss because of the greater worth of knowing Christ Jesus my Lord. His sake I have thrown everything away, and I count it all as garbage, so that I can gain Christ 
 and be found in him, not with a rightness of my own that comes from the law, but with the rightness that comes through trusting Christ, the rightness from God that comes by trust, 
-so that I may know him and the power of his rising again, and share in his sufferings, becoming like him in his death, 
+so that I can know him and the power of his rising again, and share in his sufferings, becoming like him in his death, 
 if somehow I may reach the rising again from the dead. 
 Not that I have already got there, or have already been made complete. But I press on to take hold of it, because Christ Jesus has taken hold of me. 
 Brothers and sisters, I don't count myself as having taken hold of it yet. But this one thing I do: forgetting what's behind and reaching for what's ahead, 

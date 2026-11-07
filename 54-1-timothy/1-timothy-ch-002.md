@@ -1,5 +1,5 @@
 ﻿First of all, then, I urge that requests, prayers, pleadings, and thanksgivings be made for everyone, 
-for kings and for everyone in high office, so that we may live calm, quiet lives in all devotion to God and seriousness. 
+for kings and for everyone in high office, so that we can live calm, quiet lives in all devotion to God and seriousness. 
 This is good, and it pleases God our Restorer, 
 who wants everyone to be rescued and to come to know the truth fully. 
 There's one God, and one mediator between God and people, a human being, Christ Jesus, 

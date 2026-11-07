@@ -5,7 +5,7 @@ Gathering together all the chief priests and Bible teachers of the people, he as
 They said to him, "In Bethlehem of Judea, for this is what the spokesman wrote: 
 'You Bethlehem, land of Judah, are in no way least among the princes of Judah, for out of you'll come a governor who will shepherd my people, Israel.'" 
 Then Herod secretly called the wise men, and learned from them exactly what time the star appeared. 
-He sent them to Bethlehem, and said, "Go and search carefully for the child. When you have found him, bring me word, so that I also may come and worship him." 
+He sent them to Bethlehem, and said, "Go and search carefully for the child. When you have found him, bring me word, so that I also can come and worship him." 
 After hearing the king, they went on their way. And the star they had seen in the east went ahead of them until it stopped over the place where the child was. 
 When they saw the star, they celebrated with overwhelming joy. 
 They went into the house and saw the child with Mary his mother, and they fell down and worshiped him. Then they opened their treasures and offered him gifts: gold, frankincense, and myrrh. 

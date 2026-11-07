@@ -26,6 +26,6 @@ Whoever doesn't love me doesn't keep my words. The word which you hear isn't min
 But the one who comes alongside, the Holy Spirit, whom the Father will send in my name, will teach you all things, and will remind you of all that I said to you. 
 Wholeness I leave with you. My wholeness I give to you; not as the world gives, I give to you. Don't let your heart be troubled, neither let it be fearful. 
 You heard how I told you, 'I'm going away, and I'll come back to you.' If you loved me, you'd have celebrated because I said, 'I'm going to my Father,' for the Father is greater than I. 
-Now I have told you before it happens so that when it happens, you may trust. 
+Now I have told you before it happens so that when it happens, you can trust. 
 I'll no more speak much with you, for the ruler of the world comes, and he has nothing in me. 
 But that the world may know that I love the Father, and as the Father commanded me, even so I do. Get up, let's go from here. 

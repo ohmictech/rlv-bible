@@ -23,7 +23,7 @@ But if I go on living in the flesh, that means fruit from my work. Yet I don't k
 I'm torn between the two: I long to leave and be with Christ, which is far better. 
 But staying on in the flesh is more necessary for your sake. 
 Convinced of this, I know I'll stay and go on with all of you, for your progress and joy in the trust, 
-so that your pride in Christ Jesus may overflow because of me, when I'm with you again. 
+so that your pride in Christ Jesus can overflow because of me, when I'm with you again. 
 Only live in a way that's worthy of the Good News of Christ, so that whether I come and see you or only hear about you, I'll know that you stand firm in one spirit, working side by side with one life for the trust of the Good News, 
 and that nothing frightens you when people oppose you. Them that's a sign of ruin, and for you a sign of rescue, and that comes from God. 
 Because you have been given this on Christ's behalf: not only to trust in him, but also to suffer for him, 

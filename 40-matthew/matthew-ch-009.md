@@ -3,7 +3,7 @@ Suddenly, they brought to him a man who was paralyzed, lying on a bed. Jesus, se
 Suddenly, some of the Bible teachers said to themselves, "This man is slandering." 
 Jesus, knowing their thoughts, said, "Why do you think malicious thoughts in your hearts? 
 Which is easier, to say, 'Your mistakes are released,' or to say, 'Get up, and walk'? 
-But so that you may know that the Human One has authority on earth to release mistakes," (then he said to the paralyzed man), "Get up, take up your mat, and go to your house." 
+But so that you can know that the Human One has authority on earth to release mistakes," (then he said to the paralyzed man), "Get up, take up your mat, and go to your house." 
 He got up and went to his house. 
 But when the crowds saw it, they were amazed and made much of God, who had given such authority to people. 
 As Jesus went on from there, he saw a man called Matthew sitting at the tax collection office. He said to him, "Follow me." He got up and followed him. 

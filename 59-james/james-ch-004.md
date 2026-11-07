@@ -1,6 +1,6 @@
 ﻿Where do the fights and quarrels among you come from? Don't they come from your pleasures, which are at war inside you? 
 You crave and don't have. You murder and you're jealous, and you can't get it. You fight and make war. You don't have, because you don't ask. 
-You ask, and don't receive, because you ask with bad motives, so that you may spend it on your pleasures. 
+You ask, and don't receive, because you ask with bad motives, so that you can spend it on your pleasures. 
 You who cheat on God! Don't you know that loving the world means hating God? Anyone who chooses to be a friend of the world makes themselves an enemy of God. 
 Or do you think the Scripture says for nothing, "The Spirit he made to live in us longs for us jealously"? 
 But he gives more favor. That's why it says, "God stands against the proud, but gives favor to the humble." 

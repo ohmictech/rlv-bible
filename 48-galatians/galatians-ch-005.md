@@ -14,7 +14,7 @@ You, brothers, were called for freedom. Only don't use your freedom as an opport
 The whole law is fulfilled in one word, in this: "You will love your neighbor as yourself." 
 But if you bite and devour one another, be careful that you don't consume one another. 
 But I say, walk by the Spirit, and you won't satisfy what the flesh craves. 
-The flesh craves what's against the Spirit, and the Spirit what's against the flesh; and these are opposed to one another, so that you may not do the things that you want. 
+The flesh craves what's against the Spirit, and the Spirit what's against the flesh; and these are opposed to one another, so that you can't do the things that you want. 
 But if you're led by the Spirit, you aren't under the law. 
 Now the deeds of the flesh are plain: cheating, sleeping around, uncleanness, shamelessness, 
 idol worship, drug-magic, hatred, quarreling, jealousy, flare, selfish ambition, divisions, factions, 

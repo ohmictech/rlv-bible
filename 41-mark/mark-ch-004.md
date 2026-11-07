@@ -9,7 +9,7 @@ Others fell into the good ground and yielded fruit, growing up and increasing, s
 He said, "Whoever has ears to hear, let him hear." 
 When he was alone, those around him with the twelve asked him about the stories. 
 He said to them, "To you is given the secret of God's reign, but to those outside, everything comes in stories, 
-so that 'though they see, they may not perceive, and though they hear, they may not understand, or else they might turn back and their mistakes would be released.'" 
+so that 'though they see, they can't perceive, and though they hear, they can't understand, or else they might turn back and their mistakes would be released.'" 
 He said to them, "Don't you understand this story? How will you understand all the stories? 
 The farmer sows the word. 
 The ones along the roadside are where the word is sown, and when they have heard, immediately the Adversary comes and takes away the word that has been sown in them. 

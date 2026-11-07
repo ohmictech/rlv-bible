@@ -12,7 +12,7 @@ His head was brought on a platter and given to the girl, and she brought it to h
 His students came, took the body, and buried it. Then they went and told Jesus. 
 Now when Jesus heard this, he withdrew from there in a boat to an empty place apart. When the crowds heard it, they followed him on foot from the cities. 
 Jesus went out, and he saw a great crowd. He was moved with deep compassion for them and healed their sick. 
-When evening had come, his students came to him, saying, "This place is empty, and it's already late. Send the crowds away, so that they may go into the villages and buy themselves food." 
+When evening had come, his students came to him, saying, "This place is empty, and it's already late. Send the crowds away, so that they can go into the villages and buy themselves food." 
 But Jesus said to them, "They don't need to go away. You give them something to eat." 
 They told him, "We only have here five loaves and two fish." 
 He said, "Bring them here to me." 

@@ -3,7 +3,7 @@
 and say, 'You mountains of Israel, hear the word of God! The God says to the mountains and to the hills, to the watercourses and to the valleys: "Look, I, even I, will bring a sword on you, and I'll destroy your high places. 
 Your altars will become desolate, and your incense altars will be broken. I'll cast down your slain men before your idols. 
 I'll lay the dead bodies of the children of Israel before their idols. I'll scatter your bones around your altars. 
-In all your dwelling places, the cities will be laid waste and the high places will be desolate, so that your altars may be laid waste and made desolate, and your idols may be broken and cease, and your incense altars may be cut down, and your works may be abolished. 
+In all your dwelling places, the cities will be laid waste and the high places will be desolate, so that your altars can be laid waste and made desolate, and your idols can be broken and cease, and your incense altars can be cut down, and your works can be abolished. 
 The slain will fall among you, and you'll know that I'm God. 
 "'"Yet I'll leave a remnant, in that you'll have some that escape the sword among the nations, when you're scattered through the countries. 
 Those of you that escape will remember me among the nations where they're carried captive, how I have been broken with their lewd heart, which has departed from me, and with their eyes, which play the prostitute after their idols. Then they'll loathe themselves in their own sight for the bad things which they have committed in all their abominations. 

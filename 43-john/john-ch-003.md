@@ -18,7 +18,7 @@ God didn't send his Son into the world to pass a verdict on the world, but so th
 Whoever trusts in him isn't judged. Whoever doesn't trust has already been judged, because they haven't trusted in the name of God's one and only Son. 
 This is the verdict: the light has come into the world, and people loved the darkness rather than the light, because their deeds were bad. 
 Everyone who does bad things hates the light and doesn't come to the light, so that their deeds won't be exposed. 
-But whoever does the truth comes to the light, so that it may be seen that their deeds have been done in God." 
+But whoever does the truth comes to the light, so that it can be seen that their deeds have been done in God." 
 After these things, Jesus came with his students into the land of Judea. He stayed there with them and immersed. 
 John also was immersing at Aenon near Salim, because there was plenty of water there, and people came and were immersed. 
 for John wasn't yet thrown into prison. 

@@ -11,7 +11,7 @@ I give my advice in this: it's good for you, who were the first to start a year 
 But now complete the doing also, that as there was the readiness to be willing, so there may be the completion also out of your ability. 
 If the readiness is there, it's acceptable according to what you have, not according to what you don't have. 
 This isn't that others may be eased and you distressed, 
-but for fairness. Your overflow at this present time supplies what they lack, so that their overflow may also supply what you lack, and there may be fairness. 
+but for fairness. Your overflow at this present time supplies what they lack, so that their overflow can also supply what you lack, and there can be fairness. 
 As it's written, "He who gathered much had nothing left over, and he who gathered little had no lack." 
 But thanks be to God, who puts the same earnest care for you into the heart of Titus. 
 He indeed accepted our exhortation, but being himself very earnest, he went out to you of his own accord. 

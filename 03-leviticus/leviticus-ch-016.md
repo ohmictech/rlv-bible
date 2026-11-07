@@ -10,7 +10,7 @@ Aaron will present the goat on which the lot fell for God, and offer him for an 
 But the goat on which the lot fell for the scapegoat will be presented alive before God, to make things right for him, to send him away as the scapegoat into the wilderness. 
 "Aaron will present the bull of the offering for wrongdoing, which is for himself, and will make things right for himself and for his house, and will kill the bull of the offering for wrongdoing which is for himself. 
 He will take a censer full of coals of fire from off the altar before God, and two handfuls of sweet incense beaten small, and bring it within the veil. 
-He will put the incense on the fire before God, that the cloud of the incense may cover the mercy seat that's on the covenant, so that he won't die. 
+He will put the incense on the fire before God, that the cloud of the incense can cover the mercy seat that's on the covenant, so that he won't die. 
 He will take some of the blood of the bull, and sprinkle it with his finger on the mercy seat on the east; and before the mercy seat he will sprinkle some of the blood with his finger seven times. 
 "Then he will kill the goat of the offering for wrongdoing that's for the people, and bring his blood within the veil, and do with his blood as he did with the blood of the bull, and sprinkle it on the mercy seat and before the mercy seat. 
 He will make things right for the Holy Place, because of the uncleanness of the children of Israel, and because of their rebellion, even all their mistakes; and so he will do for the Tent of Meeting that dwells with them in the middle of their uncleanness. 

@@ -14,4 +14,4 @@ But bad people and impostors will get worse and worse, leading others astray and
 But you must stay with what you have learned and been sure of, knowing who it was you learned it from. 
 From the time you were a baby you have known the set-apart writings, which are able to make you wise for rescue through the trust that's in Christ Jesus. 
 Every writing is breathed out by God and useful for teaching, for showing people their fault, for setting them right, and for training in rightness, 
-so that the person who belongs to God may be complete, ready for every good deed. 
+so that the person who belongs to God can be complete, ready for every good deed. 

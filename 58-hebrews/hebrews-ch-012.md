@@ -7,7 +7,7 @@ for the Lord trains everyone he loves, and corrects every child he receives."
 Endure it as training. God is treating you as children, for what child is there whose father doesn't train them? 
 But if you're without training, which everyone receives, then you aren't really children at all. 
 We had human fathers who trained us, and we respected them. Should we not much rather be in subjection to the Father of spirits and live? 
-They trained us for a few days as they thought best, but God trains us for our own good, so that we may share in his set-apartness. 
+They trained us for a few days as they thought best, but God trains us for our own good, so that we can share in his set-apartness. 
 No training seems pleasant at the time; it hurts. But later it produces the peaceful fruit of rightness in those who have been trained by it. 
 So strengthen the hands that hang down and the knees that have given way, 
 and make straight paths for your feet, so that what's lame isn't dislocated, but healed. 

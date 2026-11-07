@@ -13,7 +13,7 @@ It was shown to them that they were serving, not themselves, but you, in these t
 So get your minds ready for action. Stay clear-headed, and set your expectation completely on the gift that will be brought to you when Jesus Christ is unveiled, 
 As obedient children, don't let your lives be shaped by the cravings you used to have when you didn't know any better, 
 but just as he who called you is holy, you yourselves also be holy in all of your behavior, 
-because it's written, "You shall be holy, for I'm holy." 
+because it's written, "You will be holy, for I'm holy." 
 You call on him as Father, and he judges each person's work without playing favorites. So live out your time as foreigners here in awe of him, 
 You know that you were bought back from the empty way of life handed down by your ancestors, bought back not with silver or gold, which wear out, 
 but with the precious blood of Christ, like the blood of a lamb with no flaw or spot. 

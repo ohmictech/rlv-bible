@@ -1,7 +1,7 @@
 ﻿Jacob called to his sons, and said: "Gather yourselves together, that I may tell you that which will happen to you in the days to come. 
 Assemble yourselves, and hear, you sons of Jacob. Listen to Israel, your father. 
 "Reuben, you're my firstborn, my might, and the beginning of my strength, excelling in dignity, and excelling in power. 
-Boiling over like water, you shall not excel, because you went up to your father's bed, then defiled it. He went up to my couch. 
+Boiling over like water, you won't excel, because you went up to your father's bed, then defiled it. He went up to my couch. 
 "Simeon and Levi are brothers. Their swords are weapons of violence. 
 My soul, don't come into their council. My glory, don't be united to their assembly; for in their anger they killed men. In their self-will they hamstrung cattle. 
 Cursed be their anger, for it was fierce; and their wrath, for it was cruel. I'll divide them in Jacob, and scatter them in Israel. 

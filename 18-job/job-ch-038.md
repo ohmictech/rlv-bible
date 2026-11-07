@@ -8,7 +8,7 @@ when the morning stars sang together, and all the sons of God shouted for joy?
 "Or who shut up the sea with doors, when it broke out of the womb, 
 when I made clouds its garment, and wrapped it in thick darkness, 
 marked out for it my bound, set bars and doors, 
-and said, 'You may come here, but no further. Your proud waves shall be stopped here'? 
+and said, 'You may come here, but no further. Your proud waves will be stopped here'? 
 "Have you commanded the morning in your days, and caused the dawn to know its place, 
 that it might take hold of the ends of the earth, and shake the guilty out of it? 
 It's changed as clay under the seal, and presented as a garment. 

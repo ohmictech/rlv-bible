@@ -12,12 +12,12 @@ God knows the thoughts of man, that they're futile.
 Blessed is the man whom you discipline, God, and teach out of your law, 
 that you may give him rest from the days of adversity, until the pit is dug for the guilty. 
 God won't reject his people, neither will he forsake his inheritance. 
-Judgment will return to righteousness. All the upright in heart shall follow it. 
+Judgment will return to righteousness. All the upright in heart will follow it. 
 Who will rise up for me against the guilty? Who will stand up for me against the those who do bad? 
 Unless God had been my help, my soul would have soon lived in silence. 
 When I said, "My foot is slipping!" Your loving kindness, God, held me up. 
 In the multitude of my thoughts within me, your comforts delight my soul. 
-Shall the throne of guilt have fellowship with you, which brings about mischief by statute? 
+Will the throne of guilt have fellowship with you, which brings about mischief by statute? 
 They gather themselves together against the soul of the righteous, and condemn the innocent blood. 
 But God has been my high tower, my God, the rock of my refuge. 
 He has brought on them their own guilt, and will cut them off in their own guilt. God, our God, will cut them off. 

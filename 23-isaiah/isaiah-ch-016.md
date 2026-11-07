@@ -11,4 +11,4 @@ Gladness is taken away, and joy out of the fruitful field; and in the vineyards 
 So my heart sounds like a harp for Moab, and my inward parts for Kir Heres. 
 It'll happen that when Moab presents himself, when he wearies himself on the high place, and comes to his sanctuary to pray, that he won't prevail. 
 This is the word that God spoke concerning Moab in time past. 
-But now God has spoken, saying, "Within three years, as a worker bound by contract would count them, the glory of Moab shall be brought into contempt, with all his great multitude; and the remnant will be very small and feeble." 
+But now God has spoken, saying, "Within three years, as a worker bound by contract would count them, the glory of Moab will be brought into contempt, with all his great multitude; and the remnant will be very small and feeble." 

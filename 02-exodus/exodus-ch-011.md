@@ -2,7 +2,7 @@
 Speak now in the ears of the people, and let every man ask of his neighbor, and every woman of her neighbor, jewels of silver, and jewels of gold." 
 God gave the people favor in the sight of the Egyptians. Moreover, the man Moses was very great in the land of Egypt, in the sight of Pharaoh's servants, and in the sight of the people. 
 Moses said, "This is what God says: 'About midnight I'll go out into the middle of Egypt, 
-and all the firstborn in the land of Egypt shall die, from the firstborn of Pharaoh who sits on his throne, even to the firstborn of the female servant who's behind the mill, and all the firstborn of livestock. 
+and all the firstborn in the land of Egypt will die, from the firstborn of Pharaoh who sits on his throne, even to the firstborn of the female servant who's behind the mill, and all the firstborn of livestock. 
 There will be a great cry throughout all the land of Egypt, such as there hasn't been, nor will be any more. 
 But against any of the children of Israel a dog won't even bark or move its tongue, against man or animal, that you may know that God makes a distinction between the Egyptians and Israel. 
 All these servants of yours will come down to me, and bow down themselves to me, saying, "Get out, with everyone who follow you;" and after that I'll go out.'" He went out from Pharaoh in hot anger. 

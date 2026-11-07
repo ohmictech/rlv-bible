@@ -2,7 +2,7 @@
 The high priest, Ananias, commanded those who stood by him to strike him on the mouth. 
 Then Paul said to him, "God will strike you, you whitewashed wall! Do you sit to judge me according to the law, and command me to be struck contrary to the law?" 
 Those who stood by said, "Do you malign God's high priest?" 
-Paul said, "I didn't know, brothers, that he was high priest. It's written, 'You shall not speak badly of a ruler of your people.'" 
+Paul said, "I didn't know, brothers, that he was high priest. It's written, 'You won't speak badly of a ruler of your people.'" 
 But when Paul perceived that the one part were of the religious elite and the other strict religious ones, he cried out in the council, "Men and brothers, I'm a strict religious man, a son of strict religious ones. Concerning the hope and rising of the dead I'm being judged!" 
 When he had said this, an argument arose between the strict religious ones and the religious elite, and the crowd was divided. 
 The religious elite say that there's no rising, and no messenger, and no spirit; but the strict religious ones agree with all of these. 

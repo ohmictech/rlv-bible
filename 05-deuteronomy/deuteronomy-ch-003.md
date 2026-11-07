@@ -1,5 +1,5 @@
 ﻿Then we turned, and went up the way to Bashan. Og the king of Bashan came out against us, he and all his people, to battle at Edrei. 
-God said to me, "Don't fear him; for I have delivered him, with all his people and his land, into your hand. You shall do to him as you did to Sihon king of the Amorites, who lived at Heshbon." 
+God said to me, "Don't fear him; for I have delivered him, with all his people and his land, into your hand. You will do to him as you did to Sihon king of the Amorites, who lived at Heshbon." 
 So our God also delivered into our hand Og, the king of Bashan, and all his people. We struck him until no one was left to him remaining. 
 We took all his cities at that time. There wasn't a city which we didn't take from them: sixty cities, all the region of Argob, the kingdom of Og in Bashan. 
 All these were cities fortified with high walls, gates, and bars, in addition to a great many villages without walls. 
@@ -15,15 +15,15 @@ Jair the son of Manasseh took all the region of Argob, to the border of the Gesh
 I gave Gilead to Machir. 
 To the Reubenites and to the Gadites I gave from Gilead even to the valley of the Arnon, the middle of the valley, and its border, even to the river Jabbok, which is the border of the children of Ammon; 
 the Arabah also, and the Jordan and its border, from Chinnereth even to the sea of the Arabah, the Salt Sea, under the slopes of Pisgah eastward. 
-I commanded you at that time, saying, "Your God has given you this land to possess it. All of you men of valor shall pass over armed before your brothers, the children of Israel. 
-But your wives, and your little ones, and your livestock, (I know that you have much livestock), shall live in your cities which I have given you, 
-until God gives rest to your brothers, as to you, and they also possess the land which your God gives them beyond the Jordan. Then you shall each return to his own possession, which I have given you." 
-I commanded Joshua at that time, saying, "Your eyes have seen all that your God has done to these two kings. So shall God do to all the kingdoms where you go over. 
-You shall not fear them; for your God himself fights for you." 
+I commanded you at that time, saying, "Your God has given you this land to possess it. All of you men of valor will pass over armed before your brothers, the children of Israel. 
+But your wives, and your little ones, and your livestock, (I know that you have much livestock), will live in your cities which I have given you, 
+until God gives rest to your brothers, as to you, and they also possess the land which your God gives them beyond the Jordan. Then you will each return to his own possession, which I have given you." 
+I commanded Joshua at that time, saying, "Your eyes have seen all that your God has done to these two kings. So will God do to all the kingdoms where you go over. 
+Don't fear them; for your God himself fights for you." 
 I begged GOD at that time, saying, 
 "God, you have begun to show your servant your greatness, and your strong hand. What god is there in the sky or in earth that can do works like yours, and mighty acts like yours? 
 Please let me go over and see the good land that's beyond the Jordan, that fine mountain, and Lebanon." 
 But God was angry with me because of you, and didn't listen to me. God said to me, "That's enough! Speak no more to me of this matter. 
-Go up to the top of Pisgah, and lift up your eyes westward, and northward, and southward, and eastward, and see with your eyes; for you shall not go over this Jordan. 
-But commission Joshua, and encourage him, and strengthen him; for he shall go over before this people, and he shall cause them to inherit the land which you shall see." 
+Go up to the top of Pisgah, and lift up your eyes westward, and northward, and southward, and eastward, and see with your eyes; for you won't go over this Jordan. 
+But commission Joshua, and encourage him, and strengthen him; for he will go over before this people, and he will cause them to inherit the land which you will see." 
 So we stayed in the valley near Beth Peor. 

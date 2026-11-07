@@ -1,9 +1,9 @@
 ﻿"Comfort, comfort my people," says your God. 
 "Speak comfortably to Jerusalem, and call out to her that her warfare is accomplished, that her guilt is pardoned, that she has received of God's hand double for all her mistakes." 
 The voice of one who calls out, "Prepare the way of God in the wilderness! Make a level highway in the desert for our God. 
-Every valley shall be exalted, and every mountain and hill shall be made low. The uneven shall be made level, and the rough places a plain. 
-God's glory shall be revealed, and all flesh shall see it together; for the mouth of God has spoken it." 
-The voice of one saying, "Cry out!" One said, "What shall I cry?" "All flesh is like grass, and all its glory is like the flower of the field. 
+Every valley will be exalted, and every mountain and hill will be made low. The uneven will be made level, and the rough places a plain. 
+God's glory will be revealed, and all flesh will see it together; for the mouth of God has spoken it." 
+The voice of one saying, "Cry out!" One said, "What will I cry?" "All flesh is like grass, and all its glory is like the flower of the field. 
 The grass withers, the flower fades, because God's breath blows on it. Surely the people are like grass. 
 The grass withers, the flower fades; but the word of our God stands for the eras." 
 You who tell good news to Zion, go up on a high mountain. You who tell good news to Jerusalem, lift up your voice with strength! Lift it up! Don't be afraid! Say to the cities of Judah, "Look, your God!" 

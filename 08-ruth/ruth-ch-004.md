@@ -12,7 +12,7 @@ Everyone who was in the gate, and the elders, said, "We're witnesses. May God ma
 Let your house be like the house of Perez, whom Tamar bore to Judah, of the offspring which God will give you by this young woman." 
 So Boaz took Ruth and she became his wife; and he went in to her, and God enabled her to conceive, and she bore a son. 
 The women said to Naomi, "Blessed be God, who hasn't left you today without a near kinsman. Let his name be famous in Israel. 
-He shall be to you a restorer of life and sustain you in your old age; for your daughter-in-law, who loves you, who's better to you than seven sons, has given birth to him." 
+He will be to you a restorer of life and sustain you in your old age; for your daughter-in-law, who loves you, who's better to you than seven sons, has given birth to him." 
 Naomi took the child, laid him in her bosom, and became nurse to him. 
 The women, her neighbors, gave him a name, saying, "A son is born to Naomi". They named him Obed. He's the father of Jesse, the father of David. 
 Now this is the history of the generations of Perez: Perez became the father of Hezron, 

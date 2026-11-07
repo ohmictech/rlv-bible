@@ -2,10 +2,10 @@
 A scroll was found at Achmetha, in the palace that's in the province of Media, and in it this was written for a record: 
 In the first year of Cyrus the king, Cyrus the king made a decree: Concerning God's house at Jerusalem, let the house be built, the place where they offer sacrifices, and let its foundations be strongly laid, with its height sixty cubits and its width sixty cubits; 
 with three courses of great stones and a course of new timber. Let the expenses be given out of the king's house. 
-Also let the gold and silver vessels of God's house, which Nebuchadnezzar took out of the temple which is at Jerusalem and brought to Babylon, be restored and brought again to the temple which is at Jerusalem, everything to its place. You shall put them in God's house. 
+Also let the gold and silver vessels of God's house, which Nebuchadnezzar took out of the temple which is at Jerusalem and brought to Babylon, be restored and brought again to the temple which is at Jerusalem, everything to its place. You will put them in God's house. 
 Now, Tattenai, governor beyond the River, Shetharbozenai, and your companions the Apharsachites, who are beyond the River, you must stay far from there. 
 Leave the work of this house of God alone; let the governor of the Jews and the elders of the Jews build this house of God in its place. 
-Moreover I make a decree regarding what you shall do for these elders of the Jews for the building of this house of God: that of the king's goods, even of the tribute beyond the River, expenses must be given with all diligence to these men, that they not be hindered. 
+Moreover I make a decree regarding what you will do for these elders of the Jews for the building of this house of God: that of the king's goods, even of the tribute beyond the River, expenses must be given with all diligence to these men, that they not be hindered. 
 That which they have need of, including young bulls, rams, and lambs, for burnt offerings to the God of the sky; also wheat, salt, wine, and oil, according to the word of the priests who are at Jerusalem, let it be given them day by day without fail, 
 that they may offer sacrifices of pleasant aroma to the God of the sky, and pray for the life of the king and of his sons. 
 I have also made a decree that whoever alters this message, let a beam be pulled out from his house, and let him be lifted up and fastened on it; and let his house be made a dunghill for this. 

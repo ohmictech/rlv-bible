@@ -10,7 +10,7 @@ Joab gave up the sum of the counting of the people to the king; and there were i
 David's heart struck him after he had counted the people. David said to God, "I have drifted greatly in that which I have done. But now, God, put away, I beg you, the guilt of your servant; for I have done very foolishly." 
 When David rose up in the morning, God's word came to the spokesman Gad, David's seer, saying, 
 "Go and speak to David, 'God says, "I offer you three things. Choose one of them, that I may do it to you."'" 
-So Gad came to David, and told him, saying, "Shall seven years of famine come to you in your land? Or will you flee three months before your foes while they pursue you? Or shall there be three days' pestilence in your land? Now answer, and consider what answer I shall return to him who sent me." 
+So Gad came to David, and told him, saying, "Will seven years of famine come to you in your land? Or will you flee three months before your foes while they pursue you? Or will there be three days' pestilence in your land? Now answer, and consider what answer I will return to him who sent me." 
 David said to Gad, "I'm in distress. Let's fall now into God's hand, for his mercies are great. Let me not fall into man's hand." 
 So God sent a pestilence on Israel from the morning even to the appointed time; and seventy thousand men died of the people from Dan even to Beersheba. 
 When the messenger stretched out his hand toward Jerusalem to destroy it, God relented of the disaster, and said to the messenger who destroyed the people, "It's enough. Now withdraw your hand." God's messenger was by the threshing floor of Araunah the Jebusite. 

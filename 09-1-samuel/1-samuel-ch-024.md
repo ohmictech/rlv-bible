@@ -1,7 +1,7 @@
 ﻿When Saul had returned from following the Philistines, he was told, "Look, David is in the wilderness of En Gedi." 
 Then Saul took three thousand chosen men out of all Israel, and went to seek David and his men on the rocks of the wild goats. 
 He came to the sheep pens by the way, where there was a cave; and Saul went in to relieve himself. Now David and his men were staying in the innermost parts of the cave. 
-David's men said to him, "Look, the day of which God said to you, 'Look, I'll deliver your enemy into your hand, and you shall do to him as it shall seem good to you.'" Then David arose and cut off the skirt of Saul's robe secretly. 
+David's men said to him, "Look, the day of which God said to you, 'Look, I'll deliver your enemy into your hand, and you will do to him as it will seem good to you.'" Then David arose and cut off the skirt of Saul's robe secretly. 
 Afterward, David's heart struck him because he had cut off Saul's skirt. 
 He said to his men, "God forbid that I should do this thing to my lord, God's anointed, to stretch out my hand against him, since he's God's anointed." 
 So David checked his men with these words, and didn't allow them to rise against Saul. Saul rose up out of the cave, and went on his way. 

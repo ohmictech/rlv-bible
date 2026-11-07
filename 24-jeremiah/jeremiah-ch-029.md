@@ -9,8 +9,8 @@ The God of Armies, the God of Israel says: "Don't let your spokesmen who are amo
 They prophesy falsely to you in my name. I haven't sent them," says God. 
 God says, "After seventy years are accomplished for Babylon, I'll visit you and perform my good word toward you, in causing you to return to this place. 
 I know the thoughts that I think toward you," says God, "thoughts of peace, and not of bad, to give you hope and a future. 
-You shall call on me, and you shall go and pray to me, and I'll listen to you. 
-You shall seek me and find me, when you search for me with all your heart. 
+You will call on me, and you will go and pray to me, and I'll listen to you. 
+You will seek me and find me, when you search for me with all your heart. 
 I'll be found by you," says God, "and I'll turn again your captivity, and I'll gather you from all the nations, and from all the places where I have driven you," says God. "I'll bring you again to the place from where I caused you to be carried away captive." 
 Because you have said, "God has raised us up spokesmen in Babylon," 
 God says concerning the king who sits on David's throne, and concerning everyone who dwells in this city, your brothers who haven't gone with you into captivity, 
@@ -21,7 +21,7 @@ Hear God's word, all you captives whom I have sent away from Jerusalem to Babylo
 The God of Armies, the God of Israel says concerning Ahab the son of Kolaiah, and concerning Zedekiah the son of Maaseiah, who prophesy a lie to you in my name: "Look, I'll deliver them into the hand of Nebuchadnezzar king of Babylon; and he'll kill them before your eyes. 
 A curse will be taken up about them by all the captives of Judah who are in Babylon, saying, 'God make you like Zedekiah and like Ahab, whom the king of Babylon roasted in the fire;' 
 because they have done foolish things in Israel, and have committed adultery with their neighbors' wives, and have spoken words in my name falsely, which I didn't command them. I'm he who knows, and am witness," says God. 
-Concerning Shemaiah the Nehelamite you shall speak, saying, 
+Concerning Shemaiah the Nehelamite you will speak, saying, 
 "The God of Armies, the God of Israel says, 'Because you have sent letters in your own name to everyone who's at Jerusalem, and to Zephaniah the son of Maaseiah, the priest, and to all the priests, saying, 
 "God has made you priest in the place of Jehoiada the priest, that there may be officers in God's house, for every man who's crazy and makes himself a spokesman, that you should put him in the stocks and in shackles. 
 Now, why have you not rebuked Jeremiah of Anathoth, who makes himself a spokesman to you, 

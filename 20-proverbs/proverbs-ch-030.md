@@ -14,7 +14,7 @@ There's a generation, oh how lofty are their eyes! Their eyelids are lifted up.
 There's a generation whose teeth are like swords, and their jaws like knives, to devour the poor from the earth, and the needy from among men. 
 "The leech has two daughters: 'Give, give.' "There are three things that are never satisfied; four that don't say, 'Enough!': 
 Hades, the barren womb, the earth that isn't satisfied with water, and the fire that doesn't say, 'Enough!' 
-"The eye that mocks at his father, and scorns obedience to his mother, the ravens of the valley shall pick it out, the young eagles shall eat it. 
+"The eye that mocks at his father, and scorns obedience to his mother, the ravens of the valley will pick it out, the young eagles will eat it. 
 "There are three things which are too amazing for me, four which I don't understand: 
 The way of an eagle in the air, the way of a serpent on a rock, the way of a ship in the middle of the sea, and the way of a man with a maiden. 
 "So is the way of an adulterous woman: She eats and wipes her mouth, and says, 'I have done nothing wrong.' 

@@ -24,7 +24,7 @@ It's a fool's pleasure to do guilt, but wisdom is a man of understanding's pleas
 What the guilty fear will overtake them, but the desire of the righteous will be granted. 
 When the whirlwind passes, the guilty is no more; but the righteous stand firm for the eras. 
 As vinegar to the teeth, and as smoke to the eyes, so is the sluggard to those who send him. 
-The fear of God prolongs days, but the years of the guilty shall be shortened. 
+The fear of God prolongs days, but the years of the guilty will be shortened. 
 The prospect of the righteous is joy, but the hope of the guilty will perish. 
 The way of God is a stronghold to the upright, but it's a destruction to the workers of guilt. 
 The righteous will never be removed, but the guilty won't dwell in the land. 

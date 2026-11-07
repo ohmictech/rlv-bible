@@ -7,7 +7,7 @@ He arose, and went into the house. Then he poured the oil on his head, and said 
 You must strike your master Ahab's house, that I may avenge the blood of my servants the spokesmen, and the blood of all the servants of God, at the hand of Jezebel. 
 The whole house of Ahab will perish. I'll cut off from Ahab everyone who urinates against a wall, both him who's shut up and him who's left at large in Israel. 
 I'll make Ahab's house like the house of Jeroboam the son of Nebat, and like the house of Baasha the son of Ahijah. 
-The dogs will eat Jezebel on the plot of ground of Jezreel, and there shall be no one to bury her.'" Then he opened the door and fled. 
+The dogs will eat Jezebel on the plot of ground of Jezreel, and there will be no one to bury her.'" Then he opened the door and fled. 
 When Jehu came out to the servants of his lord and one said to him, "Is all well? Why did this madman come to you?" He said to them, "You know the man and how he talks." 
 They said, "That's a lie. Tell us now." He said, "He said to me, 'God says, I have anointed you king over Israel.'" 
 Then they hurried, and each man took his cloak, and put it under him on the top of the stairs, and blew the trumpet, saying, "Jehu is king." 

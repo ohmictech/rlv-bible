@@ -14,12 +14,12 @@ Take wise men of understanding who are respected among your tribes, and I'll mak
 You answered me, and said, "The thing which you have spoken is good to do." 
 So I took the heads of your tribes, wise and respected men, and made them heads over you, captains of thousands, captains of hundreds, captains of fifties, captains of tens, and officers, according to your tribes. 
 I commanded your judges at that time, saying, "Hear cases between your brothers and judge righteously between a man and his brother, and the foreigner who's living with him. 
-You shall not show partiality in judgment; you shall hear the small and the great alike. You shall not be afraid of the face of man, for the judgment is God's. The case that's too hard for you, you shall bring to me, and I'll hear it." 
+Don't show partiality in judgment; you will hear the small and the great alike. You won't be afraid of the face of man, for the judgment is God's. The case that's too hard for you, you will bring to me, and I'll hear it." 
 I commanded you at that time all the things which you should do. 
 We traveled from Horeb and went through all that great and terrible wilderness which you saw, by the way to the hill country of the Amorites, as our God commanded us; and we came to Kadesh Barnea. 
 I said to you, "You have come to the hill country of the Amorites, which our God gives to us. 
 Look, your God has set the land before you. Go up, take possession, as God the God of your fathers has spoken to you. Don't be afraid, neither be dismayed." 
-You came near to me, everyone of you, and said, "Let's send men before us, that they may search the land for us, and bring back to us word of the way by which we must go up, and the cities to which we shall come." 
+You came near to me, everyone of you, and said, "Let's send men before us, that they may search the land for us, and bring back to us word of the way by which we must go up, and the cities to which we will come." 
 The thing pleased me well. I took twelve of your men, one man for every tribe. 
 They turned and went up into the hill country, and came to the valley of Eshcol, and spied it out. 
 They took some of the fruit of the land in their hands and brought it down to us, and brought us word again, and said, "It's a good land which our God gives to us." 
@@ -32,11 +32,11 @@ and in the wilderness where you have seen how that your God carried you, as a ma
 Yet in this thing you didn't believe your God, 
 who went before you on the way, to seek out a place for you to pitch your tents in: in fire by night, to show you by what way you should go, and in the cloud by day. 
 God heard the voice of your words and was angry, and swore, saying, 
-"Surely not one of these men of this bad generation shall see the good land which I swore to give to your fathers, 
-except Caleb the son of Jephunneh. He shall see it. I'll give the land that he has trodden on to him and to his children, because he has wholly followed God." 
-Also God was angry with me for your sakes, saying, "You also shall not go in there. 
-Joshua the son of Nun, who stands before you, shall go in there. Encourage him, for he shall cause Israel to inherit it. 
-Moreover your little ones, whom you said would be captured or killed, your children, who today have no knowledge of good or bad, shall go in there. I'll give it to them, and they shall possess it. 
+"Surely not one of these men of this bad generation will see the good land which I swore to give to your fathers, 
+except Caleb the son of Jephunneh. He will see it. I'll give the land that he has trodden on to him and to his children, because he has wholly followed God." 
+Also God was angry with me for your sakes, saying, "You also won't go in there. 
+Joshua the son of Nun, who stands before you, will go in there. Encourage him, for he will cause Israel to inherit it. 
+Moreover your little ones, whom you said would be captured or killed, your children, who today have no knowledge of good or bad, will go in there. I'll give it to them, and they will possess it. 
 But as for you, turn, and take your journey into the wilderness by the way to the Red Sea." 
 Then you answered and said to me, "We have wronged God. We'll go up and fight, according to all that our God commanded us." Every man of you put on his weapons of war, and presumed to go up into the hill country. 
 God said to me, "Tell them, 'Don't go up and don't fight; for I'm not among you, lest you be struck before your enemies.'" 

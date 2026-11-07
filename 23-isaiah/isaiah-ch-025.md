@@ -6,7 +6,7 @@ As the heat in a dry place you'll bring down the noise of strangers; as the heat
 In this mountain, the God of Armies will make all peoples a feast of choice meat, a feast of choice wines, of choice meat full of marrow, of well refined choice wines. 
 He'll destroy in this mountain the surface of the covering that covers all peoples, and the veil that's spread over all nations. 
 He has swallowed up death for the eras! The God will wipe away tears from off all faces. He'll take the reproach of his people away from off all the earth, for God has spoken it. 
-It shall be said in that day, "Look, this is our God! We have waited for him, and he'll save us! This is God! We have waited for him. We'll be glad and rejoice in his salvation!" 
+It will be said in that day, "Look, this is our God! We have waited for him, and he'll save us! This is God! We have waited for him. We'll be glad and rejoice in his salvation!" 
 God's hand will rest in this mountain. Moab will be trodden down in his place, even like straw is trodden down in the water of the dunghill. 
 He'll spread out his hands in the middle of it, like one who swims spreads out hands to swim, but his pride will be humbled together with the craft of his hands. 
 He has brought the high fortress of your walls down, laid low, and brought to the ground, even to the dust. 

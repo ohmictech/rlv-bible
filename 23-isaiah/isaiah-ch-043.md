@@ -14,10 +14,10 @@ Yes, since the day was, I'm he. There's no one who can deliver out of my hand. I
 God, the one who buys you back, the Holy One of Israel says: "For your sake, I have sent to Babylon, and I'll bring everyone down as fugitives, even the Chaldeans, in the ships of their rejoicing. 
 I'm God, your Holy One, the Creator of Israel, your King." 
 God, who makes a way in the sea, and a path in the mighty waters, 
-who brings out the chariot and horse, the army and the mighty man (they lie down together, they shall not rise; they're extinct, they're quenched like a wick) says: 
+who brings out the chariot and horse, the army and the mighty man (they lie down together, they won't rise; they're extinct, they're quenched like a wick) says: 
 "Don't remember the former things, and don't consider the things of old. 
 Look, I'll do a new thing. It springs out now. Don't you know it? I'll even make a way in the wilderness, and rivers in the desert. 
-The animals of the field, the jackals and the ostriches, shall honor me, because I give water in the wilderness and rivers in the desert, to give drink to my people, my chosen, 
+The animals of the field, the jackals and the ostriches, will honor me, because I give water in the wilderness and rivers in the desert, to give drink to my people, my chosen, 
 the people which I formed for myself, that they might declare my praise. 
 Yet you haven't called on me, Jacob; but you have been weary of me, Israel. 
 You haven't brought me any of your sheep for burnt offerings, neither have you honored me with your sacrifices. I haven't burdened you with offerings, nor wearied you with frankincense. 

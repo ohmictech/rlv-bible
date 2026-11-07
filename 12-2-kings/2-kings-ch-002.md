@@ -6,7 +6,7 @@ The sons of the spokesmen who were at Jericho came near to Elisha, and said to h
 Elijah said to him, "Please wait here, for God has sent me to the Jordan." He said, "As God lives, and as your soul lives, I won't leave you." Then they both went on. 
 Fifty men of the sons of the spokesmen went and stood opposite them at a distance; and they both stood by the Jordan. 
 Elijah took his mantle, and rolled it up, and struck the waters; and they were divided here and there, so that they both went over on dry ground. 
-When they had gone over, Elijah said to Elisha, "Ask what I shall do for you, before I'm taken from you." Elisha said, "Please let a double portion of your spirit be on me." 
+When they had gone over, Elijah said to Elisha, "Ask what I will do for you, before I'm taken from you." Elisha said, "Please let a double portion of your spirit be on me." 
 He said, "You have asked a hard thing. If you see me when I'm taken from you, it'll be so for you; but if not, it won't be so." 
 As they continued on and talked, look, a chariot of fire and horses of fire separated them; and Elijah went up by a whirlwind into the sky. 
 Elisha saw it, and he cried, "My father, my father, the chariots of Israel and its horsemen!" He saw him no more. Then he took hold of his own clothes and tore them in two pieces. 
@@ -18,7 +18,7 @@ When they urged him until he was ashamed, he said, "Send them." Therefore they s
 They came back to him while he stayed at Jericho; and he said to them, "Didn't I tell you, 'Don't go'?" 
 The men of the city said to Elisha, "Look, please, the situation of this city is pleasant, as my lord sees; but the water is bad, and the land is barren." 
 He said, "Bring me a new jar, and put salt in it." Then they brought it to him. 
-He went out to the spring of the waters, and threw salt into it, and said, "God says, 'I have healed these waters. There shall not be from there any more death or barren wasteland.'" 
+He went out to the spring of the waters, and threw salt into it, and said, "God says, 'I have healed these waters. There won't be from there any more death or barren wasteland.'" 
 So the waters were healed to this day, according to Elisha's word which he spoke. 
 He went up from there to Bethel. As he was going up by the way, some youths came out of the city and mocked him, and said to him, "Go up, you baldy! Go up, you baldy!" 
 He looked behind him and saw them, and cursed them in God's name. Then two female bears came out of the woods and mauled forty-two of those youths. 

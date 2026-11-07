@@ -11,7 +11,7 @@ My son, if those who have drifted entice you, don't consent.
 If they say, "Come with us. Let's lie in wait for blood. Let's lurk secretly for the innocent without cause. 
 Let's swallow them up alive like Hades, and whole, like those who go down into the pit. 
 We'll find all valuable wealth. We'll fill our houses with plunder. 
-You shall cast your lot among us. We'll all have one purse" 
+You will cast your lot among us. We'll all have one purse" 
 my son, don't walk on the path with them. Keep your foot from their path, 
 for their feet run to bad. They hurry to shed blood. 
 The net is spread in vain in the sight of any bird; 

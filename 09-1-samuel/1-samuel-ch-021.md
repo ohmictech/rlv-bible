@@ -2,7 +2,7 @@
 David said to Ahimelech the priest, "The king has commanded me to do something, and has said to me, 'Let no one know anything about the business about which I send you, and what I have commanded you. I have sent the young men to a certain place.' 
 Now what's under your hand? Please give me five loaves of bread in my hand, or whatever is available." 
 The priest answered David, and said, "I have no common bread, but there's holy bread; if only the young men have kept themselves from women." 
-David answered the priest, and said to him, "Truly, women have been kept from us as usual these three days. When I came out, the vessels of the young men were holy, though it was only a common journey. How much more then today shall their vessels be holy?" 
+David answered the priest, and said to him, "Truly, women have been kept from us as usual these three days. When I came out, the vessels of the young men were holy, though it was only a common journey. How much more then today will their vessels be holy?" 
 So the priest gave him holy bread; for there was no bread there but the show bread that was taken from before God, to be replaced with hot bread in the day when it was taken away. 
 Now a certain man of the servants of Saul was there that day, detained before God; and his name was Doeg the Edomite, the best of the herdsmen who belonged to Saul. 
 David said to Ahimelech, "Isn't there here under your hand spear or sword? I haven't brought my sword or my weapons with me, because the king's business required haste." 

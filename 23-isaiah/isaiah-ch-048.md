@@ -12,7 +12,7 @@ My own sake, for my own sake, I'll do it; for how would my name be profaned? I w
 "Listen to me, O Jacob, and Israel my called: I'm he. I'm the first. I'm also the last. 
 Yes, my hand has laid the foundation of the earth, and my right hand has spread out the sky. when I call to them, they stand up together. 
 "Assemble yourselves, all of you, and hear! Who among them has declared these things? He whom God loves will do what he likes to Babylon, and his arm will be against the Chaldeans. 
-I, even I, have spoken. Yes, I have called him. I have brought him and he shall make his way prosperous. 
+I, even I, have spoken. Yes, I have called him. I have brought him and he will make his way prosperous. 
 "Come near to me and hear this: "From the beginning I haven't spoken in secret; from the time that it happened, I was there." Now God has sent me with his Spirit. 
 God, the one who buys you back, the Holy One of Israel, says: "I'm your God, who teaches you to profit, who leads you by the way that you should go. 
 Oh that you had listened to my commandments! Then your peace would have been like a river and your righteousness like the waves of the sea. 

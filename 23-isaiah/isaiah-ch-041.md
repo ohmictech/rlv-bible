@@ -8,7 +8,7 @@ So the carpenter encourages the goldsmith. He who smooths with the hammer encour
 "But you, Israel, my servant, Jacob whom I have chosen, the offspring of Abraham my friend, 
 you whom I have taken hold of from the ends of the earth, and called from its corners, and said to you, 'You're my servant. I have chosen you and haven't cast you away.' 
 Don't you be afraid, for I'm with you. Don't be dismayed, for I'm your God. I'll strengthen you. Yes, I'll help you. Yes, I'll uphold you with the right hand of my righteousness. 
-Look, everyone who's incensed against you'll be disappointed and confounded. Those who strive with you'll be like nothing, and shall perish. 
+Look, everyone who's incensed against you'll be disappointed and confounded. Those who strive with you'll be like nothing, and will perish. 
 You'll seek them, and won't find them, even those who contend with you. Those who war against you'll be as nothing, as a nonexistent thing. 
 I, your God, will hold your right hand, saying to you, 'Don't be afraid. I'll help you.' 
 Don't be afraid, you worm Jacob, and you men of Israel. I'll help you," says God. "Ythe one who buys us back is the Holy One of Israel. 
@@ -22,7 +22,7 @@ Produce your cause," says God. "Bring out your strong reasons!" says the King of
 "Let them announce and declare to us what will happen! Declare the former things, what they're, that we may consider them, and know the latter end of them; or show us things to come. 
 Declare the things that are to come hereafter, that we may know that you're gods. Yes, do good, or do bad things, that we may be dismayed, and see it together. 
 Look, you're nothing, and your work is nothing. He who chooses you is an abomination. 
-"I have raised up one from the north, and he has come, from the rising of the sun, one who calls on my name, and he shall come on rulers as on mortar, and as the potter treads clay. 
+"I have raised up one from the north, and he has come, from the rising of the sun, one who calls on my name, and he will come on rulers as on mortar, and as the potter treads clay. 
 Who has declared it from the beginning, that we may know? and before, that we may say, 'He's right'? Surely, there's no one who declares. Surely, there's no one who shows. Surely, there's no one who hears your words. 
 I'm the first to say to Zion, 'Look, look at them;' and I'll give one who brings good news to Jerusalem. 
 When I look, there's no man, even among them there's no counselor who, when I ask, can answer a word. 

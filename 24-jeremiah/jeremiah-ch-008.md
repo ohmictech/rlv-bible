@@ -1,7 +1,7 @@
 ﻿"At that time," says God, "they'll bring the bones of the kings of Judah, the bones of his princes, the bones of the priests, the bones of the spokesmen, and the bones of the inhabitants of Jerusalem, out of their graves. 
 They'll spread them before the sun, the moon, and all the army of the sky, which they have loved, which they have served, after which they have walked, which they have sought, and which they have worshiped. They won't be gathered or be buried. They'll be like dung on the surface of the earth. 
 Death will be chosen rather than life by all the residue that remain of this bad family, that remain in all the places where I have driven them," says the God of Armies. 
-"Moreover you shall tell them, 'God says: "'Do men fall, and not rise up again? Does one turn away, and not return? 
+"Moreover you will tell them, 'God says: "'Do men fall, and not rise up again? Does one turn away, and not return? 
 Why then have the people of Jerusalem fallen back by a perpetual backsliding? They cling to deceit. They refuse to return. 
 I listened and heard, but they didn't say what's right. No one repents of his guilt, saying, "What have I done?" Everyone turns to his course, as a horse that rushes headlong in the battle. 
 Yes, the stork in the sky knows her appointed times. The turtledove, the swallow, and the crane observe the time of their coming; but my people don't know God's law. 

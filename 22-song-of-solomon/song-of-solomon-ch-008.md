@@ -5,7 +5,7 @@ I adjure you, daughters of Jerusalem, that you not stir up, nor awaken love, unt
 Who's this who comes up from the wilderness, leaning on her beloved? Beloved Under the apple tree I awakened you. There your mother conceived you. There she was in labor and bore you. 
 Set me as a seal on your heart, as a seal on your arm; for love is strong as death. Jealousy is as cruel as Hades. Its flashes are flashes of fire, a very flame of God. 
 Many waters can't quench love, neither can floods drown it. If a man would give all the wealth of his house for love, he'd be utterly scorned. 
-We have a little sister. She has no breasts. What shall we do for our sister in the day when she's to be spoken for? 
+We have a little sister. She has no breasts. What will we do for our sister in the day when she's to be spoken for? 
 If she's a wall, we'll build on her a turret of silver. If she's a door, we'll enclose her with boards of cedar. 
 I'm a wall, and my breasts like towers, then I was in his eyes like one who found peace. 
 Solomon had a vineyard at Baal Hamon. He leased out the vineyard to keepers. Each was to bring a thousand shekels of silver for its fruit. 

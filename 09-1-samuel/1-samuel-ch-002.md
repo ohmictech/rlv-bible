@@ -7,13 +7,13 @@ Those who were full have hired themselves out for bread. Those who were hungry a
 God makes poor and makes rich. He brings low, he also lifts up. 
 He raises up the poor out of the dust. He lifts up the needy from the dunghill to make them sit with princes and inherit the throne of glory. The pillars of the earth are God's. He has set the world on them. 
 He'll keep the feet of his holy ones, but the guilty will be put to silence in darkness; for no man will prevail by strength. 
-Those who strive with God shall be broken to pieces. He'll thunder against them in the sky. "God will judge the ends of the earth. He'll give strength to his king, and exalt the horn of his anointed." 
+Those who strive with God will be broken to pieces. He'll thunder against them in the sky. "God will judge the ends of the earth. He'll give strength to his king, and exalt the horn of his anointed." 
 Elkanah went to Ramah to his house. The child served God before Eli the priest. 
 Now the sons of Eli were guilty men. They didn't know God. 
 The custom of the priests with the people was that when anyone offered a sacrifice, the priest's servant came while the meat was boiling, with a fork of three teeth in his hand; 
 and he stabbed it into the pan, or kettle, or cauldron, or pot. The priest took all that the fork brought up for himself. They did this to all the Israelites who came there to Shiloh. 
 Yes, before they burned the fat, the priest's servant came, and said to the man who sacrificed, "Give meat to roast for the priest; for he won't accept boiled meat from you, but raw." 
-If the man said to him, "Let the fat be burned first, and then take as much as your soul desires;" then he'd say, "No, but you shall give it to me now; and if not, I'll take it by force." 
+If the man said to him, "Let the fat be burned first, and then take as much as your soul desires;" then he'd say, "No, but you will give it to me now; and if not, I'll take it by force." 
 The wrongdoing of the young men was very great before God; for the men despised God's offering. 
 But Samuel ministered before God, being a child, clothed with a linen ephod. 
 Moreover his mother made him a little robe, and brought it to him from year to year when she came up with her husband to offer the yearly sacrifice. 
@@ -29,7 +29,7 @@ Didn't I choose him out of all the tribes of Israel to be my priest, to go up to
 Why do you kick at my sacrifice and at my offering, which I have commanded in my habitation, and honor your sons above me, to make yourselves fat with the best of all the offerings of Israel my people?' 
 "Therefore the God of Israel says, 'I said indeed that your house and the house of your father should walk before me for the eras.' But now God says, 'Far be it from me; for those who honor me I'll honor, and those who despise me will be cursed. 
 Look, the days come that I'll cut off your arm and the arm of your father's house, that there won't be an old man in your house. 
-You'll see the affliction of my habitation, in all the wealth which I'll give Israel. There shall not be an old man in your house for the eras. 
+You'll see the affliction of my habitation, in all the wealth which I'll give Israel. There won't be an old man in your house for the eras. 
 The man of yours whom I don't cut off from my altar will consume your eyes and grieve your heart. All the increase of your house will die in the flower of their age. 
 This will be the sign to you that will come on your two sons, on Hophni and Phinehas: in one day they'll both die. 
 I'll raise up a faithful priest for myself who will do according to that which is in my heart and in my mind. I'll build him a sure house. He'll walk before my anointed for the eras. 

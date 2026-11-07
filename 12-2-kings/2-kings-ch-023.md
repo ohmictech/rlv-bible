@@ -24,7 +24,7 @@ but in the eighteenth year of King Josiah, this Passover was kept to God in Jeru
 Moreover, Josiah removed those who had familiar spirits, the wizards, and the teraphim, and the idols, and all the abominations that were seen in the land of Judah and in Jerusalem, that he might confirm the words of the law which were written in the book that Hilkiah the priest found in God's house. 
 There was no king like him before him, who turned to God with all his heart, and with all his soul, and with all his might, according to all the law of Moses; and there was none like him who arose after him. 
 Notwithstanding, God didn't turn from the fierceness of his great wrath, with which his anger burned against Judah, because of all the provocation with which Manasseh had provoked him. 
-God said, "I'll also remove Judah out of my sight, as I have removed Israel; and I'll cast off this city which I have chosen, even Jerusalem, and the house of which I said, 'My name shall be there.'" 
+God said, "I'll also remove Judah out of my sight, as I have removed Israel; and I'll cast off this city which I have chosen, even Jerusalem, and the house of which I said, 'My name will be there.'" 
 Now the rest of the acts of Josiah, and all that he did, aren't they written in the book of the chronicles of the kings of Judah? 
 In his days Pharaoh Necoh king of Egypt went up against the king of Assyria to the river Euphrates; and King Josiah went against him, but Pharaoh Necoh killed him at Megiddo when he saw him. 
 His servants carried him dead in a chariot from Megiddo, brought him to Jerusalem, and buried him in his own tomb. The people of the land took Jehoahaz the son of Josiah, and anointed him, and made him king in his father's place. 

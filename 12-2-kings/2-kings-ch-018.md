@@ -19,7 +19,7 @@ When they had called to the king, Eliakim the son of Hilkiah, who was over the h
 Rabshakeh said to them, "Say now to Hezekiah, 'The great king, the king of Assyria, says, "What confidence is this in which you trust? 
 You say (but they're but vain words), 'There's counsel and strength for war.' Now on whom do you trust, that you have rebelled against me? 
 Now, look, you trust in the staff of this bruised reed, even in Egypt. If a man leans on it, it'll go into his hand and pierce it. So is Pharaoh king of Egypt to everyone who trusts on him. 
-But if you tell me, 'We trust in our God,' isn't that he whose high places and whose altars Hezekiah has taken away, and has said to Judah and to Jerusalem, 'You shall worship before this altar in Jerusalem'? 
+But if you tell me, 'We trust in our God,' isn't that he whose high places and whose altars Hezekiah has taken away, and has said to Judah and to Jerusalem, 'You will worship before this altar in Jerusalem'? 
 Now, please give pledges to my master the king of Assyria, and I'll give you two thousand horses if you're able on your part to set riders on them. 
 How then can you turn away the face of one captain of the least of my master's servants, and put your trust on Egypt for chariots and for horsemen? 
 Have I now come up without God against this place to destroy it? God said to me, 'Go up against this land, and destroy it.'"'" 
@@ -27,7 +27,7 @@ Then Eliakim the son of Hilkiah, Shebnah, and Joah, said to Rabshakeh, "Please s
 But Rabshakeh said to them, "Has my master sent me to your master and to you, to speak these words? Hasn't he sent me to the men who sit on the wall, to eat their own dung, and to drink their own urine with you?" 
 Then Rabshakeh stood and cried with a loud voice in the Jews' language, and spoke, saying, "Hear the word of the great king, the king of Assyria. 
 The king says, 'Don't let Hezekiah deceive you, for he won't be able to deliver you out of his hand. 
-Don't let Hezekiah make you trust in God, saying, "God will surely deliver us, and this city shall not be given into the hand of the king of Assyria." 
+Don't let Hezekiah make you trust in God, saying, "God will surely deliver us, and this city won't be given into the hand of the king of Assyria." 
 Don't listen to Hezekiah.' For the king of Assyria says, 'Make your peace with me, and come out to me; and everyone of you eat from his own vine, and everyone from his own fig tree, and everyone drink water from his own cistern; 
 until I come and take you away to a land like your own land, a land of grain and new wine, a land of bread and vineyards, a land of olive trees and of honey, that you may live and not die. Don't listen to Hezekiah when he persuades you, saying, "God will deliver us." 
 Has any of the gods of the nations ever delivered his land out of the hand of the king of Assyria? 

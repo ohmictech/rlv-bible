@@ -24,5 +24,5 @@ Like silver dross on an earthen vessel are the lips of a fervent one with an bad
 A malicious man disguises himself with his lips, but he harbors bad in his heart. 
 When his speech is charming, don't believe him, for there are seven abominations in his heart. 
 His malice may be concealed by deception, but his guilt will be exposed in the assembly. 
-Whoever digs a pit shall fall into it. Whoever rolls a stone, it'll come back on him. 
+Whoever digs a pit will fall into it. Whoever rolls a stone, it'll come back on him. 
 A lying tongue hates those it hurts; and a flattering mouth works ruin. 

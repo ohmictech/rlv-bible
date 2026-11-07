@@ -16,7 +16,7 @@ When Jezebel heard that Naboth had been stoned and was dead, Jezebel said to Aha
 When Ahab heard that Naboth was dead, Ahab rose up to go down to the vineyard of Naboth the Jezreelite, to take possession of it. 
 God's word came to Elijah the Tishbite, saying, 
 "Arise, go down to meet Ahab king of Israel, who dwells in Samaria. Look, he's in the vineyard of Naboth, where he has gone down to take possession of it. 
-You shall speak to him, saying, 'God says, "Have you killed and also taken possession?"' You shall speak to him, saying, 'God says, "In the place where dogs licked the blood of Naboth, dogs will lick your blood, even yours."'" 
+You will speak to him, saying, 'God says, "Have you killed and also taken possession?"' You will speak to him, saying, 'God says, "In the place where dogs licked the blood of Naboth, dogs will lick your blood, even yours."'" 
 Ahab said to Elijah, "Have you found me, my enemy?" He answered, "I have found you, because you have sold yourself to do that which is bad in God's sight. 
 Look, I'll bring bad on you, and will utterly sweep you away and will cut off from Ahab everyone who urinates against a wall, and him who's shut up and him who's left at large in Israel. 
 I'll make your house like the house of Jeroboam the son of Nebat, and like the house of Baasha the son of Ahijah, for the provocation with which you have provoked me to anger, and have made Israel to drift." 

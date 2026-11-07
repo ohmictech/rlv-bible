@@ -4,7 +4,7 @@ Samson lay until midnight, then arose at midnight and took hold of the doors of 
 It came to pass afterward that he loved a woman in the valley of Sorek, whose name was Delilah. 
 The lords of the Philistines came up to her and said to her, "Entice him, and see in which his great strength lies, and by what means we may prevail against him, that we may bind him to afflict him; and we'll each give you eleven hundred pieces of silver." 
 Delilah said to Samson, "Please tell me where your great strength lies, and what you might be bound to afflict you." 
-Samson said to her, "If they bind me with seven green cords that were never dried, then shall I become weak, and be as another man." 
+Samson said to her, "If they bind me with seven green cords that were never dried, then will I become weak, and be as another man." 
 Then the lords of the Philistines brought up to her seven green cords which hadn't been dried, and she bound him with them. 
 Now she had an ambush waiting in the inner room. She said to him, "The Philistines are on you, Samson!" He broke the cords as a flax thread is broken when it touches the fire. So his strength wasn't known. 
 Delilah said to Samson, "Look, you have mocked me, and told me lies. Now please tell me how you might be bound." 

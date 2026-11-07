@@ -8,7 +8,7 @@ When Uriah had come to him, David asked him how Joab did, and how the people far
 David said to Uriah, "Go down to your house and wash your feet." Uriah departed out of the king's house, and a gift from the king was sent after him. 
 But Uriah slept at the door of the king's house with all the servants of his lord, and didn't go down to his house. 
 When they had told David, saying, "Uriah didn't go down to his house," David said to Uriah, "Haven't you come from a journey? Why didn't you go down to your house?" 
-Uriah said to David, "The ark, Israel, and Judah, are staying in tents; and my lord Joab and the servants of my lord are encamped in the open field. Shall I then go into my house to eat and to drink, and to lie with my wife? As you live, and as your soul lives, I won't do this thing!" 
+Uriah said to David, "The ark, Israel, and Judah, are staying in tents; and my lord Joab and the servants of my lord are encamped in the open field. Will I then go into my house to eat and to drink, and to lie with my wife? As you live, and as your soul lives, I won't do this thing!" 
 David said to Uriah, "Stay here today also, and tomorrow I'll let you depart." So Uriah stayed in Jerusalem that day and the next day. 
 When David had called him, he ate and drank before him; and he made him drunk. At evening, he went out to lie on his bed with the servants of his lord, but didn't go down to his house. 
 In the morning, David wrote a letter to Joab and sent it by the hand of Uriah. 
@@ -17,8 +17,8 @@ When Joab kept watch on the city, he assigned Uriah to the place where he knew t
 The men of the city went out and fought with Joab. Some of the people fell, even of David's servants; and Uriah the Hittite died also. 
 Then Joab sent and told David all the things concerning the war; 
 and he commanded the messenger, saying, "When you have finished telling all the things concerning the war to the king, 
-it shall be that, if the king's wrath arise, and he asks you, 'Why did you go so near to the city to fight? Didn't you know that they'd shoot from the wall? 
-Who struck Abimelech the son of Jerubbesheth? Didn't a woman cast an upper millstone on him from the wall, so that he died at Thebez? Why did you go so near the wall?' then you shall say, 'Your servant Uriah the Hittite is also dead.'" 
+it will be that, if the king's wrath arise, and he asks you, 'Why did you go so near to the city to fight? Didn't you know that they'd shoot from the wall? 
+Who struck Abimelech the son of Jerubbesheth? Didn't a woman cast an upper millstone on him from the wall, so that he died at Thebez? Why did you go so near the wall?' then you will say, 'Your servant Uriah the Hittite is also dead.'" 
 So the messenger went, and came and showed David all that Joab had sent him for. 
 The messenger said to David, "The men prevailed against us, and came out to us into the field; and we were on them even to the entrance of the gate. 
 The shooters shot at your servants from off the wall; and some of the king's servants are dead, and your servant Uriah the Hittite is also dead." 

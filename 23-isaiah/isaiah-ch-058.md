@@ -5,7 +5,7 @@ Look, you fast for strife and contention, and to strike with the fist of guilt. 
 Is this the fast that I have chosen? A day for a man to humble his soul? Is it to bow down his head like a reed, and to spread sackcloth and ashes under himself? Will you call this a fast, and an acceptable day to God? 
 "Isn't this the fast that I have chosen: to release the bonds of guilt, to undo the straps of the yoke, to let the oppressed go free, and that you break every yoke? 
 Isn't it to distribute your bread to the hungry, and that you bring the poor who are cast out to your house? When you see the naked, that you cover him; and that you not hide yourself from your own flesh? 
-Then your light will break out as the morning, and your healing will appear quickly; then your righteousness shall go before you, and God's glory will be your rear guard. 
+Then your light will break out as the morning, and your healing will appear quickly; then your righteousness will go before you, and God's glory will be your rear guard. 
 Then you'll call, and God will answer. You'll cry for help, and he'll say, 'Here I'm.' "If you take away from among you the yoke, finger pointing, and speaking guiltily; 
 and if you pour out your soul to the hungry, and satisfy the afflicted soul, then your light will rise in darkness, and your obscurity will be as the noonday; 
 and God will guide you continually, satisfy your soul in dry places, and make your bones strong. You'll be like a watered garden, and like a spring of water whose waters don't fail. 

@@ -9,12 +9,12 @@ An arm of flesh is with him, but our God is with us to help us and to fight our 
 After this, Sennacherib king of Assyria sent his servants to Jerusalem, (now he was attacking Lachish, and all his forces were with him), to Hezekiah king of Judah, and to all Judah who were at Jerusalem, saying, 
 Sennacherib king of Assyria says, "In whom do you trust, that you remain under siege in Jerusalem? 
 Doesn't Hezekiah persuade you to give you over to die by famine and by thirst, saying, 'Our God will deliver us out of the hand of the king of Assyria'? 
-Hasn't the same Hezekiah taken away his high places and his altars, and commanded Judah and Jerusalem, saying, 'You shall worship before one altar, and you shall burn incense on it'? 
+Hasn't the same Hezekiah taken away his high places and his altars, and commanded Judah and Jerusalem, saying, 'You will worship before one altar, and you will burn incense on it'? 
 Don't you know what I and my fathers have done to everyones of the lands? Were the gods of the nations of those lands in any way able to deliver their land out of my hand? 
 Who was there among all the gods of those nations which my fathers utterly destroyed that could deliver his people out of my hand, that your God should be able to deliver you out of my hand? 
 Now don't let Hezekiah deceive you nor persuade you in this way. Don't believe him, for no god of any nation or kingdom was able to deliver his people out of my hand, and out of the hand of my fathers. How much less will your God deliver you out of my hand?" 
 His servants spoke yet more against God and against his servant Hezekiah. 
-He also wrote letters insulting the God of Israel, and speaking against him, saying, "As the gods of the nations of the lands, which haven't delivered their people out of my hand, so shall the God of Hezekiah not deliver his people out of my hand." 
+He also wrote letters insulting the God of Israel, and speaking against him, saying, "As the gods of the nations of the lands, which haven't delivered their people out of my hand, so will the God of Hezekiah not deliver his people out of my hand." 
 They called out with a loud voice in the Jews' language to the people of Jerusalem who were on the wall, to frighten them and to trouble them, that they might take the city. 
 They spoke of the God of Jerusalem as of the gods of the peoples of the earth, which are the work of men's hands. 
 Hezekiah the king and Isaiah the spokesman, the son of Amoz, prayed because of this, and cried to the sky. 

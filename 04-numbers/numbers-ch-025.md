@@ -10,7 +10,7 @@ Those who died by the plague were twenty-four thousand.
 God spoke to Moses, saying, 
 "Phinehas, the son of Eleazar, the son of Aaron the priest, has turned my wrath away from the children of Israel, in that he was jealous with my jealousy among them, so that I didn't consume the children of Israel in my jealousy. 
 So say, 'Look, I give to him my covenant of peace. 
-It shall be to him, and to his offspring after him, the covenant of an perpetual priesthood, because he was jealous for his God, and made things right for the children of Israel.'" 
+It will be to him, and to his offspring after him, the covenant of an perpetual priesthood, because he was jealous for his God, and made things right for the children of Israel.'" 
 Now the name of the man of Israel that was slain, who was slain with the Midianite woman, was Zimri, the son of Salu, a prince of a fathers' house among the Simeonites. 
 The name of the Midianite woman who was slain was Cozbi, the daughter of Zur. He was head of the people of a fathers' house in Midian. 
 God spoke to Moses, saying, 

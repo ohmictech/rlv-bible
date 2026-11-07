@@ -1,9 +1,9 @@
 ﻿Now on the third day, Esther put on her royal clothing and stood in the inner court of the king's house, next to the king's house. The king sat on his royal throne in the royal house, next to the entrance of the house. 
 When the king saw Esther the queen standing in the court, she obtained favor in his sight; and the king held out to Esther the golden scepter that was in his hand. So Esther came near and touched the top of the scepter. 
-Then the king asked her, "What would you like, queen Esther? What's your request? It shall be given you even to the half of the kingdom." 
+Then the king asked her, "What would you like, queen Esther? What's your request? It will be given you even to the half of the kingdom." 
 Esther said, "If it seems good to the king, let the king and Haman come today to the banquet that I have prepared for him." 
 Then the king said, "Bring Haman quickly, so that it may be done as Esther has said." So the king and Haman came to the banquet that Esther had prepared. 
-The king said to Esther at the banquet of wine, "What's your petition? It shall be granted you. What's your request? Even to the half of the kingdom it shall be performed." 
+The king said to Esther at the banquet of wine, "What's your petition? It will be granted you. What's your request? Even to the half of the kingdom it will be performed." 
 Then Esther answered and said, "My petition and my request is this. 
 If I have found favor in the sight of the king, and if it pleases the king to grant my petition and to perform my request, let the king and Haman come to the banquet that I'll prepare for them, and I'll do tomorrow as the king has said." 
 Then Haman went out that day joyful and glad of heart, but when Haman saw Mordecai in the king's gate, that he didn't stand up nor move for him, he was filled with wrath against Mordecai. 

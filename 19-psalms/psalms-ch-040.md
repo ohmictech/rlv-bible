@@ -1,6 +1,6 @@
 ﻿The Chief Musician. A Psalm by David. I waited patiently for God. He turned to me, and heard my cry. 
 He brought me up also out of a horrible pit, out of the miry clay. He set my feet on a rock, and gave me a firm place to stand. 
-He has put a new song in my mouth, even praise to our God. Many shall see it, and fear, and shall trust in God. 
+He has put a new song in my mouth, even praise to our God. Many will see it, and fear, and will trust in God. 
 Blessed is the man who makes God his trust, and doesn't respect the proud, nor such as turn away to lies. 
 Many, God, my God, are the wonderful works which you have done, and your thoughts which are toward us. They can't be declared back to you. If I'd declare and speak of them, they're more than can be counted. 
 Sacrifice and offering you didn't desire. You have opened my ears. You haven't required burnt offering and offering for wrongdoing. 

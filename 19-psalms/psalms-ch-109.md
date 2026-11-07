@@ -25,7 +25,7 @@ My knees are weak through fasting. My body is thin and lacks fat.
 I have also become a reproach to them. When they see me, they shake their head. 
 Help me, God, my God. Save me according to your loving kindness; 
 that they may know that this is your hand; that you, God, have done it. 
-They may curse, but you bless. When they arise, they'll be shamed, but your servant shall rejoice. 
+They may curse, but you bless. When they arise, they'll be shamed, but your servant will rejoice. 
 Let my adversaries be clothed with dishonor. Let them cover themselves with their own shame as with a robe. 
 I'll give great thanks to God with my mouth. Yes, I'll praise him among the multitude. 
 He'll stand at the right hand of the needy, to save him from those who judge his soul. 

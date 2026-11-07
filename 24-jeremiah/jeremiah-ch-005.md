@@ -16,7 +16,7 @@ Look, I'll bring a nation on you from far away, house of Israel," says God. "It'
 Their quiver is an open tomb. They're all mighty men. 
 They'll eat up your harvest and your bread, which your sons and your daughters should eat. They'll eat up your flocks and your herds. They'll eat up your vines and your fig trees. They'll beat down your fortified cities in which you trust with the sword. 
 "But even in those days," says God, "I won't make a full end of you. 
-It'll happen when you say, 'Why has our God done all these things to us?' Then you shall say to them, 'Just as you have forsaken me and served foreign gods in your land, so you'll serve strangers in a land that isn't yours.' 
+It'll happen when you say, 'Why has our God done all these things to us?' Then you will say to them, 'Just as you have forsaken me and served foreign gods in your land, so you'll serve strangers in a land that isn't yours.' 
 "Declare this in the house of Jacob, and publish it in Judah, saying, 
 'Hear this now, foolish people without understanding, who have eyes, and don't see, who have ears, and don't hear: 
 Don't you fear me?' says God; 'Won't you tremble at my presence, who have placed the sand for the bound of the sea by a perpetual decree, that it can't pass it? Though its waves toss themselves, yet they can't prevail. Though they roar, they still can't pass over it.' 

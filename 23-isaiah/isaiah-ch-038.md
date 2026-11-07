@@ -4,7 +4,7 @@ and said, "Remember now, God, I beg you, how I have walked before you in truth a
 Then God's word came to Isaiah, saying, 
 "Go, and tell Hezekiah, 'The God of David your father, says, "I have heard your prayer. I have seen your tears. Look, I'll add fifteen years to your life. 
 I'll deliver you and this city out of the hand of the king of Assyria, and I'll defend this city. 
-This shall be the sign to you from God, that God will do this thing that he has spoken. 
+This will be the sign to you from God, that God will do this thing that he has spoken. 
 Look, I'll cause the shadow on the sundial, which has gone down on the sundial of Ahaz with the sun, to return backward ten steps."'" So the sun returned ten steps on the sundial on which it had gone down. 
 The writing of Hezekiah king of Judah, when he had been sick, and had recovered of his sickness: 
 I said, "In the middle of my life I go into the gates of Hades. I'm deprived of the residue of my years." 
@@ -16,7 +16,7 @@ What will I say? He has both spoken to me, and himself has done it. I'll walk ca
 Lord, men live by these things; and my spirit finds life in everyone. You restore me, and cause me to live. 
 Look, for peace I had great anguish, but you have in love for my soul delivered it from the pit of corruption; for you have cast all my mistakes behind your back. 
 Hades can't praise you. Death can't celebrate you. Those who go down into the pit can't hope for your truth. 
-The living, the living, he shall praise you, as I do today. The father shall make known your truth to the children. 
+The living, the living, he will praise you, as I do today. The father will make known your truth to the children. 
 God will save me. So we'll sing my songs with stringed instruments all the days of our life in God's house. 
-Now Isaiah had said, "Let them take a cake of figs, and lay it for a poultice on the boil, and he shall recover." 
+Now Isaiah had said, "Let them take a cake of figs, and lay it for a poultice on the boil, and he will recover." 
 Hezekiah also had said, "What's the sign that I'll go up to God's house?" 

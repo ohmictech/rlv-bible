@@ -15,9 +15,9 @@ Yes, everyone in the land will bury them; and they'll become famous in the day t
 Those who search through the land will pass through; and when anyone sees a man's bone, then he'll set up a sign by it, until the undertakers have buried it in the valley of Hamon Gog. 
 Hamonah will also be the name of a city. Thus they'll cleanse the land."' 
 "You, son of man, God says: 'Speak to the birds of every sort, and to every animal of the field, "Assemble yourselves, and come; gather yourselves on every side to my sacrifice that I sacrifice for you, even a great sacrifice on the mountains of Israel, that you may eat meat and drink blood. 
-You shall eat the flesh of the mighty, and drink the blood of the princes of the earth, of rams, of lambs, and of goats, of bulls, everyone fatlings of Bashan. 
-You shall eat fat until you're full, and drink blood until you're drunk, of my sacrifice which I have sacrificed for you. 
-You shall be filled at my table with horses and charioteers, with mighty men, and with everyone of war," says God.' 
+You will eat the flesh of the mighty, and drink the blood of the princes of the earth, of rams, of lambs, and of goats, of bulls, everyone fatlings of Bashan. 
+You will eat fat until you're full, and drink blood until you're drunk, of my sacrifice which I have sacrificed for you. 
+You will be filled at my table with horses and charioteers, with mighty men, and with everyone of war," says God.' 
 "I'll set my glory among the nations. Then all the nations will see my judgment that I have executed, and my hand that I have laid on them. 
 So the house of Israel will know that I'm their God, from that day and forward. 
 The nations will know that the house of Israel went into captivity for their guilt, because they trespassed against me, and I hid my face from them; so I gave them into the hand of their adversaries, and they all fell by the sword. 

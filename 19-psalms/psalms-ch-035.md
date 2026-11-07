@@ -6,8 +6,8 @@ Let them be as chaff before the wind, God's messenger driving them on.
 Let their way be dark and slippery, God's messenger pursuing them. 
 Without cause they have hidden their net in a pit for me. Without cause they have dug a pit for my soul. 
 Let destruction come on him unawares. Let his net that he has hidden catch himself. Let him fall into that destruction. 
-My soul shall be joyful in God. It shall rejoice in his salvation. 
-All my bones shall say, "God, who's like you, who delivers the poor from him who's too strong for him; yes, the poor and the needy from him who robs him?" 
+My soul will be joyful in God. It will rejoice in his salvation. 
+All my bones will say, "God, who's like you, who delivers the poor from him who's too strong for him; yes, the poor and the needy from him who robs him?" 
 Unrighteous witnesses rise up. They ask me about things that I don't know about. 
 They reward me bad for good, to the bereaving of my soul. 
 But as for me, when they were sick, my clothing was sackcloth. I afflicted my soul with fasting. My prayer returned into my own bosom. 
@@ -25,4 +25,4 @@ Vindicate me, God my God, according to your righteousness. Don't let them gloat 
 Don't let them say in their heart, "Aha! That's the way we want it!" Don't let them say, "We have swallowed him up!" 
 Let them be disappointed and confounded together who rejoice at my calamity. Let them be clothed with shame and dishonor who magnify themselves against me. 
 Let those who favor my righteous cause shout for joy and be glad. Yes, let them say continually, "May God be magnified, who has pleasure in the prosperity of his servant!" 
-My tongue shall talk about your righteousness and about your praise all day long. 
+My tongue will talk about your righteousness and about your praise all day long. 

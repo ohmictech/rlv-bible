@@ -8,7 +8,7 @@ Let him drink, and forget his poverty, and remember his misery no more.
 Open your mouth for the mute, in the cause of everyone who's left desolate. 
 Open your mouth, judge righteously, and serve justice to the poor and needy." 
 Who can find a worthy woman? Her value is far above rubies. 
-The heart of her husband trusts in her. He shall have no lack of gain. 
+The heart of her husband trusts in her. He will have no lack of gain. 
 She does him good, and not harm, all the days of her life. 
 She seeks wool and flax, and works eagerly with her hands. 
 She's like the merchant ships. She brings her bread from afar. 
@@ -27,5 +27,5 @@ She opens her mouth with wisdom. Kind instruction is on her tongue.
 She looks well to the ways of her household, and doesn't eat the bread of idleness. 
 Her children rise up and call her blessed. Her husband also praises her: 
 "Many women do noble things, but you excel them all." 
-Charm is deceitful, and beauty is vain; but a woman who fears God, she shall be praised. 
+Charm is deceitful, and beauty is vain; but a woman who fears God, she will be praised. 
 Give her of the fruit of her hands! Let her works praise her in the gates! 

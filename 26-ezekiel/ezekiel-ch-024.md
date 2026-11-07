@@ -13,7 +13,7 @@ She's weary with toil; yet her great rust, rust by fire, doesn't leave her.
 "'"In your filthiness is lewdness. Because I have cleansed you and you weren't cleansed, you won't be cleansed from your filthiness any more, until I have caused my wrath toward you to rest. 
 "'"I, God, have spoken it. It'll happen, and I'll do it. I won't go back. I won't spare. I won't repent. According to your ways and according to your doings, they'll judge you," says God.'" 
 Also God's word came to me, saying, 
-"Son of man, look, I'll take away from you the desire of your eyes with one stroke; yet you shall neither mourn nor weep, neither shall your tears run down. 
+"Son of man, look, I'll take away from you the desire of your eyes with one stroke; yet you will neither mourn nor weep, neither will your tears run down. 
 Sigh, but not aloud. Make no mourning for the dead. Bind your headdress on you, and put your sandals on your feet. Don't cover your lips, and don't eat mourner's bread." 
 So I spoke to the people in the morning, and at evening my wife died. So I did in the morning as I was commanded. 
 The people asked me, "Won't you tell us what these things mean to us, that you act like this?" 

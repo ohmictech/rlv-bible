@@ -28,7 +28,7 @@ At noon, Elijah mocked them, and said, "Cry aloud, for he's a god. Either he's d
 They cried aloud, and cut themselves in their way with knives and lances until the blood gushed out on them. 
 When midday was past, they prophesied until the time of the evening offering; but there was no voice, no answer, and nobody paid attention. 
 Elijah said to everyone, "Come near to me!"; and everyone came near to him. He repaired God's altar that had been thrown down. 
-Elijah took twelve stones, according to the number of the tribes of the sons of Jacob, to whom God's word came, saying, "Israel shall be your name." 
+Elijah took twelve stones, according to the number of the tribes of the sons of Jacob, to whom God's word came, saying, "Israel will be your name." 
 With the stones he built an altar in God's name. He made a trench around the altar large enough to contain two seahs of seed. 
 He put the wood in order, and cut the bull in pieces and laid it on the wood. He said, "Fill four jars with water, and pour it on the burnt offering and on the wood." 
 He said, "Do it a second time;" and they did it the second time. He said, "Do it a third time;" and they did it the third time. 

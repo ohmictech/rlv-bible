@@ -29,7 +29,7 @@ and didn't allow me to kiss my sons and my daughters? Now you have done foolishl
 It's in the power of my hand to hurt you, but the God of your father spoke to me last night, saying, 'Be careful that you don't speak to Jacob either good or bad.' 
 Now, you want to be gone, because you greatly longed for your father's house, but why have you stolen my gods?" 
 Jacob answered Laban, "Because I was afraid, for I said, 'Lest you should take your daughters from me by force.' 
-Anyone you find your gods with shall not live. Before our relatives, discern what's yours with me, and take it." For Jacob didn't know that Rachel had stolen them. 
+Anyone you find your gods with won't live. Before our relatives, discern what's yours with me, and take it." For Jacob didn't know that Rachel had stolen them. 
 Laban went into Jacob's tent, into Leah's tent, and into the tent of the two female servants; but he didn't find them. He went out of Leah's tent, and entered into Rachel's tent. 
 Now Rachel had taken the teraphim, put them in the camel's saddle, and sat on them. Laban felt around all the tent, but didn't find them. 
 She said to her father, "Don't let my lord be angry that I can't rise up before you; for I'm having my period." He searched, but didn't find the teraphim. 

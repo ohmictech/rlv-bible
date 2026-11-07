@@ -5,7 +5,7 @@ haven't you made distinctions among yourselves, and become judges with bad motiv
 Listen, my truly loved brothers and sisters. Hasn't God chosen those who are poor in this world to be rich in trust, and to be heirs of the reign he promised to those who love him? 
 But you have shamed the poor man. Isn't it the rich who oppress you and drag you into court? 
 Isn't it they who slander the good name that was given to you? 
-If you really keep the royal law the Scripture gives, "You shall love your neighbor as yourself," you're doing well. 
+If you really keep the royal law the Scripture gives, "You will love your neighbor as yourself," you're doing well. 
 But if you play favorites, you're doing wrong, and the law finds you guilty as a lawbreaker. 
 Whoever keeps the whole law but trips up on one point has become guilty of breaking all of it. 
 The one who said, "Don't commit adultery," also said, "Don't commit murder." So if you don't commit adultery but do commit murder, you have become a lawbreaker. 

@@ -7,8 +7,8 @@ Isaiah said to them, "Tell your master, 'God says, "Don't be afraid of the words
 Look, I'll put a spirit in him and he'll hear news, and will return to his own land. I'll cause him to fall by the sword in his own land."'" 
 So Rabshakeh returned, and found the king of Assyria warring against Libnah, for he heard that he had departed from Lachish. 
 He heard news concerning Tirhakah king of Ethiopia, "He has come out to fight against you." When he heard it, he sent messengers to Hezekiah, saying, 
-"Thus you shall speak to Hezekiah king of Judah, saying, 'Don't let your God in whom you trust deceive you, saying, "Jerusalem won't be given into the hand of the king of Assyria." 
-Look, you have heard what the kings of Assyria have done to all lands, by destroying them utterly. Shall you be delivered? 
+"Thus you will speak to Hezekiah king of Judah, saying, 'Don't let your God in whom you trust deceive you, saying, "Jerusalem won't be given into the hand of the king of Assyria." 
+Look, you have heard what the kings of Assyria have done to all lands, by destroying them utterly. Will you be delivered? 
 Have the gods of the nations delivered them, which my fathers have destroyed, Gozan, Haran, Rezeph, and the children of Eden who were in Telassar? 
 Where is the king of Hamath, and the king of Arpad, and the king of the city of Sepharvaim, of Hena, and Ivvah?'" 
 Hezekiah received the letter from the hand of the messengers and read it. Then Hezekiah went up to God's house, and spread it before God. 
@@ -27,7 +27,7 @@ I have dug and drunk water, and with the sole of my feet I'll dry up all the riv
 So their inhabitants had little power. They were dismayed and confounded. They were like the grass of the field, and like the green herb, like the grass on the housetops, and like a field before its crop has grown. 
 But I know your sitting down, your going out, your coming in, and your raging against me. 
 Because of your raging against me, and because your arrogance has come up into my ears, I'll put my hook in your nose and my bridle in your lips, and I'll turn you back by the way by which you came. 
-"'This shall be the sign to you: You'll eat this year that which grows of itself, and in the second year that which springs from it; and in the third year sow and reap and plant vineyards, and eat their fruit. 
+"'This will be the sign to you: You'll eat this year that which grows of itself, and in the second year that which springs from it; and in the third year sow and reap and plant vineyards, and eat their fruit. 
 The remnant that's escaped of the house of Judah will again take root downward, and bear fruit upward. 
 Out of Jerusalem a remnant will go out, and survivors will escape from Mount Zion. The passion of the God of Armies will perform this.' 
 "Therefore God says concerning the king of Assyria, 'He won't come to this city, nor shoot an arrow there, neither will he come before it with shield, nor cast up a mound against it. 

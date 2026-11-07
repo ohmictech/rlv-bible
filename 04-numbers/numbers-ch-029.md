@@ -1,20 +1,20 @@
-﻿"'In the seventh month, on the first day of the month, you shall have a holy convocation; you shall do no regular work. It's a day of blowing of trumpets to you. 
-You shall offer a burnt offering for a pleasant aroma to God: one young bull, one ram, seven male lambs a year old without defect; 
+﻿"'In the seventh month, on the first day of the month, you will have a holy convocation; you will do no regular work. It's a day of blowing of trumpets to you. 
+You will offer a burnt offering for a pleasant aroma to God: one young bull, one ram, seven male lambs a year old without defect; 
 and their meal offering, fine flour mixed with oil: three tenths for the bull, two tenths for the ram, 
 and one tenth for every lamb of the seven lambs; 
 and one male goat for an offering for wrongdoing, to make things right for you; 
 in addition to the burnt offering of the new moon with its meal offering, and the continual burnt offering with its meal offering, and their drink offerings, according to their ordinance, for a pleasant aroma, an offering made by fire to God. 
-"'On the tenth day of this seventh month you shall have a holy convocation. You shall afflict your souls. You shall do no kind of work; 
-but you shall offer a burnt offering to God for a pleasant aroma: one young bull, one ram, seven male lambs a year old, all without defect; 
+"'On the tenth day of this seventh month you will have a holy convocation. You will afflict your souls. You will do no kind of work; 
+but you will offer a burnt offering to God for a pleasant aroma: one young bull, one ram, seven male lambs a year old, all without defect; 
 and their meal offering, fine flour mixed with oil: three tenths for the bull, two tenths for the one ram, 
 one tenth for every lamb of the seven lambs; 
 one male goat for an offering for wrongdoing, in addition to the offering for wrongdoing that makes things right, and the continual burnt offering, and its meal offering, and their drink offerings. 
-"'On the fifteenth day of the seventh month you shall have a holy convocation. You shall do no regular work. You shall keep a feast to God seven days. 
-You shall offer a burnt offering, an offering made by fire, of a pleasant aroma to God: thirteen young bulls, two rams, fourteen male lambs a year old, all without defect; 
+"'On the fifteenth day of the seventh month you will have a holy convocation. You will do no regular work. You will keep a feast to God seven days. 
+You will offer a burnt offering, an offering made by fire, of a pleasant aroma to God: thirteen young bulls, two rams, fourteen male lambs a year old, all without defect; 
 and their meal offering, fine flour mixed with oil: three tenths for every bull of the thirteen bulls, two tenths for each ram of the two rams, 
 and one tenth for every lamb of the fourteen lambs; 
 and one male goat for an offering for wrongdoing, in addition to the continual burnt offering, its meal offering, and its drink offering. 
-"'On the second day you shall offer twelve young bulls, two rams, and fourteen male lambs a year old without defect; 
+"'On the second day you will offer twelve young bulls, two rams, and fourteen male lambs a year old without defect; 
 and their meal offering and their drink offerings for the bulls, for the rams, and for the lambs, according to their number, after the ordinance; 
 and one male goat for an offering for wrongdoing, in addition to the continual burnt offering, with its meal offering and their drink offerings. 
 "'On the third day: eleven bulls, two rams, fourteen male lambs a year old without defect; 
@@ -32,9 +32,9 @@ and one male goat for an offering for wrongdoing; in addition to the continual b
 "'On the seventh day: seven bulls, two rams, fourteen male lambs a year old without defect; 
 and their meal offering and their drink offerings for the bulls, for the rams, and for the lambs, according to their number, after the ordinance, 
 and one male goat for an offering for wrongdoing; in addition to the continual burnt offering, its meal offering, and its drink offering. 
-"'On the eighth day you shall have a solemn assembly. You shall do no regular work; 
-but you shall offer a burnt offering, an offering made by fire, a pleasant aroma to God: one bull, one ram, seven male lambs a year old without defect; 
-their meal offering and their drink offerings for the bull, for the ram, and for the lambs, shall be according to their number, after the ordinance, 
+"'On the eighth day you will have a solemn assembly. You will do no regular work; 
+but you will offer a burnt offering, an offering made by fire, a pleasant aroma to God: one bull, one ram, seven male lambs a year old without defect; 
+their meal offering and their drink offerings for the bull, for the ram, and for the lambs, will be according to their number, after the ordinance, 
 and one male goat for an offering for wrongdoing, in addition to the continual burnt offering, with its meal offering, and its drink offering. 
-"'You shall offer these to God in your set feasts, in addition to your vows and your free will offerings, for your burnt offerings, your meal offerings, your drink offerings, and your offerings for wholeness.'" 
+"'You will offer these to God in your set feasts, in addition to your vows and your free will offerings, for your burnt offerings, your meal offerings, your drink offerings, and your offerings for wholeness.'" 
 Moses told the children of Israel according to all that God commanded Moses. 

@@ -15,7 +15,7 @@ So I want younger widows to marry, to have children, to run their households, an
 Some have already turned away to follow the Adversary. 
 If anyone who trusts has widows in the family, they should help them, and not let the gathering be weighed down, so that it can help the widows who really are widows. 
 The elders who lead well should be counted worthy of double honor, especially those who work hard at speaking and teaching. 
-The Scripture says, "You shall not muzzle the ox while it treads out the grain," and, "The worker deserves his pay." 
+The Scripture says, "You won't muzzle the ox while it treads out the grain," and, "The worker deserves his pay." 
 Don't take up an accusation against an elder unless two or three witnesses bring it. 
 Show those who go on drifting their fault in front of everyone, so that the rest may be afraid too. 
 Before God and Christ Jesus and the chosen messengers, I command you to keep these things without prejudging anyone, and to do nothing out of favoritism. 

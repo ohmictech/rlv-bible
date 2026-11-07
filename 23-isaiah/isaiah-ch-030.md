@@ -2,7 +2,7 @@
 who set out to go down into Egypt without asking for my advice, to strengthen themselves in the strength of Pharaoh, and to take refuge in the shadow of Egypt! 
 So the strength of Pharaoh will be your shame, and the refuge in the shadow of Egypt your confusion. 
 Their princes are at Zoan, and their ambassadors have come to Hanes. 
-They shall all be ashamed because of a people that can't profit them, that aren't a help nor profit, but a shame, and also a reproach." 
+They will all be ashamed because of a people that can't profit them, that aren't a help nor profit, but a shame, and also a reproach." 
 The burden of the animals of the South. Through the land of trouble and anguish, of the lioness and the lion, the viper and fiery flying serpent, they carry their riches on the shoulders of young donkeys, and their treasures on the humps of camels, to an unprofitable people. 
 Egypt helps in vain, and to no purpose; I have called her Rahab who sits still. 
 Now go, write it before them on a tablet, and inscribe it in a book, that it may be for the time to come for all the eras. 
@@ -10,7 +10,7 @@ It's a rebellious people, lying children, children who won't hear God's law;
 who tell the seers, "Don't see!" and the spokesmen, "Don't prophesy to us right things. Tell us pleasant things. Prophesy deceits. 
 Get out of the way. Turn away from the path. Cause the Holy One of Israel to cease from before us." 
 So the Holy One of Israel says, "Because you despise this word, and trust in oppression and perverseness, and rely on it, 
-So this guilt shall be to you like a breach ready to fall, swelling out in a high wall, whose breaking comes suddenly in an instant. 
+So this guilt will be to you like a breach ready to fall, swelling out in a high wall, whose breaking comes suddenly in an instant. 
 He'll break it as a potter's vessel is broken, breaking it in pieces without sparing, so that there won't be found among the broken pieces a piece good enough to take fire from the hearth, or to dip up water out of the cistern." 
 Thus said God, the Holy One of Israel, "You'll be saved in returning and rest. Your strength will be in quietness and in confidence." You refused, 
 but you said, "No, for we'll flee on horses;" you'll flee; and, "We'll ride on the swift;" those who pursue you'll be swift. 
@@ -19,7 +19,7 @@ So God will wait, that he may be gracious to you; and so he'll be exalted, that 
 The people will dwell in Zion at Jerusalem. You'll weep no more. He'll surely be gracious to you at the voice of your cry. When he hears you, he'll answer you. 
 Though the Lord may give you the bread of adversity and the water of affliction, yet your teachers won't be hidden any more, but your eyes will see your teachers; 
 and when you turn to the right hand, and when you turn to the left, your ears will hear a voice behind you, saying, "This is the way. Walk in it." 
-You shall defile the overlaying of your engraved images of silver, and the plating of your molten images of gold. You shall cast them away as an unclean thing. You shall tell it, "Go away!" 
+You will defile the overlaying of your engraved images of silver, and the plating of your molten images of gold. You will cast them away as an unclean thing. You will tell it, "Go away!" 
 He'll give the rain for your seed, with which you'll sow the ground; and bread of the increase of the ground will be rich and plentiful. In that day, your livestock will feed in large pastures. 
 The oxen likewise and the young donkeys that till the ground will eat savory feed, which has been winnowed with the shovel and with the fork. 
 There will be brooks and streams of water on every lofty mountain and on every high hill in the day of the great slaughter, when the towers fall. 

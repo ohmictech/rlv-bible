@@ -7,7 +7,7 @@ So Jacob came to Luz (that's, Bethel), which is in the land of Canaan, he and ev
 He built an altar there, and called the place El Beth El; because there God was revealed to him, when he fled from the face of his brother. 
 Deborah, Rebekah's nurse, died, and she was buried below Bethel under the oak; and its name was called Allon Bacuth. 
 God appeared to Jacob again, when he came from Paddan Aram, and blessed him. 
-God said to him, "Your name is Jacob. Your name shall not be Jacob any more, but your name will be Israel." He named him Israel. 
+God said to him, "Your name is Jacob. Your name won't be Jacob any more, but your name will be Israel." He named him Israel. 
 God said to him, "I'm God Almighty. Be fruitful and multiply. A nation and a company of nations will be from you, and kings will come out of your body. 
 The land which I gave to Abraham and Isaac, I'll give it to you, and to your offspring after you I'll give the land." 
 God went up from him in the place where he spoke with him. 

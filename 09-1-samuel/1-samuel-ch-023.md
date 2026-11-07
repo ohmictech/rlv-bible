@@ -1,5 +1,5 @@
 ﻿David was told, "Look, the Philistines are fighting against Keilah, and are robbing the threshing floors." 
-So David inquired of God, saying, "Shall I go and strike these Philistines?" God said to David, "Go strike the Philistines, and save Keilah." 
+So David inquired of God, saying, "Will I go and strike these Philistines?" God said to David, "Go strike the Philistines, and save Keilah." 
 David's men said to him, "Look, we're afraid here in Judah. How much more then if we go to Keilah against the armies of the Philistines?" 
 Then David inquired of God yet again. God answered him, and said, "Arise, go down to Keilah; for I'll deliver the Philistines into your hand." 
 David and his men went to Keilah and fought with the Philistines, and brought away their livestock, and killed them with a great slaughter. So David saved the inhabitants of Keilah. 
@@ -20,7 +20,7 @@ Then the Ziphites came up to Saul to Gibeah, saying, "Doesn't David hide himself
 Now, O king, come down. According to all the desire of your soul to come down; and our part will be to deliver him up into the king's hand." 
 Saul said, "You're blessed by God, for you have had compassion on me. 
 Please go make yet more sure, and know and see his place where his haunt is, and who has seen him there; for I have been told that he's very cunning. 
-See, and take knowledge of all the lurking places where he hides himself; and come again to me with certainty, and I'll go with you. It shall happen, if he's in the land, that I'll search him out among all the thousands of Judah." 
+See, and take knowledge of all the lurking places where he hides himself; and come again to me with certainty, and I'll go with you. It will happen, if he's in the land, that I'll search him out among all the thousands of Judah." 
 They arose, and went to Ziph before Saul; but David and his men were in the wilderness of Maon, in the Arabah on the south of the desert. 
 Saul and his men went to seek him. When David was told, he went down to the rock, and stayed in the wilderness of Maon. When Saul heard that, he pursued David in the wilderness of Maon. 
 Saul went on this side of the mountain, and David and his men on that side of the mountain; and David hurried to get away for fear of Saul, for Saul and his men surrounded David and his men to take them. 

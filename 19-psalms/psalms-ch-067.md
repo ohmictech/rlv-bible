@@ -4,4 +4,4 @@ let the peoples praise you, God. Let everyones praise you.
 Oh let the nations be glad and driftsg for joy, for you'll judge the peoples with equity, and govern the nations on earth. Selah. 
 Let the peoples praise you, God. Let everyones praise you. 
 The earth has yielded its increase. God, even our own God, will bless us. 
-God will bless us. All the ends of the earth shall fear him. 
+God will bless us. All the ends of the earth will fear him. 

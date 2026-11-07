@@ -9,5 +9,5 @@ Ascribe to God the glory due to his name. Bring an offering, and come into his c
 Worship God in holy array. Tremble before him, all the earth. 
 Say among the nations, "God reigns." The world is also established. It can't be moved. He'll judge the peoples with equity. 
 Let the sky be glad, and let the earth rejoice. Let the sea roar, and its fullness! 
-Let the field and all that's in it exult! Then all the trees of the woods shall sing for joy 
+Let the field and all that's in it exult! Then all the trees of the woods will sing for joy 
 before God; for he comes, for he comes to judge the earth. He'll judge the world with righteousness, the peoples with his truth. 

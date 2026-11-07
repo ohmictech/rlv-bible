@@ -9,7 +9,7 @@ Who has planned this against Tyre, the giver of crowns, whose merchants are prin
 The God of Armies has planned it, to stain the pride of all glory, to bring into contempt all the honorable of the earth. 
 Pass through your land like the Nile, daughter of Tarshish. There's no restraint any more. 
 He has stretched out his hand over the sea. He has shaken the kingdoms. God has ordered the destruction of Canaan's strongholds. 
-He said, "You shall rejoice no more, you oppressed virgin daughter of Sidon. Arise, pass over to Kittim. Even there you'll have no rest." 
+He said, "You will rejoice no more, you oppressed virgin daughter of Sidon. Arise, pass over to Kittim. Even there you'll have no rest." 
 Look, the land of the Chaldeans. This people didn't exist. The Assyrians founded it for those who dwell in the wilderness. They set up their towers. They overthrew its palaces. They made it a ruin. 
 Howl, you ships of Tarshish, for your stronghold is laid waste! 
 It'll come to pass in that day that Tyre will be forgotten seventy years, according to the days of one king. After the end of seventy years it'll be to Tyre like in the song of the prostitute. 

@@ -50,10 +50,10 @@ of Jezer, the family of the Jezerites; of Shillem, the family of the Shillemites
 These are the families of Naphtali according to their families; and those who were counted of them were forty-five thousand four hundred. 
 These are those who were counted of the children of Israel, six hundred one thousand seven hundred thirty. 
 God spoke to Moses, saying, 
-"To these the land shall be divided for an inheritance according to the number of names. 
-To the more you shall give the more inheritance, and to the fewer you shall give the less inheritance. To everyone according to those who were counted of him shall his inheritance be given. 
-Notwithstanding, the land shall be divided by lot. According to the names of the tribes of their fathers they shall inherit. 
-According to the lot shall their inheritance be divided between the more and the fewer." 
+"To these the land will be divided for an inheritance according to the number of names. 
+To the more you will give the more inheritance, and to the fewer you will give the less inheritance. To everyone according to those who were counted of him will his inheritance be given. 
+Notwithstanding, the land will be divided by lot. According to the names of the tribes of their fathers they will inherit. 
+According to the lot will their inheritance be divided between the more and the fewer." 
 These are those who were counted of the Levites after their families: of Gershon, the family of the Gershonites; of Kohath, the family of the Kohathites; of Merari, the family of the Merarites. 
 These are the families of Levi: the family of the Libnites, the family of the Hebronites, the family of the Mahlites, the family of the Mushites, and the family of the Korahites. Kohath became the father of Amram. 
 The name of Amram's wife was Jochebed, the daughter of Levi, who was born to Levi in Egypt. She bore to Amram Aaron and Moses, and Miriam their sister. 
@@ -62,4 +62,4 @@ Nadab and Abihu died when they offered strange fire before God.
 Those who were counted of them were twenty-three thousand, every male from a month old and upward; for they weren't counted among the children of Israel, because there was no inheritance given them among the children of Israel. 
 These are those who were counted by Moses and Eleazar the priest, who counted the children of Israel in the plains of Moab by the Jordan at Jericho. 
 But among these there wasn't a man of them who were counted by Moses and Aaron the priest, who counted the children of Israel in the wilderness of Sinai. 
-God had said of them, "They shall surely die in the wilderness." There wasn't a man left of them, except Caleb the son of Jephunneh, and Joshua the son of Nun. 
+God had said of them, "They will surely die in the wilderness." There wasn't a man left of them, except Caleb the son of Jephunneh, and Joshua the son of Nun. 

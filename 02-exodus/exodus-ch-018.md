@@ -17,9 +17,9 @@ When they have a matter, they come to me, and I judge between a man and his neig
 Moses' father-in-law said to him, "The thing that you do isn't good. 
 You'll surely wear away, both you, and this people that's with you; for the thing is too heavy for you. You aren't able to perform it yourself alone. 
 Listen now to my voice. I'll give you counsel, and God be with you. You represent the people before God, and bring the causes to God. 
-You shall teach them the statutes and the laws, and shall show them the way in which they must walk, and the work that they must do. 
-Moreover you shall provide out of everyone able men which fear God: men of truth, hating unjust gain; and place such over them, to be rulers of thousands, rulers of hundreds, rulers of fifties, and rulers of tens. 
-Let them judge the people at all times. It shall be that every great matter they shall bring to you, but every small matter they shall judge themselves. So shall it be easier for you, and they shall share the load with you. 
+You will teach them the statutes and the laws, and will show them the way in which they must walk, and the work that they must do. 
+Moreover you will provide out of everyone able men which fear God: men of truth, hating unjust gain; and place such over them, to be rulers of thousands, rulers of hundreds, rulers of fifties, and rulers of tens. 
+Let them judge the people at all times. It will be that every great matter they will bring to you, but every small matter they will judge themselves. So will it be easier for you, and they will share the load with you. 
 If you'll do this thing, and God commands you so, then you'll be able to endure, and all these people also will go to their place in peace." 
 So Moses listened to the voice of his father-in-law, and did all that he had said. 
 Moses chose able men out of all Israel, and made them heads over the people, rulers of thousands, rulers of hundreds, rulers of fifties, and rulers of tens. 

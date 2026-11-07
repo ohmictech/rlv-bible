@@ -10,7 +10,7 @@ Then Abimelech called Abraham, and said to him, "What have you done to us? How h
 Abimelech said to Abraham, "What did you see, that you have done this thing?" 
 Abraham said, "Because I thought, 'Surely the fear of God isn't in this place. They'll kill me for my wife's sake.' 
 Besides, she's indeed my sister, the daughter of my father, but not the daughter of my mother; and she became my wife. 
-When God caused me to wander from my father's house, I said to her, 'This is your kindness which you shall show to me. Everywhere that we go, say of me, "He's my brother."'" 
+When God caused me to wander from my father's house, I said to her, 'This is your kindness which you will show to me. Everywhere that we go, say of me, "He's my brother."'" 
 Abimelech took sheep and cattle, male servants and female servants, and gave them to Abraham, and restored Sarah, his wife, to him. 
 Abimelech said, "Look, my land is before you. Dwell where it pleases you." 
 To Sarah he said, "Look, I have given your brother a thousand pieces of silver. Look, it's for you a covering of the eyes to all that are with you. In front of all you're vindicated." 

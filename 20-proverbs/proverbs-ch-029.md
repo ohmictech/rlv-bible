@@ -11,7 +11,7 @@ The bloodthirsty hate a man of integrity; and they seek the life of the upright.
 A fool vents all of his anger, but a wise man brings himself under control. 
 If a ruler listens to lies, all of his officials are guilty. 
 The poor man and the oppressor have this in common: God gives sight to the eyes of both. 
-The king who fairly judges the poor, his throne shall be established for the eras. 
+The king who fairly judges the poor, his throne will be established for the eras. 
 The rod of correction gives wisdom, but a child left to himself causes shame to his mother. 
 When the guilty increase, wrongdoing increases; but the righteous will see their downfall. 
 Correct your son, and he'll give you peace; yes, he'll bring delight to your soul. 

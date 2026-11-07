@@ -7,7 +7,7 @@ He cast stones at David and at all the servants of King David, and everyone and 
 Shimei said when he cursed, "Be gone, be gone, you man of blood, and guilty fellow! 
 God has returned on you all the blood of Saul's house, in whose place you have reigned! God has delivered the kingdom into the hand of Absalom your son! Look, you're caught by your own mischief, because you're a man of blood!" 
 Then Abishai the son of Zeruiah said to the king, "Why should this dead dog curse my lord the king? Please let me go over and take off his head." 
-The king said, "What have I to do with you, you sons of Zeruiah? Because he curses, and because God has said to him, 'Curse David,' who then shall say, 'Why have you done so?'" 
+The king said, "What have I to do with you, you sons of Zeruiah? Because he curses, and because God has said to him, 'Curse David,' who then will say, 'Why have you done so?'" 
 David said to Abishai and to all his servants, "Look, my son, who came out of my bowels, seeks my life. How much more this Benjamite, now? Leave him alone, and let him curse; for God has invited him. 
 It may be that God will look on the wrong done to me, and that God will repay me good for the cursing of me today." 
 So David and his men went by the way; and Shimei went along on the hillside opposite him and cursed as he went, threw stones at him, and threw dust. 
@@ -17,7 +17,7 @@ When Hushai the Archite, David's friend, had come to Absalom, Hushai said to Abs
 Absalom said to Hushai, "Is this your kindness to your friend? Why didn't you go with your friend?" 
 Hushai said to Absalom, "No; but whomever God and this people and all the men of Israel have chosen, I'll be his, and I'll stay with him. 
 Again, whom should I serve? Shouldn't I serve in the presence of his son? As I have served in your father's presence, so I'll be in your presence." 
-Then Absalom said to Ahithophel, "Give your counsel what we shall do." 
+Then Absalom said to Ahithophel, "Give your counsel what we will do." 
 Ahithophel said to Absalom, "Go in to your father's concubines that he has left to keep the house. Then all Israel will hear that you're abhorred by your father. Then the hands of everyone who's with you'll be strong." 
 So they spread a tent for Absalom on the top of the house, and Absalom went in to his father's concubines in the sight of all Israel. 
 The counsel of Ahithophel, which he gave in those days, was as if a man inquired at the inner sanctuary of God. All the counsel of Ahithophel was like this both with David and with Absalom. 

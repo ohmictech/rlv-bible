@@ -8,7 +8,7 @@ However, he doesn't mean so, neither does his heart think so; but it's in his he
 He says, "Aren't all of my princes kings? 
 Isn't Calno like Carchemish? Isn't Hamath like Arpad? Isn't Samaria like Damascus?" 
 As my hand has found the kingdoms of the idols, whose engraved images exceeded those of Jerusalem and of Samaria, 
-shall I not, as I have done to Samaria and her idols, so do to Jerusalem and her idols? 
+will I not, as I have done to Samaria and her idols, so do to Jerusalem and her idols? 
 So it'll happen that when the Lord has performed his whole work on Mount Zion and on Jerusalem, I'll punish the fruit of the willful proud heart of the king of Assyria, and the insolence of his arrogant looks. 
 He has said, "By the strength of my hand I have done it, and by my wisdom, for I have understanding. I have removed the boundaries of the peoples, and have robbed their treasures. Like a valiant man I have brought down their rulers. 
 My hand has found the riches of the peoples like a nest, and like one gathers eggs that are abandoned, I have gathered all the earth. There was no one who moved their wing, or that opened their mouth, or chirped." 
@@ -16,15 +16,15 @@ Should an ax brag against him who chops with it? Should a saw exalt itself above
 So the Lord, GOD of Armies, will send among his fat ones leanness; and under his glory a burning will be kindled like the burning of fire. 
 The light of Israel will be for a fire, and his Holy One for a flame; and it'll burn and devour his thorns and his briers in one day. 
 He'll consume the glory of his forest and of his fruitful field, both soul and body. It'll be as when a standard bearer faints. 
-The remnant of the trees of his forest shall be few, so that a child could write their number. 
-It'll come to pass in that day that the remnant of Israel, and those who have escaped from the house of Jacob will no more again lean on him who struck them, but shall lean on God, the Holy One of Israel, in truth. 
+The remnant of the trees of his forest will be few, so that a child could write their number. 
+It'll come to pass in that day that the remnant of Israel, and those who have escaped from the house of Jacob will no more again lean on him who struck them, but will lean on God, the Holy One of Israel, in truth. 
 A remnant will return, even the remnant of Jacob, to the mighty God. 
 Though your people, Israel, are like the sand of the sea, only a remnant of them will return. A destruction is determined, overflowing with righteousness. 
 The Lord, GOD of Armies, will make a full end, and that determined, throughout all the earth. 
 So the Lord, GOD of Armies, says, "My people who dwell in Zion, don't be afraid of the Assyrian, though he strike you with the rod, and lift up his staff against you, as Egypt did. 
 Yet a very little while, and the indignation against you'll be accomplished, and my anger will be directed to his destruction." 
 The God of Armies will stir up a scourge against him, as in the slaughter of Midian at the rock of Oreb. His rod will be over the sea, and he'll lift it up like he did against Egypt. 
-It'll happen in that day that his burden will depart from off your shoulder, and his yoke from off your neck, and the yoke shall be destroyed because of the anointing oil. 
+It'll happen in that day that his burden will depart from off your shoulder, and his yoke from off your neck, and the yoke will be destroyed because of the anointing oil. 
 He has come to Aiath. He has passed through Migron. At Michmash he stores his baggage. 
 They have gone over the pass. They have taken up their lodging at Geba. Ramah trembles. Gibeah of Saul has fled. 
 Cry aloud with your voice, daughter of Gallim! Listen, Laishah! You poor Anathoth! 

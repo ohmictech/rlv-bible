@@ -9,7 +9,7 @@ Poratha, Adalia, Aridatha,
 Parmashta, Arisai, Aridai, and Vaizatha, 
 the ten sons of Haman the son of Hammedatha, the Jews' enemy, but they didn't lay their hand on the plunder. 
 On that day, the number of those who were slain in the citadel of Susa was brought before the king. 
-The king said to Esther the queen, "The Jews have slain and destroyed five hundred men in the citadel of Susa, including the ten sons of Haman; what then have they done in the rest of the king's provinces! Now what's your petition? It shall be granted you. What's your further request? It shall be done." 
+The king said to Esther the queen, "The Jews have slain and destroyed five hundred men in the citadel of Susa, including the ten sons of Haman; what then have they done in the rest of the king's provinces! Now what's your petition? It will be granted you. What's your further request? It will be done." 
 Then Esther said, "If it pleases the king, let it be granted to the Jews who are in Susa to do tomorrow also according to today's decree, and let Haman's ten sons be hanged on the gallows." 
 The king commanded this to be done. A decree was given out in Susa; and they hanged Haman's ten sons. 
 The Jews who were in Susa gathered themselves together on the fourteenth day also of the month Adar, and killed three hundred men in Susa; but they didn't lay their hand on the plunder. 

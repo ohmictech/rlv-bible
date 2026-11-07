@@ -1,7 +1,7 @@
 ﻿Now Ahab had seventy sons in Samaria. Jehu wrote letters and sent them to Samaria, to the rulers of Jezreel, even the elders, and to those who brought up Ahab's sons, saying, 
 "Now as soon as this letter comes to you, since your master's sons are with you, and you have chariots and horses, a fortified city also, and armor, 
 select the best and fittest of your master's sons, set him on his father's throne, and fight for your master's house." 
-But they were exceedingly afraid, and said, "Look, the two kings didn't stand before him! How then shall we stand?" 
+But they were exceedingly afraid, and said, "Look, the two kings didn't stand before him! How then will we stand?" 
 He who was over the household, and he who was over the city, the elders also, and those who raised the children, sent to Jehu, saying, "We're your servants, and will do all that you ask us. We won't make any man king. You do that which is good in your eyes." 
 Then he wrote a letter the second time to them, saying, "If you're on my side, and if you'll listen to my voice, take the heads of the men who are your master's sons, and come to me to Jezreel by tomorrow this time." Now the king's sons, being seventy persons, were with the great men of the city, who brought them up. 
 When the letter came to them, they took the king's sons and killed them, even seventy people, and put their heads in baskets, and sent them to him to Jezreel. 
@@ -16,18 +16,18 @@ When he had departed from there, he met Jehonadab the son of Rechab coming to me
 He said, "Come with me, and see my passion for God." So they made him ride in his chariot. 
 When he came to Samaria, he struck everyone who remained to Ahab in Samaria, until he had destroyed them, according to God's word which he spoke to Elijah. 
 Jehu gathered everyone together, and said to them, "Ahab served Baal a little, but Jehu will serve him much. 
-Now call to me all the spokesmen of Baal, all of his worshipers, and all of his priests. Let no one be absent, for I have a great sacrifice to Baal. Whoever is absent, he shall not live." But Jehu did deceptively, intending to destroy the worshipers of Baal. 
+Now call to me all the spokesmen of Baal, all of his worshipers, and all of his priests. Let no one be absent, for I have a great sacrifice to Baal. Whoever is absent, he won't live." But Jehu did deceptively, intending to destroy the worshipers of Baal. 
 Jehu said, "Sanctify a solemn assembly for Baal!" So they proclaimed it. 
 Jehu sent through all Israel; and all the worshipers of Baal came, so that there wasn't a man left that didn't come. They came into the house of Baal; and the house of Baal was filled from one end to another. 
 He said to him who kept the wardrobe, "Bring out robes for all the worshipers of Baal!" So he brought robes out to them. 
 Jehu went with Jehonadab the son of Rechab into the house of Baal. Then he said to the worshipers of Baal, "Search, and see that none of the servants of God are here with you, but only the worshipers of Baal." 
-So they went in to offer sacrifices and burnt offerings. Now Jehu had appointed for himself eighty men outside, and said, "If any of the men whom I bring into your hands escape, he who lets him go, his life shall be for the life of him." 
+So they went in to offer sacrifices and burnt offerings. Now Jehu had appointed for himself eighty men outside, and said, "If any of the men whom I bring into your hands escape, he who lets him go, his life will be for the life of him." 
 As soon as he had finished offering the burnt offering, Jehu said to the guard and to the captains, "Go in and kill them! Let no one escape." So they struck them with the edge of the sword. The guard and the captains threw the bodies out, and went to the inner shrine of the house of Baal. 
 They brought out the pillars that were in the house of Baal and burned them. 
 They broke down the pillar of Baal, and broke down the house of Baal, and made it a latrine, to this day. 
 Thus Jehu destroyed Baal out of Israel. 
 However, Jehu didn't depart from the drifts of Jeroboam the son of Nebat, with which he made Israel to drift, the golden calves that were in Bethel and that were in Dan. 
-God said to Jehu, "Because you have done well in executing that which is right in my eyes, and have done to Ahab's house according to all that was in my heart, your descendants shall sit on the throne of Israel to the fourth generation." 
+God said to Jehu, "Because you have done well in executing that which is right in my eyes, and have done to Ahab's house according to all that was in my heart, your descendants will sit on the throne of Israel to the fourth generation." 
 But Jehu took no heed to walk in the law of the God of Israel, with all his heart. He didn't depart from the drifts of Jeroboam, with which he made Israel to drift. 
 In those days God began to cut away parts of Israel; and Hazael struck them in all the borders of Israel 
 from the Jordan eastward, all the land of Gilead, the Gadites, and the Reubenites, and the Manassites, from Aroer, which is by the valley of the Arnon, even Gilead and Bashan. 

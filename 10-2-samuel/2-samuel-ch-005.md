@@ -16,10 +16,10 @@ Ibhar, Elishua, Nepheg, Japhia,
 Elishama, Eliada, and Eliphelet. 
 When the Philistines heard that they had anointed David king over Israel, all the Philistines went up to seek David, but David heard about it and went down to the stronghold. 
 Now the Philistines had come and spread themselves in the valley of Rephaim. 
-David inquired of God, saying, "Shall I go up against the Philistines? Will you deliver them into my hand?" God said to David, "Go up; for I'll certainly deliver the Philistines into your hand." 
+David inquired of God, saying, "Will I go up against the Philistines? Will you deliver them into my hand?" God said to David, "Go up; for I'll certainly deliver the Philistines into your hand." 
 David came to Baal Perazim, and David struck them there. Then he said, "God has broken my enemies before me, like the breach of waters." Therefore he called the name of that place Baal Perazim. 
 They left their images there, and David and his men took them away. 
 The Philistines came up yet again and spread themselves in the valley of Rephaim. 
-When David inquired of God, he said, "You shall not go up. Circle around behind them, and attack them in front of the mulberry trees. 
+When David inquired of God, he said, "You won't go up. Circle around behind them, and attack them in front of the mulberry trees. 
 When you hear the sound of marching in the tops of the mulberry trees, then stir yourself up; for then God has gone out before you to strike the army of the Philistines." 
 David did so, as God commanded him, and struck the Philistines all the way from Geba to Gezer. 

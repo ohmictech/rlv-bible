@@ -2,10 +2,10 @@
 But Jehosheba, the daughter of King Joram, sister of Ahaziah, took Joash the son of Ahaziah, and stole him away from among the king's sons who were slain, even him and his nurse, and put them in the bedroom; and they hid him from Athaliah, so that he wasn't slain. 
 He was with her hidden in God's house six years while Athaliah reigned over the land. 
 In the seventh year Jehoiada sent and fetched the captains over hundreds of the Carites and of the guard, and brought them to him into God's house; and he made a covenant with them, and made a covenant with them in God's house, and showed them the king's son. 
-He commanded them, saying, "This is what you must do: a third of you, who come in on the Sabbath, shall be keepers of the watch of the king's house; 
-a third of you shall be at the gate Sur; and a third of you at the gate behind the guard. So you shall keep the watch of the house, and be a barrier. 
-The two companies of you, even everyone who goes out on the Sabbath, shall keep the watch of God's house around the king. 
-You shall surround the king, every man with his weapons in his hand; and he who comes within the ranks, let him be slain. Be with the king when he goes out, and when he comes in." 
+He commanded them, saying, "This is what you must do: a third of you, who come in on the Sabbath, will be keepers of the watch of the king's house; 
+a third of you will be at the gate Sur; and a third of you at the gate behind the guard. So you will keep the watch of the house, and be a barrier. 
+The two companies of you, even everyone who goes out on the Sabbath, will keep the watch of God's house around the king. 
+You will surround the king, every man with his weapons in his hand; and he who comes within the ranks, let him be slain. Be with the king when he goes out, and when he comes in." 
 The captains over hundreds did according to all that Jehoiada the priest commanded; and they each took his men, those who were to come in on the Sabbath with those who were to go out on the Sabbath, and came to Jehoiada the priest. 
 The priest delivered to the captains over hundreds the spears and shields that had been King David's, which were in God's house. 
 The guard stood, every man with his weapons in his hand, from the right side of the house to the left side of the house, along by the altar and the house, around the king. 

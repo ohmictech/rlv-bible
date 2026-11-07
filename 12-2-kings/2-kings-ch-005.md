@@ -5,9 +5,9 @@ Someone went in and told his lord, saying, "The girl who's from the land of Isra
 The king of Syria said, "Go now, and I'll send a letter to the king of Israel." He departed, and took with him ten talents of silver, six thousand pieces of gold, and ten changes of clothing. 
 He brought the letter to the king of Israel, saying, "Now when this letter has come to you, look, I have sent Naaman my servant to you, that you may heal him of his leprosy." 
 When the king of Israel had read the letter, he tore his clothes and said, "Am I God, to kill and to make alive, that this man sends to me to heal a man of his leprosy? But please consider and see how he seeks a quarrel against me." 
-It was so, when Elisha the man of God heard that the king of Israel had torn his clothes, that he sent to the king, saying, "Why have you torn your clothes? Let him come now to me, and he shall know that there's a spokesman in Israel." 
+It was so, when Elisha the man of God heard that the king of Israel had torn his clothes, that he sent to the king, saying, "Why have you torn your clothes? Let him come now to me, and he will know that there's a spokesman in Israel." 
 So Naaman came with his horses and with his chariots, and stood at the door of the house of Elisha. 
-Elisha sent a messenger to him, saying, "Go and wash in the Jordan seven times, and your flesh shall come again to you, and you shall be clean." 
+Elisha sent a messenger to him, saying, "Go and wash in the Jordan seven times, and your flesh will come again to you, and you will be clean." 
 But Naaman was angry, and went away and said, "Look, I thought, 'He'll surely come out to me, and stand, and call on the name of his God, and wave his hand over the place, and heal the leper.' 
 Aren't Abanah and Pharpar, the rivers of Damascus, better than all the waters of Israel? Couldn't I wash in them and be clean?" So he turned and went away in a rage. 
 His servants came near and spoke to him, and said, "My father, if the spokesman had asked you do some great thing, wouldn't you have done it? How much rather then, when he says to you, 'Wash, and be clean'?" 

@@ -18,7 +18,7 @@ You're the glory of their strength. In your favor, our horn will be exalted.
 Our shield belongs to God, our king to the Holy One of Israel. 
 Then you spoke in vision to your saints, and said, "I have given strength to the warrior. I have exalted a young man from the people. 
 I have found David, my servant. I have anointed him with my holy oil, 
-with whom my hand shall be established. My arm will also strengthen him. 
+with whom my hand will be established. My arm will also strengthen him. 
 No enemy will tax him. No guilty man will oppress him. 
 I'll beat down his adversaries before him, and strike those who hate him. 
 But my faithfulness and my loving kindness will be with him. In my name, his horn will be exalted. 
@@ -45,7 +45,7 @@ You have ended his splendor, and thrown his throne down to the ground.
 You have shortened the days of his youth. You have covered him with shame. Selah. 
 How long, God? Will you hide yourself for the eras? Will your wrath burn like fire? 
 Remember how short my time is, for what vanity you have created all the children of men! 
-What man is he who shall live and not see death, who shall deliver his soul from the power of Hades? Selah. 
+What man is he who will live and not see death, who will deliver his soul from the power of Hades? Selah. 
 Lord, where are your former loving kindnesses, which you swore to David in your faithfulness? 
 Remember, Lord, the reproach of your servants, how I bear in my heart the taunts of all the mighty peoples, 
 With which your enemies have mocked, God, with which they have mocked the footsteps of your anointed one. 

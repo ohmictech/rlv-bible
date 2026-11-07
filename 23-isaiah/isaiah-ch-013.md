@@ -15,7 +15,7 @@ It'll happen that like a hunted gazelle and like sheep that no one gathers, they
 Everyone who's found will be thrust through. Everyone who's captured will fall by the sword. 
 Their infants also will be dashed in pieces before their eyes. Their houses will be ransacked, and their wives raped. 
 Look, I'll stir up the Medes against them, who won't value silver, and as for gold, they won't delight in it. 
-Their bows will dash the young men in pieces; and they shall have no pity on the fruit of the womb. Their eyes won't spare children. 
+Their bows will dash the young men in pieces; and they will have no pity on the fruit of the womb. Their eyes won't spare children. 
 Babylon, the glory of kingdoms, the beauty of the Chaldeans' pride, will be like when God overthrew Sodom and Gomorrah. 
 It'll never be inhabited, neither will it be lived in from generation to generation. The Arabian won't pitch a tent there, neither will shepherds make their flocks lie down there. 
 But wild animals of the desert will lie there, and their houses will be full of jackals. Ostriches will dwell there, and wild goats will frolic there. 

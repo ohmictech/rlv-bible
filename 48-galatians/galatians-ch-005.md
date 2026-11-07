@@ -11,7 +11,7 @@ I have confidence toward you in the Lord that you'll think no other way. But who
 But I, brothers, if I still announce circumcision, why am I still hunted down? Then the trap of the cross would be gone. 
 I wish that those who disturb you'd cut themselves off. 
 You, brothers, were called for freedom. Only don't use your freedom as an opportunity for the flesh, but through love serve one another. 
-The whole law is fulfilled in one word, in this: "You shall love your neighbor as yourself." 
+The whole law is fulfilled in one word, in this: "You will love your neighbor as yourself." 
 But if you bite and devour one another, be careful that you don't consume one another. 
 But I say, walk by the Spirit, and you won't satisfy what the flesh craves. 
 The flesh craves what's against the Spirit, and the Spirit what's against the flesh; and these are opposed to one another, so that you may not do the things that you want. 

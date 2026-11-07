@@ -8,7 +8,7 @@ Now I have heard that you have shearers. Your shepherds have now been with us, a
 Ask your young men, and they'll tell you. So let the young men find favor in your eyes, for we come on a good day. Please give whatever comes to your hand to your servants and to your son David.'" 
 When David's young men came, they spoke to Nabal all those words in the name of David, and waited. 
 Nabal answered David's servants and said, "Who's David? Who's the son of Jesse? There are many servants who break away from their masters these days. 
-Shall I then take my bread, my water, and my meat that I have killed for my shearers, and give it to men who I don't know where they come from?" 
+Will I then take my bread, my water, and my meat that I have killed for my shearers, and give it to men who I don't know where they come from?" 
 So David's young men turned on their way and went back, and came and told him all these words. 
 David said to his men, "Every man put on his sword!" Every man put on his sword. David also put on his sword. About four hundred men followed David, and two hundred stayed by the baggage. 
 But one of the young men told Abigail, Nabal's wife, saying, "Look, David sent messengers out of the wilderness to greet our master; and he insulted them. 
@@ -28,7 +28,7 @@ Now this present which your servant has brought to my lord, let it be given to t
 Please forgive the trespass of your servant. God will certainly make my lord a sure house, because my lord fights God's battles. Bad won't be found in you all your days. 
 Though men may rise up to pursue you and to seek your soul, yet the soul of my lord will be bound in the bundle of life with your God. He'll sling out the souls of your enemies as from a sling's pocket. 
 It'll come to pass, when God has done to my lord according to all the good that he has spoken concerning you, and has appointed you prince over Israel, 
-that this shall be no grief to you, nor offense of heart to my lord, either that you have shed blood without cause, or that my lord has avenged himself. When God has dealt well with my lord, then remember your servant." 
+that this will be no grief to you, nor offense of heart to my lord, either that you have shed blood without cause, or that my lord has avenged himself. When God has dealt well with my lord, then remember your servant." 
 David said to Abigail, "Blessed is the God of Israel, who sent you today to meet me! 
 Blessed is your discretion, and blessed are you, who have kept me today from blood guiltiness, and from avenging myself with my own hand. 
 Indeed, as God the God of Israel lives, who has withheld me from harming you, unless you had hurried and come to meet me, surely there wouldn't have been left to Nabal by the morning light so much as one who urinates on a wall." 

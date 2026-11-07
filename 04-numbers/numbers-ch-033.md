@@ -49,8 +49,8 @@ They traveled from the mountains of Abarim, and encamped in the plains of Moab b
 They encamped by the Jordan, from Beth Jeshimoth even to Abel Shittim in the plains of Moab. 
 God spoke to Moses in the plains of Moab by the Jordan at Jericho, saying, 
 Speak to the children of Israel, and tell them, "When you pass over the Jordan into the land of Canaan, 
-then you shall drive out all the inhabitants of the land from before you, destroy all their stone idols, destroy all their molten images, and demolish all their high places. 
-You shall take possession of the land, and dwell therein; for I have given the land to you to possess it. 
-You shall inherit the land by lot according to your families; to the larger groups you shall give a larger inheritance, and to the smaller you shall give a smaller inheritance. Wherever the lot falls to any man, that shall be his. You shall inherit according to the tribes of your fathers. 
+then you will drive out all the inhabitants of the land from before you, destroy all their stone idols, destroy all their molten images, and demolish all their high places. 
+You will take possession of the land, and dwell therein; for I have given the land to you to possess it. 
+You will inherit the land by lot according to your families; to the larger groups you will give a larger inheritance, and to the smaller you will give a smaller inheritance. Wherever the lot falls to any man, that will be his. You will inherit according to the tribes of your fathers. 
 "But if you don't drive out the inhabitants of the land from before you, then those you let remain of them will be like pricks in your eyes and thorns in your sides. They'll harass you in the land in which you dwell. 
-It shall happen that as I thought to do to them, so I'll do to you." 
+It will happen that as I thought to do to them, so I'll do to you." 

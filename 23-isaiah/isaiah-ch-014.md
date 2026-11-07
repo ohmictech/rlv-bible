@@ -1,5 +1,5 @@
 ﻿God will have compassion on Jacob, and will yet choose Israel, and set them in their own land. The foreigner will join himself with them, and they'll unite with the house of Jacob. 
-The peoples will take them, and bring them to their place. The house of Israel will possess them in God's land for servants and for handmaids. They'll take as captives those whose captives they were; and they shall rule over their oppressors. 
+The peoples will take them, and bring them to their place. The house of Israel will possess them in God's land for servants and for handmaids. They'll take as captives those whose captives they were; and they will rule over their oppressors. 
 It'll happen in the day that God will give you rest from your sorrow, from your trouble, and from the hard service in which you were made to serve, 
 that you'll take up this parable against the king of Babylon, and say, "How the oppressor has ceased! The golden city has ceased!" 
 God has broken the staff of the guilty, the scepter of the rulers, 
@@ -12,7 +12,7 @@ Your pomp is brought down to Hades, with the sound of your stringed instruments.
 How you have fallen from the sky, shining one, son of the dawn! How you're cut down to the ground, who laid the nations low! 
 You said in your heart, "I'll ascend into the sky! I'll exalt my throne above the stars of God! I'll sit on the mountain of assembly, in the far north! 
 I'll ascend above the heights of the clouds! I'll make myself like the Most High!" 
-Yet you shall be brought down to Hades, to the depths of the pit. 
+Yet you will be brought down to Hades, to the depths of the pit. 
 Those who see you'll stare at you. They'll ponder you, saying, "Is this the man who made the earth to tremble, who shook kingdoms, 
 who made the world like a wilderness, and overthrew its cities, who didn't release his prisoners to their home?" 
 All the kings of the nations sleep in glory, everyone in his own house. 
@@ -21,7 +21,7 @@ You won't join them in burial, because you have destroyed your land. You have ki
 Prepare for slaughter of his children because of the guilt of their fathers, that they not rise up and possess the earth, and fill the surface of the world with cities. 
 "I'll rise up against them," says the God of Armies, "and cut off from Babylon name and remnant, and son and son's son," says God. 
 "I'll also make it a possession for the porcupine, and pools of water. I'll sweep it with the broom of destruction," says the God of Armies. 
-The God of Armies has sworn, saying, "Surely, as I have thought, so shall it happen; and as I have purposed, so shall it stand: 
+The God of Armies has sworn, saying, "Surely, as I have thought, so will it happen; and as I have purposed, so will it stand: 
 that I'll break the Assyrian in my land, and tread him under foot on my mountains. Then his yoke will leave them, and his burden leave their shoulders. 
 This is the plan that's determined for the whole earth. This is the hand that's stretched out over all the nations. 
 The God of Armies has planned, and who can stop it? His hand is stretched out, and who can turn it back?" 

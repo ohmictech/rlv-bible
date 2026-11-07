@@ -19,7 +19,7 @@ How often is it that they're as stubble before the wind, as chaff that the storm
 You say, 'God lays up his guilt for his children.' Let him recompense it to himself, that he may know it. 
 Let his own eyes see his destruction. Let him drink of the wrath of the Almighty. 
 What does he care for his house after him, when the number of his months is cut off? 
-"Shall any teach God knowledge, since he judges those who are high? 
+"Will any teach God knowledge, since he judges those who are high? 
 One dies in his full strength, being wholly at ease and quiet. 
 His pails are full of milk. The marrow of his bones is moistened. 
 Another dies in bitterness of soul, and never tastes of good. 

@@ -1,6 +1,6 @@
 ﻿"Look, the day comes, burning like a furnace, when all the proud and everyone who works guilt will be stubble. The day that comes will burn them up," says the God of Armies, "so that it'll leave them neither root nor branch. 
-But to you who fear my name shall the sun of righteousness arise with healing in its wings. You'll go out and leap like calves of the stall. 
-You shall tread down the guilty; for they'll be ashes under the soles of your feet in the day that I make," says the God of Armies. 
+But to you who fear my name will the sun of righteousness arise with healing in its wings. You'll go out and leap like calves of the stall. 
+You will tread down the guilty; for they'll be ashes under the soles of your feet in the day that I make," says the God of Armies. 
 "Remember the law of Moses my servant, which I commanded to him in Horeb for all Israel, even statutes and ordinances. 
 Look, I'll send you Elijah the spokesman before the great and terrible day of God comes. 
 He'll turn the hearts of the fathers to the children and the hearts of the children to their fathers, lest I come and strike the earth with a curse." 

@@ -8,7 +8,7 @@ As for everyone who was left of the Hittites, the Amorites, the Perizzites, the 
 of their children who were left after them in the land, whom the children of Israel didn't consume, of them Solomon conscripted forced labor to this day. 
 But of the children of Israel, Solomon made no servants for his work, but they were men of war, chief of his captains, and rulers of his chariots and of his horsemen. 
 These were the chief officers of King Solomon, even two-hundred fifty, who ruled over the people. 
-Solomon brought up Pharaoh's daughter out of David's city to the house that he had built for her; for he said, "My wife shall not dwell in the house of David king of Israel, because the places where God's ark has come are holy." 
+Solomon brought up Pharaoh's daughter out of David's city to the house that he had built for her; for he said, "My wife won't dwell in the house of David king of Israel, because the places where God's ark has come are holy." 
 Then Solomon offered burnt offerings to God on God's altar which he had built before the porch, 
 even as the duty of every day required, offering according to the commandment of Moses on the Sabbaths, on the new moons, and on the set feasts, three times per year, during the feast of unleavened bread, during the feast of weeks, and during the feast of booths. 
 He appointed, according to the ordinance of David his father, the divisions of the priests to their service, and the Levites to their offices, to praise and to minister before the priests, as the duty of every day required, the doorkeepers also by their divisions at every gate, for David the man of God had so commanded. 

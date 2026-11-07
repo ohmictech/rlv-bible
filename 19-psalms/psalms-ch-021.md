@@ -4,9 +4,9 @@ You meet him with the blessings of goodness. You set a crown of fine gold on his
 He asked life of you and you gave it to him, even length of days for all the eras. 
 His glory is great in your salvation. You lay honor and majesty on him. 
 You make him most blessed for the eras. You make him glad with joy in your presence. 
-The king trusts in God. Through the loving kindness of the Most High, he shall not be moved. 
+The king trusts in God. Through the loving kindness of the Most High, he won't be moved. 
 Your hand will find out all of your enemies. Your right hand will find out those who hate you. 
-You'll make them as a fiery furnace in the time of your anger. God will swallow them up in his wrath. The fire shall devour them. 
+You'll make them as a fiery furnace in the time of your anger. God will swallow them up in his wrath. The fire will devour them. 
 You'll destroy their descendants from the earth, their posterity from among the children of men. 
 They intended bad against you. They plotted bad against you which can't succeed. 
 You'll make them turn their back, when you aim drawn bows at their face. 

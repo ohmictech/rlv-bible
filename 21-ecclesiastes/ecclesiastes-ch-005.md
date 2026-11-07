@@ -7,14 +7,14 @@ Don't allow your mouth to lead you into wrongdoing. Don't protest before the mes
 In the multitude of dreams there are vanities, as well as in many words; but you must fear God. 
 If you see the oppression of the poor, and the violent taking away of justice and righteousness in a district, don't marvel at the matter, for one official is eyed by a higher one, and there are officials over them. 
 Moreover the profit of the earth is for all. The king profits from the field. 
-He who loves silver shall not be satisfied with silver, nor he who loves abundance, with increase. This also is vanity. 
+He who loves silver won't be satisfied with silver, nor he who loves abundance, with increase. This also is vanity. 
 When goods increase, those who eat them are increased; and what advantage is there to its owner, except to feast on them with his eyes? 
 The sleep of a laboring man is sweet, whether he eats little or much; but the abundance of the rich won't allow him to sleep. 
 There's a grievous bad which I have seen under the sun: wealth kept by its owner to his harm. 
 Those riches perish by misfortune, and if he has fathered a son, there's nothing in his hand. 
-As he came out of his mother's womb, naked shall he go again as he came, and shall take nothing for his labor, which he may carry away in his hand. 
-This also is a grievous bad, that in all points as he came, so shall he go. And what profit does he have who labors for the wind? 
+As he came out of his mother's womb, naked will he go again as he came, and will take nothing for his labor, which he may carry away in his hand. 
+This also is a grievous bad, that in all points as he came, so will he go. And what profit does he have who labors for the wind? 
 All his days he also eats in darkness, he's frustrated, and has sickness and wrath. 
 Look, that which I have seen to be good and proper is for one to eat and to drink, and to enjoy good in all his labor, in which he labors under the sun, all the days of his life which God has given him; for this is his portion. 
 Every man also to whom God has given riches and wealth, and has given him power to eat of it, and to take his portion, and to rejoice in his labor, this is the gift of God. 
-He shall not often reflect on the days of his life, because God occupies him with the joy of his heart. 
+He won't often reflect on the days of his life, because God occupies him with the joy of his heart. 

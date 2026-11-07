@@ -1,11 +1,11 @@
 ﻿The burden of Damascus. "Look, Damascus is taken away from being a city, and it'll be a ruinous heap. 
-The cities of Aroer are forsaken. They'll be for flocks, which shall lie down, and no one shall make them afraid. 
-The fortress shall cease from Ephraim, and the kingdom from Damascus, and the remnant of Syria. They'll be as the glory of the children of Israel," says the God of Armies. 
+The cities of Aroer are forsaken. They'll be for flocks, which will lie down, and no one will make them afraid. 
+The fortress will cease from Ephraim, and the kingdom from Damascus, and the remnant of Syria. They'll be as the glory of the children of Israel," says the God of Armies. 
 "It'll happen in that day that the glory of Jacob will be made thin, and the fatness of his flesh will become lean. 
 It'll be like when the harvester gathers the wheat, and his arm reaps the grain. Yes, it'll be like when one gleans grain in the valley of Rephaim. 
 Yet gleanings will be left there, like the shaking of an olive tree, two or three olives in the top of the uppermost bough, four or five in the outermost branches of a fruitful tree," says the God of Israel. 
 In that day, people will look to their Maker, and their eyes will have respect for the Holy One of Israel. 
-They won't look to the altars, the work of their hands; neither shall they respect that which their fingers have made, either the Asherah poles or the incense altars. 
+They won't look to the altars, the work of their hands; neither will they respect that which their fingers have made, either the Asherah poles or the incense altars. 
 In that day, their strong cities will be like the forsaken places in the woods and on the mountain top, which were forsaken from before the children of Israel; and it'll be a desolation. 
 You have forgotten the God of your salvation, and haven't remembered the rock of your strength. So you plant pleasant plants, and set out foreign seedlings. 
 In the day of your planting, you hedge it in. In the morning, you make your seed blossom, but the harvest flees away in the day of grief and of desperate sorrow. 

@@ -4,7 +4,7 @@ Now Joshua was clothed with filthy garments, and was standing before the messeng
 He answered and spoke to those who stood before him, saying, "Take the filthy garments off him." To him he said, "Look, I have caused your guilt to pass from you, and I'll clothe you with rich clothing." 
 I said, "Let them set a clean turban on his head." So they set a clean turban on his head, and clothed him; and God's messenger was standing by. 
 God's messenger solemnly assured Joshua, saying, 
-"The God of Armies says: 'If you'll walk in my ways, and if you'll follow my instructions, then you also shall judge my house, and shall also keep my courts, and I'll give you a place of access among these who stand by. 
+"The God of Armies says: 'If you'll walk in my ways, and if you'll follow my instructions, then you also will judge my house, and will also keep my courts, and I'll give you a place of access among these who stand by. 
 Hear now, Joshua the high priest, you and your fellows who sit before you, for they're men who are a sign; for, look, I'll bring out my servant, the Branch. 
 For, look, the stone that I have set before Joshua: on one stone are seven eyes; look, I'll engrave its inscription,' says the God of Armies, 'and I'll remove the guilt of that land in one day. 
 In that day,' says the God of Armies, 'you'll invite every man his neighbor under the vine and under the fig tree.'" 

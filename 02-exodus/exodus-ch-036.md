@@ -1,4 +1,4 @@
-﻿"Bezalel and Oholiab shall work with every wise-hearted man, in whom God has put wisdom and understanding to know how to do all the work for the service of the sanctuary, according to all that God has commanded." 
+﻿"Bezalel and Oholiab will work with every wise-hearted man, in whom God has put wisdom and understanding to know how to do all the work for the service of the sanctuary, according to all that God has commanded." 
 Moses called Bezalel and Oholiab, and every wise-hearted man, in whose heart God had put wisdom, even everyone whose heart stirred him up to come to the work to do it. 
 They received from Moses all the offering which the children of Israel had brought for the work of the service of the sanctuary, with which to make it. They kept bringing free will offerings to him every morning. 
 All the wise men, who performed all the work of the sanctuary, each came from his work which he did. 

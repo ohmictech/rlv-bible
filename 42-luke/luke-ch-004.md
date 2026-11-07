@@ -5,11 +5,11 @@ Jesus answered him, saying, "It's written, 'People don't live on bread alone, bu
 The Slanderer, leading him up on a high mountain, showed him all the realms of the world in a moment of time. 
 The Slanderer said to him, "I'll give you all this authority and their weight, for it has been handed over to me, and I give it to whomever I want. 
 If you'll worship before me, it'll all be yours." 
-Jesus answered him, "Get behind me, Adversary! It's written, 'You shall worship the Lord your God, and you shall serve him only.'" 
+Jesus answered him, "Get behind me, Adversary! It's written, 'You will worship the Lord your God, and you will serve him only.'" 
 He led him to Jerusalem and set him on the highest point of the temple, and said to him, "If you're the Son of God, throw yourself down from here, 
 for it's written, 'He'll put his messengers in charge of you, to guard you;' 
 and, 'On their hands they'll bear you up, lest perhaps you dash your foot against a stone.'" 
-Jesus answered him, "It has been said, 'You shall not test the Lord your God.'" 
+Jesus answered him, "It has been said, 'You won't test the Lord your God.'" 
 When the Slanderer had completed every testing, he departed from him until another time. 
 Jesus returned in the power of the Spirit into Galilee, and news about him spread through all the surrounding region. 
 He taught in their gathering places, being given honor by all. 

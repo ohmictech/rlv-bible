@@ -1,5 +1,5 @@
 ﻿Woe to Ariel! Ariel, the city where David encamped! Add year to year; let the feasts come around; 
-then I'll distress Ariel, and there will be mourning and lamentation. She shall be to me as an altar hearth. 
+then I'll distress Ariel, and there will be mourning and lamentation. She will be to me as an altar hearth. 
 I'll encamp against you all around you, and will lay siege against you with posted troops. I'll raise siege works against you. 
 You'll be brought down, and will speak out of the ground. Your speech will mumble out of the dust. Your voice will be as of one who has a familiar spirit, out of the ground, and your speech will whisper out of the dust. 
 But the multitude of your foes will be like fine dust, and the multitude of the ruthless ones like chaff that blows away. Yes, it'll be in an instant, suddenly. 
@@ -19,6 +19,6 @@ In that day, the deaf will hear the words of the book, and the eyes of the blind
 The humble also will increase their joy in God, and the poor among men will rejoice in the Holy One of Israel. 
 The ruthless is brought to nothing, and the scoffer ceases, and everyone who's alert to do bad things are cut off 
 who cause a person to be indicted by a word, and lay a snare for one who reproves in the gate, and who deprive the innocent of justice with false testimony. 
-So God, who bought back Abraham, says concerning the house of Jacob: "Jacob shall no longer be ashamed, neither shall his face grow pale. 
+So God, who bought back Abraham, says concerning the house of Jacob: "Jacob will no longer be ashamed, neither will his face grow pale. 
 But when he sees his children, the work of my hands, in the middle of him, they'll sanctify my name. Yes, they'll sanctify the Holy One of Jacob, and will stand in awe of the God of Israel. 
 They also who err in spirit will come to understanding, and those who grumble will receive instruction." 

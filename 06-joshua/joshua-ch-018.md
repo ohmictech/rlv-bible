@@ -1,9 +1,9 @@
 ﻿The whole congregation of the children of Israel assembled themselves together at Shiloh, and set up the Tent of Meeting there. The land was subdued before them. 
 Seven tribes remained among the children of Israel, which hadn't yet divided their inheritance. 
 Joshua said to the children of Israel, "How long will you neglect to go in to possess the land, which the God of your fathers has given you? 
-Appoint for yourselves three men from each tribe. I'll send them, and they shall arise, walk through the land, and describe it according to their inheritance; then they shall come to me. 
-They shall divide it into seven portions. Judah shall live in his borders on the south, and the house of Joseph shall live in their borders on the north. 
-You shall survey the land into seven parts, and bring the description here to me; and I'll cast lots for you here before our God. 
+Appoint for yourselves three men from each tribe. I'll send them, and they will arise, walk through the land, and describe it according to their inheritance; then they will come to me. 
+They will divide it into seven portions. Judah will live in his borders on the south, and the house of Joseph will live in their borders on the north. 
+You will survey the land into seven parts, and bring the description here to me; and I'll cast lots for you here before our God. 
 However, the Levites have no portion among you; for the priesthood of God is their inheritance. Gad, Reuben, and the half-tribe of Manasseh have received their inheritance east of the Jordan, which Moses the servant of God gave them." 
 The men arose and went. Joshua commanded those who went to survey the land, saying, "Go walk through the land, survey it, and come again to me. I'll cast lots for you here before God in Shiloh." 
 The men went and passed through the land, and surveyed it by cities into seven portions in a book. They came to Joshua to the camp at Shiloh. 

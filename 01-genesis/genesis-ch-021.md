@@ -20,14 +20,14 @@ God opened her eyes, and she saw a well of water. She went, filled the container
 God was with the boy, and he grew. He lived in the wilderness, and as he grew up, he became an archer. 
 He lived in the wilderness of Paran. His mother got a wife for him out of the land of Egypt. 
 At that time, Abimelech and Phicol the captain of his army spoke to Abraham, saying, "God is with you in all that you do. 
-Now, swear to me here by God that you won't deal falsely with me, nor with my son, nor with my son's son. But according to the kindness that I have done to you, you shall do to me, and to the land in which you have lived as a foreigner." 
+Now, swear to me here by God that you won't deal falsely with me, nor with my son, nor with my son's son. But according to the kindness that I have done to you, you will do to me, and to the land in which you have lived as a foreigner." 
 Abraham said, "I'll swear." 
 Abraham complained to Abimelech because of a water well, which Abimelech's servants had violently taken away. 
 Abimelech said, "I don't know who has done this thing. You didn't tell me, and I didn't hear of it until today." 
 Abraham took sheep and cattle, and gave them to Abimelech. Those two made a covenant. 
 Abraham set seven ewe lambs of the flock by themselves. 
 Abimelech said to Abraham, "What do these seven ewe lambs, which you have set by themselves, mean?" 
-He said, "You shall take these seven ewe lambs from my hand, that it may be a witness to me, that I have dug this well." 
+He said, "You will take these seven ewe lambs from my hand, that it may be a witness to me, that I have dug this well." 
 So he called that place Beersheba, because they both swore an oath there. 
 So they made a covenant at Beersheba. Abimelech rose up with Phicol, the captain of his army, and they returned into the land of the Philistines. 
 Abraham planted a tamarisk tree in Beersheba, and there he called on the name of the God of the eras. 

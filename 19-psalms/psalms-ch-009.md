@@ -14,7 +14,7 @@ Have mercy on me, God. See my affliction by those who hate me, and lift me up fr
 that I may show all of your praise. I'll rejoice in your salvation in the gates of the daughter of Zion. 
 The nations have sunk down in the pit that they made. In the net which they hid, their own foot is taken. 
 God has made himself known. He has executed judgment. The guilty is snared by the work of his own hands. Meditation. Selah. 
-The guilty shall be turned back to Hades, even all the nations that forget God. 
-The needy shall not always be forgotten, nor the hope of the poor perish for the eras. 
+The guilty will be turned back to Hades, even all the nations that forget God. 
+The needy won't always be forgotten, nor the hope of the poor perish for the eras. 
 Arise, God! Don't let man prevail. Let the nations be judged in your sight. 
 Put them in fear, God. Let the nations know that they're only men. Selah. 

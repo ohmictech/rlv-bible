@@ -28,7 +28,7 @@ So I haven't wronged you, but you do me wrong to war against me. May God the Jud
 However, the king of the children of Ammon didn't listen to the words of Jephthah which he sent him. 
 Then God's Spirit came on Jephthah, and he passed over Gilead and Manasseh, and passed over Mizpah of Gilead, and from Mizpah of Gilead he passed over to the children of Ammon. 
 Jephthah vowed a vow to God, and said, "If you'll indeed deliver the children of Ammon into my hand, 
-then it shall be, that whatever comes out of the doors of my house to meet me when I return in peace from the children of Ammon, it shall be God's, and I'll offer it up for a burnt offering." 
+then it will be, that whatever comes out of the doors of my house to meet me when I return in peace from the children of Ammon, it will be God's, and I'll offer it up for a burnt offering." 
 So Jephthah passed over to the children of Ammon to fight against them; and God delivered them into his hand. 
 He struck them from Aroer until you come to Minnith, even twenty cities, and to Abelcheramim, with a very great slaughter. So the children of Ammon were subdued before the children of Israel. 
 Jephthah came to Mizpah to his house; and look, his daughter came out to meet him with tambourines and with dances. She was his only child. Besides her he had neither son nor daughter. 

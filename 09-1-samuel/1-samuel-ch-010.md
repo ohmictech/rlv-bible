@@ -1,7 +1,7 @@
 ﻿Then Samuel took the vial of oil and poured it on his head, then kissed him and said, "Hasn't God anointed you to be prince over his inheritance? 
-When you have departed from me today, then you'll find two men by Rachel's tomb, on the border of Benjamin at Zelzah. They'll tell you, 'The donkeys which you went to look for have been found; and look, your father has stopped caring about the donkeys and is anxious for you, saying, "What shall I do for my son?"' 
+When you have departed from me today, then you'll find two men by Rachel's tomb, on the border of Benjamin at Zelzah. They'll tell you, 'The donkeys which you went to look for have been found; and look, your father has stopped caring about the donkeys and is anxious for you, saying, "What will I do for my son?"' 
 "Then you'll go on forward from there, and you'll come to the oak of Tabor. Three men will meet you there going up to God to Bethel: one carrying three young goats, and another carrying three loaves of bread, and another carrying a container of wine. 
-They'll greet you and give you two loaves of bread, which you shall receive from their hand. 
+They'll greet you and give you two loaves of bread, which you will receive from their hand. 
 "After that you'll come to the hill of God, where the garrison of the Philistines is; and it'll happen, when you have come there to the city, that you'll meet a band of spokesmen coming down from the high place with a lute, a tambourine, a pipe, and a harp before them; and they'll be prophesying. 
 Then God's Spirit will come mightily on you, then you'll prophesy with them and will be turned into another man. 
 Let it be, when these signs have come to you, that you do what's appropriate for the occasion; for God is with you. 

@@ -12,7 +12,7 @@ The princes of Zoan are utterly foolish. The counsel of the wisest counselors of
 Where then are your wise men? Let them tell you now; and let them know what the God of Armies has purposed concerning Egypt. 
 The princes of Zoan have become fools. The princes of Memphis are deceived. They have caused Egypt to go astray, those who are the cornerstone of her tribes. 
 God has mixed a spirit of perverseness in the middle of her; and they have caused Egypt to go astray in all of its works, like a drunken man staggers in his vomit. 
-Neither shall there be any work for Egypt, which head or tail, palm branch or rush, may do. 
+Neither will there be any work for Egypt, which head or tail, palm branch or rush, may do. 
 In that day the Egyptians will be like women. They'll tremble and fear because of the shaking of the God of Armies's hand, which he shakes over them. 
 The land of Judah will become a terror to Egypt. Everyone to whom mention is made of it'll be afraid, because of the plans of the God of Armies, which he determines against it. 
 In that day, there will be five cities in the land of Egypt that speak the language of Canaan, and swear to the God of Armies. One will be called "The city of destruction." 
@@ -20,6 +20,6 @@ In that day, there will be an altar to God in the middle of the land of Egypt, a
 It'll be for a sign and for a witness to the God of Armies in the land of Egypt; for they'll cry to God because of oppressors, and he'll send them a savior and a defender, and he'll deliver them. 
 God will be known to Egypt, and the Egyptians will know God in that day. Yes, they'll worship with sacrifice and offering, and will vow a vow to God, and will perform it. 
 God will strike Egypt, striking and healing. They'll return to God, and he'll be entreated by them, and will heal them. 
-In that day there will be a highway out of Egypt to Assyria, and the Assyrian shall come into Egypt, and the Egyptian into Assyria; and the Egyptians will worship with the Assyrians. 
+In that day there will be a highway out of Egypt to Assyria, and the Assyrian will come into Egypt, and the Egyptian into Assyria; and the Egyptians will worship with the Assyrians. 
 In that day, Israel will be the third with Egypt and with Assyria, a blessing within the earth; 
 because the God of Armies has blessed them, saying, "Blessed be Egypt my people, Assyria the work of my hands, and Israel my inheritance." 

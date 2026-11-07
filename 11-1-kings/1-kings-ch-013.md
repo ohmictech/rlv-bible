@@ -6,7 +6,7 @@ The altar was also split apart, and the ashes poured out from the altar, accordi
 The king answered the man of God, "Now intercede for the favor of your God, and pray for me, that my hand may be restored to me." The man of God interceded with God, and the king's hand was restored to him, and became as it was before. 
 The king said to the man of God, "Come home with me and refresh yourself, and I'll give you a reward." 
 The man of God said to the king, "Even if you gave me half of your house, I wouldn't go in with you, neither would I eat bread nor drink water in this place; 
-for so was it commanded me by God's word, saying, 'You shall eat no bread, drink no water, and don't return by the way that you came.'" 
+for so was it commanded me by God's word, saying, 'You will eat no bread, drink no water, and don't return by the way that you came.'" 
 So he went another way, and didn't return by the way that he came to Bethel. 
 Now an old spokesman lived in Bethel, and one of his sons came and told him all the works that the man of God had done that day in Bethel. They also told their father the words which he had spoken to the king. 
 Their father said to them, "Which way did he go?" Now his sons had seen which way the man of God went, who came from Judah. 
@@ -14,7 +14,7 @@ He said to his sons, "Saddle the donkey for me." So they saddled the donkey for 
 He went after the man of God, and found him sitting under an oak. He said to him, "Are you the man of God who came from Judah?" He said, "I'm." 
 Then he said to him, "Come home with me and eat bread." 
 He said, "I may not return with you, nor go in with you. I won't eat bread or drink water with you in this place. 
-It was said to me by God's word, 'You shall eat no bread or drink water there, and don't turn again to go by the way that you came.'" 
+It was said to me by God's word, 'You will eat no bread or drink water there, and don't turn again to go by the way that you came.'" 
 He said to him, "I also am a spokesman as you're; and an messenger spoke to me by God's word, saying, 'Bring him back with you into your house, that he may eat bread and drink water.'" He lied to him. 
 So he went back with him, ate bread in his house, and drank water. 
 As they sat at the table, God's word came to the spokesman who brought him back; 

@@ -1,9 +1,9 @@
 ﻿All the congregation of the children of Israel traveled from the wilderness of Sin, starting according to God's commandment, and encamped in Rephidim; but there was no water for the people to drink. 
 So the people quarreled with Moses, and said, "Give us water to drink." Moses said to them, "Why do you quarrel with me? Why do you test God?" 
 The people were thirsty for water there; so the people murmured against Moses, and said, "Why have you brought us up out of Egypt, to kill us, our children, and our livestock with thirst?" 
-Moses cried to God, saying, "What shall I do with these people? They're almost ready to stone me." 
+Moses cried to God, saying, "What will I do with these people? They're almost ready to stone me." 
 God said to Moses, "Walk on before the people, and take the elders of Israel with you, and take the rod in your hand with which you struck the Nile, and go. 
-Look, I'll stand before you there on the rock in Horeb. You shall strike the rock, and water will come out of it, that the people may drink." Moses did so in the sight of the elders of Israel. 
+Look, I'll stand before you there on the rock in Horeb. You will strike the rock, and water will come out of it, that the people may drink." Moses did so in the sight of the elders of Israel. 
 He called the name of the place Massah, and Meribah, because the children of Israel quarreled, and because they tested God, saying, "Is God among us, or not?" 
 Then Amalek came and fought with Israel in Rephidim. 
 Moses said to Joshua, "Choose men for us, and go out to fight with Amalek. Tomorrow I'll stand on the top of the hill with God's rod in my hand." 

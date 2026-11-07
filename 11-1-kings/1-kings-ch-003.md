@@ -23,6 +23,6 @@ The other woman said, "No! But the living one is my son, and the dead one is you
 Then the king said, "One says, 'This is my son who lives, and your son is the dead one;' and the other says, 'No! But your son is the dead one, and my son is the living one.'" 
 The king said, "Get me a sword." So they brought a sword before the king. 
 The king said, "Divide the living child in two, and give half to the one, and half to the other." 
-Then the woman whose the living child was spoke to the king, for her heart yearned over her son, and she said, "Oh, my lord, give her the living child, and in no way kill him!" But the other said, "He shall be neither mine nor yours. Divide him." 
+Then the woman whose the living child was spoke to the king, for her heart yearned over her son, and she said, "Oh, my lord, give her the living child, and in no way kill him!" But the other said, "He will be neither mine nor yours. Divide him." 
 Then the king answered, "Give the first woman the living child, and definitely don't kill him. She's his mother." 
 All Israel heard of the judgment which the king had judged; and they feared the king, for they saw that the wisdom of God was in him to do justice. 

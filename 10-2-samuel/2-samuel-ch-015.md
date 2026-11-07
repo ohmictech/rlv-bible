@@ -5,9 +5,9 @@ Absalom said moreover, "Oh that I were made judge in the land, that every man wh
 It was so, that when any man came near to bow down to him, he stretched out his hand, took hold of him, and kissed him. 
 Absalom did this sort of thing to all Israel who came to the king for judgment. So Absalom stole the hearts of the men of Israel. 
 At the end of forty years, Absalom said to the king, "Please let me go and pay my vow, which I have vowed to God, in Hebron. 
-Your servant vowed a vow while I stayed at Geshur in Syria, saying, 'If God shall indeed bring me again to Jerusalem, then I'll serve God.'" 
+Your servant vowed a vow while I stayed at Geshur in Syria, saying, 'If God will indeed bring me again to Jerusalem, then I'll serve God.'" 
 The king said to him, "Go in peace." So he arose and went to Hebron. 
-But Absalom sent spies throughout all the tribes of Israel, saying, "As soon as you hear the sound of the trumpet, then you shall say, 'Absalom is king in Hebron!'" 
+But Absalom sent spies throughout all the tribes of Israel, saying, "As soon as you hear the sound of the trumpet, then you will say, 'Absalom is king in Hebron!'" 
 Two hundred men went with Absalom out of Jerusalem, who were invited, and went in their simplicity; and they didn't know anything. 
 Absalom sent for Ahithophel the Gilonite, David's counselor, from his city, even from Giloh, while he was offering the sacrifices. The conspiracy was strong, for the people increased continually with Absalom. 
 A messenger came to David, saying, "The hearts of the men of Israel are after Absalom." 
@@ -33,5 +33,5 @@ When David had come to the top, where God was worshiped, look, Hushai the Archit
 David said to him, "If you pass on with me, then you'll be a burden to me; 
 but if you return to the city, and tell Absalom, 'I'll be your servant, O king. As I have been your father's servant in time past, so I'll now be your servant; then you'll defeat for me the counsel of Ahithophel.' 
 Don't you have Zadok and Abiathar the priests there with you? So whatever you hear out of the king's house, tell it to Zadok and Abiathar the priests. 
-Look, they have there with them their two sons, Ahimaaz, Zadok's son, and Jonathan, Abiathar's son. Send to me everything that you shall hear by them." 
+Look, they have there with them their two sons, Ahimaaz, Zadok's son, and Jonathan, Abiathar's son. Send to me everything that you will hear by them." 
 So Hushai, David's friend, came into the city; and Absalom came into Jerusalem. 

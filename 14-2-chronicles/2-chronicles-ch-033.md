@@ -1,7 +1,7 @@
 ﻿Manasseh was twelve years old when he began to reign, and he reigned fifty-five years in Jerusalem. 
 He did that which was bad in God's sight, after the abominations of the nations whom God cast out before the children of Israel. 
 He built again the high places which Hezekiah his father had broken down; and he raised up altars for the Baals, made Asheroth, and worshiped all the army of the sky, and served them. 
-He built altars in God's house, of which God said, "My name shall be in Jerusalem for the eras." 
+He built altars in God's house, of which God said, "My name will be in Jerusalem for the eras." 
 He built altars for all the army of the sky in the two courts of God's house. 
 He also made his children to pass through the fire in the valley of the son of Hinnom. He practiced sorcery, divination, and witchcraft, and dealt with those who had familiar spirits and with wizards. He did much bad in God's sight, to provoke him to anger. 
 He set the engraved image of the idol, which he had made, in God's house, of which God said to David and to Solomon his son, "In this house, and in Jerusalem, which I have chosen out of all the tribes of Israel, I'll put my name for the eras. 

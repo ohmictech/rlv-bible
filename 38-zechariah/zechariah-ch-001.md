@@ -13,7 +13,7 @@ Then God's messenger replied, "O God of Armies, how long will you not have mercy
 God answered the messenger who talked with me with kind and comforting words. 
 So the messenger who talked with me said to me, "Proclaim, saying, 'The God of Armies says: "I'm jealous for Jerusalem and for Zion with a great jealousy. 
 I'm very angry with the nations that are at ease; for I was but a little displeased, but they added to the calamity." 
-So God says: "I have returned to Jerusalem with mercy. My house shall be built in it," says the God of Armies, "and a line shall be stretched out over Jerusalem."' 
+So God says: "I have returned to Jerusalem with mercy. My house will be built in it," says the God of Armies, "and a line will be stretched out over Jerusalem."' 
 "Proclaim further, saying, 'The God of Armies says: "My cities will again overflow with prosperity, and God will again comfort Zion, and will again choose Jerusalem."'" 
 I lifted up my eyes and saw, and look, four horns. 
 I asked the messenger who talked with me, "What are these?" He answered me, "These are the horns which have scattered Judah, Israel, and Jerusalem." 

@@ -28,7 +28,7 @@ Laban said to him, "If now I have found favor in your eyes, stay here, for I hav
 He said, "Appoint me your wages, and I'll give it." 
 Jacob said to him, "You know how I have served you, and how your livestock have fared with me. 
 It was little which you had before I came, and it has increased to a multitude. God has blessed you wherever I turned. Now when will I provide for my own house also?" 
-Laban said, "What shall I give you?" Jacob said, "You shall not give me anything. If you'll do this thing for me, I'll again feed your flock and keep it. 
+Laban said, "What will I give you?" Jacob said, "You won't give me anything. If you'll do this thing for me, I'll again feed your flock and keep it. 
 I'll pass through all your flock today, removing from there every speckled and spotted one, and every black one among the sheep, and the spotted and speckled among the goats. This will be my hire. 
 So my righteousness will answer for me hereafter, when you come concerning my hire that's before you. Every one that isn't speckled and spotted among the goats, and black among the sheep, that might be with me, will be considered stolen." 
 Laban said, "Look, let it be according to your word." 

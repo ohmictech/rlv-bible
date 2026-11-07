@@ -30,7 +30,7 @@ When he gives quietness, who then can condemn? When he hides his face, who then 
 that the godless man may not reign, that there be no one to ensnare the people. 
 "Has any said to God, 'I'm guilty, but I won't offend any more. 
 Teach me that which I don't see. If I have done guilt, I'll do it no more'? 
-Shall his recompense be as you desire, that you refuse it? You must choose, and not I. So speak what you know. 
+Will his recompense be as you desire, that you refuse it? You must choose, and not I. So speak what you know. 
 Men of understanding will tell me, yes, every wise man who hears me: 
 'Job speaks without knowledge. His words are without wisdom.' 
 I wish that Job were tried to the end, because of his answering like guilty men. 

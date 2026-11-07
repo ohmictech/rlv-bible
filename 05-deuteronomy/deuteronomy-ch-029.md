@@ -16,7 +16,7 @@ but with those who stand here with us today before our God, and also with those 
 (for you know how we lived in the land of Egypt, and how we came through the middle of the nations through which you passed; 
 and you have seen their abominations and their idols of wood, stone, silver, and gold, which were among them); 
 lest there should be among you man, woman, family, or tribe whose heart turns away today from our God, to go to serve the gods of those nations; lest there should be among you a root that produces bitter poison; 
-and it happen, when he hears the words of this curse, that he bless himself in his heart, saying, "I shall have peace, though I walk in the stubbornness of my heart," to destroy the moist with the dry. 
+and it happen, when he hears the words of this curse, that he bless himself in his heart, saying, "I will have peace, though I walk in the stubbornness of my heart," to destroy the moist with the dry. 
 God won't pardon him, but then God's anger and his jealousy will smoke against that man, and all the curse that's written in this book will fall on him, and God will blot out his name from under the sky. 
 God will set him apart for bad out of all the tribes of Israel, according to all the curses of the covenant written in this book of the law. 
 The generation to come, your children who will rise up after you, and the foreigner who will come from a far land, will say, when they see the plagues of that land, and the sicknesses with which God has made it sick, 

@@ -20,4 +20,4 @@ God, who's enthroned for the eras, will hear and answer them. Selah. They never 
 He raises his hands against his friends. He has violated his covenant. 
 His mouth was smooth as butter, but his heart was war. His words were softer than oil, yet they were drawn swords. 
 Cast your burden on God and he'll sustain you. He'll never allow the righteous to be moved. 
-But you, God, will bring them down into the pit of destruction. Bloodthirsty and deceitful men shall not live out half their days, but I'll trust in you. 
+But you, God, will bring them down into the pit of destruction. Bloodthirsty and deceitful men won't live out half their days, but I'll trust in you. 

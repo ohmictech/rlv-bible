@@ -11,7 +11,7 @@ The mountains may depart, and the hills be removed, but my loving kindness won't
 "You afflicted, tossed with storms, and not comforted, look, I'll set your stones in beautiful colors, and lay your foundations with sapphires. 
 I'll make your pinnacles of rubies, your gates of sparkling jewels, and all your walls of precious stones. 
 All your children will be taught by God, and your children's peace will be great. 
-You'll be established in righteousness. You'll be far from oppression, for you won't be afraid, and far from terror, for it shall not come near you. 
+You'll be established in righteousness. You'll be far from oppression, for you won't be afraid, and far from terror, for it won't come near you. 
 Look, they may gather together, but not by me. Whoever gathers together against you'll fall because of you. 
 "Look, I have created the blacksmith who fans the coals into flame, and forges a weapon for his work; and I have created the destroyer to destroy. 
 No weapon that's formed against you'll prevail; and you'll condemn every tongue that rises against you in judgment. This is the heritage of God's servants, and their righteousness is of me," says God. 

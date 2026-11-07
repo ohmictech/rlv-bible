@@ -29,4 +29,4 @@ You'll know that I'm among Israel, and that I'm God, your God, and there's no on
 And also on the servants and on the handmaids in those days, I'll pour out my Spirit. 
 I'll show wonders in the sky and on the earth: blood, fire, and pillars of smoke. 
 The sun will be turned into darkness, and the moon into blood, before the great and terrible day of God comes. 
-It'll happen that whoever will call on God's name shall be saved; for in Mount Zion and in Jerusalem there will be those who escape, as God has said, and among the remnant, those whom God calls. 
+It'll happen that whoever will call on God's name will be saved; for in Mount Zion and in Jerusalem there will be those who escape, as God has said, and among the remnant, those whom God calls. 

@@ -13,4 +13,4 @@ then all the Jews returned out of all places where they were driven, and came to
 Moreover Johanan the son of Kareah, and all the captains of the forces who were in the fields, came to Gedaliah to Mizpah, 
 and said to him, "Do you know that Baalis the king of the children of Ammon has sent Ishmael the son of Nethaniah to take your life?" But Gedaliah the son of Ahikam didn't believe them. 
 Then Johanan the son of Kareah spoke to Gedaliah in Mizpah secretly, saying, "Please let me go, and I'll kill Ishmael the son of Nethaniah, and no man will know it. Why should he take your life, that all the Jews who are gathered to you should be scattered, and the remnant of Judah perish?" 
-But Gedaliah the son of Ahikam said to Johanan the son of Kareah, "You shall not do this thing, for you speak falsely of Ishmael." 
+But Gedaliah the son of Ahikam said to Johanan the son of Kareah, "You won't do this thing, for you speak falsely of Ishmael." 

@@ -2,7 +2,7 @@
 He has founded it on the seas, and established it on the floods. 
 Who may ascend to God's hill? Who may stand in his holy place? 
 He who has clean hands and a pure heart; who hasn't lifted up his soul to falsehood, and hasn't sworn deceitfully. 
-He shall receive a blessing from God, righteousness from the God of his salvation. 
+He will receive a blessing from God, righteousness from the God of his salvation. 
 This is the generation of those who seek Him, who seek your face, even Jacob. Selah. 
 Lift up your heads, you gates! Be lifted up, you perpetual doors, and the King of glory will come in. 
 Who's the King of glory? God strong and mighty, God mighty in battle. 

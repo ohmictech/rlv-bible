@@ -27,8 +27,8 @@ But about the dead, that they're raised, haven't you read in the book of Moses, 
 He isn't the God of dead bodies, but of the living. You're badly mistaken." 
 One of the Bible teachers came and heard them arguing, and knowing that he had answered them well, asked him, "Which commandment is the greatest of all?" 
 Jesus answered, "The greatest is: 'Hear, Israel, the Lord our God, the Lord is one. 
-You shall love the Lord your God with all your heart, with all your life, with all your mind, and with all your strength.' This is the first commandment. 
-The second is this: 'You shall love your neighbor as yourself.' There's no other commandment greater than these." 
+You will love the Lord your God with all your heart, with all your life, with all your mind, and with all your strength.' This is the first commandment. 
+The second is this: 'You will love your neighbor as yourself.' There's no other commandment greater than these." 
 The Bible teacher said to him, "Teacher, you have spoken well in saying that he's one, and there's no other but he; 
 and to love him with all the heart, with all the understanding, with all the life, and with all the strength, and to love one's neighbor as oneself, is more important than all whole burnt offerings and sacrifices." 
 When Jesus saw that he had answered wisely, he said to him, "You aren't far from God's reign." And no one dared ask him any more questions after that. 

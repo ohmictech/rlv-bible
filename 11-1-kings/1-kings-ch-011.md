@@ -1,5 +1,5 @@
 ﻿Now King Solomon loved many foreign women, together with the daughter of Pharaoh: women of the Moabites, Ammonites, Edomites, Sidonians, and Hittites, 
-of the nations concerning which God said to the children of Israel, "You shall not go among them, neither shall they come among you, for surely they'll turn away your heart after their gods." Solomon joined to these in love. 
+of the nations concerning which God said to the children of Israel, "You won't go among them, neither will they come among you, for surely they'll turn away your heart after their gods." Solomon joined to these in love. 
 He had seven hundred wives, princesses, and three hundred concubines. His wives turned his heart away. 
 When Solomon was old, his wives turned away his heart after other gods; and his heart wasn't perfect with his God, as the heart of David his father was. 
 Solomon went after Ashtoreth the goddess of the Sidonians, and after Milcom the abomination of the Ammonites. 
@@ -29,13 +29,13 @@ The man Jeroboam was a mighty man of valor; and Solomon saw that the young man w
 At that time, when Jeroboam went out of Jerusalem, the spokesman Ahijah the Shilonite found him on the way. Now Ahijah had clad himself with a new garment; and the two of them were alone in the field. 
 Ahijah took the new garment that was on him, and tore it in twelve pieces. 
 He said to Jeroboam, "Take ten pieces; for the God of Israel says, 'Look, I'll tear the kingdom out of the hand of Solomon and will give ten tribes to you 
-(but he shall have one tribe, for my servant David's sake and for Jerusalem's sake, the city which I have chosen out of all the tribes of Israel), 
+(but he will have one tribe, for my servant David's sake and for Jerusalem's sake, the city which I have chosen out of all the tribes of Israel), 
 because they have forsaken me, and have worshiped Ashtoreth the goddess of the Sidonians, Chemosh the god of Moab, and Milcom the god of the children of Ammon. They haven't walked in my ways, to do that which is right in my eyes, and to keep my statutes and my ordinances, as David his father did. 
 "'However, I won't take the whole kingdom out of his hand, but I'll make him prince all the days of his life for David my servant's sake whom I chose, who kept my commandments and my statutes, 
 but I'll take the kingdom out of his son's hand and will give it to you, even ten tribes. 
 I'll give one tribe to his son, that David my servant may have a lamp always before me in Jerusalem, the city which I have chosen for myself to put my name there. 
-I'll take you, and you shall reign according to all that your soul desires, and shall be king over Israel. 
-It shall be, if you'll listen to all that I command you, and will walk in my ways, and do that which is right in my eyes, to keep my statutes and my commandments, as David my servant did, that I'll be with you, and will build you a sure house, as I built for David, and will give Israel to you. 
+I'll take you, and you will reign according to all that your soul desires, and will be king over Israel. 
+It will be, if you'll listen to all that I command you, and will walk in my ways, and do that which is right in my eyes, to keep my statutes and my commandments, as David my servant did, that I'll be with you, and will build you a sure house, as I built for David, and will give Israel to you. 
 I'll afflict the offspring of David for this, but not for the eras.'" 
 So Solomon sought to kill Jeroboam, but Jeroboam arose and fled into Egypt, to Shishak king of Egypt, and was in Egypt until the death of Solomon. 
 Now the rest of the acts of Solomon, and all that he did, and his wisdom, aren't they written in the book of the acts of Solomon? 

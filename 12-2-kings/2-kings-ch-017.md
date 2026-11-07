@@ -9,7 +9,7 @@ and walked in the statutes of the nations whom God cast out from before the chil
 The children of Israel secretly did things that weren't right against their God; and they built high places for themselves in all their cities, from the tower of the watchmen to the fortified city; 
 and they set up for themselves pillars and Asherah poles on every high hill and under every green tree; 
 and there they burned incense in all the high places, as the nations whom God carried away before them did; and they did guilty things to provoke God to anger; 
-and they served idols, of which God had said to them, "You shall not do this thing." 
+and they served idols, of which God had said to them, "You won't do this thing." 
 Yet God testified to Israel and to Judah, by every spokesman and every seer, saying, "Turn from your bad ways, and keep my commandments and my statutes, according to all the law which I commanded your fathers, and which I sent to you by my servants the spokesmen." 
 Notwithstanding, they wouldn't listen, but hardened their neck like the neck of their fathers who didn't believe in their God. 
 They rejected his statutes and his covenant that he made with their fathers, and his testimonies which he testified to them; and they followed vanity, and became vain, and followed the nations that were around them, concerning whom God had commanded them that they shouldn't do like them. 
@@ -32,10 +32,10 @@ and the Avvites made Nibhaz and Tartak; and the Sepharvites burned their childre
 So they feared God, and also made from among themselves priests of the high places for themselves, who sacrificed for them in the houses of the high places. 
 They feared God, and also served their own gods, after the ways of the nations from among whom they had been carried away. 
 To this day they do what they did before. They don't fear God, and they don't follow the statutes, or the ordinances, or the law, or the commandment which God commanded the children of Jacob, whom he named Israel; 
-with whom God had made a covenant and commanded them, saying, "You shall not fear other gods, nor bow yourselves to them, nor serve them, nor sacrifice to them; 
-but you shall fear God, who brought you up out of the land of Egypt with great power and with an outstretched arm, and you shall bow yourselves to him, and you shall sacrifice to him. 
-The statutes and the ordinances, and the law and the commandment which he wrote for you, you shall observe to do for the eras more. You shall not fear other gods. 
-You shall not forget the covenant that I have made with you. You shall not fear other gods. 
-But you shall fear your God, and he'll deliver you out of the hand of all your enemies." 
+with whom God had made a covenant and commanded them, saying, "You won't fear other gods, nor bow yourselves to them, nor serve them, nor sacrifice to them; 
+but you will fear God, who brought you up out of the land of Egypt with great power and with an outstretched arm, and you will bow yourselves to him, and you will sacrifice to him. 
+The statutes and the ordinances, and the law and the commandment which he wrote for you, you will observe to do for the eras more. You won't fear other gods. 
+You won't forget the covenant that I have made with you. You won't fear other gods. 
+But you will fear your God, and he'll deliver you out of the hand of all your enemies." 
 However they didn't listen, but they did what they did before. 
 So these nations feared God, and also served their engraved images. Their children did likewise, and so did their children's children. They do as their fathers did to this day. 

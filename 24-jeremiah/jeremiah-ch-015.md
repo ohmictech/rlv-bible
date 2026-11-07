@@ -1,5 +1,5 @@
 ﻿Then God said to me, "Though Moses and Samuel stood before me, yet my mind wouldn't turn toward this people. Cast them out of my sight, and let them go out! 
-It'll happen when they ask you, 'Where shall we go out?' then you shall tell them, 'God says: "Such as are for death, to death; such as are for the sword, to the sword; such as are for the famine, to the famine; and such as are for captivity, to captivity."' 
+It'll happen when they ask you, 'Where will we go out?' then you will tell them, 'God says: "Such as are for death, to death; such as are for the sword, to the sword; such as are for the famine, to the famine; and such as are for captivity, to captivity."' 
 "I'll appoint over them four kinds," says God: "the sword to kill, the dogs to tear, the birds of the sky, and the animals of the earth, to devour and to destroy. 
 I'll cause them to be tossed back and forth among all the kingdoms of the earth, because of Manasseh, the son of Hezekiah, king of Judah, for that which he did in Jerusalem. 
 Who will have pity on you, Jerusalem? Who will mourn you? Who will come to ask of your welfare? 

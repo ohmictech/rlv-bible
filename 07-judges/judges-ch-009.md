@@ -30,7 +30,7 @@ I wish that this people were under my hand! Then I'd remove Abimelech." He said 
 When Zebul the ruler of the city heard the words of Gaal the son of Ebed, his anger burned. 
 He sent messengers to Abimelech craftily, saying, "Look, Gaal the son of Ebed and his brothers have come to Shechem; and look, they incite the city against you. 
 Now, go up by night, you and the people who are with you, and lie in wait in the field. 
-It shall be that in the morning, as soon as the sun is up, you shall rise early and rush on the city. Look, when he and the people who are with him come out against you, then may you do to them as you shall find occasion." 
+It will be that in the morning, as soon as the sun is up, you will rise early and rush on the city. Look, when he and the people who are with him come out against you, then may you do to them as you will find occasion." 
 Abimelech rose up, and everyone who was with him, by night, and they laid wait against Shechem in four companies. 
 Gaal the son of Ebed went out, and stood in the entrance of the gate of the city. Abimelech rose up, and the people who were with him, from the ambush. 
 When Gaal saw the people, he said to Zebul, "Look, people are coming down from the tops of the mountains." Zebul said to him, "You see the shadows of the mountains as if they were men." 

@@ -23,9 +23,9 @@ I'll declare your name to my brothers. Among the assembly, I'll praise you.
 You who fear God, praise him! All you descendants of Jacob, glorify him! Stand in awe of him, all you descendants of Israel! 
 He hasn't despised nor abhorred the affliction of the afflicted, neither has he hidden his face from him; but when he cried to him, he heard. 
 My praise of you comes in the great assembly. I'll pay my vows before those who fear him. 
-The humble shall eat and be satisfied. They shall praise God who seek after him. Let your hearts live for the eras. 
-All the ends of the earth shall remember and turn to God. All the relatives of the nations shall worship before you. 
+The humble will eat and be satisfied. They will praise God who seek after him. Let your hearts live for the eras. 
+All the ends of the earth will remember and turn to God. All the relatives of the nations will worship before you. 
 The kingdom is God's. He's the ruler over the nations. 
-All the rich ones of the earth shall eat and worship. Everyone who goes down to the dust shall bow before him, even he who can't keep his soul alive. 
-Posterity shall serve him. Future generations shall be told about the Lord. 
-They shall come and shall declare his righteousness to a people that shall be born, for he has done it. 
+All the rich ones of the earth will eat and worship. Everyone who goes down to the dust will bow before him, even he who can't keep his soul alive. 
+Posterity will serve him. Future generations will be told about the Lord. 
+They will come and will declare his righteousness to a people that will be born, for he has done it. 

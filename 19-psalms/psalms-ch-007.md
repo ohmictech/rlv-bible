@@ -13,5 +13,5 @@ If a man doesn't repent, he'll sharpen his sword; he has bent and strung his bow
 He has also prepared for himself the instruments of death. He makes ready his flaming arrows. 
 Look, he travails with guilt. Yes, he has conceived mischief, and brought out falsehood. 
 He has dug a hole, and has fallen into the pit which he made. 
-The trouble he causes shall return to his own head. His violence shall come down on the crown of his own head. 
+The trouble he causes will return to his own head. His violence will come down on the crown of his own head. 
 I'll give thanks to God according to his righteousness, and will sing praise to the name of God Most High. 

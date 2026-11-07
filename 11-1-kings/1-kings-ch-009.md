@@ -1,8 +1,8 @@
 ﻿When Solomon had finished the building of God's house, the king's house, and all Solomon's desire which he was pleased to do, 
 God appeared to Solomon the second time, as he had appeared to him at Gibeon. 
-God said to him, "I have heard your prayer and your supplication that you have made before me. I have made this house holy, which you have built, to put my name there for the eras; and my eyes and my heart shall be there perpetually. 
+God said to him, "I have heard your prayer and your supplication that you have made before me. I have made this house holy, which you have built, to put my name there for the eras; and my eyes and my heart will be there perpetually. 
 As for you, if you'll walk before me as David your father walked, in integrity of heart and in uprightness, to do according to all that I have commanded you, and will keep my statutes and my ordinances, 
-then I'll establish the throne of your kingdom over Israel for the eras, as I promised to David your father, saying, 'There shall not fail from you a man on the throne of Israel.' 
+then I'll establish the throne of your kingdom over Israel for the eras, as I promised to David your father, saying, 'There won't fail from you a man on the throne of Israel.' 
 But if you turn away from following me, you or your children, and not keep my commandments and my statutes which I have set before you, but go and serve other gods and worship them, 
 then I'll cut off Israel out of the land which I have given them; and I'll cast this house, which I have made holy for my name, out of my sight; and Israel will be a proverb and a byword among all peoples. 
 Though this house is so high, yet everyone who passes by it'll be astonished and hiss; and they'll say, 'Why has God done this to this land and to this house?' 

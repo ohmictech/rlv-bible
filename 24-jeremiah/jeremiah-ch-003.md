@@ -16,7 +16,7 @@ I'll give you shepherds according to my heart, who will feed you with knowledge 
 It'll come to pass, when you're multiplied and increased in the land in those days," says God, "they'll no longer say, 'the ark of God's covenant!' It won't come to mind. They won't remember it. They won't miss it, nor will another be made. 
 At that time they'll call Jerusalem 'God's Throne;' and all the nations will be gathered to it, to God's name, to Jerusalem. They'll no longer walk after the stubbornness of their bad heart. 
 In those days the house of Judah will walk with the house of Israel, and they'll come together out of the land of the north to the land that I gave for an inheritance to your fathers. 
-"But I said, 'How I desire to put you among the children, and give you a pleasant land, a goodly heritage of the armies of the nations!' and I said, 'You shall call me "My Father", and shall not turn away from following me.' 
+"But I said, 'How I desire to put you among the children, and give you a pleasant land, a goodly heritage of the armies of the nations!' and I said, 'You will call me "My Father", and won't turn away from following me.' 
 "Surely as a wife treacherously departs from her husband, so you have dealt treacherously with me, house of Israel," says God. 
 A voice is heard on the bare heights, the weeping and the petitions of the children of Israel; because they have perverted their way, they have forgotten their God. 
 Return, you backsliding children, and I'll heal your backsliding. "Look, we have come to you; for you're our God. 

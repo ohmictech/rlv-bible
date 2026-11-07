@@ -3,7 +3,7 @@ Jonathan told David, saying, "Saul my father seeks to kill you. Now, please take
 I'll go out and stand beside my father in the field where you're, and I'll talk with my father about you; and if I see anything, I'll tell you." 
 Jonathan spoke good of David to Saul his father, and said to him, "Don't let the king wrong his servant, against David; because he hasn't wronged you, and because his works have been very good toward you; 
 for he put his life in his hand and struck the Philistine, and God worked a great victory for all Israel. You saw it and rejoiced. Why then will you wrong innocent blood, to kill David without a cause?" 
-Saul listened to the voice of Jonathan; and Saul swore, "As God lives, he shall not be put to death." 
+Saul listened to the voice of Jonathan; and Saul swore, "As God lives, he won't be put to death." 
 Jonathan called David, and Jonathan showed him all those things. Then Jonathan brought David to Saul, and he was in his presence as before. 
 There was war again. David went out and fought with the Philistines, and killed them with a great slaughter; and they fled before him. 
 An harmful spirit from God was on Saul as he sat in his house with his spear in his hand; and David was playing music with his hand. 

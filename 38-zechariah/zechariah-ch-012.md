@@ -7,7 +7,7 @@ In that day I'll make the chieftains of Judah like a pan of fire among wood, and
 God also will save the tents of Judah first, that the glory of David's house and the glory of the inhabitants of Jerusalem not be magnified above Judah. 
 In that day God will defend the inhabitants of Jerusalem. He who's feeble among them at that day will be like David, and David's house will be like God, like God's messenger before them. 
 It'll happen in that day, that I'll seek to destroy all the nations that come against Jerusalem. 
-I'll pour on David's house and on the inhabitants of Jerusalem the spirit of grace and of supplication. They'll look to me whom they have pierced; and they shall mourn for him as one mourns for his only son, and will grieve bitterly for him as one grieves for his firstborn. 
+I'll pour on David's house and on the inhabitants of Jerusalem the spirit of grace and of supplication. They'll look to me whom they have pierced; and they will mourn for him as one mourns for his only son, and will grieve bitterly for him as one grieves for his firstborn. 
 In that day there will be a great mourning in Jerusalem, like the mourning of Hadadrimmon in the valley of Megiddo. 
 The land will mourn, every family apart; the family of David's house apart, and their wives apart; the family of the house of Nathan apart, and their wives apart; 
 the family of the house of Levi apart, and their wives apart; the family of the Shimeites apart, and their wives apart; 

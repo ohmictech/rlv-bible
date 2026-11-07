@@ -6,4 +6,4 @@ If I forget you, Jerusalem, let my right hand forget its skill.
 Let my tongue stick to the roof of my mouth if I don't remember you, if I don't prefer Jerusalem above my chief joy. 
 Remember, God, against the children of Edom in the day of Jerusalem, who said, "Raze it! Raze it even to its foundation!" 
 Daughter of Babylon, doomed to destruction, he'll be happy who repays you, as you have done to us. 
-Happy shall he be, who takes and dashes your little ones against the rock. 
+Happy will he be, who takes and dashes your little ones against the rock. 

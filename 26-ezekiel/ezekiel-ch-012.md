@@ -1,9 +1,9 @@
 ﻿God's word also came to me, saying, 
 "Son of man, you dwell in the middle of the rebellious house, who have eyes to see, and don't see, who have ears to hear, and don't hear; for they're a rebellious house. 
-"So, you son of man, prepare your baggage for moving, and move by day in their sight. You shall move from your place to another place in their sight. It may be they'll consider, though they're a rebellious house. 
-You shall bring out your baggage by day in their sight, as baggage for moving. You shall go out yourself at evening in their sight, as when men go out into exile. 
+"So, you son of man, prepare your baggage for moving, and move by day in their sight. You will move from your place to another place in their sight. It may be they'll consider, though they're a rebellious house. 
+You will bring out your baggage by day in their sight, as baggage for moving. You will go out yourself at evening in their sight, as when men go out into exile. 
 Dig through the wall in their sight, and carry your baggage out that way. 
-In their sight you shall bear it on your shoulder, and carry it out in the dark. You shall cover your face, so that you don't see the land, for I have set you for a sign to the house of Israel." 
+In their sight you will bear it on your shoulder, and carry it out in the dark. You will cover your face, so that you don't see the land, for I have set you for a sign to the house of Israel." 
 I did so as I was commanded. I brought out my baggage by day, as baggage for moving, and in the evening I dug through the wall with my hand. I brought it out in the dark, and bore it on my shoulder in their sight. 
 In the morning, God's word came to me, saying, 
 "Son of man, hasn't the house of Israel, the rebellious house, said to you, 'What are you doing?' 

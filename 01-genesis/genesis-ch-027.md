@@ -7,7 +7,7 @@ Rebekah spoke to Jacob her son, saying, "Look, I heard your father speak to Esau
 'Bring me venison, and make me savory food, that I may eat, and bless you before God before my death.' 
 Now, my son, obey my voice according to that which I command you. 
 Go now to the flock and get me two good young goats from there. I'll make them savory food for your father, such as he loves. 
-You shall bring it to your father, that he may eat, so that he may bless you before his death." 
+You will bring it to your father, that he may eat, so that he may bless you before his death." 
 Jacob said to Rebekah his mother, "Look, Esau my brother is a hairy man, and I'm a smooth man. 
 What if my father touches me? I'll seem to him as a deceiver, and I'd bring a curse on myself, and not a blessing." 
 His mother said to him, "Let your curse be on me, my son. Only obey my voice, and go get them for me." 

@@ -19,6 +19,6 @@ God says: "Look, I'll reverse the captivity of Jacob's tents, and have compassio
 Thanksgiving will proceed out of them with the voice of those who make merry. I'll multiply them, and they won't be few; I'll also glorify them, and they won't be small. 
 Their children also will be as before, and their congregation will be established before me. I'll punish everyone who oppresses them. 
 Their prince will be one of them, and their ruler will proceed from among them. I'll cause him to draw near, and he'll approach me; for who's he who has had boldness to approach me?" says God. 
-"You shall be my people, and I'll be your God. 
+"You will be my people, and I'll be your God. 
 Look, God's storm, his wrath, has gone out, a sweeping storm; it'll burst on the head of the guilty. 
 The fierce anger of God won't return until he has accomplished, and until he has performed the intentions of his heart. In the latter days you'll understand it." 

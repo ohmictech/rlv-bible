@@ -11,4 +11,4 @@ They put him in a cage with hooks, and brought him to the king of Babylon. They 
 It had strong branches for the scepters of those who ruled. Their stature was exalted among the thick boughs. They were seen in their height with the multitude of their branches. 
 But it was plucked up in fury. It was cast down to the ground, and the east wind dried up its fruit. Its strong branches were broken off and withered. The fire consumed them. 
 Now it's planted in the wilderness, in a dry and thirsty land. 
-Fire has gone out of its branches. It has devoured its fruit, so that there's in it no strong branch to be a scepter to rule.' This is a lamentation, and shall be for a lamentation." 
+Fire has gone out of its branches. It has devoured its fruit, so that there's in it no strong branch to be a scepter to rule.' This is a lamentation, and will be for a lamentation." 

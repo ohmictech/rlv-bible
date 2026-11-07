@@ -9,7 +9,7 @@ In the thirty-eighth year of Azariah king of Judah, Zechariah the son of Jeroboa
 He did that which was bad in God's sight, as his fathers had done. He didn't depart from the drifts of Jeroboam the son of Nebat, with which he made Israel to drift. 
 Shallum the son of Jabesh conspired against him, and struck him before the people and killed him, and reigned in his place. 
 Now the rest of the acts of Zechariah, look, they're written in the book of the chronicles of the kings of Israel. 
-This was God's word which he spoke to Jehu, saying, "Your sons to the fourth generation shall sit on the throne of Israel." So it came to pass. 
+This was God's word which he spoke to Jehu, saying, "Your sons to the fourth generation will sit on the throne of Israel." So it came to pass. 
 Shallum the son of Jabesh began to reign in the thirty-ninth year of Uzziah king of Judah, and he reigned for a month in Samaria. 
 Menahem the son of Gadi went up from Tirzah, came to Samaria, struck Shallum the son of Jabesh in Samaria, killed him, and reigned in his place. 
 Now the rest of the acts of Shallum, and his conspiracy which he made, look, they're written in the book of the chronicles of the kings of Israel. 

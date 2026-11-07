@@ -13,7 +13,7 @@ I put a ring on your nose, earrings in your ears, and a beautiful crown on your 
 Thus you were decked with gold and silver. Your clothing was of fine linen, silk, and embroidered work. You ate fine flour, honey, and oil. You were exceedingly beautiful, and you prospered to royal estate. 
 Your renown went out among the nations for your beauty; for it was perfect, through my majesty which I had put on you," says God. 
 "'"But you trusted in your beauty, and played the prostitute because of your renown, and poured out your prostitution on everyone who passed by. It was his. 
-You took some of your garments, and made for yourselves high places decked with various colors, and played the prostitute on them. This shouldn't happen, neither shall it be. 
+You took some of your garments, and made for yourselves high places decked with various colors, and played the prostitute on them. This shouldn't happen, neither will it be. 
 You also took your beautiful jewels of my gold and of my silver, which I had given you, and made for yourself images of men, and played the prostitute with them. 
 You took your embroidered garments, covered them, and set my oil and my incense before them. 
 My bread also which I gave you, fine flour, oil, and honey, with which I fed you, you even set it before them for a pleasant aroma; and so it was," says God. 
@@ -40,7 +40,7 @@ I'll also give you into their hand, and they'll throw down your vaulted place, a
 They'll also bring up a company against you, and they'll stone you with stones, and thrust you through with their swords. 
 They'll burn your houses with fire, and execute judgments on you in the sight of many women. I'll cause you to cease from playing the prostitute, and you'll also give no hire any more. 
 So I'll cause my wrath toward you to rest, and my jealousy will depart from you. I'll be quiet, and won't be angry any more. 
-"'"Because you haven't remembered the days of your youth, but have raged against me in all these things;, look, I also will bring your way on your head," says God: "and you shall not commit this lewdness with all your abominations. 
+"'"Because you haven't remembered the days of your youth, but have raged against me in all these things;, look, I also will bring your way on your head," says God: "and you won't commit this lewdness with all your abominations. 
 "'"Look, everyone who uses proverbs will use this proverb against you, saying, 'As is the mother, so is her daughter.' 
 You're the daughter of your mother, who loathes her husband and her children; and you're the sister of your sisters, who loathed their husbands and their children. Your mother was a Hittite, and your father an Amorite. 
 Your elder sister is Samaria, who dwells at your left hand, she and her daughters; and your younger sister, who dwells at your right hand, is Sodom with her daughters. 

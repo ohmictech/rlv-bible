@@ -22,14 +22,14 @@ whose leaves were beautiful and its fruit plentiful, and in it was food for all;
 it's you, O king, that have grown and become strong; for your greatness has grown, and reaches to the sky, and your dominion to the end of the earth. 
 "Whereas the king saw a holy watcher coming down from the sky and saying, 'Cut down the tree, and destroy it; nevertheless leave the stump of its roots in the earth, even with a band of iron and bronze, in the tender grass of the field, and let it be wet with the dew of the sky. Let his portion be with the animals of the field, until seven times pass over him.' 
 "This is the interpretation, O king, and it's the decree of the Most High, which has come on my lord the king: 
-You'll be driven from men and your dwelling shall be with the animals of the field. You'll be made to eat grass as oxen, and will be wet with the dew of the sky, and seven times shall pass over you, until you know that the Most High rules in the kingdom of men, and gives it to whomever he'll. 
+You'll be driven from men and your dwelling will be with the animals of the field. You'll be made to eat grass as oxen, and will be wet with the dew of the sky, and seven times will pass over you, until you know that the Most High rules in the kingdom of men, and gives it to whomever he'll. 
 Whereas it was commanded to leave the stump of the roots of the tree, your kingdom will be restored to you after you learn that Sky rules. 
 So, O king, let my counsel be acceptable to you, and break off your mistakes by righteousness, and your guilt by showing mercy to the poor. Perhaps there may be a lengthening of your tranquility." 
 All this came on the King Nebuchadnezzar. 
 At the end of twelve months he was walking in the royal palace of Babylon. 
 The king spoke and said, "Isn't this great Babylon, which I have built for the royal dwelling place by the might of my power and for the glory of my majesty?" 
 While the word was in the king's mouth, a voice came from the sky, saying, "O King Nebuchadnezzar, to you it's spoken: 'The kingdom has departed from you. 
-You shall be driven from men, and your dwelling shall be with the animals of the field. You shall be made to eat grass like oxen. Seven times shall pass over you, until you know that the Most High rules in the kingdom of men, and gives it to whomever he'll.'" 
+You will be driven from men, and your dwelling will be with the animals of the field. You will be made to eat grass like oxen. Seven times will pass over you, until you know that the Most High rules in the kingdom of men, and gives it to whomever he'll.'" 
 This was fulfilled the same hour on Nebuchadnezzar. He was driven from men and ate grass like oxen; and his body was wet with the dew of the sky until his hair had grown like eagles' feathers, and his nails like birds' claws. 
 At the end of the days I, Nebuchadnezzar, lifted up my eyes to the sky, and my understanding returned to me; and I blessed the Most High, and I praised and honored him who lives for the eras, for his dominion is an perpetual dominion, and his kingdom from generation to generation. 
 All the inhabitants of the earth are reputed as nothing; and he does according to his will in the army of the sky, and among the inhabitants of the earth; and no one can stop his hand, or ask him, "What are you doing?" 

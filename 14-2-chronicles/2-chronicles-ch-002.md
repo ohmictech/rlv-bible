@@ -13,6 +13,6 @@ Huram continued, "Blessed be the God of Israel, who made the sky and the earth, 
 Now I have sent a skillful man, endowed with understanding, Huram-abi, 
 the son of a woman of the daughters of Dan; and his father was a man of Tyre. He's skillful to work in gold, in silver, in bronze, in iron, in stone, in timber, in purple, in blue, in fine linen, and in crimson, also to engrave any kind of engraving and to devise any device, that there may be a place appointed to him with your skillful men, and with the skillful men of my lord David your father. 
 "Now, the wheat, the barley, the oil, and the wine which my lord has spoken of, let him send to his servants; 
-and we'll cut wood out of Lebanon, as much as you need. We'll bring it to you in rafts by sea to Joppa; then you shall carry it up to Jerusalem." 
+and we'll cut wood out of Lebanon, as much as you need. We'll bring it to you in rafts by sea to Joppa; then you will carry it up to Jerusalem." 
 Solomon counted all the foreigners who were in the land of Israel, after the census with which David his father had counted them; and they found one hundred fifty-three thousand six hundred. 
 He set seventy thousand of them to bear burdens, eighty thousand who were stone cutters in the mountains, and three thousand six hundred overseers to assign the people their work. 

@@ -60,5 +60,5 @@ The word which Jeremiah the spokesman commanded Seraiah the son of Neriah, the s
 Jeremiah wrote in a book all the bad that should come on Babylon, even all these words that are written concerning Babylon. 
 Jeremiah said to Seraiah, "When you come to Babylon, then see that you read all these words, 
 and say, 'God, you have spoken concerning this place, to cut it off, that no one will dwell in it, neither man nor animal, but that it'll be desolate for the eras.' 
-It'll be, when you have finished reading this book, that you shall bind a stone to it, and cast it into the middle of the Euphrates. 
-Then you shall say, 'Thus will Babylon sink, and won't rise again because of the bad that I'll bring on her; and they'll be weary.'" Thus far are the words of Jeremiah. 
+It'll be, when you have finished reading this book, that you will bind a stone to it, and cast it into the middle of the Euphrates. 
+Then you will say, 'Thus will Babylon sink, and won't rise again because of the bad that I'll bring on her; and they'll be weary.'" Thus far are the words of Jeremiah. 

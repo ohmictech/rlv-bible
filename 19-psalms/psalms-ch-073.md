@@ -24,5 +24,5 @@ Nevertheless, I'm continually with you. You have held my right hand.
 You'll guide me with your counsel, and afterward receive me to glory. 
 Whom do I have in the sky? There's no one on earth whom I desire besides you. 
 My flesh and my heart fails, but God is the strength of my heart and my portion for the eras. 
-For, look, those who are far from you shall perish. You have destroyed everyone who's unfaithful to you. 
+For, look, those who are far from you will perish. You have destroyed everyone who's unfaithful to you. 
 But it's good for me to come close to God. I have made God my refuge, that I may tell of all your works. 

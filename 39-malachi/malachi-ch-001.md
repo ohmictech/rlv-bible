@@ -1,7 +1,7 @@
 ﻿A revelation, God's word to Israel by Malachi. 
 "I have loved you," says God. Yet you say, "How have you loved us?" "Wasn't Esau Jacob's brother?" says God, "Yet I loved Jacob; 
 but Esau I hated, and made his mountains a desolation, and gave his heritage to the jackals of the wilderness." 
-Whereas Edom says, "We're beaten down, but we'll return and build the waste places," the God of Armies says, "They shall build, but I'll throw down; and men will call them 'The Wicked Land,' even the people against whom God shows wrath for the eras." 
+Whereas Edom says, "We're beaten down, but we'll return and build the waste places," the God of Armies says, "They will build, but I'll throw down; and men will call them 'The Wicked Land,' even the people against whom God shows wrath for the eras." 
 Your eyes will see, and you'll say, "God is great, even beyond the border of Israel!" 
 "A son honors his father, and a servant his master. If I'm a father, then where is my honor? And if I'm a master, where is the respect due me?" says the God of Armies to you priests who despise my name. "You say, 'How have we despised your name?' 
 You offer polluted bread on my altar. You say, 'How have we polluted you?' In that you say, 'God's table is contemptible.' 

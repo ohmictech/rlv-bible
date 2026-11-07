@@ -4,7 +4,7 @@ So then if, while the husband lives, she's joined to another man, she would be c
 So, my brothers, you also were made dead to the law through the body of Christ, that you'd be joined to another, to him who was raised from the dead, so that we'd produce fruit to God. 
 When we were in the flesh, the drift-driven passions that were through the law worked in our members to bring out fruit to death. 
 But now we have been discharged from the law, having died to that in which we were held; so that we serve in newness of the spirit, and not in oldness of the letter. 
-What shall we say then? Is the law the drift? May it never be! However, I wouldn't have known the drift except through the law. I wouldn't have known coveting unless the law had said, "You shall not covet." 
+What will we say then? Is the law the drift? May it never be! However, I wouldn't have known the drift except through the law. I wouldn't have known coveting unless the law had said, "You won't covet." 
 But the drift, finding an opportunity through the commandment, produced in me all kinds of coveting. Apart from the law, the drift is dead. 
 I was alive apart from the law once, but when the commandment came, the drift revived and I died. 
 The commandment which was for real life, this I found to be for death; 

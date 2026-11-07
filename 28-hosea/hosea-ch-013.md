@@ -1,7 +1,7 @@
 ﻿When Ephraim spoke, there was trembling. He exalted himself in Israel, but when he became guilty through Baal, he died. 
 Now they drift more and more, and have made themselves molten images of their silver, even idols according to their own understanding, everyone the work of the craftsmen. They say of them, 'They offer human sacrifice and kiss the calves.' 
 Therefore they'll be like the morning mist, like the dew that passes away early, like the chaff that's driven with the whirlwind out of the threshing floor, and like the smoke out of the chimney. 
-"Yet I'm your God from the land of Egypt; and you shall acknowledge no god but me, and besides me there's no savior. 
+"Yet I'm your God from the land of Egypt; and you will acknowledge no god but me, and besides me there's no savior. 
 I knew you in the wilderness, in the land of great drought. 
 According to their pasture, so were they filled; they were filled, and their heart was exalted. So they have forgotten me. 
 So I'm like a lion to them. Like a leopard, I'll lurk by the path. 

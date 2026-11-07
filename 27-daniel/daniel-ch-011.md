@@ -17,7 +17,7 @@ But he who comes against him will do according to his own will, and no one will 
 He'll set his face to come with the strength of his whole kingdom, and with him equitable conditions. He'll perform them. He'll give him the daughter of women, to destroy the kingdom, but she won't stand, and won't be for him. 
 After this he'll turn his face to the islands, and will take many, but a prince will cause the reproach offered by him to cease. Yes, moreover, he'll cause his reproach to turn on him. 
 Then he'll turn his face toward the fortresses of his own land; but he'll stumble and fall, and won't be found. 
-"Then one who will cause a tax collector to pass through the kingdom to maintain its glory will stand up in his place; but within a few days he shall be destroyed, not in anger, and not in battle. 
+"Then one who will cause a tax collector to pass through the kingdom to maintain its glory will stand up in his place; but within a few days he will be destroyed, not in anger, and not in battle. 
 "In his place a contemptible person will stand up, to whom they hadn't given the honor of the kingdom; but he'll come in a time of security, and will obtain the kingdom by flatteries. 
 The overwhelming forces will be overwhelmed from before him, and will be broken. Yes, also the prince of the covenant. 
 After the treaty made with him he'll work deceitfully; for he'll come up and will become strong with few people. 

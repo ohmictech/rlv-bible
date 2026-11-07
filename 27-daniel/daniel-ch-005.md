@@ -4,7 +4,7 @@ Then they brought the golden vessels that were taken out of the temple of God's 
 They drank wine, and praised the gods of gold, and of silver, of bronze, of iron, of wood, and of stone. 
 In the same hour, the fingers of a man's hand came out and wrote near the lamp stand on the plaster of the wall of the king's palace. The king saw the part of the hand that wrote. 
 Then the king's face was changed in him, and his thoughts troubled him; and the joints of his thighs were loosened, and his knees struck one against another. 
-The king cried aloud to bring in the enchanters, the Chaldeans, and the soothsayers. The king spoke and said to the wise men of Babylon, "Whoever reads this writing and shows me its interpretation shall be clothed with purple, and have a chain of gold about his neck, and shall be the third ruler in the kingdom." 
+The king cried aloud to bring in the enchanters, the Chaldeans, and the soothsayers. The king spoke and said to the wise men of Babylon, "Whoever reads this writing and shows me its interpretation will be clothed with purple, and have a chain of gold about his neck, and will be the third ruler in the kingdom." 
 Then all the king's wise men came in; but they couldn't read the writing, and couldn't make known to the king the interpretation. 
 Then King Belshazzar was greatly troubled, and his face was changed in him, and his lords were perplexed. 
 The queen by reason of the words of the king and his lords came into the banquet house. The queen spoke and said, "O king, live for the eras; don't let your thoughts trouble you, nor let your face be changed. 
@@ -13,7 +13,7 @@ because an excellent spirit, knowledge, understanding, interpreting of dreams, s
 Then Daniel was brought in before the king. The king spoke and said to Daniel, "Are you that Daniel of the children of the captivity of Judah, whom the king my father brought out of Judah? 
 I have heard of you, that the spirit of the gods is in you and that light, understanding, and excellent wisdom are found in you. 
 Now the wise men, the enchanters, have been brought in before me, that they should read this writing, and make known to me its interpretation; but they couldn't show the interpretation of the thing. 
-But I have heard of you, that you can give interpretations and dissolve doubts. Now if you can read the writing and make known to me its interpretation, you shall be clothed with purple, and have a chain of gold around your neck, and shall be the third ruler in the kingdom." 
+But I have heard of you, that you can give interpretations and dissolve doubts. Now if you can read the writing and make known to me its interpretation, you will be clothed with purple, and have a chain of gold around your neck, and will be the third ruler in the kingdom." 
 Then Daniel answered before the king, "Let your gifts be to yourself, and give your rewards to another. Nevertheless, I'll read the writing to the king, and make known to him the interpretation. 
 "To you, king, the Most High God gave Nebuchadnezzar your father the kingdom, and greatness, and glory, and majesty. 
 Because of the greatness that he gave him, everyones, nations, and languages trembled and feared before him. He killed whom he wanted to, and he kept alive whom he wanted to. He raised up whom he wanted to, and he put down whom he wanted to. 

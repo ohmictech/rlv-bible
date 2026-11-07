@@ -17,7 +17,7 @@ See that no one is someone who sleeps around or treats what's set apart as commo
 You know that afterward, when he wanted to receive the blessing, he was turned down, and he couldn't find room for a change of heart, even though he looked for it with tears. 
 You haven't come to a mountain that can be touched, that burned with fire, and to blackness, darkness, and storm, 
 the sound of a trumpet, and a voice speaking words; and those who heard it begged that not one more word should be spoken to them, 
-for they couldn't stand what was commanded, "If even an animal touches the mountain, it shall be stoned". 
+for they couldn't stand what was commanded, "If even an animal touches the mountain, it will be stoned". 
 The sight was so terrifying that Moses said, "I'm terrified and trembling." 
 But you have come to Mount Zion and to the city of the living God, the Jerusalem in the sky, and to thousands upon thousands of messengers, 
 to the joyful celebration and gathering of the firstborn whose names are written in the sky, to God the Judge of all, to the spirits of the upright who have been made complete, 

@@ -15,7 +15,7 @@ He who blesses his neighbor with a loud voice early in the morning, it'll be tak
 A continual dropping on a rainy day and a contentious wife are alike: 
 restraining her is like restraining the wind, or like grasping oil in his right hand. 
 Iron sharpens iron; so a man sharpens his friend's countenance. 
-Whoever tends the fig tree shall eat its fruit. He who looks after his master shall be honored. 
+Whoever tends the fig tree will eat its fruit. He who looks after his master will be honored. 
 Like water reflects a face, so a man's heart reflects the man. 
 Hades and Abaddon are never satisfied; and a man's eyes are never satisfied. 
 The crucible is for silver, and the furnace for gold; but man is refined by his praise. 

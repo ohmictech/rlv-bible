@@ -5,7 +5,7 @@ They traveled from Mount Hor by the way to the Red Sea, to go around the land of
 The people spoke against God and against Moses: "Why have you brought us up out of Egypt to die in the wilderness? There's no bread, there's no water, and our soul loathes this disgusting food!" 
 God sent venomous snakes among the people, and they bit the people. Many people of Israel died. 
 The people came to Moses, and said, "We have drifted, because we have spoken against God and against you. Pray to God, that he take away the serpents from us." Moses prayed for the people. 
-God said to Moses, "Make a venomous snake, and set it on a pole. It shall happen that everyone who's bitten, when he sees it, shall live." 
+God said to Moses, "Make a venomous snake, and set it on a pole. It will happen that everyone who's bitten, when he sees it, will live." 
 Moses made a serpent of bronze, and set it on the pole. If a serpent had bitten any man, when he looked at the serpent of bronze, he lived. 
 The children of Israel traveled, and encamped in Oboth. 
 They traveled from Oboth, and encamped at Iyeabarim, in the wilderness which is before Moab, toward the sunrise. 
@@ -31,5 +31,5 @@ We have shot at them. Heshbon has perished even to Dibon. We have laid waste eve
 Thus Israel lived in the land of the Amorites. 
 Moses sent to spy out Jazer. They took its villages, and drove out the Amorites who were there. 
 They turned and went up by the way of Bashan. Og the king of Bashan went out against them, he and all his people, to battle at Edrei. 
-God said to Moses, "Don't fear him, for I have delivered him into your hand, with all his people, and his land. You shall do to him as you did to Sihon king of the Amorites, who lived at Heshbon." 
+God said to Moses, "Don't fear him, for I have delivered him into your hand, with all his people, and his land. You will do to him as you did to Sihon king of the Amorites, who lived at Heshbon." 
 So they struck him, with his sons and all his people, until there were no survivors; and they possessed his land. 

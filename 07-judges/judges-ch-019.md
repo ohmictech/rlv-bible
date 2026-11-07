@@ -2,7 +2,7 @@
 His concubine played the prostitute against him, and went away from him to her father's house to Bethlehem Judah, and was there for four months. 
 Her husband arose and went after her to speak kindly to her, to bring her again, having his servant with him and a couple of donkeys. She brought him into her father's house; and when the father of the young lady saw him, he rejoiced to meet him. 
 His father-in-law, the young lady's father, kept him there; and he stayed with him three days. So they ate and drank, and stayed there. 
-On the fourth day, they got up early in the morning, and he rose up to depart. The young lady's father said to his son-in-law, "Strengthen your heart with a morsel of bread, and afterward you shall go your way." 
+On the fourth day, they got up early in the morning, and he rose up to depart. The young lady's father said to his son-in-law, "Strengthen your heart with a morsel of bread, and afterward you will go your way." 
 So they sat down, ate, and drank, both of them together. Then the young lady's father said to the man, "Please be pleased to stay all night, and let your heart be merry." 
 The man rose up to depart; but his father-in-law urged him, and he stayed there again. 
 He arose early in the morning on the fifth day to depart; and the young lady's father said, "Please strengthen your heart and stay until the day declines;" and they both ate. 

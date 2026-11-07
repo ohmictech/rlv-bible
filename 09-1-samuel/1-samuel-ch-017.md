@@ -23,8 +23,8 @@ David left his baggage in the hand of the keeper of the baggage and ran to the a
 As he talked with them, look, the champion, the Philistine of Gath, Goliath by name, came up out of the ranks of the Philistines, and said the same words; and David heard them. 
 All the men of Israel, when they saw the man, fled from him and were terrified. 
 The men of Israel said, "Have you seen this man who has come up? He has surely come up to defy Israel. The king will give great riches to the man who kills him, and will give him his daughter, and will make his father's house tax-free in Israel." 
-David spoke to the men who stood by him, saying, "What shall be done to the man who kills this Philistine and takes away the reproach from Israel? Who's this uncircumcised Philistine, that he should defy the armies of the living God?" 
-The people answered him in this way, saying, "So shall it be done to the man who kills him." 
+David spoke to the men who stood by him, saying, "What will be done to the man who kills this Philistine and takes away the reproach from Israel? Who's this uncircumcised Philistine, that he should defy the armies of the living God?" 
+The people answered him in this way, saying, "So will it be done to the man who kills him." 
 Eliab his oldest brother heard when he spoke to the men; and Eliab's anger burned against David, and he said, "Why have you come down? With whom have you left those few sheep in the wilderness? I know your pride and the bad of your heart; for you have come down that you might see the battle." 
 David said, "What have I now done? Is there not a cause?" 
 He turned away from him toward another, and spoke like that again; and the people answered him again the same way. 
@@ -33,7 +33,7 @@ David said to Saul, "Let no man's heart fail because of him. Your servant will g
 Saul said to David, "You aren't able to go against this Philistine to fight with him; for you're but a youth, and he a man of war from his youth." 
 David said to Saul, "Your servant was keeping his father's sheep; and when a lion or a bear came and took a lamb out of the flock, 
 I went out after him, struck him, and rescued it out of his mouth. When he arose against me, I caught him by his beard, struck him, and killed him. 
-Your servant struck both the lion and the bear. This uncircumcised Philistine shall be as one of them, since he has defied the armies of the living God." 
+Your servant struck both the lion and the bear. This uncircumcised Philistine will be as one of them, since he has defied the armies of the living God." 
 David said, "God, who delivered me out of the paw of the lion and out of the paw of the bear, will deliver me out of the hand of this Philistine." Saul said to David, "Go! God will be with you." 
 Saul dressed David with his clothing. He put a helmet of bronze on his head, and he clad him with a coat of mail. 
 David strapped his sword on his clothing and he tried to move, for he hadn't tested it. David said to Saul, "I can't go with these, for I haven't tested them." Then David took them off. 

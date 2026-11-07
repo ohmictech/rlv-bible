@@ -1,11 +1,11 @@
 ﻿God said to Joshua, "Don't be afraid, and don't be dismayed. Take all the warriors with you, and arise, go up to Ai. Look, I have given into your hand the king of Ai, with his people, his city, and his land. 
-You shall do to Ai and her king as you did to Jericho and her king, except you shall take its goods and its livestock for yourselves. Set an ambush for the city behind it." 
+You will do to Ai and her king as you did to Jericho and her king, except you will take its goods and its livestock for yourselves. Set an ambush for the city behind it." 
 So Joshua arose, with all the warriors, to go up to Ai. Joshua chose thirty thousand men, the mighty men of valor, and sent them out by night. 
-He commanded them, saying, "Look, you shall lie in ambush against the city, behind the city. Don't go very far from the city, but all of you be ready. 
-I and everyone who's with me will approach the city. It shall happen, when they come out against us, as at the first, that we'll flee before them. 
+He commanded them, saying, "Look, you will lie in ambush against the city, behind the city. Don't go very far from the city, but all of you be ready. 
+I and everyone who's with me will approach the city. It will happen, when they come out against us, as at the first, that we'll flee before them. 
 They'll come out after us until we have drawn them away from the city; for they'll say, 'They flee before us, like the first time.' So we'll flee before them, 
-and you shall rise up from the ambush, and take possession of the city; for your God will deliver it into your hand. 
-It shall be, when you have seized the city, that you shall set the city on fire. You shall do this according to God's word. Look, I have commanded you." 
+and you will rise up from the ambush, and take possession of the city; for your God will deliver it into your hand. 
+It will be, when you have seized the city, that you will set the city on fire. You will do this according to God's word. Look, I have commanded you." 
 Joshua sent them out; and they went to set up the ambush, and stayed between Bethel and Ai on the west side of Ai; but Joshua stayed among the people that night. 
 Joshua rose up early in the morning, mustered the people, and went up, he and the elders of Israel, before the people to Ai. 
 Everyone, even the men of war who were with him, went up and came near, and came before the city and encamped on the north side of Ai. Now there was a valley between him and Ai. 

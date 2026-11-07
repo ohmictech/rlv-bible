@@ -5,14 +5,14 @@ So about three thousand men of the people went up there, and they fled before th
 The men of Ai struck about thirty-six men of them. They chased them from before the gate even to Shebarim, and struck them at the descent. The hearts of the people melted, and became like water. 
 Joshua tore his clothes, and fell to the earth on his face before God's ark until the evening, he and the elders of Israel; and they put dust on their heads. 
 Joshua said, "Alas, God, why have you brought this people over the Jordan at all, to deliver us into the hand of the Amorites, to cause us to perish? I wish that we had been content and lived beyond the Jordan! 
-Oh, Lord, what shall I say, after Israel has turned their backs before their enemies? 
+Oh, Lord, what will I say, after Israel has turned their backs before their enemies? 
 The Canaanites and all the inhabitants of the land will hear of it, and will surround us, and cut off our name from the earth. What will you do for your great name?" 
 God said to Joshua, "Get up! Why have you fallen on your face like that? 
 Israel has drifted. Yes, they have even transgressed my covenant which I commanded them. Yes, they have even taken some of the devoted things, and have also stolen, and also deceived. They have even put it among their own stuff. 
 So the children of Israel can't stand before their enemies. They turn their backs before their enemies, because they have become devoted for destruction. I won't be with you any more, unless you destroy the devoted things from among you. 
 Get up! Sanctify the people, and say, 'Sanctify yourselves for tomorrow, for the God of Israel says, "There's a devoted thing among you, Israel. You can't stand before your enemies until you take away the devoted thing from among you." 
-In the morning you shall be brought near by your tribes. It shall be that the tribe which God selects shall come near by families. The family which God selects shall come near by households. The household which God selects shall come near man by man. 
-It shall be, that he who's taken with the devoted thing shall be burned with fire, he and all that he has, because he has transgressed God's covenant, and because he has done a disgraceful thing in Israel.'" 
+In the morning you will be brought near by your tribes. It will be that the tribe which God selects will come near by families. The family which God selects will come near by households. The household which God selects will come near man by man. 
+It will be, that he who's taken with the devoted thing will be burned with fire, he and all that he has, because he has transgressed God's covenant, and because he has done a disgraceful thing in Israel.'" 
 So Joshua rose up early in the morning and brought Israel near by their tribes. The tribe of Judah was selected. 
 He brought near the family of Judah, and he selected the family of the Zerahites. He brought near the family of the Zerahites man by man, and Zabdi was selected. 
 He brought near his household man by man, and Achan, the son of Carmi, the son of Zabdi, the son of Zerah, of the tribe of Judah, was selected. 

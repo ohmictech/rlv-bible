@@ -14,7 +14,7 @@ In thoughts from the visions of the night, when deep sleep falls on men,
 fear came on me, and trembling, which made all my bones shake. 
 Then a spirit passed before my face. The hair of my flesh stood up. 
 It stood still, but I couldn't discern its appearance. A form was before my eyes. Silence, then I heard a voice, saying, 
-'Shall mortal man be more just than God? Shall a man be more pure than his Maker? 
+'Will mortal man be more just than God? Will a man be more pure than his Maker? 
 Look, he puts no trust in his servants. He charges his messengers with error. 
 How much more those who dwell in houses of clay, whose foundation is in the dust, who are crushed before the moth! 
 Between morning and evening they're destroyed. They perish for the eras without any regarding it. 

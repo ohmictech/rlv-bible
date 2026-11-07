@@ -10,10 +10,10 @@ It's better to dwell in the corner of the housetop than to share a house with a 
 The soul of the guilty desires bad; his neighbor finds no mercy in his eyes. 
 When the mocker is punished, the simple gains wisdom. When the wise is instructed, he receives knowledge. 
 The Righteous One considers the house of the guilty, and brings the guilty to ruin. 
-Whoever stops his ears at the cry of the poor, he'll also cry out, but shall not be heard. 
+Whoever stops his ears at the cry of the poor, he'll also cry out, but won't be heard. 
 A gift in secret pacifies anger, and a bribe in the cloak, strong wrath. 
 It's joy to the righteous to do justice; but it's a destruction to the workers of guilt. 
-The man who wanders out of the way of understanding shall rest in the assembly of the departed spirits. 
+The man who wanders out of the way of understanding will rest in the assembly of the departed spirits. 
 He who loves pleasure will be a poor man. He who loves wine and oil won't be rich. 
 The guilty is a ransom for the righteous, the treacherous for the upright. 
 It's better to dwell in a desert land, than with a contentious and fretful woman. 

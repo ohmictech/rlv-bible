@@ -7,8 +7,8 @@ So, look, the days come," says God, "that this place will no more be called 'Top
 "'"I'll make the counsel of Judah and Jerusalem void in this place. I'll cause them to fall by the sword before their enemies, and by the hand of those who seek their life. I'll give their dead bodies to be food for the birds of the sky and for the animals of the earth. 
 I'll make this city an astonishment and a hissing. Everyone who passes by it'll be astonished and hiss because of all its plagues. 
 I'll cause them to eat the flesh of their sons and the flesh of their daughters. They'll each eat the flesh of his friend in the siege and in the distress with which their enemies, and those who seek their life, will distress them."' 
-"Then you shall break the container in the sight of the men who go with you, 
-and shall tell them, 'The God of Armies says: "Even so I'll break this people and this city as one breaks a potter's vessel, that can't be made whole again. They'll bury in Topheth until there's no place to bury. 
+"Then you will break the container in the sight of the men who go with you, 
+and will tell them, 'The God of Armies says: "Even so I'll break this people and this city as one breaks a potter's vessel, that can't be made whole again. They'll bury in Topheth until there's no place to bury. 
 This is what I'll do to this place," says God, "and to its inhabitants, even making this city as Topheth. 
 The houses of Jerusalem and the houses of the kings of Judah, which are defiled, will be as the place of Topheth, even all the houses on whose roofs they have burned incense to all the army of the sky and have poured out drink offerings to other gods."'" 
 Then Jeremiah came from Topheth, where God had sent him to prophesy, and he stood in the court of God's house, and said to everyone: 

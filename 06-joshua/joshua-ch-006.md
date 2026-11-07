@@ -1,22 +1,22 @@
 ﻿Now Jericho was tightly shut up because of the children of Israel. No one went out, and no one came in. 
 God said to Joshua, "Look, I have given Jericho into your hand, with its king and the mighty men of valor. 
-All of your men of war shall march around the city, going around the city once. You shall do this six days. 
-Seven priests shall bear seven trumpets of rams' horns before the ark. On the seventh day, you shall march around the city seven times, and the priests shall blow the trumpets. 
-It shall be that when they make a long blast with the ram's horn, and when you hear the sound of the trumpet, everyone shall shout with a great shout; then the city wall will fall down flat, and the people shall go up, every man straight in front of him." 
+All of your men of war will march around the city, going around the city once. You will do this six days. 
+Seven priests will bear seven trumpets of rams' horns before the ark. On the seventh day, you will march around the city seven times, and the priests will blow the trumpets. 
+It will be that when they make a long blast with the ram's horn, and when you hear the sound of the trumpet, everyone will shout with a great shout; then the city wall will fall down flat, and the people will go up, every man straight in front of him." 
 Joshua the son of Nun called the priests, and said to them, "Take up the ark of the covenant, and let seven priests bear seven trumpets of rams' horns before God's ark." 
 They said to the people, "Advance! March around the city, and let the armed men pass on before God's ark." 
 It was so, that when Joshua had spoken to the people, the seven priests bearing the seven trumpets of rams' horns before God advanced and blew the trumpets, and the ark of God's covenant followed them. 
 The armed men went before the priests who blew the trumpets, and the ark went after them. The trumpets sounded as they went. 
-Joshua commanded the people, saying, "You shall not shout nor let your voice be heard, neither shall any word proceed out of your mouth until the day I tell you to shout. Then you shall shout." 
+Joshua commanded the people, saying, "You won't shout nor let your voice be heard, neither will any word proceed out of your mouth until the day I tell you to shout. Then you will shout." 
 So he caused God's ark to go around the city, circling it once. Then they came into the camp, and stayed in the camp. 
 Joshua rose early in the morning, and the priests took up God's ark. 
 The seven priests bearing the seven trumpets of rams' horns in front of God's ark went on continually, and blew the trumpets. The armed men went in front of them. The rear guard came after God's ark. The trumpets sounded as they went. 
 The second day they marched around the city once, and returned into the camp. They did this six days. 
 On the seventh day, they rose early at the dawning of the day, and marched around the city in the same way seven times. On this day only they marched around the city seven times. 
 At the seventh time, when the priests blew the trumpets, Joshua said to the people, "Shout, for God has given you the city! 
-The city shall be devoted, even it and all that's in it, to God. Only Rahab the prostitute shall live, she and everyone who's with her in the house, because she hid the messengers that we sent. 
+The city will be devoted, even it and all that's in it, to God. Only Rahab the prostitute will live, she and everyone who's with her in the house, because she hid the messengers that we sent. 
 But as for you, only keep yourselves from what's devoted to destruction, lest when you have devoted it, you take of the devoted thing; so you'd make the camp of Israel accursed and trouble it. 
-But all the silver, gold, and vessels of bronze and iron are holy to God. They shall come into God's treasury." 
+But all the silver, gold, and vessels of bronze and iron are holy to God. They will come into God's treasury." 
 So the people shouted and the priests blew the trumpets. When the people heard the sound of the trumpet, the people shouted with a great shout, and the wall fell down flat, so that the people went up into the city, every man straight in front of him, and they took the city. 
 They utterly destroyed all that was in the city, both man and woman, both young and old, and ox, sheep, and donkey, with the edge of the sword. 
 Joshua said to the two men who had spied out the land, "Go into the prostitute's house, and bring the woman and all that she has out from there, as you swore to her." 

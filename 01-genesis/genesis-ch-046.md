@@ -31,4 +31,4 @@ Israel said to Joseph, "Now let me die, since I have seen your face, that you're
 Joseph said to his brothers, and to his father's house, "I'll go up, and speak with Pharaoh, and will tell him, 'My brothers, and my father's house, who were in the land of Canaan, have come to me. 
 These men are shepherds, for they have been keepers of livestock, and they have brought their flocks, and their herds, and all that they have.' 
 It'll happen, when Pharaoh summons you, and will say, 'What's your occupation?' 
-that you shall say, 'Your servants have been keepers of livestock from our youth even until now, both we, and our fathers:' that you may dwell in the land of Goshen; for every shepherd is an abomination to the Egyptians." 
+that you will say, 'Your servants have been keepers of livestock from our youth even until now, both we, and our fathers:' that you may dwell in the land of Goshen; for every shepherd is an abomination to the Egyptians." 

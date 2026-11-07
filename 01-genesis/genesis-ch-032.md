@@ -1,7 +1,7 @@
 ﻿Jacob went on his way, and the messengers of God met him. 
 When he saw them, Jacob said, "This is God's army." He called the name of that place Mahanaim. 
 Jacob sent messengers in front of him to Esau, his brother, to the land of Seir, the field of Edom. 
-He commanded them, saying, "This is what you shall tell my lord, Esau: 'This is what your servant, Jacob, says. I have lived as a foreigner with Laban, and stayed until now. 
+He commanded them, saying, "This is what you will tell my lord, Esau: 'This is what your servant, Jacob, says. I have lived as a foreigner with Laban, and stayed until now. 
 I have cattle, donkeys, flocks, male servants, and female servants. I have sent to tell my lord, that I may find favor in your sight.'" 
 The messengers returned to Jacob, saying, "We came to your brother Esau. He's coming to meet you, and four hundred men are with him." 
 Then Jacob was greatly afraid and was distressed. He divided the people who were with him, along with the flocks, the herds, and the camels, into two companies. 
@@ -15,9 +15,9 @@ two hundred female goats and twenty male goats, two hundred ewes and twenty rams
 thirty milk camels and their colts, forty cows, ten bulls, twenty female donkeys and ten foals. 
 He delivered them into the hands of his servants, every herd by itself, and said to his servants, "Pass over before me, and put a space between herd and herd." 
 He commanded the foremost, saying, "When Esau, my brother, meets you, and asks you, saying, 'Whose are you? Where are you going? Whose are these before you?' 
-Then you shall say, 'They're your servant, Jacob's. It's a present sent to my lord, Esau. Look, he also is behind us.'" 
-He commanded also the second, and the third, and all that followed the herds, saying, "This is how you shall speak to Esau, when you find him. 
-You shall say, 'Not only that, but look, your servant, Jacob, is behind us.'" For, he said, "I'll appease him with the present that goes before me, and afterward I'll see his face. Perhaps he'll accept me." 
+Then you will say, 'They're your servant, Jacob's. It's a present sent to my lord, Esau. Look, he also is behind us.'" 
+He commanded also the second, and the third, and all that followed the herds, saying, "This is how you will speak to Esau, when you find him. 
+You will say, 'Not only that, but look, your servant, Jacob, is behind us.'" For, he said, "I'll appease him with the present that goes before me, and afterward I'll see his face. Perhaps he'll accept me." 
 So the present passed over before him, and he himself stayed that night in the camp. 
 He rose up that night, and took his two wives, and his two servants, and his eleven sons, and crossed over the ford of the Jabbok. 
 He took them, and sent them over the stream, and sent over that which he had. 

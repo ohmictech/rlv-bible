@@ -1,5 +1,5 @@
 ﻿Listen to this word, you cows of Bashan, who are on the mountain of Samaria, who oppress the poor, who crush the needy, who tell their husbands, "Bring us drinks!" 
-The God has sworn by his holiness, "Look, the days shall come on you that they'll take you away with hooks, and the last of you with fish hooks. 
+The God has sworn by his holiness, "Look, the days will come on you that they'll take you away with hooks, and the last of you with fish hooks. 
 You'll go out at the breaks in the wall, everyone straight before her; and you'll cast yourselves into Harmon," says God. 
 "Go to Bethel, and drifts; to Gilgal, and drifts more. Bring your sacrifices every morning, your tithes every three days, 
 offer a sacrifice of thanksgiving of that which is leavened, and proclaim free will offerings and brag about them; for this pleases you, you children of Israel," says God. 

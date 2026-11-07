@@ -9,7 +9,7 @@ Now stand still, that I may plead with you before God concerning all the righteo
 But they forgot their God; and he sold them into the hand of Sisera, captain of the army of Hazor, and into the hand of the Philistines, and into the hand of the king of Moab; and they fought against them. 
 They cried to God, and said, 'We have drifted, because we have forsaken God and have served the Baals and the Ashtaroth; but now deliver us out of the hand of our enemies, and we'll serve you.' 
 God sent Jerubbaal, Bedan, Jephthah, and Samuel, and delivered you out of the hand of your enemies on every side; and you lived in safety. 
-"When you saw that Nahash the king of the children of Ammon came against you, you said to me, 'No, but a king shall reign over us,' when your God was your king. 
+"When you saw that Nahash the king of the children of Ammon came against you, you said to me, 'No, but a king will reign over us,' when your God was your king. 
 Now see the king whom you have chosen and whom you have asked for. Look, God has set a king over you. 
 If you'll fear God, and serve him, and listen to his voice, and not rebel against the commandment of God, then both you and also the king who reigns over you're followers of your God. 
 But if you won't listen to God's voice, but rebel against the commandment of God, then God's hand will be against you, as it was against your fathers. 

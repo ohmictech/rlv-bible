@@ -11,7 +11,7 @@ Not only so, but Rebekah also conceived by one, by our father Isaac.
 Being not yet born, neither having done anything good or bad, so that the purpose of God in choosing would stand, not of deeds, but of him who calls, 
 it was said to her, "The elder will serve the younger." 
 Even as it's written, "Jacob I loved, but Esau I hated." 
-What shall we say then? Is there unrighteousness with God? May it never be! 
+What will we say then? Is there unrighteousness with God? May it never be! 
 He said to Moses, "I'll have mercy on whom I have mercy, and I'll have compassion on whom I have compassion." 
 So then it isn't of him who wills, nor of him who runs, but of God who has mercy. 
 The Scripture says to Pharaoh, "For this very purpose I caused you to be raised up, so that I could show my power in you, and so that my name would be announced in all the land." 
@@ -27,7 +27,7 @@ As he says also in Hosea, "I'll call them 'my people,' which weren't my people; 
 Isaiah cries concerning Israel, "If the number of the children of Israel are as the sand of the sea, it's the remnant who will be rescued; 
 for he'll finish the work and cut it short in rightness, because the Lord will make a short work upon the land." 
 As Isaiah has said before, "Unless the Lord of Armies had left us a seed, we'd have become like Sodom, and would have been made like Gomorrah." 
-What shall we say then? That the nations, who didn't follow after rightness, reached rightness, the rightness that comes by trust; 
+What will we say then? That the nations, who didn't follow after rightness, reached rightness, the rightness that comes by trust; 
 but Israel, following after a law of rightness, didn't arrive at the law of rightness. 
 Why? Because they didn't seek it by trust, but as if it were by deeds of the law. They stumbled over the stumbling stone, 
 even as it's written, "Look, I lay in Zion a stumbling stone and a rock that trips people up; and no one who trusts in him will be disappointed." 

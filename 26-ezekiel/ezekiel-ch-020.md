@@ -10,15 +10,15 @@ But I worked for my name's sake, that it shouldn't be profaned in the sight of t
 So I caused them to go out of the land of Egypt and brought them into the wilderness. 
 I gave them my statutes and showed them my ordinances, which if a man does, he'll live in them. 
 Moreover also I gave them my Sabbaths, to be a sign between me and them, that they might know that I'm God who sanctifies them. 
-"'"But the house of Israel rebelled against me in the wilderness. They didn't walk in my statutes and they rejected my ordinances, which if a man keeps, he shall live in them. They greatly profaned my Sabbaths. Then I said I'd pour out my wrath on them in the wilderness, to consume them. 
+"'"But the house of Israel rebelled against me in the wilderness. They didn't walk in my statutes and they rejected my ordinances, which if a man keeps, he will live in them. They greatly profaned my Sabbaths. Then I said I'd pour out my wrath on them in the wilderness, to consume them. 
 But I worked for my name's sake, that it shouldn't be profaned in the sight of the nations, in whose sight I brought them out. 
 Moreover also I swore to them in the wilderness that I wouldn't bring them into the land which I had given them, flowing with milk and honey, which is the glory of all lands, 
 because they rejected my ordinances, and didn't walk in my statutes, and profaned my Sabbaths; for their heart went after their idols. 
 Nevertheless my eye spared them, and I didn't destroy them. I didn't make a full end of them in the wilderness. 
 I said to their children in the wilderness, 'Don't walk in the statutes of your fathers. Don't observe their ordinances or defile yourselves with their idols. 
 I'm your God. Walk in my statutes, keep my ordinances, and do them. 
-Make my Sabbaths holy. They shall be a sign between me and you, that you may know that I'm your God.' 
-"'"But the children rebelled against me. They didn't walk in my statutes, and didn't keep my ordinances to do them, which if a man does, he shall live in them. They profaned my Sabbaths. Then I said I'd pour out my wrath on them, to accomplish my anger against them in the wilderness. 
+Make my Sabbaths holy. They will be a sign between me and you, that you may know that I'm your God.' 
+"'"But the children rebelled against me. They didn't walk in my statutes, and didn't keep my ordinances to do them, which if a man does, he will live in them. They profaned my Sabbaths. Then I said I'd pour out my wrath on them, to accomplish my anger against them in the wilderness. 
 Nevertheless I withdrew my hand and worked for my name's sake, that it shouldn't be profaned in the sight of the nations, in whose sight I brought them out. 
 Moreover I swore to them in the wilderness, that I'd scatter them among the nations and disperse them through the countries, 
 because they hadn't executed my ordinances, but had rejected my statutes, and had profaned my Sabbaths, and their eyes were after their fathers' idols. 
@@ -35,9 +35,9 @@ I'll bring you out from the peoples, and will gather you out of the countries in
 I'll bring you into the wilderness of the peoples, and there I'll enter into judgment with you face to face. 
 Just as I entered into judgment with your fathers in the wilderness of the land of Egypt, so I'll enter into judgment with you," says God. 
 "I'll cause you to pass under the rod, and I'll bring you into the bond of the covenant. 
-I'll purge out from among you the rebels and those who disobey me. I'll bring them out of the land where they live, but they shall not enter into the land of Israel. Then you'll know that I'm God." 
-"'As for you, house of Israel, God says: "Go, everyone serve his idols, and hereafter also, if you won't listen to me; but you shall no more profane my holy name with your gifts and with your idols. 
-In my holy mountain, in the mountain of the height of Israel," says God, "there all the house of Israel, everyone, shall serve me in the land. There I'll accept them, and there I'll require your offerings and the first fruits of your offerings, with all your holy things. 
+I'll purge out from among you the rebels and those who disobey me. I'll bring them out of the land where they live, but they won't enter into the land of Israel. Then you'll know that I'm God." 
+"'As for you, house of Israel, God says: "Go, everyone serve his idols, and hereafter also, if you won't listen to me; but you will no more profane my holy name with your gifts and with your idols. 
+In my holy mountain, in the mountain of the height of Israel," says God, "there all the house of Israel, everyone, will serve me in the land. There I'll accept them, and there I'll require your offerings and the first fruits of your offerings, with all your holy things. 
 I'll accept you as a pleasant aroma when I bring you out from the peoples and gather you out of the countries in which you have been scattered. I'll be sanctified in you in the sight of the nations. 
 You'll know that I'm God when I bring you into the land of Israel, into the country which I swore to give to your fathers. 
 There you'll remember your ways, and all your deeds in which you have polluted yourselves. Then you'll loathe yourselves in your own sight for all your bad things that you have committed. 

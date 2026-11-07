@@ -1,7 +1,7 @@
 ﻿"Come! Let's return to God; for he has torn us to pieces, and he'll heal us; he has injured us, and he'll bind up our wounds. 
 After two days he'll revive us. On the third day he'll raise us up, and we'll live before him. 
 Let's acknowledge God. Let's press on to know God. As surely as the sun rises, God will appear. He'll come to us like the rain, like the spring rain that waters the earth." 
-"Ephraim, what shall I do to you? Judah, what shall I do to you? Your love is like a morning cloud, and like the dew that disappears early. 
+"Ephraim, what will I do to you? Judah, what will I do to you? Your love is like a morning cloud, and like the dew that disappears early. 
 So I have cut them to pieces with the spokesmen; I killed them with the words of my mouth. Your judgments are like a flash of lightning. 
 I desire mercy, and not sacrifice; and the knowledge of God more than burnt offerings. 
 But they, like Adam, have broken the covenant. They were unfaithful to me there. 

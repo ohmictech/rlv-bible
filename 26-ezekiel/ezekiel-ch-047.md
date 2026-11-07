@@ -10,14 +10,14 @@ It'll happen that every living creature which swarms, in every place where the r
 It'll happen that fishermen will stand by it. From En Gedi even to En Eglaim will be a place for the spreading of nets. Their fish will be after their kinds, as the fish of the great sea, exceedingly many. 
 But its swamps and marshes won't be healed. They'll be given up to salt. 
 By the river banks, on both sides, will grow every tree for food, whose leaf won't wither, neither will its fruit fail. It'll produce new fruit every month, because its waters issue out of the sanctuary. Its fruit will be for food, and its leaf for healing." 
-The God says: "This shall be the border by which you shall divide the land for inheritance according to the twelve tribes of Israel. Joseph shall have two portions. 
-You shall inherit it, one as well as another; for I swore to give it to your fathers. This land will fall to you for inheritance. 
-"This shall be the border of the land: "On the north side, from the great sea, by the way of Hethlon, to the entrance of Zedad; 
+The God says: "This will be the border by which you will divide the land for inheritance according to the twelve tribes of Israel. Joseph will have two portions. 
+You will inherit it, one as well as another; for I swore to give it to your fathers. This land will fall to you for inheritance. 
+"This will be the border of the land: "On the north side, from the great sea, by the way of Hethlon, to the entrance of Zedad; 
 Hamath, Berothah, Sibraim (which is between the border of Damascus and the border of Hamath), to Hazer Hatticon, which is by the border of Hauran. 
-The border from the sea shall be Hazar Enon at the border of Damascus; and on the north northward is the border of Hamath. This is the north side. 
-"The east side, between Hauran, Damascus, Gilead, and the land of Israel, shall be the Jordan; from the north border to the east sea you shall measure. This is the east side. 
-"The south side southward shall be from Tamar as far as the waters of Meriboth Kadesh, to the brook, to the great sea. This is the south side southward. 
-"The west side shall be the great sea, from the south border as far as opposite the entrance of Hamath. This is the west side. 
-"So you shall divide this land to yourselves according to the tribes of Israel. 
-You shall divide it by lot for an inheritance to you and to the aliens who live among you, who will father children among you. Then they shall be to you as the native-born among the children of Israel. They shall have inheritance with you among the tribes of Israel. 
-In whatever tribe the stranger lives, there you shall give him his inheritance," says God. 
+The border from the sea will be Hazar Enon at the border of Damascus; and on the north northward is the border of Hamath. This is the north side. 
+"The east side, between Hauran, Damascus, Gilead, and the land of Israel, will be the Jordan; from the north border to the east sea you will measure. This is the east side. 
+"The south side southward will be from Tamar as far as the waters of Meriboth Kadesh, to the brook, to the great sea. This is the south side southward. 
+"The west side will be the great sea, from the south border as far as opposite the entrance of Hamath. This is the west side. 
+"So you will divide this land to yourselves according to the tribes of Israel. 
+You will divide it by lot for an inheritance to you and to the aliens who live among you, who will father children among you. Then they will be to you as the native-born among the children of Israel. They will have inheritance with you among the tribes of Israel. 
+In whatever tribe the stranger lives, there you will give him his inheritance," says God. 

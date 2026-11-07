@@ -3,33 +3,33 @@ Then the children of Gad and the children of Reuben came and spoke to Moses, and
 "Ataroth, Dibon, Jazer, Nimrah, Heshbon, Elealeh, Sebam, Nebo, and Beon, 
 the land which God struck before the congregation of Israel, is a land for livestock; and your servants have livestock." 
 They said, "If we have found favor in your sight, let this land be given to your servants for a possession. Don't bring us over the Jordan." 
-Moses said to the children of Gad, and to the children of Reuben, "Shall your brothers go to war while you sit here? 
+Moses said to the children of Gad, and to the children of Reuben, "Will your brothers go to war while you sit here? 
 Why do you discourage the heart of the children of Israel from going over into the land which God has given them? 
 Your fathers did so when I sent them from Kadesh Barnea to see the land. 
 When they went up to the valley of Eshcol, and saw the land, they discouraged the heart of the children of Israel, that they shouldn't go into the land which God had given them. 
 God's anger burned in that day, and he swore, saying, 
-'Surely none of the men who came up out of Egypt, from twenty years old and upward, shall see the land which I swore to Abraham, to Isaac, and to Jacob; because they haven't wholly followed me, 
+'Surely none of the men who came up out of Egypt, from twenty years old and upward, will see the land which I swore to Abraham, to Isaac, and to Jacob; because they haven't wholly followed me, 
 except Caleb the son of Jephunneh the Kenizzite, and Joshua the son of Nun, because they have followed God completely.' 
 God's anger burned against Israel, and he made them wander back and forth in the wilderness forty years, until all the generation who had done bad in God's sight was consumed. 
 "Look, you have risen up in your fathers' place, an increase of sinful men, to increase the fierce anger of God toward Israel. 
 If you turn away from after him, he'll yet again leave them in the wilderness; and you'll destroy all these people." 
 They came near to him, and said, "We'll build sheepfolds here for our livestock, and cities for our little ones; 
-but we ourselves will be ready armed to go before the children of Israel, until we have brought them to their place. Our little ones shall dwell in the fortified cities because of the inhabitants of the land. 
+but we ourselves will be ready armed to go before the children of Israel, until we have brought them to their place. Our little ones will dwell in the fortified cities because of the inhabitants of the land. 
 We won't return to our houses until the children of Israel have all received their inheritance. 
 We won't inherit with them on the other side of the Jordan and beyond, because our inheritance has come to us on this side of the Jordan eastward." 
 Moses said to them: "If you'll do this thing, if you'll arm yourselves to go before God to the war, 
 and every one of your armed men will pass over the Jordan before God until he has driven out his enemies from before him, 
-and the land is subdued before God; then afterward you shall return, and be clear of obligation to God and to Israel. Then this land shall be your possession before God. 
+and the land is subdued before God; then afterward you will return, and be clear of obligation to God and to Israel. Then this land will be your possession before God. 
 "But if you won't do so, look, you have wronged God; and be sure your wrongdoing will find you out. 
 Build cities for your little ones, and folds for your sheep; and do that which has proceeded out of your mouth." 
 The children of Gad and the children of Reuben spoke to Moses, saying, "Your servants will do as my lord commands. 
-Our little ones, our wives, our flocks, and all our livestock shall be there in the cities of Gilead; 
+Our little ones, our wives, our flocks, and all our livestock will be there in the cities of Gilead; 
 but your servants will pass over, every man who's armed for war, before God to battle, as my lord says." 
 So Moses commanded concerning them to Eleazar the priest, and to Joshua the son of Nun, and to the heads of the fathers' households of the tribes of the children of Israel. 
-Moses said to them, "If the children of Gad and the children of Reuben will pass with you over the Jordan, every man who's armed to battle before God, and the land is subdued before you, then you shall give them the land of Gilead for a possession; 
-but if they won't pass over with you armed, they shall have possessions among you in the land of Canaan." 
+Moses said to them, "If the children of Gad and the children of Reuben will pass with you over the Jordan, every man who's armed to battle before God, and the land is subdued before you, then you will give them the land of Gilead for a possession; 
+but if they won't pass over with you armed, they will have possessions among you in the land of Canaan." 
 The children of Gad and the children of Reuben answered, saying, "As God has said to your servants, so will we do. 
-We'll pass over armed before God into the land of Canaan, and the possession of our inheritance shall remain with us beyond the Jordan." 
+We'll pass over armed before God into the land of Canaan, and the possession of our inheritance will remain with us beyond the Jordan." 
 Moses gave to them, even to the children of Gad, and to the children of Reuben, and to the half-tribe of Manasseh the son of Joseph, the kingdom of Sihon king of the Amorites, and the kingdom of Og king of Bashan; the land, according to its cities and borders, even the cities of the surrounding land. 
 The children of Gad built Dibon, Ataroth, Aroer, 
 Atroth-shophan, Jazer, Jogbehah, 

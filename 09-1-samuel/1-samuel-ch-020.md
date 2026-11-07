@@ -4,15 +4,15 @@ David swore moreover, and said, "Your father knows well that I have found favor 
 Then Jonathan said to David, "Whatever your soul desires, I'll even do it for you." 
 David said to Jonathan, "Look, tomorrow is the new moon, and I shouldn't fail to dine with the king; but let me go, that I may hide myself in the field to the third day at evening. 
 If your father misses me at all, then say, 'David earnestly asked leave of me that he might run to Bethlehem, his city; for it's the yearly sacrifice there for all the family.' 
-If he says, 'It's well,' your servant shall have peace; but if he's angry, then know that bad is determined by him. 
+If he says, 'It's well,' your servant will have peace; but if he's angry, then know that bad is determined by him. 
 So deal kindly with your servant, for you have brought your servant into a covenant of God with you; but if there's guilt in me, kill me yourself, for why should you bring me to your father?" 
 Jonathan said, "Far be it from you; for if I should at all know that bad were determined by my father to come on you, then wouldn't I tell you that?" 
 Then David said to Jonathan, "Who will tell me if your father answers you roughly?" 
 Jonathan said to David, "Come! Let's go out into the field." They both went out into the field. 
 Jonathan said to David, "By the God of Israel, when I have sounded out my father about this time tomorrow, or the third day, look, if there's good toward David, won't I then send to you and disclose it to you? 
 God do so to Jonathan and more also, should it please my father to do you bad, if I don't disclose it to you and send you away, that you may go in peace. May God be with you as he has been with my father. 
-You shall not only show me the loving kindness of God while I still live, that I not die; 
-but you shall also not cut off your kindness from my house for the eras, no, not when God has cut off every one of the enemies of David from the surface of the earth." 
+You won't only show me the loving kindness of God while I still live, that I not die; 
+but you will also not cut off your kindness from my house for the eras, no, not when God has cut off every one of the enemies of David from the surface of the earth." 
 So Jonathan made a covenant with David's house, saying, "God will require it at the hand of David's enemies." 
 Jonathan caused David to swear again, for the love that he had for him; for he loved him as he loved his own soul. 
 Then Jonathan said to him, "Tomorrow is the new moon, and you'll be missed, because your seat will be empty. 
@@ -28,7 +28,7 @@ On the next day after the new moon, the second day, David's place was empty. Sau
 Jonathan answered Saul, "David earnestly asked permission of me to go to Bethlehem. 
 He said, 'Please let me go, for our family has a sacrifice in the city. My brother has commanded me to be there. Now, if I have found favor in your eyes, please let me go away and see my brothers.' Therefore he hasn't come to the king's table." 
 Then Saul's anger burned against Jonathan, and he said to him, "You son of a perverse rebellious woman, don't I know that you have chosen the son of Jesse to your own shame, and to the shame of your mother's nakedness? 
-As long as the son of Jesse lives on the earth, you won't be established, nor will your kingdom. So now send and bring him to me, for he shall surely die!" 
+As long as the son of Jesse lives on the earth, you won't be established, nor will your kingdom. So now send and bring him to me, for he will surely die!" 
 Jonathan answered Saul his father, and said to him, "Why should he be put to death? What has he done?" 
 Saul cast his spear at him to strike him. By this Jonathan knew that his father was determined to put David to death. 
 So Jonathan arose from the table in fierce anger, and ate no food the second day of the month; for he was grieved for David, because his father had treated him shamefully. 

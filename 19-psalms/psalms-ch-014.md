@@ -4,4 +4,4 @@ They have all gone aside. They have together become corrupt. There's no one who 
 Have all the workers of guilt no knowledge, who eat up my people as they eat bread, and don't call on God? 
 There they were in great fear, for God is in the generation of the righteous. 
 You frustrate the plan of the poor, because God is his refuge. 
-Oh that the salvation of Israel would come out of Zion! When God restores the fortunes of his people, then Jacob shall rejoice, and Israel shall be glad. 
+Oh that the salvation of Israel would come out of Zion! When God restores the fortunes of his people, then Jacob will rejoice, and Israel will be glad. 

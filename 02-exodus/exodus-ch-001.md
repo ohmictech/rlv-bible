@@ -13,10 +13,10 @@ But the more they afflicted them, the more they multiplied and the more they spr
 The Egyptians ruthlessly made the children of Israel serve, 
 and they made their lives bitter with hard service in mortar and in brick, and in all kinds of service in the field, all their service, in which they ruthlessly made them serve. 
 The king of Egypt spoke to the Hebrew midwives, of whom the name of the one was Shiphrah, and the name of the other Puah, 
-and he said, "When you perform the duty of a midwife to the Hebrew women, and see them on the birth stool, if it's a son, then you shall kill him; but if it's a daughter, then she shall live." 
+and he said, "When you perform the duty of a midwife to the Hebrew women, and see them on the birth stool, if it's a son, then you will kill him; but if it's a daughter, then she will live." 
 But the midwives feared God, and didn't do what the king of Egypt commanded them, but saved the baby boys alive. 
 The king of Egypt called for the midwives, and said to them, "Why have you done this thing and saved the boys alive?" 
 The midwives said to Pharaoh, "Because the Hebrew women aren't like the Egyptian women; for they're vigorous and give birth before the midwife comes to them." 
 God dealt well with the midwives, and the people multiplied, and grew very mighty. 
 Because the midwives feared God, he gave them families. 
-Pharaoh commanded all his people, saying, "You shall cast every son who's born into the river, and every daughter you shall save alive." 
+Pharaoh commanded all his people, saying, "You will cast every son who's born into the river, and every daughter you will save alive." 

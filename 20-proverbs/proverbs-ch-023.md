@@ -18,7 +18,7 @@ Don't let your heart envy those who have drifted, but rather fear God all day lo
 Indeed surely there's a future hope, and your hope won't be cut off. 
 Listen, my son, and be wise, and keep your heart on the right path! 
 Don't be among ones drinking too much wine, or those who gorge themselves on meat; 
-for the drunkard and the glutton shall become poor; and drowsiness clothes them in rags. 
+for the drunkard and the glutton will become poor; and drowsiness clothes them in rags. 
 Listen to your father who gave you life, and don't despise your mother when she's old. 
 Buy the truth, and don't sell it. Get wisdom, discipline, and understanding. 
 The father of the righteous has great joy. Whoever fathers a wise child delights in him. 

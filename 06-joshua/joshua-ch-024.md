@@ -24,7 +24,7 @@ Joshua said to the people, "You're witnesses against yourselves that you have ch
 The people said to Joshua, "We'll serve our God, and we'll listen to his voice." 
 So Joshua made a covenant with the people that day, and made for them a statute and an ordinance in Shechem. 
 Joshua wrote these words in the book of the law of God; and he took a great stone, and set it up there under the oak that was by the sanctuary of God. 
-Joshua said to everyone, "Look, this stone shall be a witness against us, for it has heard all God's words which he spoke to us. It shall be a witness against you, lest you deny your God." 
+Joshua said to everyone, "Look, this stone will be a witness against us, for it has heard all God's words which he spoke to us. It will be a witness against you, lest you deny your God." 
 So Joshua sent the people away, each to his own inheritance. 
 After these things, Joshua the son of Nun, the servant of God, died, being one hundred ten years old. 
 They buried him in the border of his inheritance in Timnathserah, which is in the hill country of Ephraim, on the north of the mountain of Gaash. 

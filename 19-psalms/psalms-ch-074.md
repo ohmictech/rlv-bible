@@ -7,7 +7,7 @@ Now they break all its carved work down with hatchet and hammers.
 They have burned your sanctuary to the ground. They have profaned the dwelling place of your Name. 
 They said in their heart, "We'll crush them completely." They have burned up all the places in the land where God was worshiped. 
 We see no miraculous signs. There's no longer any spokesman, neither is there among us anyone who knows how long. 
-How long, God, shall the adversary reproach? Shall the enemy blaspheme your name for the eras? 
+How long, God, will the adversary reproach? Will the enemy blaspheme your name for the eras? 
 Why do you draw back your hand, even your right hand? Take it from your chest and consume them! 
 Yet God is my King of old, working salvation throughout the earth. 
 You divided the sea by your strength. You broke the heads of the sea monsters in the waters. 

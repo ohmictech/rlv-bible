@@ -11,7 +11,7 @@ The confused city is broken down. Every house is shut up, that no man may come i
 There's a crying in the streets because of the wine. All joy is darkened. The mirth of the land is gone. 
 The city is left in desolation, and the gate is struck with destruction. 
 It'll be so within the earth among the peoples, as the shaking of an olive tree, as the gleanings when the vintage is done. 
-These shall lift up their voice. They'll shout for the majesty of God. They cry aloud from the sea. 
+These will lift up their voice. They'll shout for the majesty of God. They cry aloud from the sea. 
 So glorify God in the east, even the name of the God of Israel, in the islands of the sea! 
 From the uttermost part of the earth have we heard songs. Glory to the righteous! But I said, "I pine away! I pine away! woe is me!" The treacherous have dealt treacherously. Yes, the treacherous have dealt very treacherously. 
 Fear, the pit, and the snare are on you who inhabit the earth. 

@@ -2,7 +2,7 @@
 So we won't be afraid, though the earth changes, though the mountains are shaken into the heart of the seas; 
 though its waters roar and are troubled, though the mountains tremble with their swelling. Selah. 
 There's a river, the streams of which make the city of God glad, the holy place of the tents of the Most High. 
-God is within her. She shall not be moved. God will help her at dawn. 
+God is within her. She won't be moved. God will help her at dawn. 
 The nations raged. The kingdoms were moved. He lifted his voice and the earth melted. 
 The God of Armies is with us. The God of Jacob is our refuge. Selah. 
 Come, see God's works, what desolations he has made on the earth. 

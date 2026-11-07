@@ -1,7 +1,7 @@
-﻿Naomi her mother-in-law said to her, "My daughter, shall I not seek rest for you, that it may be well with you? 
+﻿Naomi her mother-in-law said to her, "My daughter, will I not seek rest for you, that it may be well with you? 
 Now isn't Boaz our kinsman, with whose maidens you were? Look, he'll be winnowing barley tonight on the threshing floor. 
 So wash yourself, anoint yourself, get dressed, and go down to the threshing floor; but don't make yourself known to the man until he has finished eating and drinking. 
-It shall be, when he lies down, that you shall note the place where he's lying. Then you shall go in, uncover his feet, and lie down. Then he'll tell you what to do." 
+It will be, when he lies down, that you will note the place where he's lying. Then you will go in, uncover his feet, and lie down. Then he'll tell you what to do." 
 She said to her, "All that you say, I'll do." 
 She went down to the threshing floor, and did everything that her mother-in-law told her. 
 When Boaz had eaten and drunk, and his heart was merry, he went to lie down at the end of the heap of grain. She came softly, uncovered his feet, and lay down. 

@@ -1,18 +1,18 @@
 ﻿God spoke to Moses, saying, 
-"On the first day of the first month you shall raise up the tabernacle of the Tent of Meeting. 
-You shall put the ark of the covenant in it, and you shall screen the ark with the veil. 
-You shall bring in the table, and set in order the things that are on it. You shall bring in the lamp stand, and light its lamps. 
-You shall set the golden altar for incense before the ark of the covenant, and put the screen of the door to the tabernacle. 
-"You shall set the altar of burnt offering before the door of the tabernacle of the Tent of Meeting. 
-You shall set the bamistake between the Tent of Meeting and the altar, and shall put water therein. 
-You shall set up the court around it, and hang up the screen of the gate of the court. 
-"You shall take the anointing oil, and anoint the tabernacle and all that's in it, and shall make it holy, and all its furniture, and it'll be holy. 
-You shall anoint the altar of burnt offering, with all its vessels, and sanctify the altar, and the altar will be most holy. 
-You shall anoint the bamistake and its base, and sanctify it. 
-"You shall bring Aaron and his sons to the door of the Tent of Meeting, and shall wash them with water. 
-You shall put on Aaron the holy garments; and you shall anoint him, and sanctify him, that he may minister to me in the priest's office. 
-You shall bring his sons, and put tunics on them. 
-You shall anoint them, as you anointed their father, that they may minister to me in the priest's office. Their anointing shall be to them for an perpetual priesthood throughout their generations." 
+"On the first day of the first month you will raise up the tabernacle of the Tent of Meeting. 
+You will put the ark of the covenant in it, and you will screen the ark with the veil. 
+You will bring in the table, and set in order the things that are on it. You will bring in the lamp stand, and light its lamps. 
+You will set the golden altar for incense before the ark of the covenant, and put the screen of the door to the tabernacle. 
+"You will set the altar of burnt offering before the door of the tabernacle of the Tent of Meeting. 
+You will set the bamistake between the Tent of Meeting and the altar, and will put water therein. 
+You will set up the court around it, and hang up the screen of the gate of the court. 
+"You will take the anointing oil, and anoint the tabernacle and all that's in it, and will make it holy, and all its furniture, and it'll be holy. 
+You will anoint the altar of burnt offering, with all its vessels, and sanctify the altar, and the altar will be most holy. 
+You will anoint the bamistake and its base, and sanctify it. 
+"You will bring Aaron and his sons to the door of the Tent of Meeting, and will wash them with water. 
+You will put on Aaron the holy garments; and you will anoint him, and sanctify him, that he may minister to me in the priest's office. 
+You will bring his sons, and put tunics on them. 
+You will anoint them, as you anointed their father, that they may minister to me in the priest's office. Their anointing will be to them for an perpetual priesthood throughout their generations." 
 Moses did so. According to all that God commanded him, so he did. 
 In the first month in the second year, on the first day of the month, the tabernacle was raised up. 
 Moses raised up the tabernacle, and laid its sockets, and set up its boards, and put in its bars, and raised up its pillars. 

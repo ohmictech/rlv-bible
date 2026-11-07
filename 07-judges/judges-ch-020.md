@@ -15,17 +15,17 @@ The children of Benjamin gathered themselves together out of the cities to Gibea
 The children of Benjamin were counted on that day out of the cities twenty-six thousand men who drew the sword, in addition to the inhabitants of Gibeah, who were counted seven hundred chosen men. 
 Among all these soldiers there were seven hundred chosen men who were left-handed. Every one of them could sling a stone at a hair and not miss. 
 The men of Israel, besides Benjamin, were counted four hundred thousand men who drew sword. All these were men of war. 
-The children of Israel arose, went up to Bethel, and asked counsel of God. They asked, "Who shall go up for us first to battle against the children of Benjamin?" God said, "Judah first." 
+The children of Israel arose, went up to Bethel, and asked counsel of God. They asked, "Who will go up for us first to battle against the children of Benjamin?" God said, "Judah first." 
 The children of Israel rose up in the morning and encamped against Gibeah. 
 The men of Israel went out to battle against Benjamin; and the men of Israel set the battle in array against them at Gibeah. 
 The children of Benjamin came out of Gibeah, and on that day destroyed twenty-two thousand of the Israelite men down to the ground. 
 The people, the men of Israel, encouraged themselves, and set the battle again in array in the place where they set themselves in array the first day. 
-The children of Israel went up and wept before God until evening; and they asked of God, saying, "Shall I again draw near to battle against the children of Benjamin my brother?" God said, "Go up against him." 
+The children of Israel went up and wept before God until evening; and they asked of God, saying, "Will I again draw near to battle against the children of Benjamin my brother?" God said, "Go up against him." 
 The children of Israel came near against the children of Benjamin the second day. 
 Benjamin went out against them out of Gibeah the second day, and destroyed down to the ground of the children of Israel again eighteen thousand men. All these drew the sword. 
 Then all the children of Israel and everyone went up, and came to Bethel, and wept, and sat there before God, and fasted that day until evening; then they offered burnt offerings and offerings for wholeness before God. 
 The children of Israel asked God (for the ark of the covenant of God was there in those days, 
-and Phinehas, the son of Eleazar, the son of Aaron, stood before it in those days), saying, "Shall I yet again go out to battle against the children of Benjamin my brother, or shall I cease?" God said, "Go up; for tomorrow I'll deliver him into your hand." 
+and Phinehas, the son of Eleazar, the son of Aaron, stood before it in those days), saying, "Will I yet again go out to battle against the children of Benjamin my brother, or will I cease?" God said, "Go up; for tomorrow I'll deliver him into your hand." 
 Israel set ambushes all around Gibeah. 
 The children of Israel went up against the children of Benjamin on the third day, and set themselves in array against Gibeah, as at other times. 
 The children of Benjamin went out against the people, and were drawn away from the city; and they began to strike and kill of the people as at other times, in the highways, of which one goes up to Bethel and the other to Gibeah, in the field, about thirty men of Israel. 

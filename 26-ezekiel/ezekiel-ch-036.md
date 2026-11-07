@@ -5,13 +5,13 @@ So, you mountains of Israel, hear the word of God: The God says to the mountains
 So God says: "Surely in the fire of my jealousy I have spoken against the residue of the nations, and against all Edom, that have appointed my land to themselves for a possession with the joy of all their heart, with despite of soul, to cast it out for a prey."' 
 Therefore prophesy concerning the land of Israel, and tell the mountains, the hills, the watercourses and the valleys, 'The God says: "Look, I have spoken in my jealousy and in my wrath, because you have borne the shame of the nations." 
 So God says: "I have sworn, 'Surely the nations that are around you'll bear their shame.' 
-"'"But you, mountains of Israel, you shall shoot out your branches and yield your fruit to my people Israel; for they're at hand to come. 
+"'"But you, mountains of Israel, you will shoot out your branches and yield your fruit to my people Israel; for they're at hand to come. 
 For, look, I'm for you, and I'll come to you, and you'll be tilled and sown. 
 I'll multiply men on you, all the house of Israel, even all of it. The cities will be inhabited and the waste places will be built. 
 I'll multiply man and animal on you. They'll increase and be fruitful. I'll cause you to be inhabited as you were before, and you'll do better than at your beginnings. Then you'll know that I'm God. 
 Yes, I'll cause men to walk on you, even my people Israel. They'll possess you, and you'll be their inheritance, and you'll never again bereave them of their children." 
 "'The God says: "Because they say to you, 'You're a devourer of men, and have been a bereaver of your nation;' 
-So you shall devour men no more, and not bereave your nation any more," says God. 
+So you will devour men no more, and not bereave your nation any more," says God. 
 "I won't let you hear the shame of the nations any more. You won't bear the reproach of the peoples any more, and you won't cause your nation to stumble any more," says God.'" 
 Moreover God's word came to me, saying, 
 "Son of man, when the house of Israel lived in their own land, they defiled it by their ways and by their deeds. Their way before me was as the uncleanness of a woman in her impurity. 

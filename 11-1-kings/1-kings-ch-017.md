@@ -1,7 +1,7 @@
-﻿Elijah the Tishbite, who was one of the settlers of Gilead, said to Ahab, "As the God of Israel lives, before whom I stand, there shall not be dew nor rain these years, but according to my word." 
+﻿Elijah the Tishbite, who was one of the settlers of Gilead, said to Ahab, "As the God of Israel lives, before whom I stand, there won't be dew nor rain these years, but according to my word." 
 Then God's word came to him, saying, 
 "Go away from here, turn eastward, and hide yourself by the brook Cherith, that's before the Jordan. 
-You shall drink from the brook. I have commanded the ravens to feed you there." 
+You will drink from the brook. I have commanded the ravens to feed you there." 
 So he went and did according to God's word, for he went and lived by the brook Cherith that's before the Jordan. 
 The ravens brought him bread and meat in the morning, and bread and meat in the evening; and he drank from the brook. 
 After a while, the brook dried up, because there was no rain in the land. 

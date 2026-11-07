@@ -3,7 +3,7 @@ He enters into peace. They rest in their beds, each one who walks in his upright
 "But draw near here, you sons of a sorceress, you offspring of adulterers and prostitutes. 
 Whom do you mock? Against whom do you make a wide mouth and stick out your tongue? Aren't you children of disobedience and offspring of falsehood, 
 you who inflame yourselves among the oaks, under every green tree; who kill the children in the valleys, under the clefts of the rocks? 
-Among the smooth stones of the valley is your portion. They, they're your lot. You have even poured a drink offering to them. You have offered an offering. Shall I be appeased for these things? 
+Among the smooth stones of the valley is your portion. They, they're your lot. You have even poured a drink offering to them. You have offered an offering. Will I be appeased for these things? 
 On a high and lofty mountain you have set your bed. You also went up there to offer sacrifice. 
 You have set up your memorial behind the doors and the posts, for you have exposed yourself to someone besides me, and have gone up. You have enlarged your bed and made a covenant for yourself with them. You loved what you saw on their bed. 
 You went to the king with oil, increased your perfumes, sent your ambassadors far off, and degraded yourself even to Hades. 

@@ -18,7 +18,7 @@ Saul said to David, "Look, my elder daughter Merab. I'll give her to you as wife
 David said to Saul, "Who am I, and what's my life, or my father's family in Israel, that I should be son-in-law to the king?" 
 But at the time when Merab, Saul's daughter, should have been given to David, she was given to Adriel the Meholathite as wife. 
 Michal, Saul's daughter, loved David; and they told Saul, and the thing pleased him. 
-Saul said, I'll give her to him, that she may be a snare to him and that the hand of the Philistines may be against him. So Saul said to David a second time, "You shall today be my son-in-law." 
+Saul said, I'll give her to him, that she may be a snare to him and that the hand of the Philistines may be against him. So Saul said to David a second time, "You will today be my son-in-law." 
 Saul commanded his servants, "Talk with David secretly, and say, 'Look, the king has delight in you, and all his servants love you. Now be the king's son-in-law.'" 
 Saul's servants spoke those words in the ears of David. David said, "Does it seem to you a light thing to be the king's son-in-law, since I'm a poor man and little known?" 
 The servants of Saul told him, saying, "David spoke like this." 

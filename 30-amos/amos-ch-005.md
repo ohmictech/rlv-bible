@@ -1,14 +1,14 @@
 ﻿Listen to this word which I take up for a lamentation over you, O house of Israel: 
-"The virgin of Israel has fallen; She shall rise no more. She's cast down on her land; there's no one to raise her up." 
-God says: "The city that went out a thousand shall have a hundred left, and that which went out one hundred shall have ten left to the house of Israel." 
+"The virgin of Israel has fallen; She will rise no more. She's cast down on her land; there's no one to raise her up." 
+God says: "The city that went out a thousand will have a hundred left, and that which went out one hundred will have ten left to the house of Israel." 
 God says to the house of Israel: "Seek me, and you'll live; 
-but don't seek Bethel, nor enter into Gilgal, and don't pass to Beersheba; for Gilgal shall surely go into captivity, and Bethel shall come to nothing. 
+but don't seek Bethel, nor enter into Gilgal, and don't pass to Beersheba; for Gilgal will surely go into captivity, and Bethel will come to nothing. 
 Seek God, and you'll live, lest he break out like fire in the house of Joseph, and it devour, and there be no one to quench it in Bethel. 
 You who turn justice to wormwood, and cast down righteousness to the earth! 
 Seek him who made the Pleiades and Orion, and turns the shadow of death into the morning, and makes the day dark with night; who calls for the waters of the sea, and pours them out on the surface of the earth, God is his name, 
 who brings sudden destruction on the strong, so that destruction comes on the fortress. 
 They hate him who reproves in the gate, and they abhor him who speaks blamelessly. 
-So, because you trample on the poor and take taxes from him of wheat, you have built houses of cut stone, but you won't dwell in them. You have planted pleasant vineyards, but you shall not drink their wine. 
+So, because you trample on the poor and take taxes from him of wheat, you have built houses of cut stone, but you won't dwell in them. You have planted pleasant vineyards, but you won't drink their wine. 
 I know how many are your offenses, and how great are your mistakes, you who afflict the just, who take a bribe, and who turn away the needy in the courts. 
 So a prudent person keeps silent in such a time, for it's an bad time. 
 Seek good, and not bad, that you may live; and so the God of Armies will be with you, as you say. 

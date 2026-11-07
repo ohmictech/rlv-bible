@@ -6,14 +6,14 @@ He said, "Blessed be the God of Israel, who spoke with his mouth to David my fat
 but now I have chosen Jerusalem, that my name might be there; and I have chosen David to be over my people Israel.' 
 Now it was in the heart of David my father to build a house for the name of the God of Israel. 
 But God said to David my father, 'Whereas it was in your heart to build a house for my name, you did well that it was in your heart; 
-nevertheless you shall not build the house, but your son who will come out of your body, he shall build the house for my name.' 
+nevertheless you won't build the house, but your son who will come out of your body, he will build the house for my name.' 
 "God has performed his word that he spoke; for I have risen up in the place of David my father, and sit on the throne of Israel, as God promised, and have built the house for the name of the God of Israel. 
 There I have set the ark, in which is God's covenant, which he made with the children of Israel." 
 He stood before God's altar in the presence of all the assembly of Israel, and spread out his hands 
 (for Solomon had made a bronze platform, five cubits long, five cubits wide, and three cubits high, and had set it in the middle of the court; and he stood on it, and knelt down on his knees before all the assembly of Israel, and spread out his hands toward the sky). 
 Then he said, "the God of Israel, there's no God like you in the sky or on earth, you who keep covenant and loving kindness with your servants who walk before you with all their heart; 
 who have kept with your servant David my father that which you promised him. Yes, you spoke with your mouth, and have fulfilled it with your hand, as it's today. 
-"Now, the God of Israel, keep with your servant David my father that which you have promised him, saying, 'There shall not fail you a man in my sight to sit on the throne of Israel, if only your children take heed to their way, to walk in my law as you have walked before me.' 
+"Now, the God of Israel, keep with your servant David my father that which you have promised him, saying, 'There won't fail you a man in my sight to sit on the throne of Israel, if only your children take heed to their way, to walk in my law as you have walked before me.' 
 Now, the God of Israel, let your word be verified, which you spoke to your servant David. 
 "But will God indeed dwell with men on the earth? Look, the sky and the sky above the skies can't contain you; how much less this house which I have built! 
 Yet have respect for the prayer of your servant and to his supplication, God my God, to listen to the cry and to the prayer which your servant prays before you; 
@@ -26,7 +26,7 @@ then hear from the sky, and forgive the wrongdoing of your people Israel, and br
 "When the sky is shut up and there's no rain because they have wronged you, if they pray toward this place and confess your name, and turn from their wrongdoing when you afflict them, 
 then hear in the sky, and forgive the wrongdoing of your servants, your people Israel, when you teach them the good way in which they should walk, and send rain on your land, which you have given to your people for an inheritance. 
 "If there's famine in the land, if there's pestilence, if there's blight or mildew, locust or caterpillar; if their enemies besiege them in the land of their cities; whatever plague or whatever sickness there's 
-whatever prayer and supplication is made by any man, or by all your people Israel, who will each know his own plague and his own sorrow, and shall spread out his hands toward this house, 
+whatever prayer and supplication is made by any man, or by all your people Israel, who will each know his own plague and his own sorrow, and will spread out his hands toward this house, 
 then hear from the sky your dwelling place and forgive, and give to every man according to all his ways, whose heart you know (for you, even you only, know the hearts of the children of men), 
 that they may fear you, to walk in your ways as long as they live in the land which you gave to our fathers. 
 "Moreover, concerning the foreigner, who isn't of your people Israel, when he comes from a far country for your great name's sake and your mighty hand and your outstretched arm, when they come and pray toward this house, 

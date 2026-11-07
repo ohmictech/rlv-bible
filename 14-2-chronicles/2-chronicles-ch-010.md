@@ -7,7 +7,7 @@ King Rehoboam took counsel with the old men, who had stood before Solomon his fa
 They spoke to him, saying, "If you're kind to these people, please them, and speak good words to them, then they'll be your servants for the eras." 
 But he abandoned the counsel of the old men which they had given him, and took counsel with the young men who had grown up with him, who stood before him. 
 He said to them, "What counsel do you give, that we may give an answer to these people, who have spoken to me, saying, 'Make the yoke that your father put on us lighter'?" 
-The young men who had grown up with him spoke to him, saying, "Thus you shall tell the people who spoke to you, saying, 'Your father made our yoke heavy, but make it lighter on us;' thus you shall say to them, 'My little finger is thicker than my father's waist. 
+The young men who had grown up with him spoke to him, saying, "Thus you will tell the people who spoke to you, saying, 'Your father made our yoke heavy, but make it lighter on us;' thus you will say to them, 'My little finger is thicker than my father's waist. 
 Now whereas my father burdened you with a heavy yoke, I'll add to your yoke. My father chastised you with whips, but I'll chastise you with scorpions.'" 
 So Jeroboam and everyone came to Rehoboam the third day, as the king asked, saying, "Come to me again the third day." 
 The king answered them roughly; and King Rehoboam abandoned the counsel of the old men, 

@@ -35,14 +35,14 @@ He teaches my hands to war, so that my arms bend a bow of bronze.
 You have also given me the shield of your salvation. Your right hand sustains me. Your gentleness has made me great. 
 You have enlarged my steps under me, My feet haven't slipped. 
 I'll pursue my enemies, and overtake them. I won't turn away until they're consumed. 
-I'll strike them through, so that they won't be able to rise. They shall fall under my feet. 
+I'll strike them through, so that they won't be able to rise. They will fall under my feet. 
 You have armed me with strength to the battle. You have subdued under me those who rose up against me. 
 You have also made my enemies turn their backs to me, that I might cut off those who hate me. 
 They cried, but there was no one to save; even to God, but he didn't answer them. 
 Then I beat them small as the dust before the wind. I cast them out as the mire of the streets. 
-You have delivered me from the strivings of the people. You have made me the head of the nations. A people whom I haven't known shall serve me. 
-As soon as they hear of me they shall obey me. The foreigners shall submit themselves to me. 
-The foreigners shall fade away, and shall come trembling out of their strongholds. 
+You have delivered me from the strivings of the people. You have made me the head of the nations. A people whom I haven't known will serve me. 
+As soon as they hear of me they will obey me. The foreigners will submit themselves to me. 
+The foreigners will fade away, and will come trembling out of their strongholds. 
 God lives! Blessed be my rock. Exalted be the God of my salvation, 
 even the God who executes vengeance for me, and subdues peoples under me. 
 He rescues me from my enemies. Yes, you lift me up above those who rise up against me. You deliver me from the violent man. 

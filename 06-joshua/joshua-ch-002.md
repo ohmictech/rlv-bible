@@ -11,13 +11,13 @@ We have heard how God dried up the water of the Red Sea before you, when you cam
 As soon as we had heard it, our hearts melted, and there wasn't any more spirit in any man, because of you: for your God is God in the sky above, and on earth beneath. 
 Now, please swear to me by God, since I have dealt kindly with you, that you also will deal kindly with my father's house, and give me a true sign; 
 and that you'll save alive my father, my mother, my brothers, and my sisters, and all that they have, and will deliver our lives from death." 
-The men said to her, "Our life for yours, if you don't talk about this business of ours; and it shall be, when God gives us the land, that we'll deal kindly and truly with you." 
+The men said to her, "Our life for yours, if you don't talk about this business of ours; and it will be, when God gives us the land, that we'll deal kindly and truly with you." 
 Then she let them down by a cord through the window; for her house was on the side of the wall, and she lived on the wall. 
 She said to them, "Go to the mountain, lest the pursuers find you. Hide yourselves there three days, until the pursuers have returned. Afterward, you may go your way." 
 The men said to her, "We'll be guiltless of this your oath which you've made us to swear. 
 Look, when we come into the land, tie this line of scarlet thread in the window which you used to let's down. Gather to yourself into the house your father, your mother, your brothers, and all your father's household. 
-It shall be that whoever goes out of the doors of your house into the street, his blood will be on his head, and we'll be guiltless. Whoever is with you in the house, his blood shall be on our head, if any hand is on him. 
-But if you talk about this business of ours, then we shall be guiltless of your oath which you've made us to swear." 
+It will be that whoever goes out of the doors of your house into the street, his blood will be on his head, and we'll be guiltless. Whoever is with you in the house, his blood will be on our head, if any hand is on him. 
+But if you talk about this business of ours, then we will be guiltless of your oath which you've made us to swear." 
 She said, "Let it be as you have said." She sent them away, and they departed. Then she tied the scarlet line in the window. 
 They went and came to the mountain, and stayed there three days, until the pursuers had returned. The pursuers sought them all along the way, but didn't find them. 
 Then the two men returned, descended from the mountain, crossed the river, and came to Joshua the son of Nun. They told him all that had happened to them. 

@@ -5,25 +5,25 @@ Why have you brought God's assembly into this wilderness, that we should die the
 Why have you made us to come up out of Egypt, to bring us in to this bad place? It's no place of seed, or of figs, or of vines, or of pomegranates; neither is there any water to drink." 
 Moses and Aaron went from the presence of the assembly to the door of the Tent of Meeting, and fell on their faces. God's glory appeared to them. 
 God spoke to Moses, saying, 
-"Take the rod, and assemble the congregation, you, and Aaron your brother, and speak to the rock before their eyes, that it pour out its water. You shall bring water to them out of the rock; so you shall give the congregation and their livestock drink." 
+"Take the rod, and assemble the congregation, you, and Aaron your brother, and speak to the rock before their eyes, that it pour out its water. You will bring water to them out of the rock; so you will give the congregation and their livestock drink." 
 Moses took the rod from before God, as he commanded him. 
-Moses and Aaron gathered the assembly together before the rock, and he said to them, "Hear now, you rebels! Shall we bring water out of this rock for you?" 
+Moses and Aaron gathered the assembly together before the rock, and he said to them, "Hear now, you rebels! Will we bring water out of this rock for you?" 
 Moses lifted up his hand, and struck the rock with his rod twice, and water came out abundantly. The congregation and their livestock drank. 
-God said to Moses and Aaron, "Because you didn't believe in me, to sanctify me in the eyes of the children of Israel, you shall not bring this assembly into the land which I have given them." 
+God said to Moses and Aaron, "Because you didn't believe in me, to sanctify me in the eyes of the children of Israel, you won't bring this assembly into the land which I have given them." 
 These are the waters of Meribah; because the children of Israel strove with God, and he was sanctified in them. 
 Moses sent messengers from Kadesh to the king of Edom, saying: "Your brother Israel says: You know all the travail that has happened to us; 
 how our fathers went down into Egypt, and we lived in Egypt a long time. The Egyptians mistreated us and our fathers. 
 When we cried to God, he heard our voice, sent an messenger, and brought us out of Egypt. Look, we're in Kadesh, a city in the edge of your border. 
 "Please let's pass through your land. We won't pass through field or through vineyard, neither will we drink from the water of the wells. We'll go along the king's highway. We won't turn away to the right hand nor to the left, until we have passed your border." 
-Edom said to him, "You shall not pass through me, lest I come out with the sword against you." 
+Edom said to him, "You won't pass through me, lest I come out with the sword against you." 
 The children of Israel said to him, "We'll go up by the highway; and if we drink your water, I and my livestock, then I'll give its price. Only let me, without doing anything else, pass through on my feet." 
-He said, "You shall not pass through." Edom came out against him with many people, and with a strong hand. 
+He said, "You won't pass through." Edom came out against him with many people, and with a strong hand. 
 Thus Edom refused to give Israel passage through his border, so Israel turned away from him. 
 They traveled from Kadesh, and the children of Israel, even the whole congregation, came to Mount Hor. 
 God spoke to Moses and Aaron in Mount Hor, by the border of the land of Edom, saying, 
-"Aaron shall be gathered to his people; for he shall not enter into the land which I have given to the children of Israel, because you rebelled against my word at the waters of Meribah. 
+"Aaron will be gathered to his people; for he won't enter into the land which I have given to the children of Israel, because you rebelled against my word at the waters of Meribah. 
 Take Aaron and Eleazar his son, and bring them up to Mount Hor; 
-and strip Aaron of his garments, and put them on Eleazar his son. Aaron shall be gathered, and shall die there." 
+and strip Aaron of his garments, and put them on Eleazar his son. Aaron will be gathered, and will die there." 
 Moses did as God commanded. They went up onto Mount Hor in the sight of all the congregation. 
 Moses stripped Aaron of his garments, and put them on Eleazar his son. Aaron died there on the top of the mountain, and Moses and Eleazar came down from the mountain. 
 When all the congregation saw that Aaron was dead, they wept for Aaron thirty days, even all the house of Israel. 

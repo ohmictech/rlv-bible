@@ -1,12 +1,12 @@
 ﻿Then God said to Moses, "Go in to Pharaoh, and tell him, 'This is what the God of the Hebrews, says: "Let my people go, that they may serve me. 
 If you refuse to let them go, and hold them still, 
 Look, God's hand is on your livestock which are in the field, on the horses, on the donkeys, on the camels, on the herds, and on the flocks with a very grievous pestilence. 
-God will make a distinction between the livestock of Israel and the livestock of Egypt; and nothing shall die of all that belongs to the children of Israel."'" 
-God appointed a set time, saying, "Tomorrow God shall do this thing in the land." 
+God will make a distinction between the livestock of Israel and the livestock of Egypt; and nothing will die of all that belongs to the children of Israel."'" 
+God appointed a set time, saying, "Tomorrow God will do this thing in the land." 
 God did that thing on the next day; and all the livestock of Egypt died, but of the livestock of the children of Israel, not one died. 
 Pharaoh sent, and, look, there wasn't so much as one of the livestock of the Israelites dead. But the heart of Pharaoh was stubborn, and he didn't let the people go. 
 God said to Moses and to Aaron, "Take handfuls of ashes of the furnace, and let Moses sprinkle it toward the sky in the sight of Pharaoh. 
-It shall become small dust over all the land of Egypt, and shall be boils and blisters breaking out on man and on animal, throughout all the land of Egypt." 
+It will become small dust over all the land of Egypt, and will be boils and blisters breaking out on man and on animal, throughout all the land of Egypt." 
 They took ashes of the furnace, and stood before Pharaoh; and Moses sprinkled it up toward the sky; and it became boils and blisters breaking out on man and on animal. 
 The magicians couldn't stand before Moses because of the boils; for the boils were on the magicians and on all the Egyptians. 
 God hardened the heart of Pharaoh, and he didn't listen to them, as God had spoken to Moses. 
@@ -25,8 +25,8 @@ So there was very severe hail, and lightning mixed with the hail, such as hadn't
 The hail struck throughout all the land of Egypt all that was in the field, both man and animal; and the hail struck every herb of the field, and broke every tree of the field. 
 Only in the land of Goshen, where the children of Israel were, there was no hail. 
 Pharaoh sent and called for Moses and Aaron, and said to them, "I have drifted this time. God is righteous, and I and my people are guilty. 
-Pray to God; for there has been enough of mighty thunderings and hail. I'll let you go, and you shall stay no longer." 
-Moses said to him, "As soon as I have gone out of the city, I'll spread out my hands to God. The thunders shall cease, and there won't be any more hail; that you may know that the earth is God's. 
+Pray to God; for there has been enough of mighty thunderings and hail. I'll let you go, and you will stay no longer." 
+Moses said to him, "As soon as I have gone out of the city, I'll spread out my hands to God. The thunders will cease, and there won't be any more hail; that you may know that the earth is God's. 
 But as for you and your servants, I know that you don't yet fear God." 
 The flax and the barley were struck, for the barley had ripened and the flax was blooming. 
 But the wheat and the spelt weren't struck, for they hadn't grown up. 

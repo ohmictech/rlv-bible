@@ -1,7 +1,7 @@
-﻿"You, son of man, take a sharp sword. You shall take it as a barber's razor to yourself, and shall cause it to pass over your head and over your beard. Then take balances to weigh and divide the hair. 
-A third part you shall burn in the fire in the middle of the city, when the days of the siege are fulfilled. You shall take a third part, and strike with the sword around it. A third part you shall scatter to the wind, and I'll draw out a sword after them. 
-You shall take a small number of these and bind them in the folds of your robe. 
-Of these again you shall take, and cast them into the middle of the fire, and burn them in the fire. From it a fire will come out into all the house of Israel. 
+﻿"You, son of man, take a sharp sword. You will take it as a barber's razor to yourself, and will cause it to pass over your head and over your beard. Then take balances to weigh and divide the hair. 
+A third part you will burn in the fire in the middle of the city, when the days of the siege are fulfilled. You will take a third part, and strike with the sword around it. A third part you will scatter to the wind, and I'll draw out a sword after them. 
+You will take a small number of these and bind them in the folds of your robe. 
+Of these again you will take, and cast them into the middle of the fire, and burn them in the fire. From it a fire will come out into all the house of Israel. 
 "The God says: 'This is Jerusalem. I have set her in the middle of the nations, and countries are around her. 
 She has rebelled against my ordinances in doing guilt more than the nations, and against my statutes more than the countries that are around her; for they have rejected my ordinances, and as for my statutes, they haven't walked in them.' 
 "Therefore God says: 'Because you're more turbulent than the nations that are around you, and haven't walked in my statutes, neither have kept my ordinances, neither have followed the ordinances of the nations that are around you; 

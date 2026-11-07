@@ -9,12 +9,12 @@ When these lepers came to the outermost part of the camp, they went into one ten
 Then they said to one another, "We aren't doing right. Today is a day of good news, and we keep silent. If we wait until the morning light, punishment will overtake us. Now come, let's go and tell the king's household." 
 So they came and called to the city gatekeepers; and they told them, "We came to the camp of the Syrians, and, look, there was no man there, not even a man's voice, but the horses tied, and the donkeys tied, and the tents as they were." 
 Then the gatekeepers called out and told it to the king's household within. 
-The king arose in the night, and said to his servants, "I'll now show you what the Syrians have done to us. They know that we're hungry. So they have gone out of the camp to hide themselves in the field, saying, 'When they come out of the city, we shall take them alive, and get into the city.'" 
+The king arose in the night, and said to his servants, "I'll now show you what the Syrians have done to us. They know that we're hungry. So they have gone out of the camp to hide themselves in the field, saying, 'When they come out of the city, we will take them alive, and get into the city.'" 
 One of his servants answered, "Please let some people take five of the horses that remain, which are left in the city. Look, they're like all the multitude of Israel who are left in it. Look, they're like all the multitude of Israel who are consumed. Let's send and see." 
 So they took two chariots with horses; and the king sent them out to the Syrian army, saying, "Go and see." 
 They went after them to the Jordan; and look, all the path was full of garments and equipment which the Syrians had cast away in their haste. The messengers returned and told the king. 
 The people went out and plundered the camp of the Syrians. So a seah of fine flour was sold for a shekel, and two measures of barley for a shekel, according to God's word. 
 The king had appointed the captain on whose hand he leaned to be in charge of the gate; and the people trampled over him in the gate, and he died as the man of God had said, who spoke when the king came down to him. 
-It happened as the man of God had spoken to the king, saying, "Two seahs of barley for a shekel, and a seah of fine flour for a shekel, shall be tomorrow about this time in the gate of Samaria;" 
+It happened as the man of God had spoken to the king, saying, "Two seahs of barley for a shekel, and a seah of fine flour for a shekel, will be tomorrow about this time in the gate of Samaria;" 
 and that captain answered the man of God, and said, "Now, look, if God made windows in the sky, might such a thing be?" and he said, "Look, you'll see it with your eyes, but won't eat of it." 
 It happened like that to him, for the people trampled over him in the gate, and he died. 

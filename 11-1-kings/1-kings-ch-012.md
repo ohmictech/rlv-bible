@@ -21,7 +21,7 @@ When all Israel heard that Jeroboam had returned, they sent and called him to th
 When Rehoboam had come to Jerusalem, he assembled all the house of Judah and the tribe of Benjamin, a hundred and eighty thousand chosen men who were warriors, to fight against the house of Israel, to bring the kingdom again to Rehoboam the son of Solomon. 
 But the word of God came to Shemaiah the man of God, saying, 
 "Speak to Rehoboam the son of Solomon, king of Judah, and to all the house of Judah and Benjamin, and to the rest of the people, saying, 
-'God says, "You shall not go up or fight against your brothers, the children of Israel. Everyone return to his house; for this thing is from me."'" So they listened to God's word, and returned and went their way, according to God's word. 
+'God says, "You won't go up or fight against your brothers, the children of Israel. Everyone return to his house; for this thing is from me."'" So they listened to God's word, and returned and went their way, according to God's word. 
 Then Jeroboam built Shechem in the hill country of Ephraim, and lived in it; and he went out from there and built Penuel. 
 Jeroboam said in his heart, "Now the kingdom will return to David's house. 
 If this people goes up to offer sacrifices in God's house at Jerusalem, then the heart of this people will turn again to their lord, even to Rehoboam king of Judah; and they'll kill me, and return to Rehoboam king of Judah." 

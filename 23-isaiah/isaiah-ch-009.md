@@ -1,10 +1,10 @@
-﻿But there shall be no more gloom for her who was in anguish. In the former time, he brought into contempt the land of Zebulun and the land of Naphtali; but in the latter time he has made it glorious, by the way of the sea, beyond the Jordan, Galilee of the nations. 
+﻿But there will be no more gloom for her who was in anguish. In the former time, he brought into contempt the land of Zebulun and the land of Naphtali; but in the latter time he has made it glorious, by the way of the sea, beyond the Jordan, Galilee of the nations. 
 The people who walked in darkness have seen a great light. The light has shined on those who lived in the land of the shadow of death. 
 You have multiplied the nation. You have increased their joy. They rejoice before you according to the joy in harvest, as men rejoice when they divide the plunder. 
 The yoke of his burden, and the staff of his shoulder, the rod of his oppressor, you have broken as in the day of Midian. 
 All the armor of the armed man in the noisy battle, and the garments rolled in blood, will be for burning, fuel for the fire. 
 A child is born to us. A son is given to us; and the government will be on his shoulders. His name will be called Wonderful Counselor, Mighty God, Father of the eras, Prince of Peace. 
-Of the increase of his government and of peace there shall be no end, on David's throne, and on his kingdom, to establish it, and to uphold it with justice and with righteousness from that time on, even for the eras. The passion of the God of Armies will perform this. 
+Of the increase of his government and of peace there will be no end, on David's throne, and on his kingdom, to establish it, and to uphold it with justice and with righteousness from that time on, even for the eras. The passion of the God of Armies will perform this. 
 The Lord sent a word into Jacob, and it falls on Israel. 
 Everyone will know, including Ephraim and the inhabitants of Samaria, who say in pride and in arrogance of heart, 
 "The bricks have fallen, but we'll build with cut stone. The sycamore fig trees have been cut down, but we'll put cedars in their place." 

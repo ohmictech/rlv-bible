@@ -14,7 +14,7 @@ Seeing a fig tree in the distance with leaves, he went to see if perhaps he coul
 Jesus told it, "May no one ever eat fruit from you again!" and his students heard it. 
 They came to Jerusalem, and Jesus entered the temple courts and began to throw out those who were selling and buying there. He overturned the tables of the money changers and the seats of those who sold doves. 
 He wouldn't let anyone carry a container through the temple courts. 
-He taught, saying to them, "Isn't it written, 'My house shall be called a house of prayer for all the nations'? But you have made it a den of robbers!" 
+He taught, saying to them, "Isn't it written, 'My house will be called a house of prayer for all the nations'? But you have made it a den of robbers!" 
 The chief priests and the Bible teachers heard it and looked for a way to kill him, for they feared him, because the whole crowd was astonished at his teaching. 
 When evening came, he went out of the city. 
 As they passed by in the morning, they saw the fig tree withered away from the roots. 

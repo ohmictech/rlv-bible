@@ -8,7 +8,7 @@ Who shouldn't fear you, King of the nations? It belongs to you. Because among al
 But they're together brutish and foolish, instructed by idols! It's just wood. 
 There's silver beaten into plates, which is brought from Tarshish, and gold from Uphaz, the work of the engraver and of the hands of the goldsmith. Their clothing is blue and purple. They're all the work of skillful men. 
 But God is the true God. He's the living God, and an perpetual King. At his wrath, the earth trembles. The nations aren't able to withstand his indignation. 
-"You shall say this to them: 'The gods that haven't made the sky and the earth will perish from the earth, and from under the sky.'" 
+"You will say this to them: 'The gods that haven't made the sky and the earth will perish from the earth, and from under the sky.'" 
 God has made the earth by his power. He has established the world by his wisdom, and by his understanding has he stretched out the sky. 
 When he utters his voice, the waters in the sky roar, and he causes the vapors to ascend from the ends of the earth. He makes lightnings for the rain, and brings the wind out of his treasuries. 
 Every man has become brutish and without knowledge. Every goldsmith is disappointed by his engraved image; for his molten image is falsehood, and there's no breath in them. 

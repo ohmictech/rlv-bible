@@ -24,7 +24,7 @@ God's word came to me, saying,
 "Son of man, those who inhabit the waste places in the land of Israel speak, saying, 'Abraham was one, and he inherited the land; but we're many. The land is given us for inheritance.' 
 Therefore tell them, 'The God says: "You eat with the blood, and lift up your eyes to your idols, and shed blood. So should you possess the land? 
 You stand on your sword, you work abomination, and every one of you defiles his neighbor's wife. So should you possess the land?"' 
-"You shall tell them, 'The God says: "As I live, surely those who are in the waste places will fall by the sword. I'll give whoever is in the open field to the animals to be devoured, and those who are in the strongholds and in the caves will die of the pestilence. 
+"You will tell them, 'The God says: "As I live, surely those who are in the waste places will fall by the sword. I'll give whoever is in the open field to the animals to be devoured, and those who are in the strongholds and in the caves will die of the pestilence. 
 I'll make the land a desolation and an astonishment. The pride of her power will cease. The mountains of Israel will be desolate, so that no one will pass through. 
 Then they'll know that I'm God, when I have made the land a desolation and an astonishment because of all their abominations which they have committed."' 
 "As for you, son of man, the children of your people talk about you by the walls and in the doors of the houses, and speak to one another, everyone to his brother, saying, 'Please come and hear what the word is that comes out from God.' 

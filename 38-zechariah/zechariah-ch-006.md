@@ -11,5 +11,5 @@ God's word came to me, saying,
 Yes, take silver and gold, and make crowns, and set them on the head of Joshua the son of Jehozadak, the high priest; 
 and speak to him, saying, 'The God of Armies says, "Look, the man whose name is the Branch! He'll grow up out of his place; and he'll build God's temple. 
 He'll build God's temple. He'll bear the glory, and will sit and rule on his throne. He'll be a priest on his throne. The counsel of peace will be between them both. 
-The crowns shall be to Helem, to Tobijah, to Jedaiah, and to Hen the son of Zephaniah, for a memorial in God's temple. 
-Those who are far off shall come and build in God's temple; and you shall know that the God of Armies has sent me to you. This will happen, if you'll diligently obey your God's voice."'" 
+The crowns will be to Helem, to Tobijah, to Jedaiah, and to Hen the son of Zephaniah, for a memorial in God's temple. 
+Those who are far off will come and build in God's temple; and you will know that the God of Armies has sent me to you. This will happen, if you'll diligently obey your God's voice."'" 

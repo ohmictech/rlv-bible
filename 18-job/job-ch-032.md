@@ -13,7 +13,7 @@ Yes, I gave you my full attention, but there was no one who convinced Job, or wh
 Beware lest you say, 'We have found wisdom. God may refute him, not man;' 
 for he hasn't directed his words against me; neither will I answer him with your speeches. 
 "They're amazed. They answer no more. They don't have a word to say. 
-Shall I wait, because they don't speak, because they stand still, and answer no more? 
+Will I wait, because they don't speak, because they stand still, and answer no more? 
 I also will answer my part, and I also will show my opinion. 
 I'm full of words. The spirit within me constrains me. 
 Look, my breast is as wine which has no vent; like new wineskins it's ready to burst. 

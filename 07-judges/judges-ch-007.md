@@ -1,8 +1,8 @@
 ﻿Then Jerubbaal, who's Gideon, and everyone who was with him, rose up early and encamped beside the spring of Harod. Midian's camp was on the north side of them, by the hill of Moreh, in the valley. 
 God said to Gideon, "The people who are with you're too many for me to give the Midianites into their hand, lest Israel brag against me, saying, 'My own hand has saved me.' 
 Now proclaim in the ears of the people, saying, 'Whoever is fearful and trembling, let him return and depart from Mount Gilead.'" So twenty-two thousand of the people returned, and ten thousand remained. 
-God said to Gideon, "There are still too many people. Bring them down to the water, and I'll test them for you there. It shall be, that those whom I tell you, 'This shall go with you,' shall go with you; and whoever I tell you, 'This shall not go with you,' shall not go." 
-So he brought down the people to the water; and God said to Gideon, "Everyone who laps of the water with his tongue, like a dog laps, you shall set him by himself; likewise everyone who bows down on his knees to drink." 
+God said to Gideon, "There are still too many people. Bring them down to the water, and I'll test them for you there. It will be, that those whom I tell you, 'This will go with you,' will go with you; and whoever I tell you, 'This won't go with you,' won't go." 
+So he brought down the people to the water; and God said to Gideon, "Everyone who laps of the water with his tongue, like a dog laps, you will set him by himself; likewise everyone who bows down on his knees to drink." 
 The number of those who lapped, putting their hand to their mouth, was three hundred men; but all the rest of the people bowed down on their knees to drink water. 
 God said to Gideon, "I'll save you by the three hundred men who lapped, and deliver the Midianites into your hand. Let all the other people go, each to his own place." 
 So the people took food in their hand, and their trumpets; and he sent all the rest of the men of Israel to their own tents, but retained the three hundred men; and the camp of Midian was beneath him in the valley. 
@@ -14,7 +14,7 @@ When Gideon had come, look, there was a man telling a dream to his fellow. He sa
 His fellow answered, "This is nothing other than the sword of Gideon the son of Joash, a man of Israel. God has delivered Midian into his hand, with all the army." 
 It was so, when Gideon heard the telling of the dream and its interpretation, that he worshiped. Then he returned into the camp of Israel and said, "Arise, for God has delivered the army of Midian into your hand!" 
 He divided the three hundred men into three companies, and he put into the hands of everyone trumpets and empty pitchers, with torches within the pitchers. 
-He said to them, "Watch me, and do likewise. Look, when I come to the outermost part of the camp, it shall be that, as I do, so you shall do. 
+He said to them, "Watch me, and do likewise. Look, when I come to the outermost part of the camp, it will be that, as I do, so you will do. 
 When I blow the trumpet, I and everyone who's with me, then blow the trumpets also on every side of all the camp, and shout, 'For God and for Gideon!'" 
 So Gideon and the hundred men who were with him came to the outermost part of the camp in the beginning of the middle watch, when they had but newly set the watch. Then they blew the trumpets and broke in pieces the pitchers that were in their hands. 
 The three companies blew the trumpets, broke the pitchers, and held the torches in their left hands and the trumpets in their right hands with which to blow; and they shouted, "The sword of God and of Gideon!" 

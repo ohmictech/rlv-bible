@@ -3,5 +3,5 @@ For, look, the guilty bend their bows. They set their arrows on the strings, tha
 If the foundations are destroyed, what can the righteous do? 
 God is in his holy temple. God is on his throne in the sky. His eyes observe. His eyes examine the children of men. 
 God examines the righteous, but his soul hates the guilty and him who loves violence. 
-On the guilty he'll rain blazing coals; fire, sulfur, and scorching wind shall be the portion of their cup. 
-God is righteous. He loves righteousness. The upright shall see his face. 
+On the guilty he'll rain blazing coals; fire, sulfur, and scorching wind will be the portion of their cup. 
+God is righteous. He loves righteousness. The upright will see his face. 

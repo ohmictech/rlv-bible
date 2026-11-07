@@ -10,7 +10,7 @@ The crowds who went in front of him and those who followed kept shouting, "Hosan
 When he had come into Jerusalem, all the city was stirred up, saying, "Who's this?" 
 The crowds said, "This is the spokesman, Jesus, from Nazareth of Galilee." 
 Jesus entered the temple courts and drove out everyone who was buying and selling there. He overturned the tables of the money changers and the seats of those selling doves. 
-He said to them, "It's written, 'My house shall be called a house of prayer,' but you have made it a hideout for robbers!" 
+He said to them, "It's written, 'My house will be called a house of prayer,' but you have made it a hideout for robbers!" 
 The lame and the blind came to him in the temple courts, and he healed them. 
 But when the high priests and the Bible teachers saw the amazing things that he did, and the children who were crying out in the temple courts and saying, "Hosanna to the Son of David!" they were indignant, 
 and said to him, "Do you hear what these are saying?" Jesus said to them, "Yes. Did you never read, 'From the mouths of children and nursing babies you have completed praise'?" 

@@ -7,7 +7,7 @@ Hamor the father of Shechem went out to Jacob to talk with him.
 The sons of Jacob came in from the field when they heard it. The men were grieved, and they were very angry, because he had done folly in Israel in lying with Jacob's daughter, a thing that ought not to be done. 
 Hamor talked with them, saying, "The soul of my son, Shechem, longs for your daughter. Please give her to him as a wife. 
 Make marriages with us. Give your daughters to us, and take our daughters for yourselves. 
-You shall dwell with us, and the land will be before you. Live and trade in it, and get possessions in it." 
+You will dwell with us, and the land will be before you. Live and trade in it, and get possessions in it." 
 Shechem said to her father and to her brothers, "Let me find favor in your eyes, and whatever you'll tell me I'll give. 
 Ask me a great amount for a dowry, and I'll give whatever you ask of me, but give me the young lady as a wife." 
 The sons of Jacob answered Shechem and Hamor his father with deceit when they spoke, because he had defiled Dinah their sister, 

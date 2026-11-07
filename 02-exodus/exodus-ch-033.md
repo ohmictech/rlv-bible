@@ -18,6 +18,6 @@ God said to Moses, "I'll do this thing also that you have spoken; for you have f
 Moses said, "Please show me your glory." 
 He said, "I'll make all my goodness pass before you, and will proclaim God's name before you. I'll be gracious to whom I'll be gracious, and will show mercy on whom I'll show mercy." 
 He said, "You can't see my face, for man may not see me and live." 
-God also said, "Look, there's a place by me, and you shall stand on the rock. 
+God also said, "Look, there's a place by me, and you will stand on the rock. 
 It'll happen, while my glory passes by, that I'll put you in a cleft of the rock, and will cover you with my hand until I have passed by; 
-then I'll take away my hand, and you'll see my back; but my face shall not be seen." 
+then I'll take away my hand, and you'll see my back; but my face won't be seen." 

@@ -20,4 +20,4 @@ You have profaned me among my people for handfuls of barley and for pieces of br
 "Therefore God says: 'Look, I'm against your magic bands, with which you hunt the souls to make them fly, and I'll tear them from your arms. I'll let the souls fly free, even the souls whom you ensnare like birds. 
 I'll also tear your veils and deliver my people out of your hand; and they'll no longer be in your hand to be ensnared. Then you'll know that I'm God. 
 Because with lies you have grieved the heart of the righteous, whom I haven't made sad; and strengthened the hands of the guilty, that he shouldn't return from his guilty way, and be saved alive. 
-So you shall no more see false visions nor practice divination. I'll deliver my people out of your hand. Then you'll know that I'm God.'" 
+So you will no more see false visions nor practice divination. I'll deliver my people out of your hand. Then you'll know that I'm God.'" 

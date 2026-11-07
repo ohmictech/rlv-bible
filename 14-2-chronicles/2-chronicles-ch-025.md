@@ -1,12 +1,12 @@
 ﻿Amaziah was twenty-five years old when he began to reign, and he reigned twenty-nine years in Jerusalem. His mother's name was Jehoaddan, of Jerusalem. 
 He did that which was right in God's eyes, but not with a perfect heart. 
 Now when the kingdom was established to him, he killed his servants who had killed his father the king. 
-But he didn't put their children to death, but did according to that which is written in the law in the book of Moses, as God commanded, saying, "The fathers shall not die for the children, neither shall the children die for the fathers; but every man shall die for his own wrongdoing." 
+But he didn't put their children to death, but did according to that which is written in the law in the book of Moses, as God commanded, saying, "The fathers won't die for the children, neither will the children die for the fathers; but every man will die for his own wrongdoing." 
 Moreover Amaziah gathered Judah together and ordered them according to their fathers' houses, under captains of thousands and captains of hundreds, even all Judah and Benjamin. He counted them from twenty years old and upward, and found that there were three hundred thousand chosen men, able to go out to war, who could handle spear and shield. 
 He also hired one hundred thousand mighty men of valor out of Israel for one hundred talents of silver. 
 A man of God came to him, saying, "O king, don't let the army of Israel go with you, for God isn't with Israel, with all the children of Ephraim. 
 But if you'll go, take action, and be strong for the battle. God will overthrow you before the enemy; for God has power to help, and to overthrow." 
-Amaziah said to the man of God, "But what shall we do for the hundred talents which I have given to the army of Israel?" The man of God answered, "God is able to give you much more than this." 
+Amaziah said to the man of God, "But what will we do for the hundred talents which I have given to the army of Israel?" The man of God answered, "God is able to give you much more than this." 
 Then Amaziah separated them, the army that had come to him out of Ephraim, to go home again. So their anger was greatly kindled against Judah, and they returned home in fierce anger. 
 Amaziah took courage, and led his people out and went to the Valley of Salt, and struck ten thousand of the children of Seir. 
 The children of Judah carried away ten thousand alive, and brought them to the top of the rock, and threw them down from the top of the rock, so that they all were broken in pieces. 

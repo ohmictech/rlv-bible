@@ -4,7 +4,7 @@ Then Eliakim the son of Hilkiah, who was over the household, and Shebna the secr
 Rabshakeh said to them, "Now tell Hezekiah, 'The great king, the king of Assyria, says, "What confidence is this in which you trust? 
 I say that your counsel and strength for the war are only vain words. Now in whom do you trust, that you have rebelled against me? 
 Look, you trust in the staff of this bruised reed, even in Egypt, which if a man leans on it, it'll go into his hand and pierce it. So is Pharaoh king of Egypt to everyone who trusts in him. 
-But if you tell me, 'We trust in our God,' isn't that he whose high places and whose altars Hezekiah has taken away, and has said to Judah and to Jerusalem, 'You shall worship before this altar'?" 
+But if you tell me, 'We trust in our God,' isn't that he whose high places and whose altars Hezekiah has taken away, and has said to Judah and to Jerusalem, 'You will worship before this altar'?" 
 Now, please make a pledge to my master the king of Assyria, and I'll give you two thousand horses, if you're able on your part to set riders on them. 
 How then can you turn away the face of one captain of the least of my master's servants, and put your trust in Egypt for chariots and for horsemen? 
 Have I come up now without God against this land to destroy it? God said to me, "Go up against this land, and destroy it."'" 

@@ -1,7 +1,7 @@
 ﻿Now these are the last words of David. David the son of Jesse says, the man who was raised on high says, the anointed of the God of Jacob, the sweet psalmist of Israel: 
 "God's Spirit spoke by me. His word was on my tongue. 
 The God of Israel said, the Rock of Israel spoke to me, 'One who rules over men righteously, who rules in the fear of God, 
-shall be as the light of the morning when the sun rises, a morning without clouds, when the tender grass springs out of the earth, through clear shining after rain.' 
+will be as the light of the morning when the sun rises, a morning without clouds, when the tender grass springs out of the earth, through clear shining after rain.' 
 Isn't my house so with God? Yet he has made with me an perpetual covenant, ordered in all things, and sure, for it's all my salvation and all my desire. Won't he make it grow? 
 But all the ungodly will be as thorns to be thrust away, because they can't be taken with the hand. 
 The man who touches them must be armed with iron and the staff of a spear. They'll be utterly burned with fire in their place." 

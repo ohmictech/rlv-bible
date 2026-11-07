@@ -5,8 +5,8 @@ He plots guilt on his bed. He sets himself in a way that isn't good. He doesn't 
 Your loving kindness, God, is in the sky. Your faithfulness reaches to the skies. 
 Your righteousness is like the mountains of God. Your judgments are like a great deep. God, you preserve man and animal. 
 How precious is your loving kindness, God! The children of men take refuge under the shadow of your wings. 
-They shall be abundantly satisfied with the abundance of your house. You'll make them drink of the river of your pleasures. 
+They will be abundantly satisfied with the abundance of your house. You'll make them drink of the river of your pleasures. 
 With you is the spring of life. In your light we'll see light. 
 Oh continue your loving kindness to those who know you, your righteousness to the upright in heart. 
 Don't let the foot of pride come against me. Don't let the hand of the guilty drive me away. 
-There the workers of guilt are fallen. They're thrust down, and shall not be able to rise. 
+There the workers of guilt are fallen. They're thrust down, and won't be able to rise. 

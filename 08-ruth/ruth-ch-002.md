@@ -18,6 +18,6 @@ So she gleaned in the field until evening; and she beat out that which she had g
 She took it up, and went into the city. Then her mother-in-law saw what she had gleaned; and she brought out and gave to her that which she had left after she had enough. 
 Her mother-in-law said to her, "Where have you gleaned today? Where have you worked? Blessed be he who noticed you." She told her mother-in-law with whom she had worked, "The man's name with whom I worked today is Boaz." 
 Naomi said to her daughter-in-law, "May he be blessed by God, who hasn't abandoned his kindness to the living and to the dead." Naomi said to her, "The man is a close relative to us, one of our near kinsmen." 
-Ruth the Moabitess said, "Yes, he said to me, 'You shall stay close to my young men until they have finished all my harvest.'" 
+Ruth the Moabitess said, "Yes, he said to me, 'You will stay close to my young men until they have finished all my harvest.'" 
 Naomi said to Ruth her daughter-in-law, "It's good, my daughter, that you go out with his maidens, and that they not harm you in any other field." 
 So she stayed close to the maidens of Boaz, to glean to the end of barley harvest and of wheat harvest; and she lived with her mother-in-law. 

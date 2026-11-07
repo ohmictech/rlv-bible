@@ -24,7 +24,7 @@ Then he turned to his students privately and said, "Flourishing are the eyes whi
 for I tell you that many spokesmen and kings wanted to see what you see and didn't see it, and to hear what you hear and didn't hear it." 
 Look, an expert in the law stood up and tested him, saying, "Teacher, what must I do to be given charge of the real life of the era?" 
 He said to him, "What's written in the law? How do you read it?" 
-He answered, "You shall love the Lord your God with all your heart, with all your life, with all your strength, and with all your mind; and your neighbor as yourself." 
+He answered, "You will love the Lord your God with all your heart, with all your life, with all your strength, and with all your mind; and your neighbor as yourself." 
 He said to him, "You have answered correctly. Do this, and you'll live." 
 But he, wanting to justify himself, asked Jesus, "Who's my neighbor?" 
 Jesus answered, "A certain man was going down from Jerusalem to Jericho, and he fell among robbers, who both stripped him and beat him, and departed, leaving him half dead. 

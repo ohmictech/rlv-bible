@@ -15,7 +15,7 @@ My soul hates your New Moons and your appointed feasts. They're a burden to me. 
 When you spread out your hands, I'll hide my eyes from you. Yes, when you make many prayers, I won't hear. Your hands are full of blood. 
 Wash yourselves. Make yourself clean. Put away the bad of your doings from before my eyes. Cease to do bad things. 
 Learn to do well. Seek justice. Relieve the oppressed. Defend the fatherless. Plead for the widow." 
-"Come now, and let's reason together," says God: "Though your mistakes are as scarlet, they shall be as white as snow. Though they're red like crimson, they shall be as wool. 
+"Come now, and let's reason together," says God: "Though your mistakes are as scarlet, they will be as white as snow. Though they're red like crimson, they will be as wool. 
 If you're willing and obedient, you'll eat the good of the land; 
 but if you refuse and rebel, you'll be devoured with the sword; for God's mouth has spoken it." 
 How the faithful city has become a prostitute! She was full of justice. Righteousness lodged in her, but now there are murderers. 
@@ -23,9 +23,9 @@ Your silver has become dross, your wine mixed with water.
 Your princes are rebellious and companions of thieves. Everyone loves bribes and follows after rewards. They don't defend the fatherless, neither does the cause of the widow come to them. 
 So the Lord, GOD of Armies, the Mighty One of Israel, says: "Ah, I'll get relief from my adversaries, and avenge myself on my enemies. 
 I'll turn my hand on you, thoroughly purge away your dross, and will take away all your tin. 
-I'll restore your judges as at the first, and your counselors as at the beginning. Afterward you shall be called 'The city of righteousness, a faithful town.' 
-Zion shall be bought back with justice, and her converts with righteousness. 
-But the destruction of transgressors and those who have drifted shall be together, and those who forsake God shall be consumed. 
-They shall be ashamed of the oaks which you have desired, and you shall be confounded for the gardens that you have chosen. 
-You shall be as an oak whose leaf fades, and as a garden that has no water. 
+I'll restore your judges as at the first, and your counselors as at the beginning. Afterward you will be called 'The city of righteousness, a faithful town.' 
+Zion will be bought back with justice, and her converts with righteousness. 
+But the destruction of transgressors and those who have drifted will be together, and those who forsake God will be consumed. 
+They will be ashamed of the oaks which you have desired, and you will be confounded for the gardens that you have chosen. 
+You will be as an oak whose leaf fades, and as a garden that has no water. 
 The strong will be like tinder, and his work like a spark. They'll both burn together, and no one will quench them." 

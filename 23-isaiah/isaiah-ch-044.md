@@ -16,7 +16,7 @@ Then it'll be for a man to burn; and he takes some of it and warms himself. Yes,
 He burns part of it in the fire. With part of it, he eats meat. He roasts a roast and is satisfied. Yes, he warms himself and says, "Aha! I'm warm. I have seen the fire." 
 The rest of it he makes into a god, even his engraved image. He bows down to it and worships, and prays to it, and says, "Deliver me, for you're my god!" 
 They don't know, neither do they consider, for he has shut their eyes, that they can't see, and their hearts, that they can't understand. 
-No one thinks, neither is there knowledge nor understanding to say, "I have burned part of it in the fire. Yes, I have also baked bread on its coals. I have roasted meat and eaten it. Shall I make the rest of it into an abomination? Shall I bow down to a tree trunk?" 
+No one thinks, neither is there knowledge nor understanding to say, "I have burned part of it in the fire. Yes, I have also baked bread on its coals. I have roasted meat and eaten it. Will I make the rest of it into an abomination? Will I bow down to a tree trunk?" 
 He feeds on ashes. A deceived heart has turned him aside; and he can't deliver his soul, nor say, "Isn't there a lie in my right hand?" 
 Remember these things, Jacob and Israel, for you're my servant. I have formed you. You're my servant. Israel, you won't be forgotten by me. 
 I have blotted out, as a thick cloud, your rebellion, and, as a cloud, your mistakes. Return to me, for I have bought back you. 
@@ -25,4 +25,4 @@ God, the one who buys you back, and he who formed you from the womb says: "I'm G
 who frustrates the signs of the liars, and makes diviners mad; who turns wise men backward, and makes their knowledge foolish; 
 who confirms the word of his servant, and performs the counsel of his messengers; who says of Jerusalem, 'She'll be inhabited;' and of the cities of Judah, 'They'll be built,' and 'I'll raise up its waste places;' 
 who says to the deep, 'Be dry,' and 'I'll dry up your rivers,' 
-who says of Cyrus, 'He's my shepherd, and shall perform all my pleasure,' even saying of Jerusalem, 'She'll be built;' and of the temple, 'Your foundation will be laid.'" 
+who says of Cyrus, 'He's my shepherd, and will perform all my pleasure,' even saying of Jerusalem, 'She'll be built;' and of the temple, 'Your foundation will be laid.'" 

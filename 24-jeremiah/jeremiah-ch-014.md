@@ -14,7 +14,7 @@ Then I said, "Ah, God! Look, the spokesmen tell them, 'You won't see the sword, 
 Then God said to me, "The spokesmen prophesy lies in my name. I didn't send them. I didn't command them. I didn't speak to them. They prophesy to you a lying vision, divination, and a thing of nothing, and the deceit of their own heart. 
 So God says concerning the spokesmen who prophesy in my name, but I didn't send them, yet they say, 'Sword and famine won't be in this land.' Those spokesmen will be consumed by sword and famine. 
 The people to whom they prophesy will be cast out in the streets of Jerusalem because of the famine and the sword. They'll have no one to bury them, them, their wives, their sons, or their daughters, for I'll pour their guilt on them. 
-"You shall say this word to them: "'Let my eyes run down with tears night and day, and let them not cease; for the virgin daughter of my people is broken with a great breach, with a very grievous wound. 
+"You will say this word to them: "'Let my eyes run down with tears night and day, and let them not cease; for the virgin daughter of my people is broken with a great breach, with a very grievous wound. 
 If I go out into the field, then look, the slain with the sword! If I enter into the city, then look, those who are sick with famine! Both the spokesman and the priest go about in the land, and have no knowledge.'" 
 Have you utterly rejected Judah? Has your soul loathed Zion? Why have you struck us, and there's no healing for us? We looked for peace, but no good came; and for a time of healing, and look, dismay! 
 We acknowledge, God, our guilt, and the guilt of our fathers; for we have wronged you. 

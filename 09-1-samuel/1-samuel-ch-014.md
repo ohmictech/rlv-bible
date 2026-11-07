@@ -7,7 +7,7 @@ Jonathan said to the young man who bore his armor, "Come! Let's go over to the g
 His armor bearer said to him, "Do all that's in your heart. Go, and look, I'm with you according to your heart." 
 Then Jonathan said, "Look, we'll pass over to the men, and we'll reveal ourselves to them. 
 If they say this to us, 'Wait until we come to you!' then we'll stand still in our place and won't go up to them. 
-But if they say this, 'Come up to us!' then we'll go up, for God has delivered them into our hand. This shall be the sign to us." 
+But if they say this, 'Come up to us!' then we'll go up, for God has delivered them into our hand. This will be the sign to us." 
 Both of them revealed themselves to the garrison of the Philistines; and the Philistines said, "Look, the Hebrews are coming out of the holes where they had hidden themselves!" 
 The men of the garrison answered Jonathan and his armor bearer, and said, "Come up to us, and we'll show you something!" Jonathan said to his armor bearer, "Come up after me, for God has delivered them into the hand of Israel." 
 Jonathan climbed up on his hands and on his feet, and his armor bearer after him, and they fell before Jonathan; and his armor bearer killed them after him. 
@@ -34,15 +34,15 @@ Then they told Saul, saying, "Look, the people are wronging God, in that they ea
 Saul said, "Disperse yourselves among the people, and tell them, 'Every man bring me here his ox, and every man his sheep, and kill them here, and eat; and don't wrong God in eating meat with the blood.'" Everyone brought every man his ox with him that night, and killed them there. 
 Saul built an altar to God. This was the first altar that he built to God. 
 Saul said, "Let's go down after the Philistines by night, and take plunder among them until the morning light. Let's not leave a man of them." They said, "Do whatever seems good to you." Then the priest said, "Let's draw near here to God." 
-Saul asked counsel of God: "Shall I go down after the Philistines? Will you deliver them into the hand of Israel?" But he didn't answer him that day. 
+Saul asked counsel of God: "Will I go down after the Philistines? Will you deliver them into the hand of Israel?" But he didn't answer him that day. 
 Saul said, "Draw near here, all you chiefs of the people, and know and see in whom this wrongdoing lies today. 
-As God lives, who saves Israel, though it's in Jonathan my son, he shall surely die." But there wasn't a man among everyone who answered him. 
+As God lives, who saves Israel, though it's in Jonathan my son, he will surely die." But there wasn't a man among everyone who answered him. 
 Then he said to all Israel, "You be on one side, and I and Jonathan my son will be on the other side." The people said to Saul, "Do what seems good to you." 
 So Saul said to the God of Israel, "Show the right." Jonathan and Saul were chosen, but the people escaped. 
 Saul said, "Cast lots between me and Jonathan my son." Jonathan was selected. 
 Then Saul said to Jonathan, "Tell me what you have done!" Jonathan told him, and said, "I certainly did taste a little honey with the end of the rod that was in my hand; and look, I must die." 
-Saul said, "God do so and more also; for you shall surely die, Jonathan." 
-The people said to Saul, "Shall Jonathan die, who has worked this great salvation in Israel? Far from it! As God lives, there shall not one hair of his head fall to the ground, for he has worked with God today!" So the people rescued Jonathan, so he didn't die. 
+Saul said, "God do so and more also; for you will surely die, Jonathan." 
+The people said to Saul, "Will Jonathan die, who has worked this great salvation in Israel? Far from it! As God lives, there won't one hair of his head fall to the ground, for he has worked with God today!" So the people rescued Jonathan, so he didn't die. 
 Then Saul went up from following the Philistines; and the Philistines went to their own place. 
 Now when Saul had taken the kingdom over Israel, he fought against all his enemies on every side: against Moab, and against the children of Ammon, and against Edom, and against the kings of Zobah, and against the Philistines. Wherever he turned himself, he defeated them. 
 He did valiantly and struck the Amalekites, and delivered Israel out of the hands of those who plundered them. 

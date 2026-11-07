@@ -28,11 +28,11 @@ He who searches the hearts knows what's on the Spirit's mind, because he speaks 
 We know that all things work together for good for those who love God, for those who are called according to his purpose. 
 Those he knew ahead of time, he also marked out ahead of time to be shaped like the image of his Son, so that he'd be the firstborn among many brothers and sisters. 
 Those he marked out ahead of time, he also called. Those he called, he also made right. Those he made right, he also honored. 
-What then shall we say about these things? If God is for us, who can be against us? 
+What then will we say about these things? If God is for us, who can be against us? 
 He who didn't spare his own Son, but delivered him up for us all, how would he not also with him freely give us all things? 
 Who could bring a charge against God's chosen ones? It's God who justifies. 
 Who's he who condemns? It's Christ who died, yes rather, who was raised from the dead, who's at the right hand of God, who also makes intercession for us. 
-Who shall separate us from the love of Christ? Could oppression, or anguish, or persecution, or famine, or nakedness, or peril, or sword? 
+Who will separate us from the love of Christ? Could oppression, or anguish, or persecution, or famine, or nakedness, or peril, or sword? 
 Even as it's written, "For your sake we're killed all day long. We were accounted as sheep for the slaughter." 
 No, in all these things we're more than conquerors through him who loved us. 
 I'm persuaded that neither death, nor life, nor messengers, nor ruling powers, nor things present, nor things to come, nor powers, 

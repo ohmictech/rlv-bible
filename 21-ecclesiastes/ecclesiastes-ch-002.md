@@ -18,7 +18,7 @@ So I hated life, because the work that's worked under the sun was grievous to me
 I hated all my labor in which I labored under the sun, because I must leave it to the man who comes after me. 
 Who knows whether he'll be a wise man or a fool? Yet he'll have rule over all of my labor in which I have labored, and in which I have shown myself wise under the sun. This also is vanity. 
 So I began to cause my heart to despair concerning all the labor in which I had labored under the sun. 
-There's a man whose labor is with wisdom, with knowledge, and with skillfulness; yet he shall leave it for his portion to a man who hasn't labored for it. This also is vanity and a great bad. 
+There's a man whose labor is with wisdom, with knowledge, and with skillfulness; yet he will leave it for his portion to a man who hasn't labored for it. This also is vanity and a great bad. 
 What does a man have of all his labor and of the striving of his heart, in which he labors under the sun? 
 All his days are sorrows, and his travail is grief; yes, even in the night his heart takes no rest. This also is vanity. 
 There's nothing better for a man than that he should eat and drink, and make his soul enjoy good in his labor. This also I saw, that it's from the hand of God. 

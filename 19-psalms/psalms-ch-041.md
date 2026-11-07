@@ -1,11 +1,11 @@
 ﻿The Chief Musician. A Psalm by David. Blessed is he who considers the poor. God will deliver him in the day of bad. 
-God will preserve him, and keep him alive. He shall be blessed on the earth, and he won't surrender him to the will of his enemies. 
+God will preserve him, and keep him alive. He will be blessed on the earth, and he won't surrender him to the will of his enemies. 
 God will sustain him on his sickbed, and restore him from his bed of illness. 
 I said, "God, have mercy on me! Heal me, for I have wronged you." 
 My enemies speak bad against me: "When will he die, and his name perish?" 
 If he comes to see me, he speaks falsehood. His heart gathers guilt to itself. When he goes abroad, he tells it. 
 Everyone who hates me whisper together against me. They imagine the worst for me. 
-"An bad disease", they say, "has afflicted him. Now that he lies he shall rise up no more." 
+"An bad disease", they say, "has afflicted him. Now that he lies he will rise up no more." 
 Yes, my own familiar friend, in whom I trusted, who ate bread with me, has lifted up his heel against me. 
 But you, God, have mercy on me, and raise me up, that I may repay them. 
 By this I know that you delight in me, because my enemy doesn't triumph over me. 

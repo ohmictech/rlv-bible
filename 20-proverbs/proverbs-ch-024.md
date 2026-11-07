@@ -9,9 +9,9 @@ One who plots to do bad things will be called a schemer.
 The schemes of folly are wrongdoing. The mocker is detested by men. 
 If you falter in the time of trouble, your strength is small. 
 Rescue those who are being led away to death! Indeed, hold back those who are staggering to the slaughter! 
-If you say, "Look, we didn't know this," doesn't he who weighs the hearts consider it? He who keeps your soul, doesn't he know it? Shall he not give to every man according to his work? 
+If you say, "Look, we didn't know this," doesn't he who weighs the hearts consider it? He who keeps your soul, doesn't he know it? Will he not give to every man according to his work? 
 My son, eat honey, for it's good, the droppings of the honeycomb, which are sweet to your taste; 
-so you shall know wisdom to be to your soul. If you have found it, then there will be a reward: Your hope won't be cut off. 
+so you will know wisdom to be to your soul. If you have found it, then there will be a reward: Your hope won't be cut off. 
 Don't lay in wait, guilty man, against the habitation of the righteous. Don't destroy his resting place; 
 for a righteous man falls seven times and rises up again, but the guilty are overthrown by calamity. 
 Don't rejoice when your enemy falls. Don't let your heart be glad when he's overthrown, 

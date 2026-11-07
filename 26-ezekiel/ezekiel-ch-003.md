@@ -24,4 +24,4 @@ Then I arose, and went out into the plain, and look, God's glory stood there, li
 Then the Spirit entered into me and set me on my feet. He spoke with me, and said to me, "Go, shut yourself inside your house. 
 But you, son of man, look, they'll put ropes on you, and will bind you with them, and you won't go out among them. 
 I'll make your tongue stick to the roof of your mouth so that you'll be mute and won't be able to correct them, for they're a rebellious house. 
-But when I speak with you, I'll open your mouth, and you shall tell them, 'This is what God says.' He who hears, let him hear; and he who refuses, let him refuse; for they're a rebellious house." 
+But when I speak with you, I'll open your mouth, and you will tell them, 'This is what God says.' He who hears, let him hear; and he who refuses, let him refuse; for they're a rebellious house." 

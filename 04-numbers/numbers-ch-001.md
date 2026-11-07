@@ -1,8 +1,8 @@
 ﻿God spoke to Moses in the wilderness of Sinai, in the Tent of Meeting, on the first day of the second month, in the second year after they had come out of the land of Egypt, saying, 
 "Take a census of all the congregation of the children of Israel, by their families, by their fathers' houses, according to the number of the names, every male, one by one, 
-from twenty years old and upward, everyone who's able to go out to war in Israel. You and Aaron shall count them by their divisions. 
-With you there shall be a man of every tribe, each one head of his fathers' house. 
-These are the names of the men who shall stand with you: Of Reuben: Elizur the son of Shedeur. 
+from twenty years old and upward, everyone who's able to go out to war in Israel. You and Aaron will count them by their divisions. 
+With you there will be a man of every tribe, each one head of his fathers' house. 
+These are the names of the men who will stand with you: Of Reuben: Elizur the son of Shedeur. 
 Of Simeon: Shelumiel the son of Zurishaddai. 
 Of Judah: Nahshon the son of Amminadab. 
 Of Issachar: Nethanel the son of Zuar. 
@@ -46,9 +46,9 @@ So everyone who was counted of the children of Israel by their fathers' houses, 
 all those who were counted were six hundred three thousand five hundred fifty. 
 But the Levites after the tribe of their fathers weren't counted among them. 
 God spoke to Moses, saying, 
-"Only the tribe of Levi you shall not count, neither shall you take a census of them among the children of Israel; 
-but appoint the Levites over the Tabernacle of the Testimony, and over all its furnishings, and over all that belongs to it. They shall carry the tabernacle and all its furnishings; and they shall take care of it, and shall encamp around it. 
-When the tabernacle is to move, the Levites shall take it down; and when the tabernacle is to be set up, the Levites shall set it up. The stranger who comes near shall be put to death. 
-The children of Israel shall pitch their tents, every man by his own camp, and every man by his own standard, according to their divisions. 
-But the Levites shall encamp around the Tabernacle of the Testimony, that there may be no wrath on the congregation of the children of Israel. The Levites shall be responsible for the Tabernacle of the Testimony." 
+"Only the tribe of Levi you won't count, neither will you take a census of them among the children of Israel; 
+but appoint the Levites over the Tabernacle of the Testimony, and over all its furnishings, and over all that belongs to it. They will carry the tabernacle and all its furnishings; and they will take care of it, and will encamp around it. 
+When the tabernacle is to move, the Levites will take it down; and when the tabernacle is to be set up, the Levites will set it up. The stranger who comes near will be put to death. 
+The children of Israel will pitch their tents, every man by his own camp, and every man by his own standard, according to their divisions. 
+But the Levites will encamp around the Tabernacle of the Testimony, that there may be no wrath on the congregation of the children of Israel. The Levites will be responsible for the Tabernacle of the Testimony." 
 Thus the children of Israel did. According to all that God commanded Moses, so they did. 

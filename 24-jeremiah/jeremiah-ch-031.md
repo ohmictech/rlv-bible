@@ -30,7 +30,7 @@ It'll happen that, like as I have watched over them to pluck up and to break dow
 But everyone will die for his own guilt. Every man who eats the sour grapes, his teeth will be set on edge. 
 "Look, the days come," says God, "that I'll make a new covenant with the house of Israel, and with the house of Judah, 
 not according to the covenant that I made with their fathers in the day that I took them by the hand to bring them out of the land of Egypt, which covenant of mine they broke, although I was a husband to them," says God. 
-"But this is the covenant that I'll make with the house of Israel after those days," says God: "I'll put my law in their inward parts, and I'll write it in their heart. I'll be their God, and they shall be my people. 
+"But this is the covenant that I'll make with the house of Israel after those days," says God: "I'll put my law in their inward parts, and I'll write it in their heart. I'll be their God, and they will be my people. 
 They'll no longer each teach his neighbor, and every man teach his brother, saying, 'Know God;' for they'll all know me, from their least to their greatest," says God, "for I'll forgive their guilt, and I'll remember their wrongdoing no more." 
 God, who gives the sun for a light by day, and the ordinances of the moon and of the stars for a light by night, who stirs up the sea, so that its waves roar, the God of Armies is his name, says: 
 "If these ordinances depart from before me," says God, "then the offspring of Israel also will cease from being a nation before me for the eras." 

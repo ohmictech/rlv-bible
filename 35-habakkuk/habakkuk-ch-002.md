@@ -16,5 +16,5 @@ The earth will be filled with the knowledge of God's glory, as the waters cover 
 You're filled with shame, and not glory. You'll also drink and be exposed! The cup of God's right hand will come around to you, and disgrace will cover your glory. 
 The violence done to Lebanon will overwhelm you, and the destruction of the animals will terrify you, because of men's blood and for the violence done to the land, to every city and to those who dwell in them. 
 "What value does the engraved image have, that its maker has engraved it; the molten image, even the teacher of lies, that he who fashions its form trusts in it, to make mute idols? 
-Woe to him who says to the wood, 'Awake!' or to the mute stone, 'Arise!' Shall this teach? Look, it's overlaid with gold and silver, and there's no breath at all within it. 
+Woe to him who says to the wood, 'Awake!' or to the mute stone, 'Arise!' Will this teach? Look, it's overlaid with gold and silver, and there's no breath at all within it. 
 But God is in his holy temple. Let all the earth be silent before him!" 

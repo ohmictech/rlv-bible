@@ -9,7 +9,7 @@ Good and upright is God, he'll instruct those who have drifted in the way.
 He'll guide the humble in justice. He'll teach the humble his way. 
 All the paths of God are loving kindness and truth to such as keep his covenant and his testimonies. 
 Your name's sake, God, pardon my guilt, for it's great. 
-What man is he who fears God? He shall instruct him in the way that he shall choose. 
+What man is he who fears God? He will instruct him in the way that he will choose. 
 His soul will dwell at ease. His offspring will inherit the land. 
 The friendship of God is with those who fear him. He'll show them his covenant. 
 My eyes are ever on God, for he'll pluck my feet out of the net. 

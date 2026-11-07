@@ -16,17 +16,17 @@ He said, "Blessed is the God of Israel, who spoke with his mouth to David your f
 'Since the day that I brought my people Israel out of Egypt, I chose no city out of all the tribes of Israel to build a house, that my name might be there; but I chose David to be over my people Israel.' 
 "Now it was in the heart of David my father to build a house for the name of the God of Israel. 
 But God said to David my father, 'Whereas it was in your heart to build a house for my name, you did well that it was in your heart. 
-Nevertheless, you shall not build the house; but your son who shall come out of your body, he shall build the house for my name.' 
+Nevertheless, you won't build the house; but your son who will come out of your body, he will build the house for my name.' 
 God has established his word that he spoke; for I have risen up in the place of David my father, and I sit on the throne of Israel, as God promised, and have built the house for the name of the God of Israel. 
 There I have set a place for the ark, in which is God's covenant, which he made with our fathers when he brought them out of the land of Egypt." 
 Solomon stood before God's altar in the presence of all the assembly of Israel, and spread out his hands toward the sky; 
 and he said, "the God of Israel, there's no God like you, in the sky above, or on earth beneath; who keeps covenant and loving kindness with your servants who walk before you with all their heart; 
 who has kept with your servant David my father that which you promised him. Yes, you spoke with your mouth, and have fulfilled it with your hand, as it's today. 
-Now, may the God of Israel, keep with your servant David my father that which you have promised him, saying, 'There shall not fail from you a man in my sight to sit on the throne of Israel, if only your children take heed to their way, to walk before me as you have walked before me.' 
+Now, may the God of Israel, keep with your servant David my father that which you have promised him, saying, 'There won't fail from you a man in my sight to sit on the throne of Israel, if only your children take heed to their way, to walk before me as you have walked before me.' 
 "Now, God of Israel, please let your word be verified, which you spoke to your servant David my father. 
 But will God in very deed dwell on the earth? Look, the sky and the sky above the skies can't contain you; how much less this house that I have built! 
 Yet have respect for the prayer of your servant and for his supplication, God my God, to listen to the cry and to the prayer which your servant prays before you today; 
-that your eyes may be open toward this house night and day, even toward the place of which you have said, 'My name shall be there;' to listen to the prayer which your servant prays toward this place. 
+that your eyes may be open toward this house night and day, even toward the place of which you have said, 'My name will be there;' to listen to the prayer which your servant prays toward this place. 
 Listen to the supplication of your servant, and of your people Israel, when they pray toward this place. Yes, hear in the sky, your dwelling place; and when you hear, forgive. 
 "If a man wrongs his neighbor, and an oath is laid on him to cause him to swear, and he comes and swears before your altar in this house, 
 then hear in the sky, and act, and judge your servants, condemning the guilty, to bring his way on his own head, and justifying the righteous, to give him according to his righteousness. 
@@ -35,13 +35,13 @@ then hear in the sky, and forgive the wrongdoing of your people Israel, and brin
 "When the sky is shut up and there's no rain because they have wronged you, if they pray toward this place and confess your name, and turn from their wrongdoing when you afflict them, 
 then hear in the sky, and forgive the wrongdoing of your servants, and of your people Israel, when you teach them the good way in which they should walk; and send rain on your land which you have given to your people for an inheritance. 
 "If there's famine in the land, if there's pestilence, if there's blight, mildew, locust or caterpillar; if their enemy besieges them in the land of their cities, whatever plague, whatever sickness there's, 
-whatever prayer and supplication is made by any man, or by all your people Israel, who shall each know the plague of his own heart, and spread out his hands toward this house, 
+whatever prayer and supplication is made by any man, or by all your people Israel, who will each know the plague of his own heart, and spread out his hands toward this house, 
 then hear in the sky, your dwelling place, and forgive, and act, and give to every man according to all his ways, whose heart you know (for you, even you only, know the hearts of all the children of men); 
 that they may fear you all the days that they live in the land which you gave to our fathers. 
 "Moreover, concerning the foreigner, who isn't of your people Israel, when he comes out of a far country for your name's sake 
-(for they shall hear of your great name and of your mighty hand and of your outstretched arm), when he comes and prays toward this house, 
+(for they will hear of your great name and of your mighty hand and of your outstretched arm), when he comes and prays toward this house, 
 hear in the sky, your dwelling place, and do according to all that the foreigner calls to you for; that everyones of the earth may know your name, to fear you, as do your people Israel, and that they may know that this house which I have built is called by your name. 
-"If your people go out to battle against their enemy, by whatever way you shall send them, and they pray to God toward the city which you have chosen, and toward the house which I have built for your name, 
+"If your people go out to battle against their enemy, by whatever way you will send them, and they pray to God toward the city which you have chosen, and toward the house which I have built for your name, 
 then hear in the sky their prayer and their supplication, and maintain their cause. 
 If they wrong you (for there's no man who doesn't drift), and you're angry with them and deliver them to the enemy, so that they carry them away captive to the land of the enemy, far off or near; 
 yet if they repent in the land where they're carried captive, and turn again, and make supplication to you in the land of those who carried them captive, saying, 'We have drifted and have done perversely; we have dealt guiltily,' 

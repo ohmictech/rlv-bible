@@ -23,6 +23,6 @@ But if you refuse to go out, this is the word that God has shown me:
 They'll bring out all your wives and your children to the Chaldeans. You won't escape out of their hand, but will be taken by the hand of the king of Babylon. You'll cause this city to be burned with fire.'" 
 Then Zedekiah said to Jeremiah, "Let no man know of these words, and you won't die. 
 But if the princes hear that I have talked with you, and they come to you, and tell you, 'Declare to us now what you have said to the king; don't hide it from us, and we won't put you to death; also tell us what the king said to you;' 
-then you shall tell them, 'I presented my supplication before the king, that he wouldn't cause me to return to Jonathan's house, to die there.'" 
+then you will tell them, 'I presented my supplication before the king, that he wouldn't cause me to return to Jonathan's house, to die there.'" 
 Then all the princes came to Jeremiah, and asked him; and he told them according to all these words that the king had commanded. So they stopped speaking with him, for the matter wasn't perceived. 
 So Jeremiah stayed in the court of the guard until the day that Jerusalem was taken. 

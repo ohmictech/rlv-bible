@@ -1,5 +1,5 @@
 ﻿Moreover God answered Job, 
-"Shall he who argues contend with the Almighty? He who argues with God, let him answer it." 
+"Will he who argues contend with the Almighty? He who argues with God, let him answer it." 
 Then Job answered God, 
 "Look, I'm of small account. What will I answer you? I lay my hand on my mouth. 
 I have spoken once, and I won't answer; Yes, twice, but I'll proceed no further." 
@@ -21,4 +21,4 @@ Surely the mountains produce food for him, where all the animals of the field pl
 He lies under the lotus trees, in the covert of the reed, and the marsh. 
 The lotuses cover him with their shade. The willows of the brook surround him. 
 Look, if a river overflows, he doesn't tremble. He's confident, though the Jordan swells even to his mouth. 
-Shall any take him when he's on the watch, or pierce through his nose with a snare? 
+Will any take him when he's on the watch, or pierce through his nose with a snare? 

@@ -12,7 +12,7 @@ Zedekiah the son of Chenaanah made himself horns of iron, and said, "God says, '
 All the spokesmen prophesied so, saying, "Go up to Ramoth Gilead and prosper; for God will deliver it into the hand of the king." 
 The messenger who went to call Micaiah spoke to him, saying, "See now, the spokesmen declare good to the king with one mouth. Please let your word be like the word of one of them, and speak good." 
 Micaiah said, "As God lives, what God says to me, that I'll speak." 
-When he had come to the king, the king said to him, "Micaiah, shall we go to Ramoth Gilead to battle, or shall we forbear?" He answered him, "Go up and prosper; and God will deliver it into the hand of the king." 
+When he had come to the king, the king said to him, "Micaiah, will we go to Ramoth Gilead to battle, or will we forbear?" He answered him, "Go up and prosper; and God will deliver it into the hand of the king." 
 The king said to him, "How many times do I have to adjure you that you speak to me nothing but the truth in God's name?" 
 He said, "I saw all Israel scattered on the mountains, as sheep that have no shepherd. God said, 'These have no master. Let them each return to his house in peace.'" 
 The king of Israel said to Jehoshaphat, "Didn't I tell you that he wouldn't prophesy good concerning me, but bad?" 

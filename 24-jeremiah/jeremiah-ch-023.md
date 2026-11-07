@@ -30,7 +30,7 @@ The spokesman who has a dream, let him tell a dream; and he who has my word, let
 "Look, I'm against the spokesmen," says God, "who each steal my words from his neighbor. 
 Look, I'm against the spokesmen," says God, "who use their tongues, and say, 'He says.' 
 Look, I'm against those who prophesy lying dreams," says God, "who tell them, and cause my people to err by their lies, and by their vain boasting; yet I didn't send them or command them. They don't profit this people at all," says God. 
-"When this people, or the spokesman, or a priest, asks you, saying, 'What's the message from God?' Then you shall tell them, '"What message? I'll cast you off," says God.' 
+"When this people, or the spokesman, or a priest, asks you, saying, 'What's the message from God?' Then you will tell them, '"What message? I'll cast you off," says God.' 
 As for the spokesman, the priest, and the people, who say, 'The message from God,' I'll even punish that man and his household. 
 You'll say everyone to his neighbor, and everyone to his brother, 'What has God answered?' and, 'What has God said?' 
 You'll mention the message from God no more, for every man's own word has become his message; for you have perverted the words of the living God, of the God of Armies, our God. 

@@ -1,9 +1,9 @@
 ﻿Moreover Ahithophel said to Absalom, "Let me now choose twelve thousand men, and I'll arise and pursue after David tonight. 
 I'll come on him while he's weary and exhausted, and will make him afraid. Everyone who's with him will flee. I'll strike the king only, 
-and I'll bring back everyone to you. The man whom you seek is as if all returned. Everyone shall be in peace." 
+and I'll bring back everyone to you. The man whom you seek is as if all returned. Everyone will be in peace." 
 The saying pleased Absalom well, and all the elders of Israel. 
 Then Absalom said, "Now call Hushai the Archite also, and let's hear likewise what he says." 
-When Hushai had come to Absalom, Absalom spoke to him, saying, "Ahithophel has spoken like this. Shall we do what he says? If not, speak up." 
+When Hushai had come to Absalom, Absalom spoke to him, saying, "Ahithophel has spoken like this. Will we do what he says? If not, speak up." 
 Hushai said to Absalom, "The counsel that Ahithophel has given this time isn't good." 
 Hushai said moreover, "You know your father and his men, that they're mighty men, and they're fierce in their minds, like a bear robbed of her cubs in the field. Your father is a man of war, and won't lodge with the people. 
 Look, he's now hidden in some pit, or in some other place. It'll happen, when some of them have fallen at the first, that whoever hears it'll say, 'There's a slaughter among the people who follow Absalom!' 

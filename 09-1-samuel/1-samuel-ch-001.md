@@ -8,7 +8,7 @@ So year by year, when she went up to God's house, her rival provoked her. So she
 Elkanah her husband said to her, "Hannah, why do you weep? Why don't you eat? Why is your heart grieved? Am I not better to you than ten sons?" 
 So Hannah rose up after they had finished eating and drinking in Shiloh. Now Eli the priest was sitting on his seat by the doorpost of God's temple. 
 She was in bitterness of soul, and prayed to God, weeping bitterly. 
-She vowed a vow, and said, "God of Armies, if you'll indeed look at the affliction of your servant and remember me, and not forget your servant, but will give to your servant a boy, then I'll give him to God all the days of his life, and no razor shall come on his head." 
+She vowed a vow, and said, "God of Armies, if you'll indeed look at the affliction of your servant and remember me, and not forget your servant, but will give to your servant a boy, then I'll give him to God all the days of his life, and no razor will come on his head." 
 As she continued praying before God, Eli saw her mouth. 
 Now Hannah spoke in her heart. Only her lips moved, but her voice wasn't heard. So Eli thought she was drunk. 
 Eli said to her, "How long will you be drunk? Get rid of your wine!" 

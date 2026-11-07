@@ -7,4 +7,4 @@ He'll never be shaken. The righteous will be remembered for the eras.
 He won't be afraid of bad news. His heart is steadfast, trusting in God. 
 His heart is established. He won't be afraid in the end when he sees his adversaries. 
 He has dispersed, he has given to the poor. His righteousness endures for the eras. His horn will be exalted with honor. 
-The guilty will see it, and be grieved. He shall gnash with his teeth, and melt away. The desire of the guilty will perish. 
+The guilty will see it, and be grieved. He will gnash with his teeth, and melt away. The desire of the guilty will perish. 

@@ -7,5 +7,5 @@ Break their teeth, God, in their mouth. Break out the great teeth of the young l
 Let them vanish like water that flows away. When they draw the bow, let their arrows be made blunt. 
 Let them be like a snail which melts and passes away, like the stillborn child, who hasn't seen the sun. 
 Before your pots can feel the heat of the thorns, he'll sweep away the green and the burning alike. 
-The righteous shall rejoice when he sees the vengeance. He shall wash his feet in the blood of the guilty, 
-so that men shall say, "Most certainly there's a reward for the righteous. Most certainly there's a God who judges the earth." 
+The righteous will rejoice when he sees the vengeance. He will wash his feet in the blood of the guilty, 
+so that men will say, "Most certainly there's a reward for the righteous. Most certainly there's a God who judges the earth." 

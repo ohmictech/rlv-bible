@@ -28,7 +28,7 @@ There's little Benjamin, their ruler, the princes of Judah, their council, the p
 Your God has commanded your strength. Strengthen, God, that which you have done for us. 
 Because of your temple at Jerusalem, kings will bring presents to you. 
 Rebuke the wild animal of the reeds, the multitude of the bulls with the calves of the peoples. Trample under foot the bars of silver. Scatter the nations who delight in war. 
-Princes shall come out of Egypt. Ethiopia shall hurry to stretch out her hands to God. 
+Princes will come out of Egypt. Ethiopia will hurry to stretch out her hands to God. 
 Sing to God, you kingdoms of the earth! Sing praises to the Lord, Selah 
 to him who rides on the sky above the skies, which are of old; look, he utters his voice, a mighty voice. 
 Ascribe strength to God! His excellency is over Israel, his strength is in the skies. 

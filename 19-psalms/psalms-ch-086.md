@@ -6,7 +6,7 @@ You, Lord, are good, and ready to forgive, abundant in loving kindness to everyo
 Hear, God, my prayer. Listen to the voice of my petitions. 
 In the day of my trouble I'll call on you, for you'll answer me. 
 There's no one like you among the gods, Lord, nor any deeds like your deeds. 
-All nations you have made will come and worship before you, Lord. They shall glorify your name. 
+All nations you have made will come and worship before you, Lord. They will glorify your name. 
 You're great, and do wondrous things. You're God alone. 
 Teach me your way, God. I'll walk in your truth. Make my heart undivided to fear your name. 
 I'll praise you, Lord my God, with my whole heart. I'll glorify your name for the eras more. 

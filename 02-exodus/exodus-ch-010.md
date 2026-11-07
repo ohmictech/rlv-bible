@@ -2,8 +2,8 @@
 and that you may tell in the hearing of your son, and of your son's son, what things I have done to Egypt, and my signs which I have done among them; that you may know that I'm God." 
 Moses and Aaron went in to Pharaoh, and said to him, "This is what the God of the Hebrews, says: 'How long will you refuse to humble yourself before me? Let my people go, that they may serve me. 
 Or else, if you refuse to let my people go, look, tomorrow I'll bring locusts into your country, 
-and they shall cover the surface of the earth, so that one won't be able to see the earth. They shall eat the residue of that which has escaped, which remains to you from the hail, and shall eat every tree which grows for you out of the field. 
-Your houses shall be filled, and the houses of all your servants, and the houses of all the Egyptians, as neither your fathers nor your fathers' fathers have seen, since the day that they were on the earth to this day.'" He turned, and went out from Pharaoh. 
+and they will cover the surface of the earth, so that one won't be able to see the earth. They will eat the residue of that which has escaped, which remains to you from the hail, and will eat every tree which grows for you out of the field. 
+Your houses will be filled, and the houses of all your servants, and the houses of all the Egyptians, as neither your fathers nor your fathers' fathers have seen, since the day that they were on the earth to this day.'" He turned, and went out from Pharaoh. 
 Pharaoh's servants said to him, "How long will this man be a snare to us? Let the men go, that they may serve God, their God. Don't you yet know that Egypt is destroyed?" 
 Moses and Aaron were brought again to Pharaoh, and he said to them, "Go, serve your God; but who are those who will go?" 
 Moses said, "We'll go with our young and with our old. We'll go with our sons and with our daughters, with our flocks and with our herds; for we must hold a feast to God." 
@@ -23,7 +23,7 @@ Moses stretched out his hand toward the sky, and there was a thick darkness in a
 They didn't see one another, and nobody rose from his place for three days; but all the children of Israel had light in their dwellings. 
 Pharaoh called to Moses, and said, "Go, serve God. Only let your flocks and your herds stay behind. Let your little ones also go with you." 
 Moses said, "You must also give into our hand sacrifices and burnt offerings, that we may sacrifice to our God. 
-Our livestock also shall go with us. Not a hoof shall be left behind, for of it we must take to serve our God; and we don't know with what we must serve God, until we come there." 
+Our livestock also will go with us. Not a hoof will be left behind, for of it we must take to serve our God; and we don't know with what we must serve God, until we come there." 
 But God hardened Pharaoh's heart, and he wouldn't let them go. 
-Pharaoh said to him, "Get away from me! Be careful to see my face no more; for in the day you see my face you shall die!" 
+Pharaoh said to him, "Get away from me! Be careful to see my face no more; for in the day you see my face you will die!" 
 Moses said, "You have spoken well. I'll see your face again no more." 

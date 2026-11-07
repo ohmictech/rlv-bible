@@ -1,9 +1,9 @@
 ﻿On the eighth day, Moses called Aaron and his sons, and the elders of Israel; 
 and he said to Aaron, "Take a calf from the herd for an offering for wrongdoing, and a ram for a burnt offering, without defect, and offer them before God. 
-You shall speak to the children of Israel, saying, 'Take a male goat for an offering for wrongdoing; and a calf and a lamb, both a year old, without defect, for a burnt offering; 
+You will speak to the children of Israel, saying, 'Take a male goat for an offering for wrongdoing; and a calf and a lamb, both a year old, without defect, for a burnt offering; 
 and a bull and a ram for offerings for wholeness, to sacrifice before God; and a meal offering mixed with oil: for today God appears to you.'" 
 They brought what Moses commanded before the Tent of Meeting. All the congregation came near and stood before God. 
-Moses said, "This is the thing which God commanded that you should do; and God's glory shall appear to you." 
+Moses said, "This is the thing which God commanded that you should do; and God's glory will appear to you." 
 Moses said to Aaron, "Draw near to the altar, and offer your offering for wrongdoing, and your burnt offering, and make things right for yourself, and for the people; and offer the offering of the people, and make things right for them, as God commanded." 
 So Aaron came near to the altar, and killed the calf of the offering for wrongdoing, which was for himself. 
 The sons of Aaron presented the blood to him; and he dipped his finger in the blood, and put it on the horns of the altar, and poured out the blood at the base of the altar; 

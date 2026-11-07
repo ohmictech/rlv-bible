@@ -3,7 +3,7 @@ In arrogance, the guilty hunt down the weak. They're caught in the schemes that 
 The guilty boasts of his heart's cravings. He blesses the greedy and condemns God. 
 The guilty, in the pride of his face, has no room in his thoughts for God. 
 His ways are prosperous at all times. He's arrogant, and your laws are far from his sight. As for all his adversaries, he sneers at them. 
-He says in his heart, "I shall not be shaken. Generations I shall have no trouble." 
+He says in his heart, "I won't be shaken. Generations I will have no trouble." 
 His mouth is full of cursing, deceit, and oppression. Under his tongue is mischief and guilt. 
 He lies in wait near the villages. From ambushes, he murders the innocent. His eyes are secretly set against the helpless. 
 He lurks in secret as a lion in his ambush. He lies in wait to catch the helpless. He catches the helpless when he draws him in his net. 

@@ -1,11 +1,11 @@
 ﻿In the beginning of the reign of Jehoiakim the son of Josiah, king of Judah, this word came from God: 
 "God says: 'Stand in the court of God's house, and speak to all the cities of Judah which come to worship in God's house, all the words that I command you to speak to them. Don't omit a word. 
 It may be they'll listen, and every man turn from his bad way, that I may relent from the bad which I intend to do to them because of the bad of their doings.'" 
-You shall tell them, "God says: 'If you won't listen to me, to walk in my law which I have set before you, 
+You will tell them, "God says: 'If you won't listen to me, to walk in my law which I have set before you, 
 to listen to the words of my servants the spokesmen whom I send to you, even rising up early and sending them, but you haven't listened 
 then I'll make this house like Shiloh, and will make this city a curse to all the nations of the earth.'" 
 The priests and the spokesmen and everyone heard Jeremiah speaking these words in God's house. 
-When Jeremiah had finished speaking all that God had commanded him to speak to everyone, the priests and the spokesmen and everyone seized him, saying, "You shall surely die! 
+When Jeremiah had finished speaking all that God had commanded him to speak to everyone, the priests and the spokesmen and everyone seized him, saying, "You will surely die! 
 Why have you prophesied in God's name, saying, 'This house will be like Shiloh, and this city will be desolate, without inhabitant'?" Everyone was crowded around Jeremiah in God's house. 
 When the princes of Judah heard these things, they came up from the king's house to God's house; and they sat in the entry of the new gate of God's house. 
 Then the priests and the spokesmen spoke to the princes and to everyone, saying, "This man is worthy of death, for he has prophesied against this city, as you have heard with your ears." 

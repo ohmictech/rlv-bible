@@ -37,11 +37,11 @@ The food will be to supply the land against the seven years of famine, which wil
 The thing was good in the eyes of Pharaoh, and in the eyes of all his servants. 
 Pharaoh said to his servants, "Can we find such a one as this, a man in whom is the Spirit of God?" 
 Pharaoh said to Joseph, "Because God has shown you all of this, there's no one so discreet and wise as you. 
-You shall be over my house. All my people will be ruled according to your word. Only in the throne I'll be greater than you." 
+You will be over my house. All my people will be ruled according to your word. Only in the throne I'll be greater than you." 
 Pharaoh said to Joseph, "Look, I have set you over all the land of Egypt." 
 Pharaoh took off his signet ring from his hand, and put it on Joseph's hand, and arrayed him in robes of fine linen, and put a gold chain about his neck. 
 He made him ride in the second chariot which he had. They cried before him, "Bow the knee!" He set him over all the land of Egypt. 
-Pharaoh said to Joseph, "I'm Pharaoh. Without you, no man shall lift up his hand or his foot in all the land of Egypt." 
+Pharaoh said to Joseph, "I'm Pharaoh. Without you, no man will lift up his hand or his foot in all the land of Egypt." 
 Pharaoh called Joseph's name Zaphenath-Paneah. He gave him Asenath, the daughter of Potiphera priest of On as a wife. Joseph went out over the land of Egypt. 
 Joseph was thirty years old when he stood before Pharaoh king of Egypt. Joseph went out from the presence of Pharaoh, and went throughout all the land of Egypt. 
 In the seven plenteous years the earth produced abundantly. 

@@ -9,8 +9,8 @@ There's one who's alone, and he has neither son nor brother. There's no end to a
 Two are better than one, because they have a good reward for their labor. 
 If they fall, the one will lift up his fellow; but woe to him who's alone when he falls, and doesn't have another to lift him up. 
 Again, if two lie together, then they have warmth; but how can one keep warm alone? 
-If a man prevails against one who's alone, two shall withstand him; and a threefold cord isn't quickly broken. 
+If a man prevails against one who's alone, two will withstand him; and a threefold cord isn't quickly broken. 
 Better is a poor and wise youth than an old and foolish king who doesn't know how to receive admonition any more. 
 Out of prison he came out to be king; yes, even in his kingdom he was born poor. 
 I saw all the living who walk under the sun, that they were with the youth, the other, who succeeded him. 
-There was no end of everyone, even of all them over whom he was, yet those who come after shall not rejoice in him. Surely this also is vanity and a chasing after wind. 
+There was no end of everyone, even of all them over whom he was, yet those who come after won't rejoice in him. Surely this also is vanity and a chasing after wind. 

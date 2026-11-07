@@ -2,7 +2,7 @@
 He serves in the Holy Place and in the true tent, the one the Lord set up, not a human being. 
 Every high priest is appointed to offer gifts and sacrifices, so this one must have something to offer too. 
 If he were on earth, he wouldn't be a priest at all, because there are already priests who offer the gifts according to the law. 
-They serve at a copy and a shadow of what's in the sky, just as Moses was warned when he was about to build the tent: "See that you shall make everything according to the pattern shown to you on the mountain." 
+They serve at a copy and a shadow of what's in the sky, just as Moses was warned when he was about to build the tent: "See that you will make everything according to the pattern shown to you on the mountain." 
 But now he has been given a far better service, just as he's the mediator of a better binding arrangement, which is set up on better promises. 
 If that first arrangement had been without fault, there would have been no need to look for a second one. 
 But God found fault with them, and he says, "The days are coming", says the Lord, "when I'll make a new binding arrangement with the house of Israel and with the house of Judah. 

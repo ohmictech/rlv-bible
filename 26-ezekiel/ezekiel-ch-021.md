@@ -3,8 +3,8 @@
 Tell the land of Israel, 'God says: "Look, I'm against you, and will draw my sword out of its sheath, and will cut off from you the righteous and the guilty. 
 Seeing then that I'll cut off from you the righteous and the guilty, my sword will go out of its sheath against all flesh from the south to the north. 
 All flesh will know that I, God, have drawn my sword out of its sheath. It won't return any more."' 
-"Therefore sigh, you son of man. You shall sigh before their eyes with a broken heart and with bitterness. 
-It shall be, when they ask you, 'Why do you sigh?' that you shall say, 'Because of the news, for it comes! Every heart will melt, all hands will be feeble, every spirit will faint, and all knees will be weak as water. Look, it comes, and it shall be done, says God.'" 
+"Therefore sigh, you son of man. You will sigh before their eyes with a broken heart and with bitterness. 
+It will be, when they ask you, 'Why do you sigh?' that you will say, 'Because of the news, for it comes! Every heart will melt, all hands will be feeble, every spirit will faint, and all knees will be weak as water. Look, it comes, and it will be done, says God.'" 
 God's word came to me, saying, 
 "Son of man, prophesy, and say, 'God says: "A sword! A sword! It's sharpened, and also polished. 
 It's sharpened that it may make a slaughter. It's polished that it may be as lightning. Should we then make mirth? The rod of my son condemns every tree. 
@@ -17,7 +17,7 @@ Gather yourselves together. Go to the right. Set yourselves in array. Go to the 
 I'll also strike my hands together, and I'll cause my wrath to rest. I, God, have spoken it." 
 God's word came to me again, saying, 
 "Also, you son of man, appoint two ways, that the sword of the king of Babylon may come. They both will come out of one land, and mark out a place. Mark it out at the head of the way to the city. 
-You shall appoint a way for the sword to come to Rabbah of the children of Ammon, and to Judah in Jerusalem the fortified. 
+You will appoint a way for the sword to come to Rabbah of the children of Ammon, and to Judah in Jerusalem the fortified. 
 The king of Babylon stood at the parting of the way, at the head of the two ways, to use divination. He shook the arrows back and forth. He consulted the teraphim. He looked in the liver. 
 In his right hand was the lot for Jerusalem, to set battering rams, to open the mouth in the slaughter, to lift up the voice with shouting, to set battering rams against the gates, to cast up mounds, and to build forts. 
 It'll be to them as a false divination in their sight, who have sworn oaths to them; but he brings guilt to memory, that they may be taken. 

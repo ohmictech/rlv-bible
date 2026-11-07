@@ -6,7 +6,7 @@ Have we no right to take along a wife who trusts, just as the rest of the sent o
 Or have only Barnabas and I no right to not work? 
 What soldier ever serves at his own expense? Who plants a vineyard, and doesn't eat of its fruit? Or who feeds a flock, and doesn't drink from the flock's milk? 
 Do I speak these things according to the ways of men? Or doesn't the law also say the same thing? 
-It's written in the law of Moses, "You shall not muzzle an ox while it treads out the grain." Is it for the oxen that God cares, 
+It's written in the law of Moses, "You won't muzzle an ox while it treads out the grain." Is it for the oxen that God cares, 
 or does he say it assuredly for our sake? Yes, it was written for our sake, because the one who plows ought to plow in expectation, and the one who threshes ought to thresh in the expectation of sharing the crop. 
 If we sowed to you spiritual things, is it a great thing if we reap your fleshly things? 
 If others share this right over you, don't we all the more? Nevertheless we didn't use this right, but we put up with everything, so that we cause no hindrance to the Good News of Christ. 

@@ -1,7 +1,7 @@
 ﻿David spoke to God the words of this song in the day that God delivered him out of the hand of all his enemies, and out of the hand of Saul, 
 and he said: "God is my rock, my fortress, and my deliverer, even mine; 
 God is my rock in whom I take refuge; my shield, and the horn of my salvation, my high tower, and my refuge. My savior, you save me from violence. 
-I call on God, who's worthy to be praised; So shall I be saved from my enemies. 
+I call on God, who's worthy to be praised; So will I be saved from my enemies. 
 The waves of death surrounded me. The floods of ungodliness made me afraid. 
 The cords of Hades were around me. The snares of death caught me. 
 In my distress, I called on God. Yes, I called to my God. He heard my voice out of his temple. My cry came into his ears. 

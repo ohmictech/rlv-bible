@@ -1,9 +1,9 @@
 ﻿David assembled all the princes of Israel, the princes of the tribes, the captains of the companies who served the king by division, the captains of thousands, the captains of hundreds, and the rulers over all the substance and possessions of the king and of his sons, with the officers and the mighty men, even all the mighty men of valor, to Jerusalem. 
 Then David the king stood up on his feet and said, "Hear me, my brothers and my people! As for me, it was in my heart to build a house of rest for the ark of God's covenant, and for the footstool of our God; and I had prepared for the building. 
-But God said to me, 'You shall not build a house for my name, because you're a man of war and have shed blood.' 
+But God said to me, 'You won't build a house for my name, because you're a man of war and have shed blood.' 
 However the God of Israel, chose me out of all the house of my father to be king over Israel for the eras. He has chosen Judah to be prince; and in the house of Judah, the house of my father; and among the sons of my father he took pleasure in me to make me king over all Israel. 
 Of all my sons (for God has given me many sons), he has chosen Solomon my son to sit on the throne of God's kingdom over Israel. 
-He said to me, 'Solomon, your son, shall build my house and my courts; for I have chosen him to be my son, and I'll be his father. 
+He said to me, 'Solomon, your son, will build my house and my courts; for I have chosen him to be my son, and I'll be his father. 
 I'll establish his kingdom for the eras if he continues to do my commandments and my ordinances, as it's today.' 
 Now, in the sight of all Israel, God's assembly, and in the audience of our God, observe and seek out all the commandments of your God, that you may possess this good land, and leave it for an inheritance to your children after you for the eras. 
 You, Solomon my son, know the God of your father, and serve him with a perfect heart and with a willing mind; for God searches all hearts, and understands all the imaginations of the thoughts. If you seek him, he'll be found by you; but if you forsake him, he'll cast you off for the eras. 
@@ -18,4 +18,4 @@ and the forks, the basins, and the cups, of pure gold; and for the golden bowls 
 and for the altar of incense, refined gold by weight; and gold for the plans for the chariot, and the cherubim that spread out and cover the ark of God's covenant. 
 "All this", David said, "I have been made to understand in writing from God's hand, even all the works of this pattern." 
 David said to Solomon his son, "Be strong and courageous, and do it. Don't be afraid, nor be dismayed, for God, even my God, is with you. He won't fail you nor forsake you, until all the work for the service of God's house is finished. 
-Look, there are the divisions of the priests and the Levites for all the service of God's house. Every willing man who has skill for any kind of service shall be with you in all kinds of work. Also the captains and everyone will be entirely at your command." 
+Look, there are the divisions of the priests and the Levites for all the service of God's house. Every willing man who has skill for any kind of service will be with you in all kinds of work. Also the captains and everyone will be entirely at your command." 

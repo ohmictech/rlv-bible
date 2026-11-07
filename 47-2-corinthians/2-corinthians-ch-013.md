@@ -1,4 +1,4 @@
-﻿This is the third time I'm coming to you. "At the mouth of two or three witnesses shall every word be established." 
+﻿This is the third time I'm coming to you. "At the mouth of two or three witnesses will every word be established." 
 I warned you before, and I warn you again now, as I did when I was present the second time: to those who drifted before and to everyone else, if I come again, I won't spare you. 
 seeing that you seek a proof of Christ who speaks in me who isn't weak, but is powerful in you. 
 He was crucified through weakness, yet he lives through the power of God. We also are weak in him, but we'll truly live with him through the power of God toward you. 

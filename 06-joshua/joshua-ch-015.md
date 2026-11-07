@@ -1,7 +1,7 @@
 ﻿The lot for the tribe of the children of Judah according to their families was to the border of Edom, even to the wilderness of Zin southward, at the uttermost part of the south. 
 Their south border was from the uttermost part of the Salt Sea, from the bay that looks southward; 
 and it went out southward of the ascent of Akrabbim, and passed along to Zin, and went up by the south of Kadesh Barnea, and passed along by Hezron, went up to Addar, and turned toward Karka; 
-and it passed along to Azmon, went out at the brook of Egypt; and the border ended at the sea. This shall be your south border. 
+and it passed along to Azmon, went out at the brook of Egypt; and the border ended at the sea. This will be your south border. 
 The east border was the Salt Sea, even to the end of the Jordan. The border of the north quarter was from the bay of the sea at the end of the Jordan. 
 The border went up to Beth Hoglah, and passed along by the north of Beth Arabah; and the border went up to the stone of Bohan the son of Reuben. 
 The border went up to Debir from the valley of Achor, and so northward, looking toward Gilgal, that faces the ascent of Adummim, which is on the south side of the river. The border passed along to the waters of En Shemesh, and ended at En Rogel. 

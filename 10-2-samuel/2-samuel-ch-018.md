@@ -1,6 +1,6 @@
 ﻿David counted the people who were with him, and set captains of thousands and captains of hundreds over them. 
 David sent the people out, a third part under the hand of Joab, and a third part under the hand of Abishai the son of Zeruiah, Joab's brother, and a third part under the hand of Ittai the Gittite. The king said to the people, "I'll also surely go out with you myself." 
-But the people said, "You shall not go out, for if we flee away, they won't care for us, neither if half of us die, will they care for us. But you're worth ten thousand of us. So now it's better that you're ready to help us out of the city." 
+But the people said, "You won't go out, for if we flee away, they won't care for us, neither if half of us die, will they care for us. But you're worth ten thousand of us. So now it's better that you're ready to help us out of the city." 
 The king said to them, "I'll do what seems best to you." The king stood beside the gate, and everyone went out by hundreds and by thousands. 
 The king commanded Joab and Abishai and Ittai, saying, "Deal gently for my sake with the young man Absalom." Everyone heard when the king commanded all the captains concerning Absalom. 
 So the people went out into the field against Israel; and the battle was in the forest of Ephraim. 

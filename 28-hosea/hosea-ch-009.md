@@ -9,7 +9,7 @@ A spokesman watches over Ephraim with my God. A fowler's snare is on all of his 
 They have deeply corrupted themselves, as in the days of Gibeah. He'll remember their guilt. He'll punish them for their mistakes. 
 I found Israel like grapes in the wilderness. I saw your fathers as the first ripe in the fig tree at its first season; but they came to Baal Peor, and consecrated themselves to the shameful thing, and became abominable like that which they loved. 
 As for Ephraim, their glory will fly away like a bird. There will be no birth, no one with child, and no conception. 
-Though they bring up their children, yet I'll bereave them, so that not a man shall be left. Indeed, woe also to them when I depart from them! 
+Though they bring up their children, yet I'll bereave them, so that not a man will be left. Indeed, woe also to them when I depart from them! 
 I have seen Ephraim, like Tyre, planted in a pleasant place; but Ephraim will bring out his children to the murderer. 
 Give them, God what will you give? Give them a miscarrying womb and dry breasts. 
 "All their guilt is in Gilgal; for there I hated them. Because of the guilt of their deeds, I'll drive them out of my house! I'll love them no more. All their princes are rebels. 

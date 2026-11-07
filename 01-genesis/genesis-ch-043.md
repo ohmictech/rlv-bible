@@ -1,8 +1,8 @@
 ﻿The famine was severe in the land. 
 When they had eaten up the grain which they had brought out of Egypt, their father said to them, "Go again, buy us a little more food." 
-Judah spoke to him, saying, "The man solemnly warned us, saying, 'You shall not see my face, unless your brother is with you.' 
+Judah spoke to him, saying, "The man solemnly warned us, saying, 'You won't see my face, unless your brother is with you.' 
 If you'll send our brother with us, we'll go down and buy you food; 
-but if you don't send him, we won't go down, for the man said to us, 'You shall not see my face, unless your brother is with you.'" 
+but if you don't send him, we won't go down, for the man said to us, 'You won't see my face, unless your brother is with you.'" 
 Israel said, "Why did you treat me so badly, telling the man that you had another brother?" 
 They said, "The man asked directly concerning ourselves, and concerning our relatives, saying, 'Is your father still alive? Have you another brother?' We just answered his questions. Is there any way we could know that he'd say, 'Bring your brother down'?" 
 Judah said to Israel, his father, "Send the boy with me, and we'll get up and go, so that we may live, and not die, both we, and you, and also our little ones. 

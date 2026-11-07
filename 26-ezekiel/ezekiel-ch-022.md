@@ -1,6 +1,6 @@
 ﻿Moreover God's word came to me, saying, 
 "You, son of man, will you judge? Will you judge the bloody city? Then cause her to know all her abominations. 
-You shall say, 'The God says: "A city that sheds blood within herself, that her time may come, and that makes idols against herself to defile her! 
+You will say, 'The God says: "A city that sheds blood within herself, that her time may come, and that makes idols against herself to defile her! 
 You have become guilty in your blood that you have shed, and are defiled in your idols which you have made! You have caused your days to draw near, and have come to the end of your years. So I have made you a reproach to the nations, and a mocking to all the countries. 
 Those who are near and those who are far from you'll mock you, you infamous one, full of tumult. 
 "'"Look, the princes of Israel, everyone according to his power, have been in you to shed blood. 

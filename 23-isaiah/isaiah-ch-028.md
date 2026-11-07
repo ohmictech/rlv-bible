@@ -1,7 +1,7 @@
 ﻿Woe to the crown of pride of the drunkards of Ephraim, and to the fading flower of his glorious beauty, which is on the head of the fertile valley of those who are overcome with wine! 
 Look, the Lord has one who's mighty and strong. Like a storm of hail, a destroying storm, and like a storm of mighty waters overflowing, he'll cast them down to the earth with his hand. 
 The crown of pride of the drunkards of Ephraim will be trodden under foot. 
-The fading flower of his glorious beauty, which is on the head of the fertile valley, shall be like the first-ripe fig before the summer, which someone picks and eats as soon as he sees it. 
+The fading flower of his glorious beauty, which is on the head of the fertile valley, will be like the first-ripe fig before the summer, which someone picks and eats as soon as he sees it. 
 In that day, the God of Armies will become a crown of glory and a diadem of beauty to the residue of his people, 
 and a spirit of justice to him who sits in judgment, and strength to those who turn back the battle at the gate. 
 They also reel with wine, and stagger with strong drink. The priest and the spokesman reel with strong drink. They're swallowed up by wine. They stagger with strong drink. They err in vision. They stumble in judgment. 
@@ -13,9 +13,9 @@ to whom he said, "This is the resting place. Give rest to the weary," and "This 
 So God's word will be to them precept on precept, precept on precept; line on line, line on line; here a little, there a little; that they may go, fall backward, be broken, be snared, and be taken. 
 So hear God's word, you scoffers, that rule this people in Jerusalem: 
 "Because you have said, 'We have made a covenant with death, and we're in agreement with Hades. When the overflowing scourge passes through, it won't come to us; for we have made lies our refuge, and we have hidden ourselves under falsehood.'" 
-So God says, "Look, I lay in Zion for a foundation a stone, a tried stone, a precious cornerstone of a sure foundation. He who believes shall not act hastily. 
+So God says, "Look, I lay in Zion for a foundation a stone, a tried stone, a precious cornerstone of a sure foundation. He who believes won't act hastily. 
 I'll make justice the measuring line, and righteousness the plumb line. The hail will sweep away the refuge of lies, and the waters will overflow the hiding place. 
-Your covenant with death shall be annulled, and your agreement with Hades shall not stand. When the overflowing scourge passes through, then you'll be trampled down by it. 
+Your covenant with death will be annulled, and your agreement with Hades won't stand. When the overflowing scourge passes through, then you'll be trampled down by it. 
 As often as it passes through, it'll seize you; for morning by morning it'll pass through, by day and by night; and it'll be nothing but terror to understand the message." 
 The bed is too short to stretch out on, and the blanket is too narrow to wrap oneself in. 
 God will rise up as on Mount Perazim. He'll be angry as in the valley of Gibeon; that he may do his work, his unusual work, and bring to pass his act, his extraordinary act. 

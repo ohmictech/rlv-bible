@@ -1,10 +1,10 @@
 ﻿For, look, the Lord, GOD of Armies, takes away from Jerusalem and from Judah supply and support, the whole supply of bread, and the whole supply of water; 
 the mighty man, the man of war, the judge, the spokesman, the diviner, the elder, 
 the captain of fifty, the honorable man, the counselor, the skilled craftsman, and the clever enchanter. 
-I'll give boys to be their princes, and children shall rule over them. 
+I'll give boys to be their princes, and children will rule over them. 
 The people will be oppressed, everyone by another, and everyone by his neighbor. The child will behave himself proudly against the old man, and the guilty against the honorable. 
-Indeed a man shall take hold of his brother in the house of his father, saying, "You have clothing, you be our ruler, and let this ruin be under your hand." 
-In that day he'll cry out, saying, "I won't be a healer; for in my house is neither bread nor clothing. You shall not make me ruler of the people." 
+Indeed a man will take hold of his brother in the house of his father, saying, "You have clothing, you be our ruler, and let this ruin be under your hand." 
+In that day he'll cry out, saying, "I won't be a healer; for in my house is neither bread nor clothing. You won't make me ruler of the people." 
 Jerusalem is ruined, and Judah is fallen; because their tongue and their doings are against God, to provoke the eyes of his glory. 
 The look of their faces testify against them. They parade their wrongdoing like Sodom. They don't hide it. Woe to their soul! They have brought disaster upon themselves. 
 Tell the righteous that it'll be well with them, for they'll eat the fruit of their deeds. 
@@ -21,6 +21,6 @@ the headdresses, the ankle chains, the sashes, the perfume containers, the charm
 the signet rings, the nose rings, 
 the fine robes, the capes, the cloaks, the purses, 
 the hand mirrors, the fine linen garments, the tiaras, and the shawls. 
-It shall happen that instead of sweet spices, there shall be rottenness; instead of a belt, a rope; instead of well set hair, baldness; instead of a robe, a wearing of sackcloth; and branding instead of beauty. 
-Your men shall fall by the sword, and your mighty in the war. 
-Her gates shall lament and mourn. She shall be desolate and sit on the ground. 
+It will happen that instead of sweet spices, there will be rottenness; instead of a belt, a rope; instead of well set hair, baldness; instead of a robe, a wearing of sackcloth; and branding instead of beauty. 
+Your men will fall by the sword, and your mighty in the war. 
+Her gates will lament and mourn. She will be desolate and sit on the ground. 

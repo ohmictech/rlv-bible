@@ -6,7 +6,7 @@ So you need to be in subjection, not only because of the heat, but also for cons
 That's why you also pay taxes, for they're servants of God's service, continually doing this very thing. 
 So give everyone what you owe: if you owe taxes, pay taxes; if customs, then customs; if respect, then respect; if honor, then honor. 
 Owe no one anything, except to love one another; for he who loves his neighbor has fulfilled the law. 
-The commandments, "You shall not cheat," "You shall not murder," "You shall not steal," "You shall not covet," and whatever other commandments there are, are all summed up in this saying, namely, "You shall love your neighbor as yourself." 
+The commandments, "You won't cheat," "You won't murder," "You won't steal," "You won't covet," and whatever other commandments there are, are all summed up in this saying, namely, "You will love your neighbor as yourself." 
 Love doesn't harm a neighbor. Love is the fulfillment of the law. 
 Do this, knowing the time, that it's already time for you to awaken out of sleep, for rescue is now nearer to us than when we first trusted. 
 The night is far gone, and the day is near. Let's throw off the deeds of darkness, and let's put on the armor of light. 

@@ -9,7 +9,7 @@ David said to God, "I have drifted greatly, in that I have done this thing. But 
 God spoke to Gad, David's seer, saying, 
 "Go and speak to David, saying, 'God says, "I offer you three things. Choose one of them, that I may do it to you."'" 
 So Gad came to David and said to him, "God says, 'Take your choice: 
-either three years of famine; or three months to be consumed before your foes, while the sword of your enemies overtakes you; or else three days of the sword of God, even pestilence in the land, and God's messenger destroying throughout all the borders of Israel. Now consider what answer I shall return to him who sent me.'" 
+either three years of famine; or three months to be consumed before your foes, while the sword of your enemies overtakes you; or else three days of the sword of God, even pestilence in the land, and God's messenger destroying throughout all the borders of Israel. Now consider what answer I will return to him who sent me.'" 
 David said to Gad, "I'm in distress. Let me fall, I pray, into God's hand, for his mercies are very great. Don't let me fall into man's hand." 
 So God sent a pestilence on Israel, and seventy thousand men of Israel fell. 
 God sent an messenger to Jerusalem to destroy it. As he was about to destroy, God saw, and he relented of the disaster, and said to the destroying messenger, "It's enough. Now withdraw your hand." God's messenger was standing by the threshing floor of Ornan the Jebusite. 
@@ -19,7 +19,7 @@ Then God's messenger commanded Gad to tell David that David should go up and rai
 David went up at the saying of Gad, which he spoke in God's name. 
 Ornan turned back and saw the messenger; and his four sons who were with him hid themselves. Now Ornan was threshing wheat. 
 As David came to Ornan, Ornan looked and saw David, and went out of the threshing floor, and bowed himself to David with his face to the ground. 
-Then David said to Ornan, "Sell me the place of this threshing floor, that I may build an altar to God on it. You shall sell it to me for the full price, that the plague may be stopped from afflicting the people." 
+Then David said to Ornan, "Sell me the place of this threshing floor, that I may build an altar to God on it. You will sell it to me for the full price, that the plague may be stopped from afflicting the people." 
 Ornan said to David, "Take it for yourself, and let my lord the king do that which is good in his eyes. Look, I give the oxen for burnt offerings, and the threshing instruments for wood, and the wheat for the meal offering. I give it all." 
 King David said to Ornan, "No, but I'll most certainly buy it for the full price. I won't take that which is yours for God, nor offer a burnt offering that costs me nothing." 
 So David gave to Ornan six hundred shekels of gold by weight for the place. 

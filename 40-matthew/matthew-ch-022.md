@@ -21,7 +21,7 @@ He asked them, "Whose is this image and inscription?"
 They said to him, "Caesar's." Then he said to them, "So give to Caesar the things that are Caesar's, and to God the things that are God's." 
 When they heard it, they were amazed, and left him and went away. 
 On that day some of the religious elite (those who say that there's no rising again) came to him. They asked him, 
-saying, "Teacher, Moses said, 'If a man dies, having no children, his brother shall marry his wife and raise up offspring for his brother.' 
+saying, "Teacher, Moses said, 'If a man dies, having no children, his brother will marry his wife and raise up offspring for his brother.' 
 Now there were with us seven brothers. The first married and died, and having no offspring left his wife to his brother. 
 In the same way, the second also, and the third, to the seventh. 
 After them all, the woman died. 
@@ -34,9 +34,9 @@ When the crowds heard it, they were astonished at his teaching.
 But the strict religious ones, when they heard that he had silenced the religious elite, gathered themselves together. 
 One of them, an expert in the law, asked him a question, testing him. 
 "Teacher, which is the greatest command in the law?" 
-Jesus said to him, "'You shall love the Lord your God with all your heart, with all your life, and with all your mind.' 
+Jesus said to him, "'You will love the Lord your God with all your heart, with all your life, and with all your mind.' 
 This is the first and great command. 
-A second likewise is this, 'You shall love your neighbor as yourself.' 
+A second likewise is this, 'You will love your neighbor as yourself.' 
 The whole law and the prophets depend on these two commands." 
 Now while the strict religious ones were gathered together, Jesus asked them a question, 
 saying, "What do you think of the Christ? Whose son is he?" They said to him, "David's." 

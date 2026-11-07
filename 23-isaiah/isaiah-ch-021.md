@@ -4,7 +4,7 @@ So my thighs are filled with anguish. Pains have seized me, like the pains of a 
 My heart flutters. Horror has frightened me. The twilight that I desired has been turned into trembling for me. 
 They prepare the table. They set the watch. They eat. They drink. Rise up, you princes, oil the shield! 
 The Lord said to me, "Go, set a watchman. Let him declare what he sees. 
-When he sees a troop, horsemen in pairs, a troop of donkeys, a troop of camels, he shall listen diligently with great attentiveness." 
+When he sees a troop, horsemen in pairs, a troop of donkeys, a troop of camels, he will listen diligently with great attentiveness." 
 He cried like a lion: "Lord, I stand continually on the watchtower in the daytime, and every night I stay at my post. 
 Look, here comes a troop of men, horsemen in pairs." He answered, "Fallen, fallen is Babylon; and all the engraved images of her gods are broken to the ground. 
 You're my threshing, and the grain of my floor!" That which I have heard from the God of Armies, the God of Israel, I have declared to you. 

@@ -1,6 +1,6 @@
 ﻿Moses assembled all the congregation of the children of Israel, and said to them, "These are the words which God has commanded, that you should do them. 
-'Six days shall work be done, but on the seventh day there shall be a holy day for you, a Sabbath of solemn rest to God: whoever does any work in it shall be put to death. 
-You shall kindle no fire throughout your habitations on the Sabbath day.'" 
+'Six days will work be done, but on the seventh day there will be a holy day for you, a Sabbath of solemn rest to God: whoever does any work in it will be put to death. 
+You will kindle no fire throughout your habitations on the Sabbath day.'" 
 Moses spoke to all the congregation of the children of Israel, saying, "This is the thing which God commanded, saying, 
 'Take from among you an offering to God. Whoever is of a willing heart, let him bring it as God's offering: gold, silver, bronze, 
 blue, purple, scarlet, fine linen, goats' hair, 

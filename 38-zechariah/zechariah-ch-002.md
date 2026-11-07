@@ -8,6 +8,6 @@ Come! Come! Flee from the land of the north,' says God; 'for I have spread you a
 For the God of Armies says: 'For honor he has sent me to the nations which plundered you; for he who touches you touches the apple of his eye. 
 For, look, I'll shake my hand over them, and they'll be a plunder to those who served them; and you'll know that the God of Armies has sent me. 
 Sing and rejoice, daughter of Zion! Look, I come and I'll dwell within you,' says God. 
-Many nations shall join themselves to God in that day, and shall be my people; and I'll dwell among you, and you shall know that the God of Armies has sent me to you. 
+Many nations will join themselves to God in that day, and will be my people; and I'll dwell among you, and you will know that the God of Armies has sent me to you. 
 God will inherit Judah as his portion in the holy land, and will again choose Jerusalem. 
 Be silent, all flesh, before God; for he has roused himself from his holy habitation!" 

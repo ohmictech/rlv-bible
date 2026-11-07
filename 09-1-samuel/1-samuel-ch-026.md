@@ -7,7 +7,7 @@ Then David answered and said to Ahimelech the Hittite, and to Abishai the son of
 So David and Abishai came to the people by night; and, look, Saul lay sleeping within the place of the wagons, with his spear stuck in the ground at his head; and Abner and the people lay around him. 
 Then Abishai said to David, "God has delivered up your enemy into your hand today. Now please let me strike him with the spear to the earth at one stroke, and I won't strike him the second time." 
 David said to Abishai, "Don't destroy him, for who can stretch out his hand against God's anointed, and be guiltless?" 
-David said, "As God lives, God will strike him; or his day shall come to die, or he shall go down into battle and perish. 
+David said, "As God lives, God will strike him; or his day will come to die, or he will go down into battle and perish. 
 God forbid that I should stretch out my hand against God's anointed; but now please take the spear that's at his head and the jar of water, and let's go." 
 So David took the spear and the jar of water from Saul's head, and they went away. No man saw it, or knew it, nor did any awake; for they were all asleep, because a deep sleep from God had fallen on them. 
 Then David went over to the other side, and stood on the top of the mountain far away, a great space being between them; 

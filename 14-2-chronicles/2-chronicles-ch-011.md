@@ -1,7 +1,7 @@
 ﻿When Rehoboam had come to Jerusalem, he assembled the house of Judah and Benjamin, one hundred eighty thousand chosen men who were warriors, to fight against Israel, to bring the kingdom again to Rehoboam. 
 But God's word came to Shemaiah the man of God, saying, 
 "Speak to Rehoboam the son of Solomon, king of Judah, and to all Israel in Judah and Benjamin, saying, 
-'God says, "You shall not go up, nor fight against your brothers! Every man return to his house; for this thing is of me."'" So they listened to God's words, and returned from going against Jeroboam. 
+'God says, "You won't go up, nor fight against your brothers! Every man return to his house; for this thing is of me."'" So they listened to God's words, and returned from going against Jeroboam. 
 Rehoboam lived in Jerusalem, and built cities for defense in Judah. 
 He built Bethlehem, Etam, Tekoa, 
 Beth Zur, Soco, Adullam, 

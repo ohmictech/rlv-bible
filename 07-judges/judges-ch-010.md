@@ -15,4 +15,4 @@ Go and cry to the gods which you have chosen. Let them save you in the time of y
 The children of Israel said to God, "We have drifted! Do to us whatever seems good to you; only deliver us, please, today." 
 They put away the foreign gods from among them and served God; and his soul was grieved for the misery of Israel. 
 Then the children of Ammon were gathered together and encamped in Gilead. The children of Israel assembled themselves together and encamped in Mizpah. 
-The people, the princes of Gilead, said to one another, "Who's the man who will begin to fight against the children of Ammon? He shall be head over all the inhabitants of Gilead." 
+The people, the princes of Gilead, said to one another, "Who's the man who will begin to fight against the children of Ammon? He will be head over all the inhabitants of Gilead." 

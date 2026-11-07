@@ -4,8 +4,8 @@ When the people of Ashdod arose early on the next day, look, Dagon had fallen on
 When they arose early on the following morning, look, Dagon had fallen on his face to the ground before God's ark; and the head of Dagon and both the palms of his hands were cut off on the threshold. Only Dagon's torso was intact. 
 So neither the priests of Dagon nor any who come into Dagon's house step on the threshold of Dagon in Ashdod to this day. 
 But God's hand was heavy on the people of Ashdod, and he destroyed them and struck them with tumors, even Ashdod and its borders. 
-When the men of Ashdod saw that it was so, they said, "The ark of the God of Israel shall not stay with us, for his hand is severe on us and on Dagon our god." 
-They sent and gathered together all the lords of the Philistines, and said, "What shall we do with the ark of the God of Israel?" They answered, "Let the ark of the God of Israel be carried over to Gath." They carried the ark of the God of Israel there. 
+When the men of Ashdod saw that it was so, they said, "The ark of the God of Israel won't stay with us, for his hand is severe on us and on Dagon our god." 
+They sent and gathered together all the lords of the Philistines, and said, "What will we do with the ark of the God of Israel?" They answered, "Let the ark of the God of Israel be carried over to Gath." They carried the ark of the God of Israel there. 
 It was so, that after they had carried it there, God's hand was against the city with a very great confusion; and he struck the men of the city, both small and great, so that tumors broke out on them. 
 So they sent God's ark to Ekron. As God's ark came to Ekron, the Ekronites cried out, saying, "They have brought the ark of the God of Israel here to us, to kill us and our people." 
 They sent and gathered together all the lords of the Philistines, and they said, "Send the ark of the God of Israel away, and let it go again to its own place, that it not kill us and our people." For there was a deadly panic throughout all the city. The hand of God was very heavy there. 

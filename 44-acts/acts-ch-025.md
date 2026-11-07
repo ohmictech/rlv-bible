@@ -9,7 +9,7 @@ while he said in his defense, "Neither against the law of the Jewish people, nor
 But Festus, desiring to gain favor with the Jewish people, answered Paul and said, "Are you willing to go up to Jerusalem and be judged by me there concerning these things?" 
 But Paul said, "I'm standing before Caesar's judge's seat, where I ought to be tried. I have done no wrong to the Jewish people, as you also know very well. 
 If I have done wrong and have committed anything worthy of death, I don't refuse to die; but if none of those things is true that they accuse me of, no one can give me up to them. I appeal to Caesar!" 
-Then Festus, when he had conferred with the council, answered, "You have appealed to Caesar. To Caesar you shall go." 
+Then Festus, when he had conferred with the council, answered, "You have appealed to Caesar. To Caesar you will go." 
 Now when some days had passed, King Agrippa and Bernice arrived at Caesarea and greeted Festus. 
 As he stayed there many days, Festus laid Paul's case before the king, saying, "There's a certain man left a prisoner by Felix; 
 about whom, when I was at Jerusalem, the chief priests and the elders of the Jewish people informed me, asking for a sentence against him. 

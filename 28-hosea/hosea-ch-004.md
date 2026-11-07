@@ -16,4 +16,4 @@ I won't punish your daughters when they play the prostitute, nor your brides whe
 For Israel has behaved extremely stubbornly, like a stubborn heifer. Then how will God feed them like a lamb in a meadow? 
 Ephraim is joined to idols. Leave him alone! 
 Their drink has become sour. They play the prostitute continually. Her rulers dearly love their shameful way. 
-The wind has wrapped her up in its wings; and they shall be disappointed because of their sacrifices. 
+The wind has wrapped her up in its wings; and they will be disappointed because of their sacrifices. 

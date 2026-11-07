@@ -12,11 +12,11 @@ to bring Vashti the queen before the king wearing the royal crown, to show the p
 But the queen Vashti refused to come at the king's commandment by the eunuchs. So the king was very angry, and his anger burned in him. 
 Then the king said to the wise men, who knew the times (for it was the king's custom to consult those who knew law and judgment; 
 and next to him were Carshena, Shethar, Admatha, Tarshish, Meres, Marsena, and Memucan, the seven princes of Persia and Media, who saw the king's face, and sat first in the kingdom), 
-"What shall we do to Queen Vashti according to law, because she hasn't done the bidding of the King Ahasuerus by the eunuchs?" 
+"What will we do to Queen Vashti according to law, because she hasn't done the bidding of the King Ahasuerus by the eunuchs?" 
 Memucan answered before the king and the princes, "Vashti the queen hasn't done wrong to just the king, but also to all the princes, and to everyone who's in all the provinces of the King Ahasuerus. 
 This deed of the queen will become known to all women, causing them to show contempt for their husbands when it's reported, 'King Ahasuerus commanded Vashti the queen to be brought in before him, but she didn't come.' 
 Today, the princesses of Persia and Media who have heard of the queen's deed will tell all the king's princes. This will cause much contempt and wrath. 
 "If it pleases the king, let a royal commandment go from him, and let it be written among the laws of the Persians and the Medes, so that it can't be altered, that Vashti may never again come before King Ahasuerus; and let the king give her royal estate to another who's better than she. 
-When the king's decree which he shall make is published throughout all his kingdom (for it's great), all the wives will give their husbands honor, both great and small." 
+When the king's decree which he will make is published throughout all his kingdom (for it's great), all the wives will give their husbands honor, both great and small." 
 This advice pleased the king and the princes, and the king did according to the word of Memucan: 
 for he sent letters into all the king's provinces, into every province according to its writing, and to every people in their language, that every man should rule his own house, speaking in the language of his own people. 

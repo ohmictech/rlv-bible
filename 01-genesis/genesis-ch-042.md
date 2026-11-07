@@ -12,8 +12,8 @@ We're all one man's sons; we're honest men. Your servants aren't spies."
 He said to them, "No, but you have come to see the nakedness of the land!" 
 They said, "We, your servants, are twelve brothers, the sons of one man in the land of Canaan; and look, the youngest is today with our father, and one is no more." 
 Joseph said to them, "It's like I told you, saying, 'You're spies!' 
-By this you shall be tested. By the life of Pharaoh, you shall not go out from here, unless your youngest brother comes here. 
-Send one of you, and let him get your brother, and you shall be bound, that your words may be tested, whether there's truth in you, or else by the life of Pharaoh surely you're spies." 
+By this you will be tested. By the life of Pharaoh, you won't go out from here, unless your youngest brother comes here. 
+Send one of you, and let him get your brother, and you will be bound, that your words may be tested, whether there's truth in you, or else by the life of Pharaoh surely you're spies." 
 He put them all together into custody for three days. 
 Joseph said to them the third day, "Do this, and live, for I fear God. 
 If you're honest men, then let one of your brothers be bound in your prison; but you go, carry grain for the famine of your houses. 
@@ -31,8 +31,8 @@ They came to Jacob their father, to the land of Canaan, and told him all that ha
 We said to him, 'We're honest men. We're no spies. 
 We're twelve brothers, sons of our father; one is no more, and the youngest is today with our father in the land of Canaan.' 
 The man, the lord of the land, said to us, 'By this I'll know that you're honest men: leave one of your brothers with me, and take grain for the famine of your houses, and go your way. 
-Bring your youngest brother to me. Then I'll know that you aren't spies, but that you're honest men. So I'll deliver your brother to you, and you shall trade in the land.'" 
+Bring your youngest brother to me. Then I'll know that you aren't spies, but that you're honest men. So I'll deliver your brother to you, and you will trade in the land.'" 
 As they emptied their sacks, look, each man's bundle of money was in his sack. When they and their father saw their bundles of money, they were afraid. 
 Jacob, their father, said to them, "You have bereaved me of my children! Joseph is no more, Simeon is no more, and you want to take Benjamin away. All these things are against me." 
 Reuben spoke to his father, saying, "Kill my two sons, if I don't bring him to you. Entrust him to my care, and I'll bring him to you again." 
-He said, "My son shall not go down with you; for his brother is dead, and he only is left. If harm happens to him along the way in which you go, then you'll bring down my gray hairs with sorrow to Hades." 
+He said, "My son won't go down with you; for his brother is dead, and he only is left. If harm happens to him along the way in which you go, then you'll bring down my gray hairs with sorrow to Hades." 

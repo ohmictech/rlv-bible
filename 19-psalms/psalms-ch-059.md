@@ -12,6 +12,6 @@ Don't kill them, or my people may forget. Scatter them by your power, and bring 
 The wrongdoing of their mouth, and the words of their lips, let them be caught in their pride, for the curses and lies which they utter. 
 Consume them in wrath. Consume them, and they'll be no more. Let them know that God rules in Jacob, to the ends of the earth. Selah. 
 At evening let them return. Let them howl like a dog, and go around the city. 
-They shall wander up and down for food, and wait all night if they aren't satisfied. 
+They will wander up and down for food, and wait all night if they aren't satisfied. 
 But I'll sing of your strength. Yes, I'll sing aloud of your loving kindness in the morning. You have been my high tower, a refuge in the day of my distress. 
 To you, my strength, I'll sing praises. God is my high tower, the God of my mercy. 

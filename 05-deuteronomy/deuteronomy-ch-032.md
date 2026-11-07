@@ -21,7 +21,7 @@ He said, "I'll hide my face from them. I'll see what their end will be; for they
 They have moved me to jealousy with that which isn't God. They have provoked me to anger with their vanities. I'll move them to jealousy with those who aren't a people. I'll provoke them to anger with a foolish nation. 
 A fire is kindled in my anger, that burns to the lowest Hades, devours the earth with its increase, and sets the foundations of the mountains on fire. 
 "I'll heap bad things on them. I'll spend my arrows on them. 
-They shall be wasted with hunger, and devoured with burning heat and bitter destruction. I'll send the teeth of animals on them, with the venom of vipers that glide in the dust. 
+They will be wasted with hunger, and devoured with burning heat and bitter destruction. I'll send the teeth of animals on them, with the venom of vipers that glide in the dust. 
 Outside the sword will bereave, and in the rooms, terror on both young man and virgin, the nursing infant with the gray-haired man. 
 I said that I'd scatter them afar. I'd make their memory to cease from among men; 
 were it not that I feared the provocation of the enemy, lest their adversaries should judge wrongly, lest they should say, 'Our hand is exalted; God hasn't done all this.'" 
@@ -39,14 +39,14 @@ which ate the fat of their sacrifices, and drank the wine of their drink offerin
 "See now that I myself am he. There's no god with me. I kill and I make alive. I wound and I heal. There's no one who can deliver out of my hand. 
 I lift up my hand to the sky and declare, as I live for the eras, 
 if I sharpen my glittering sword, my hand grasps it in judgment; I'll take vengeance on my adversaries, and will repay those who hate me. 
-I'll make my arrows drunk with blood. My sword shall devour flesh with the blood of the slain and the captives, from the head of the leaders of the enemy." 
+I'll make my arrows drunk with blood. My sword will devour flesh with the blood of the slain and the captives, from the head of the leaders of the enemy." 
 Rejoice, you nations, with his people, for he'll avenge the blood of his servants. He'll take vengeance on his adversaries, and will make things right for his land and for his people. 
 Moses came and spoke all the words of this song in the ears of the people, he and Joshua the son of Nun. 
 Moses finished reciting all these words to all Israel. 
-He said to them, "Set your heart to all the words which I testify to you today, which you shall command your children to observe to do, all the words of this law. 
-It's no vain thing for you, because it's your life, and through this thing you shall prolong your days in the land, where you go over the Jordan to possess it." 
+He said to them, "Set your heart to all the words which I testify to you today, which you will command your children to observe to do, all the words of this law. 
+It's no vain thing for you, because it's your life, and through this thing you will prolong your days in the land, where you go over the Jordan to possess it." 
 God spoke to Moses that same day, saying, 
 "Go up into this mountain of Abarim, to Mount Nebo, which is in the land of Moab, that's across from Jericho; and see the land of Canaan, which I give to the children of Israel for a possession. 
 Die on the mountain where you go up, and be gathered to your people, as Aaron your brother died on Mount Hor, and was gathered to his people; 
 because you trespassed against me among the children of Israel at the waters of Meribah of Kadesh, in the wilderness of Zin; because you didn't uphold my holiness among the children of Israel. 
-You shall see the land from a distance; but you shall not go there into the land which I give the children of Israel." 
+You will see the land from a distance; but you won't go there into the land which I give the children of Israel." 

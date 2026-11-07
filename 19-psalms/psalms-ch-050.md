@@ -3,7 +3,7 @@ Out of Zion, the perfection of beauty, God shines out.
 Our God comes, and doesn't keep silent. A fire devours before him. It's very stormy around him. 
 He calls to the sky above, to the earth, that he may judge his people: 
 "Gather my saints together to me, those who have made a covenant with me by sacrifice." 
-The sky shall declare his righteousness, for God himself is judge. Selah. 
+The sky will declare his righteousness, for God himself is judge. Selah. 
 "Hear, my people, and I'll speak. Israel, I'll testify against you. I'm God, your God. 
 I don't rebuke you for your sacrifices. Your burnt offerings are continually before me. 
 I have no need for a bull from your stall, nor male goats from your pens. 

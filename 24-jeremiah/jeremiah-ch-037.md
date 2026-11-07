@@ -4,7 +4,7 @@ Zedekiah the king sent Jehucal the son of Shelemiah and Zephaniah the son of Maa
 Now Jeremiah came in and went out among the people, for they hadn't put him into prison. 
 Pharaoh's army had come out of Egypt; and when the Chaldeans who were besieging Jerusalem heard news of them, they withdrew from Jerusalem. 
 Then God's word came to the spokesman Jeremiah, saying, 
-"The God of Israel says, 'You shall tell the king of Judah, who sent you to me to inquire of me: "Look, Pharaoh's army, which has come out to help you, will return to Egypt into their own land. 
+"The God of Israel says, 'You will tell the king of Judah, who sent you to me to inquire of me: "Look, Pharaoh's army, which has come out to help you, will return to Egypt into their own land. 
 The Chaldeans will come again, and fight against this city. They'll take it and burn it with fire."' 
 "God says, 'Don't deceive yourselves, saying, "The Chaldeans will surely depart from us;" for they won't depart. 
 Though you had struck the whole army of the Chaldeans who fight against you, and only wounded men remained among them, they'd each rise up in his tent and burn this city with fire.'" 

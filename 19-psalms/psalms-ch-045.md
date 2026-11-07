@@ -11,7 +11,7 @@ Listen, daughter, consider, and turn your ear. Forget your own people, and also 
 So the king will desire your beauty, honor him, for he's your lord. 
 The daughter of Tyre comes with a gift. The rich among the people entreat your favor. 
 The princess inside is all glorious. Her clothing is interwoven with gold. 
-She shall be led to the king in embroidered work. The virgins, her companions who follow her, shall be brought to you. 
-With gladness and rejoicing they shall be led. They shall enter into the king's palace. 
-Your sons will take the place of your fathers. You shall make them princes in all the earth. 
-I'll make your name to be remembered in all generations. So the peoples shall give you thanks for all the eras. 
+She will be led to the king in embroidered work. The virgins, her companions who follow her, will be brought to you. 
+With gladness and rejoicing they will be led. They will enter into the king's palace. 
+Your sons will take the place of your fathers. You will make them princes in all the earth. 
+I'll make your name to be remembered in all generations. So the peoples will give you thanks for all the eras. 

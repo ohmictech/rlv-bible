@@ -14,7 +14,7 @@ for his sons carried him into the land of Canaan, and buried him in the cave of 
 Joseph returned into Egypt, he, and his brothers, and all that went up with him to bury his father, after he had buried his father. 
 When Joseph's brothers saw that their father was dead, they said, "It may be that Joseph will hate us, and will fully pay us back for all the bad which we did to him." 
 They sent a message to Joseph, saying, "Your father commanded before he died, saying, 
-'You shall tell Joseph, "Now please forgive the disobedience of your brothers, and their wrongdoing, because they did bad to you."' Now, please forgive the disobedience of the servants of the God of your father." Joseph wept when they spoke to him. 
+'You will tell Joseph, "Now please forgive the disobedience of your brothers, and their wrongdoing, because they did bad to you."' Now, please forgive the disobedience of the servants of the God of your father." Joseph wept when they spoke to him. 
 His brothers also went and fell down before his face; and they said, "Look, we're your servants." 
 Joseph said to them, "Don't be afraid, for am I in the place of God? 
 As for you, you meant bad against me, but God meant it for good, to save many people alive, as is happening today. 
@@ -22,5 +22,5 @@ Now don't be afraid. I'll provide for you and your little ones." He comforted th
 Joseph lived in Egypt, he, and his father's house. Joseph lived one hundred ten years. 
 Joseph saw Ephraim's children to the third generation. The children also of Machir, the son of Manasseh, were born on Joseph's knees. 
 Joseph said to his brothers, "I'm dying, but God will surely visit you, and bring you up out of this land to the land which he swore to Abraham, to Isaac, and to Jacob." 
-Joseph took an oath from the children of Israel, saying, "God will surely visit you, and you shall carry up my bones from here." 
+Joseph took an oath from the children of Israel, saying, "God will surely visit you, and you will carry up my bones from here." 
 So Joseph died, being one hundred ten years old, and they embalmed him, and he was put in a coffin in Egypt. 

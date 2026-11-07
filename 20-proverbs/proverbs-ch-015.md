@@ -7,7 +7,7 @@ In the house of the righteous is much treasure, but the income of the guilty bri
 The lips of the wise spread knowledge; not so with the heart of fools. 
 The sacrifice made by the guilty is an abomination to God, but the prayer of the upright is his delight. 
 The way of the guilty is an abomination to God, but he loves him who follows after righteousness. 
-There's stern discipline for one who forsakes the way. Whoever hates reproof shall die. 
+There's stern discipline for one who forsakes the way. Whoever hates reproof will die. 
 Hades and Abaddon are before God, how much more then the hearts of the children of men! 
 A scoffer doesn't love to be reproved; he won't go to the wise. 
 A glad heart makes a cheerful face, but an aching heart breaks the spirit. 

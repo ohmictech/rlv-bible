@@ -28,7 +28,7 @@ But I know your sitting down, your going out, your coming in, and your raging ag
 Because of your raging against me, and because your arrogance has come up into my ears, I'll put my hook in your nose, and my bridle in your lips, and I'll turn you back by the way by which you came.' 
 "This will be the sign to you: This year, you'll eat that which grows of itself, and in the second year that which springs from that; and in the third year sow and reap, and plant vineyards and eat their fruit. 
 The remnant that has escaped of the house of Judah will again take root downward, and bear fruit upward. 
-Out of Jerusalem a remnant will go out, and out of Mount Zion those who shall escape. God's passion will perform this. 
+Out of Jerusalem a remnant will go out, and out of Mount Zion those who will escape. God's passion will perform this. 
 "So God says concerning the king of Assyria, 'He won't come to this city, nor shoot an arrow there. He won't come before it with shield, nor cast up a mound against it. 
 He'll return the same way that he came, and he won't come to this city,' says God. 
 'I'll defend this city to save it, for my own sake and for my servant David's sake.'" 

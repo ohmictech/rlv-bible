@@ -18,4 +18,4 @@ He put on righteousness as a breastplate, and a helmet of salvation on his head.
 According to their deeds, he'll repay as appropriate: wrath to his adversaries, recompense to his enemies. He'll repay the islands their due. 
 So they'll fear God's name from the west, and his glory from the rising of the sun; for he'll come as a rushing stream, which God's breath drives. 
 "A the one who buys back will come to Zion, and to those who turn from disobedience in Jacob," says God. 
-"As for me, this is my covenant with them," says God. "My Spirit who's on you, and my words which I have put in your mouth shall not depart out of your mouth, nor out of the mouth of your offspring, nor out of the mouth of your offspring's offspring," says God, "from now on and for the eras." 
+"As for me, this is my covenant with them," says God. "My Spirit who's on you, and my words which I have put in your mouth won't depart out of your mouth, nor out of the mouth of your offspring, nor out of the mouth of your offspring's offspring," says God, "from now on and for the eras." 

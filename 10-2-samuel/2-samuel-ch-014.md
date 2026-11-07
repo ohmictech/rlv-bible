@@ -8,7 +8,7 @@ Look, the whole family has risen against your servant, and they say, 'Deliver hi
 The king said to the woman, "Go to your house, and I'll give a command concerning you." 
 The woman of Tekoa said to the king, "My lord, O king, may the guilt be on me, and on my father's house; and may the king and his throne be guiltless." 
 The king said, "Whoever says anything to you, bring him to me, and he won't bother you any more." 
-Then she said, "Please let the king remember your God, that the avenger of blood destroy not any more, lest they destroy my son." He said, "As God lives, not one hair of your son shall fall to the earth." 
+Then she said, "Please let the king remember your God, that the avenger of blood destroy not any more, lest they destroy my son." He said, "As God lives, not one hair of your son will fall to the earth." 
 Then the woman said, "Please let your servant speak a word to my lord the king." He said, "Say on." 
 The woman said, "Why then have you devised such a thing against the people of God? In speaking this word the king is as one who's guilty, in that the king doesn't bring home again his banished one. 
 We must die, and are like water spilled on the ground, which can't be gathered up again; neither does God take away life, but devises means, that he who's banished not be an outcast from him. 

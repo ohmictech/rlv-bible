@@ -20,12 +20,12 @@ Why should we die before your eyes, both we and our land? Buy us and our land fo
 So Joseph bought all the land of Egypt for Pharaoh, for every man of the Egyptians sold his field, because the famine was severe on them, and the land became Pharaoh's. 
 As for the people, he moved them to the cities from one end of the border of Egypt even to the other end of it. 
 Only he didn't buy the land of the priests, for the priests had a portion from Pharaoh, and ate their portion which Pharaoh gave them. That's why they didn't sell their land. 
-Then Joseph said to the people, "Look, I have bought you and your land today for Pharaoh. Look, here's seed for you, and you shall sow the land. 
-It'll happen at the harvests, that you shall give a fifth to Pharaoh, and four parts will be your own, for seed of the field, for your food, for them of your households, and for food for your little ones." 
+Then Joseph said to the people, "Look, I have bought you and your land today for Pharaoh. Look, here's seed for you, and you will sow the land. 
+It'll happen at the harvests, that you will give a fifth to Pharaoh, and four parts will be your own, for seed of the field, for your food, for them of your households, and for food for your little ones." 
 They said, "You have saved our lives! Let's find favor in the sight of my lord, and we'll be Pharaoh's servants." 
 Joseph made it a statute concerning the land of Egypt to this day, that Pharaoh should have the fifth. Only the land of the priests alone didn't become Pharaoh's. 
 Israel lived in the land of Egypt, in the land of Goshen; and they got themselves possessions therein, and were fruitful, and multiplied exceedingly. 
 Jacob lived in the land of Egypt seventeen years. So the days of Jacob, the years of his life, were one hundred forty-seven years. 
 The time came near that Israel must die, and he called his son Joseph, and said to him, "If now I have found favor in your sight, please put your hand under my thigh, and deal kindly and truly with me. Please don't bury me in Egypt, 
-but when I sleep with my fathers, you shall carry me out of Egypt, and bury me in their burying place." Joseph said, "I'll do as you have said." 
+but when I sleep with my fathers, you will carry me out of Egypt, and bury me in their burying place." Joseph said, "I'll do as you have said." 
 Israel said, "Swear to me," and he swore to him. Then Israel bowed himself on the bed's head. 

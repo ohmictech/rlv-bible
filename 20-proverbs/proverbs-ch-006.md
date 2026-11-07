@@ -28,7 +28,7 @@ Can a man scoop fire into his lap, and his clothes not be burned?
 Or can one walk on hot coals, and his feet not be scorched? 
 So is he who goes in to his neighbor's wife. Whoever touches her won't be unpunished. 
 Men don't despise a thief if he steals to satisfy himself when he's hungry, 
-but if he's found, he shall restore seven times. He shall give all the wealth of his house. 
+but if he's found, he will restore seven times. He will give all the wealth of his house. 
 He who commits adultery with a woman is void of understanding. He who does it destroys his own soul. 
 He'll get wounds and dishonor. His reproach won't be wiped away. 
 Jealousy arouses the fury of the husband. He won't spare in the day of vengeance. 

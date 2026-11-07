@@ -2,7 +2,7 @@
 He said: "God will roar from Zion, and utter his voice from Jerusalem; and the pastures of the shepherds will mourn, and the top of Carmel will wither." 
 God says: "For three rebellion of Damascus, yes, for four, I won't turn away its punishment, because they have threshed Gilead with threshing instruments of iron; 
 but I'll send a fire into the house of Hazael, and it'll devour the palaces of Ben Hadad. 
-I'll break the bar of Damascus, and cut off the inhabitant from the valley of Aven, and him who holds the scepter from the house of Eden; and the people of Syria shall go into captivity to Kir," says God. 
+I'll break the bar of Damascus, and cut off the inhabitant from the valley of Aven, and him who holds the scepter from the house of Eden; and the people of Syria will go into captivity to Kir," says God. 
 God says: "For three rebellion of Gaza, yes, for four, I won't turn away its punishment, because they carried away captive the whole community, to deliver them up to Edom; 
 but I'll send a fire on the wall of Gaza, and it'll devour its palaces. 
 I'll cut off the inhabitant from Ashdod, and him who holds the scepter from Ashkelon; and I'll turn my hand against Ekron; and the remnant of the Philistines will perish," says God. 

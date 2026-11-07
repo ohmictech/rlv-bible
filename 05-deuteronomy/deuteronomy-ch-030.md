@@ -1,11 +1,11 @@
-﻿It shall happen, when all these things have come on you, the blessing and the curse, which I have set before you, and you shall call them to mind among all the nations where your God has driven you, 
+﻿It will happen, when all these things have come on you, the blessing and the curse, which I have set before you, and you will call them to mind among all the nations where your God has driven you, 
 and return to your God and obey his voice according to all that I command you today, you and your children, with all your heart and with all your soul, 
 that then your God will release you from captivity, have compassion on you, and will return and gather you from everyones where your God has scattered you. 
 If your outcasts are in the uttermost parts of the sky, from there your God will gather you, and from there he'll bring you back. 
 Your God will bring you into the land which your fathers possessed, and you'll possess it. He'll do you good, and increase your numbers more than your fathers. 
 Your God will circumcise your heart, and the heart of your offspring, to love your God with all your heart and with all your soul, that you may live. 
 Your God will put all these curses on your enemies and on those who hate you, who persecuted you. 
-You shall return and obey God's voice, and do all his commandments which I command you today. 
+You will return and obey God's voice, and do all his commandments which I command you today. 
 Your God will make you prosperous in all the work of your hand, in the fruit of your body, in the fruit of your livestock, and in the fruit of your ground, for good; for God will again rejoice over you for good, as he rejoiced over your fathers, 
 if you'll obey your God's voice, to keep his commandments and his statutes which are written in this book of the law, if you turn to your God with all your heart and with all your soul. 
 This commandment which I command you today isn't too hard for you or too distant. 

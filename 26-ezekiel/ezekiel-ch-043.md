@@ -9,19 +9,19 @@ in their setting of their threshold by my threshold and their door post beside m
 Now let them put away their prostitution, and the dead bodies of their kings far from me. Then I'll dwell among them for the eras. 
 "You, son of man, show the house to the house of Israel, that they may be ashamed of their guilt; and let them measure the pattern. 
 If they're ashamed of all that they have done, make known to them the form of the house, its fashion, its exits, its entrances, its structure, all its ordinances, all its forms, and all its laws; and write it in their sight, that they may keep the whole form of it, and all its ordinances, and do them. 
-"This is the law of the house. On the top of the mountain the whole limit around it shall be most holy. Look, this is the law of the house. 
-"These are the measurements of the altar by cubits (the cubit is a cubit and a hand width): the bottom shall be a cubit, and the width a cubit, and its border around its edge a span; and this shall be the base of the altar. 
-From the bottom on the ground to the lower ledge shall be two cubits, and the width one cubit; and from the lesser ledge to the greater ledge shall be four cubits, and the width a cubit. 
-The upper altar shall be four cubits; and from the altar hearth and upward there shall be four horns. 
-The altar hearth shall be twelve cubits long by twelve wide, square in its four sides. 
-The ledge shall be fourteen cubits long by fourteen wide in its four sides; and the border about it shall be half a cubit; and its bottom shall be a cubit around; and its steps shall look toward the east." 
+"This is the law of the house. On the top of the mountain the whole limit around it will be most holy. Look, this is the law of the house. 
+"These are the measurements of the altar by cubits (the cubit is a cubit and a hand width): the bottom will be a cubit, and the width a cubit, and its border around its edge a span; and this will be the base of the altar. 
+From the bottom on the ground to the lower ledge will be two cubits, and the width one cubit; and from the lesser ledge to the greater ledge will be four cubits, and the width a cubit. 
+The upper altar will be four cubits; and from the altar hearth and upward there will be four horns. 
+The altar hearth will be twelve cubits long by twelve wide, square in its four sides. 
+The ledge will be fourteen cubits long by fourteen wide in its four sides; and the border about it will be half a cubit; and its bottom will be a cubit around; and its steps will look toward the east." 
 He said to me, "Son of man, God says: 'These are the ordinances of the altar in the day when they make it, to offer burnt offerings on it, and to sprinkle blood on it. 
-You shall give to the Levitical priests who are of the offspring of Zadok, who are near to me, to minister to me,' says God, 'a young bull for an offering for wrongdoing. 
-You shall take of its blood and put it on its four horns, and on the four corners of the ledge, and on the border all around. You shall cleanse it and make things right for it that way. 
-You shall also take the bull of the offering for wrongdoing, and it shall be burned in the appointed place of the house, outside of the sanctuary. 
-"On the second day you shall offer a male goat without defect for an offering for wrongdoing; and they shall cleanse the altar, as they cleansed it with the bull. 
-When you have finished cleansing it, you shall offer a young bull without defect and a ram out of the flock without defect. 
-You shall bring them near to God, and the priests shall cast salt on them, and they shall offer them up for a burnt offering to God. 
-"Seven days you shall prepare every day a goat for an offering for wrongdoing. They shall also prepare a young bull and a ram out of the flock, without defect. 
-Seven days shall they make things right for the altar and purify it. So shall they consecrate it. 
-When they have accomplished the days, it shall be that on the eighth day and onward, the priests shall make your burnt offerings on the altar and your offerings for wholeness. Then I'll accept you,' says God." 
+You will give to the Levitical priests who are of the offspring of Zadok, who are near to me, to minister to me,' says God, 'a young bull for an offering for wrongdoing. 
+You will take of its blood and put it on its four horns, and on the four corners of the ledge, and on the border all around. You will cleanse it and make things right for it that way. 
+You will also take the bull of the offering for wrongdoing, and it will be burned in the appointed place of the house, outside of the sanctuary. 
+"On the second day you will offer a male goat without defect for an offering for wrongdoing; and they will cleanse the altar, as they cleansed it with the bull. 
+When you have finished cleansing it, you will offer a young bull without defect and a ram out of the flock without defect. 
+You will bring them near to God, and the priests will cast salt on them, and they will offer them up for a burnt offering to God. 
+"Seven days you will prepare every day a goat for an offering for wrongdoing. They will also prepare a young bull and a ram out of the flock, without defect. 
+Seven days will they make things right for the altar and purify it. So will they consecrate it. 
+When they have accomplished the days, it will be that on the eighth day and onward, the priests will make your burnt offerings on the altar and your offerings for wholeness. Then I'll accept you,' says God." 

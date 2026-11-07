@@ -11,7 +11,7 @@ All the princes and everyone obeyed who had entered into the covenant, that ever
 but afterwards they turned, and caused the servants and the handmaids whom they had let go free to return, and brought them into subjection for servants and for handmaids. 
 So God's word came to Jeremiah from God, saying, 
 "The God of Israel says: 'I made a covenant with your fathers in the day that I brought them out of the land of Egypt, out of the house of bondage, saying: 
-At the end of seven years, every man of you shall release his brother who's a Hebrew, who has been sold to you, and has served you six years. You shall let him go free from you. But your fathers didn't listen to me, and didn't incline their ear. 
+At the end of seven years, every man of you will release his brother who's a Hebrew, who has been sold to you, and has served you six years. You will let him go free from you. But your fathers didn't listen to me, and didn't incline their ear. 
 You had now turned, and had done that which is right in my eyes, in every man proclaiming liberty to his neighbor. You had made a covenant before me in the house which is called by my name; 
 but you turned and profaned my name, and every man caused his servant and every man his handmaid, whom you had let go free at their pleasure, to return. You brought them into subjection, to be to you for servants and for handmaids.'" 
 So God says: "You haven't listened to me, to proclaim liberty, every man to his brother, and every man to his neighbor. Look, I proclaim to you a liberty," says God, "to the sword, to the pestilence, and to the famine. I'll make you be tossed back and forth among all the kingdoms of the earth. 

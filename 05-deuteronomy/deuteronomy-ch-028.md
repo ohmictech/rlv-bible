@@ -1,18 +1,18 @@
-﻿It shall happen, if you shall listen diligently to your God's voice, to observe to do all his commandments which I command you today, that your God will set you high above all the nations of the earth. 
+﻿It will happen, if you will listen diligently to your God's voice, to observe to do all his commandments which I command you today, that your God will set you high above all the nations of the earth. 
 All these blessings will come upon you, and overtake you, if you listen to your God's voice. 
-You shall be blessed in the city, and you shall be blessed in the field. 
-You shall be blessed in the fruit of your body, the fruit of your ground, the fruit of your animals, the increase of your livestock, and the young of your flock. 
-Your basket and your kneading trough shall be blessed. 
-You shall be blessed when you come in, and you shall be blessed when you go out. 
+You will be blessed in the city, and you will be blessed in the field. 
+You will be blessed in the fruit of your body, the fruit of your ground, the fruit of your animals, the increase of your livestock, and the young of your flock. 
+Your basket and your kneading trough will be blessed. 
+You will be blessed when you come in, and you will be blessed when you go out. 
 God will cause your enemies who rise up against you to be struck before you. They'll come out against you one way, and will flee before you seven ways. 
 God will command the blessing on you in your barns, and in all that you put your hand to. He'll bless you in the land which your God gives you. 
-God will establish you for a holy people to himself, as he has sworn to you, if you shall keep the commandments of your God, and walk in his ways. 
-Everyones of the earth shall see that you're called by God's name, and they'll be afraid of you. 
+God will establish you for a holy people to himself, as he has sworn to you, if you will keep the commandments of your God, and walk in his ways. 
+Everyones of the earth will see that you're called by God's name, and they'll be afraid of you. 
 God will grant you abundant prosperity in the fruit of your body, in the fruit of your livestock, and in the fruit of your ground, in the land which God swore to your fathers to give you. 
 God will open to you his good treasure in the sky, to give the rain of your land in its season, and to bless all the work of your hand. You'll lend to many nations, and you won't borrow. 
 God will make you the head, and not the tail. You'll be above only, and you won't be beneath, if you listen to the commandments of your God which I command you today, to observe and to do, 
-and shall not turn away from any of the words which I command you today, to the right hand or to the left, to go after other gods to serve them. 
-But it shall come to pass, if you won't listen to your God's voice, to observe to do all his commandments and his statutes which I command you today, that all these curses will come on you and overtake you. 
+and won't turn away from any of the words which I command you today, to the right hand or to the left, to go after other gods to serve them. 
+But it will come to pass, if you won't listen to your God's voice, to observe to do all his commandments and his statutes which I command you today, that all these curses will come on you and overtake you. 
 You'll be cursed in the city, and you'll be cursed in the field. 
 Your basket and your kneading trough will be cursed. 
 The fruit of your body, the fruit of your ground, the increase of your livestock, and the young of your flock will be cursed. 
@@ -27,7 +27,7 @@ Your dead bodies will be food to all birds of the sky, and to the animals of the
 God will strike you with the boils of Egypt, with the tumors, with the scurvy, and with the itch, of which you can't be healed. 
 God will strike you with madness, with blindness, and with astonishment of heart. 
 You'll grope at noonday, as a blind person gropes in darkness, and you won't prosper in your ways. You'll only be oppressed and robbed always, and there will be no one to save you. 
-You'll betroth a wife, and another man shall lie with her. You'll build a house, and you won't dwell in it. You'll plant a vineyard, and not use its fruit. 
+You'll betroth a wife, and another man will lie with her. You'll build a house, and you won't dwell in it. You'll plant a vineyard, and not use its fruit. 
 Your ox will be slain before your eyes, and you won't eat any of it. Your donkey will be violently taken away from before your face, and won't be restored to you. Your sheep will be given to your enemies, and you'll have no one to save you. 
 Your sons and your daughters will be given to another people. Your eyes will look and fail with longing for them all day long. There will be no power in your hand. 
 A nation which you don't know will eat the fruit of your ground and all of your work. You'll only be oppressed and crushed always, 

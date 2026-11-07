@@ -17,7 +17,7 @@ But Barak pursued the chariots and the army to Harosheth of the Gentiles; and al
 However Sisera fled away on his feet to the tent of Jael the wife of Heber the Kenite; for there was peace between Jabin the king of Hazor and the house of Heber the Kenite. 
 Jael went out to meet Sisera, and said to him, "Turn in, my lord, turn in to me; don't be afraid." He came in to her into the tent, and she covered him with a rug. 
 He said to her, "Please give me a little water to drink; for I'm thirsty." She opened a container of milk, and gave him a drink, and covered him. 
-He said to her, "Stand in the door of the tent, and if any man comes and inquires of you, and says, 'Is there any man here?' you shall say, 'No.'" 
+He said to her, "Stand in the door of the tent, and if any man comes and inquires of you, and says, 'Is there any man here?' you will say, 'No.'" 
 Then Jael, Heber's wife, took a tent peg, and took a hammer in her hand, and went softly to him, and struck the pin into his temples, and it pierced through into the ground, for he was in a deep sleep; so he fainted and died. 
 Look, as Barak pursued Sisera, Jael came out to meet him, and said to him, "Come, and I'll show you the man whom you seek." He came to her; and look, Sisera lay dead, and the tent peg was in his temples. 
 So God subdued Jabin the king of Canaan before the children of Israel on that day. 

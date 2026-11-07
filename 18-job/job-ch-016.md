@@ -1,6 +1,6 @@
 ﻿Then Job answered, 
 "I have heard many such things. You're all miserable comforters! 
-Shall vain words have an end? Or what provokes you that you answer? 
+Will vain words have an end? Or what provokes you that you answer? 
 I also could speak as you do. If your soul were in my soul's place, I could join words together against you, and shake my head at you, 
 but I'd strengthen you with my mouth. The solace of my lips would relieve you. 
 "Though I speak, my grief isn't subsided. Though I forbear, what am I eased? 

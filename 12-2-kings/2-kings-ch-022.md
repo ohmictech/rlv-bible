@@ -4,7 +4,7 @@ In the eighteenth year of King Josiah, the king sent Shaphan, the son of Azaliah
 "Go up to Hilkiah the high priest, that he may count the money which is brought into God's house, which the keepers of the threshold have gathered of the people. 
 Let them deliver it into the hand of the workers who have the oversight of God's house; and let them give it to the workers who are in God's house, to repair the damage to the house, 
 to the carpenters, and to the builders, and to the masons, and for buying timber and cut stone to repair the house. 
-However, no accounting shall be asked of them for the money delivered into their hand, for they deal faithfully." 
+However, no accounting will be asked of them for the money delivered into their hand, for they deal faithfully." 
 Hilkiah the high priest said to Shaphan the secretary, "I have found the book of the law in God's house." Hilkiah delivered the book to Shaphan, and he read it. 
 Shaphan the secretary came to the king, and brought the king word again, and said, "Your servants have emptied out the money that was found in the house, and have delivered it into the hands of the workmen who have the oversight of God's house." 
 Shaphan the secretary told the king, saying, "Hilkiah the priest has delivered a book to me." Then Shaphan read it before the king. 
@@ -14,7 +14,7 @@ The king commanded Hilkiah the priest, Ahikam the son of Shaphan, Achbor the son
 So Hilkiah the priest, Ahikam, Achbor, Shaphan, and Asaiah went to Huldah the prophetess, the wife of Shallum the son of Tikvah, the son of Harhas, keeper of the wardrobe (now she lived in Jerusalem in the second quarter); and they talked with her. 
 She said to them, "God the God of Israel says, 'Tell the man who sent you to me, 
 "God says, 'Look, I'll bring bad on this place and on its inhabitants, even all the words of the book which the king of Judah has read. 
-Because they have forsaken me and have burned incense to other gods, that they might provoke me to anger with all the work of their hands, my wrath shall be kindled against this place, and it won't be quenched.'" 
+Because they have forsaken me and have burned incense to other gods, that they might provoke me to anger with all the work of their hands, my wrath will be kindled against this place, and it won't be quenched.'" 
 But to the king of Judah, who sent you to inquire of God, tell him, "God the God of Israel says, 'Concerning the words which you have heard, 
 because your heart was tender, and you humbled yourself before God when you heard what I spoke against this place and against its inhabitants, that they should become a desolation and a curse, and have torn your clothes and wept before me, I also have heard you,' says God. 
 'Therefore look, I'll gather you to your fathers, and you'll be gathered to your grave in peace. Your eyes won't see all the bad which I'll bring on this place.'"'" So they brought this message back to the king. 

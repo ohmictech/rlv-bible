@@ -1,13 +1,13 @@
 ﻿The plans of the heart belong to man, but the answer of the tongue is from God. 
 All the ways of a man are clean in his own eyes, but God weighs the motives. 
-Commit your deeds to God, and your plans shall succeed. 
+Commit your deeds to God, and your plans will succeed. 
 God has made everything for its own end, yes, even the guilty for the day of bad. 
-Everyone who's proud in heart is an abomination to God; they shall certainly not be unpunished. 
+Everyone who's proud in heart is an abomination to God; they will certainly not be unpunished. 
 By mercy and truth guilt is atoned for. By the fear of God men depart from what's bad. 
 When a man's ways please God, he makes even his enemies to be at peace with him. 
 Better is a little with righteousness, than great revenues with injustice. 
 A man's heart plans his course, but God directs his steps. 
-Inspired judgments are on the lips of the king. He shall not betray his mouth. 
+Inspired judgments are on the lips of the king. He won't betray his mouth. 
 Honest balances and scales are God's; all the weights in the bag are his work. 
 It's an abomination for kings to do wrong, for the throne is established by righteousness. 
 Righteous lips are the delight of kings. They value one who speaks the truth. 
@@ -18,7 +18,7 @@ The highway of the upright is to depart from what's bad. He who keeps his way pr
 Pride goes before destruction, and an arrogant spirit before a fall. 
 It's better to be of a lowly spirit with the poor, than to divide the plunder with the proud. 
 He who heeds the Word finds prosperity. Whoever trusts in God is blessed. 
-The wise in heart shall be called prudent. Pleasantness of the lips promotes instruction. 
+The wise in heart will be called prudent. Pleasantness of the lips promotes instruction. 
 Understanding is a fountain of life to one who has it, but the punishment of fools is their folly. 
 The heart of the wise instructs his mouth, and adds learning to his lips. 
 Pleasant words are a honeycomb, sweet to the soul, and health to the bones. 

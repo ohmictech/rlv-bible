@@ -5,12 +5,12 @@ God spoke suddenly to Moses, to Aaron, and to Miriam, "You three come out to the
 God came down in a pillar of cloud, and stood at the door of the Tent, and called Aaron and Miriam; and they both came forward. 
 He said, "Now hear my words. If there's a spokesman among you, I, God, will make myself known to him in a vision. I'll speak with him in a dream. 
 My servant Moses isn't so. He's faithful in all my house. 
-With him, I'll speak mouth to mouth, even plainly, and not in riddles; and he shall see God's form. Why then were you not afraid to speak against my servant, against Moses?" 
+With him, I'll speak mouth to mouth, even plainly, and not in riddles; and he will see God's form. Why then were you not afraid to speak against my servant, against Moses?" 
 God's anger burned against them; and he departed. 
 The cloud departed from over the Tent; and look, Miriam was leprous, as white as snow. Aaron looked at Miriam, and look, she was leprous. 
 Aaron said to Moses, "Oh, my lord, please don't count this wrong us, in which we have done foolishly, and in which we have drifted. 
 Let her not, I pray, be as one dead, of whom the flesh is half consumed when he comes out of his mother's womb." 
 Moses cried to God, saying, "Heal her, God, I beg you!" 
-God said to Moses, "If her father had but spit in her face, shouldn't she be ashamed seven days? Let her be shut up outside of the camp seven days, and after that she shall be brought in again." 
+God said to Moses, "If her father had but spit in her face, shouldn't she be ashamed seven days? Let her be shut up outside of the camp seven days, and after that she will be brought in again." 
 Miriam was shut up outside of the camp seven days, and the people didn't travel until Miriam was brought in again. 
 Afterward the people traveled from Hazeroth, and encamped in the wilderness of Paran. 

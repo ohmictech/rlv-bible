@@ -5,7 +5,7 @@ The foundations of the thresholds shook at the voice of him who called, and the 
 Then I said, "Woe is me! I'm undone, because I'm a man of unclean lips and I live among a people of unclean lips, for my eyes have seen the King, the God of Armies!" 
 Then one of the seraphim flew to me, having a live coal in his hand, which he had taken with the tongs from off the altar. 
 He touched my mouth with it, and said, "Look, this has touched your lips; and your guilt is taken away, and your wrongdoing forgiven." 
-I heard the Lord's voice, saying, "Whom shall I send, and who will go for us?" Then I said, "Here I'm. Send me!" 
+I heard the Lord's voice, saying, "Whom will I send, and who will go for us?" Then I said, "Here I'm. Send me!" 
 He said, "Go, and tell this people, 'You hear indeed, but don't understand. You see indeed, but don't perceive.' 
 Make the heart of this people fat. Make their ears heavy, and shut their eyes; lest they see with their eyes, hear with their ears, understand with their heart, and turn again, and be healed." 
 Then I said, "Lord, how long?" He answered, "Until cities are waste without inhabitant, houses without man, the land becomes utterly waste, 

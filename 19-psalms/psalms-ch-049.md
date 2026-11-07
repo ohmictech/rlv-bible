@@ -11,10 +11,10 @@ He sees that wise men die; likewise the fool and the senseless perish, and leave
 Their inward thought is that their houses will endure for the eras, and their dwelling places to all generations. They name their lands after themselves. 
 But man, despite his riches, doesn't endure. He's like the animals that perish. 
 This is the destiny of those who are foolish, and of those who approve their sayings. Selah. 
-They're appointed as a flock for Hades. Death shall be their shepherd. The upright shall have dominion over them in the morning. Their beauty shall decay in Hades, far from their mansion. 
+They're appointed as a flock for Hades. Death will be their shepherd. The upright will have dominion over them in the morning. Their beauty will decay in Hades, far from their mansion. 
 But God will buy back my soul from the power of Hades, for he'll receive me. Selah. 
 Don't be afraid when a man is made rich, when the glory of his house is increased; 
 for when he dies he'll carry nothing away. His glory won't descend after him. 
 Though while he lived he blessed his soul, and men praise you when you do well for yourself 
-he shall go to the generation of his fathers. They shall never see the light. 
+he will go to the generation of his fathers. They will never see the light. 
 A man who has riches without understanding, is like the animals that perish. 

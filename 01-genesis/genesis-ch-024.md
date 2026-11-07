@@ -1,11 +1,11 @@
 ﻿Abraham was old, and well advanced in age. God had blessed Abraham in all things. 
 Abraham said to his servant, the elder of his house, who ruled over all that he had, "Please put your hand under my thigh. 
-I'll make you swear by the God of the sky and the God of the earth, that you shall not take a wife for my son of the daughters of the Canaanites, among whom I live. 
-But you shall go to my country, and to my relatives, and take a wife for my son Isaac." 
+I'll make you swear by the God of the sky and the God of the earth, that you won't take a wife for my son of the daughters of the Canaanites, among whom I live. 
+But you will go to my country, and to my relatives, and take a wife for my son Isaac." 
 The servant said to him, "What if the woman isn't willing to follow me to this land? Must I bring your son again to the land you came from?" 
 Abraham said to him, "Beware that you don't bring my son there again. 
-The God of the sky, who took me from my father's house, and from the land of my birth, who spoke to me, and who swore to me, saying, 'I'll give this land to your offspring, he'll send his messenger before you, and you shall take a wife for my son from there. 
-If the woman isn't willing to follow you, then you shall be clear from this oath to me. Only you shall not bring my son there again." 
+The God of the sky, who took me from my father's house, and from the land of my birth, who spoke to me, and who swore to me, saying, 'I'll give this land to your offspring, he'll send his messenger before you, and you will take a wife for my son from there. 
+If the woman isn't willing to follow you, then you will be clear from this oath to me. Only you won't bring my son there again." 
 The servant put his hand under the thigh of Abraham his master, and swore to him concerning this matter. 
 The servant took ten of his master's camels, and departed, having a variety of good things of his master's with him. He arose, and went to Mesopotamia, to the city of Nahor. 
 He made the camels kneel down outside the city by the well of water at the time of evening, the time that women go out to draw water. 
@@ -34,11 +34,11 @@ Food was set before him to eat, but he said, "I won't eat until I have told my m
 He said, "I'm Abraham's servant. 
 God has blessed my master greatly. He has become great. God has given him flocks and herds, silver and gold, male servants and female servants, and camels and donkeys. 
 Sarah, my master's wife, bore a son to my master when she was old. He has given all that he has to him. 
-My master made me swear, saying, 'You shall not take a wife for my son from the daughters of the Canaanites, in whose land I live, 
-but you shall go to my father's house, and to my relatives, and take a wife for my son.' 
+My master made me swear, saying, 'You won't take a wife for my son from the daughters of the Canaanites, in whose land I live, 
+but you will go to my father's house, and to my relatives, and take a wife for my son.' 
 I asked my master, 'What if the woman won't follow me?' 
-He said to me, 'God, before whom I walk, will send his messenger with you, and prosper your way. You shall take a wife for my son from my relatives, and of my father's house. 
-Then you'll be clear from my oath, when you come to my relatives. If they don't give her to you, you shall be clear from my oath.' 
+He said to me, 'God, before whom I walk, will send his messenger with you, and prosper your way. You will take a wife for my son from my relatives, and of my father's house. 
+Then you'll be clear from my oath, when you come to my relatives. If they don't give her to you, you will be clear from my oath.' 
 I came today to the spring, and said, 'The God of my master Abraham, if now you do prosper my way which I go 
 Look, I'm standing by this spring of water. Let it happen, that the maiden who comes out to draw, to whom I'll say, "Please give me a little water from your pitcher to drink," 
 then she tells me, "Drink, and I'll also draw for your camels,", let her be the woman whom God has appointed for my master's son.' 

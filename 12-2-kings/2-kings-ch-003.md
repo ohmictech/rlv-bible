@@ -5,7 +5,7 @@ Now Mesha king of Moab was a sheep breeder; and he supplied the king of Israel w
 But when Ahab was dead, the king of Moab rebelled against the king of Israel. 
 King Jehoram went out of Samaria at that time, and mustered all Israel. 
 He went and sent to Jehoshaphat the king of Judah, saying, "The king of Moab has rebelled against me. Will you go with me against Moab to battle?" He said, "I'll go up. I'm as you're, my people as your people, my horses as your horses." 
-Then he said, "Which way shall we go up?" Jehoram answered, "The way of the wilderness of Edom." 
+Then he said, "Which way will we go up?" Jehoram answered, "The way of the wilderness of Edom." 
 So the king of Israel went with the king of Judah and the king of Edom, and they marched for seven days along a circuitous route. There was no water for the army or for the animals that followed them. 
 The king of Israel said, "Alas! God has called these three kings together to deliver them into the hand of Moab." 
 But Jehoshaphat said, "Isn't there a spokesman of God here, that we may inquire of God by him?" One of the king of Israel's servants answered, "Elisha the son of Shaphat, who poured water on the hands of Elijah, is here." 
@@ -16,7 +16,7 @@ But now bring me a musician." When the musician played, God's hand came on him.
 He said, "God says, 'Make this valley full of trenches.' 
 For God says, 'You won't see wind, neither will you see rain, yet that valley will be filled with water, and you'll drink, both you and your livestock and your other animals. 
 This is an easy thing in God's sight. He'll also deliver the Moabites into your hand. 
-You shall strike every fortified city and every choice city, and shall fell every good tree, and stop all springs of water, and mar every good piece of land with stones.'" 
+You will strike every fortified city and every choice city, and will fell every good tree, and stop all springs of water, and mar every good piece of land with stones.'" 
 In the morning, about the time of offering the sacrifice, look, water came by the way of Edom, and the country was filled with water. 
 Now when all the Moabites heard that the kings had come up to fight against them, they gathered themselves together, everyone who was able to put on armor, young and old, and stood on the border. 
 They rose up early in the morning, and the sun shone on the water, and the Moabites saw the water opposite them as red as blood. 

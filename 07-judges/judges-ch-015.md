@@ -15,6 +15,6 @@ When he came to Lehi, the Philistines shouted as they met him. Then God's Spirit
 He found a fresh jawbone of a donkey, put out his hand, took it, and struck a thousand men with it. 
 Samson said, "With the jawbone of a donkey, heaps on heaps; with the jawbone of a donkey I have struck a thousand men." 
 When he had finished speaking, he threw the jawbone out of his hand; and that place was called Ramath Lehi. 
-He was very thirsty, and called on God and said, "You have given this great deliverance by the hand of your servant; and now shall I die of thirst, and fall into the hands of the uncircumcised?" 
+He was very thirsty, and called on God and said, "You have given this great deliverance by the hand of your servant; and now will I die of thirst, and fall into the hands of the uncircumcised?" 
 But God split the hollow place that's in Lehi, and water came out of it. When he had drunk, his spirit came again, and he revived. So its name was called En Hakkore, which is in Lehi, to this day. 
 He judged Israel twenty years in the days of the Philistines. 

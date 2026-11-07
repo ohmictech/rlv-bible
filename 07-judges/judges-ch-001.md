@@ -1,5 +1,5 @@
 ﻿After the death of Joshua, the children of Israel asked of God, saying, "Who should go up for us first against the Canaanites, to fight against them?" 
-God said, "Judah shall go up. Look, I have delivered the land into his hand." 
+God said, "Judah will go up. Look, I have delivered the land into his hand." 
 Judah said to Simeon his brother, "Come up with me into my lot, that we may fight against the Canaanites; and I likewise will go with you into your lot." So Simeon went with him. 
 Judah went up, and God delivered the Canaanites and the Perizzites into their hand. They struck ten thousand men in Bezek. 
 They found Adoni-Bezek in Bezek, and they fought against him. They struck the Canaanites and the Perizzites. 

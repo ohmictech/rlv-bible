@@ -13,7 +13,7 @@ They answered them and said, "He's. Look, he's before you. Hurry now, for he has
 As soon as you have come into the city, you'll immediately find him before he goes up to the high place to eat; for the people won't eat until he comes, because he blesses the sacrifice. Afterwards those who are invited eat. Now go up; for at this time you'll find him." 
 They went up to the city. As they came within the city, look, Samuel came out toward them to go up to the high place. 
 Now God had revealed to Samuel a day before Saul came, saying, 
-"Tomorrow about this time I'll send you a man out of the land of Benjamin, and you shall anoint him to be prince over my people Israel. He'll save my people out of the hand of the Philistines; for I have looked upon my people, because their cry has come to me." 
+"Tomorrow about this time I'll send you a man out of the land of Benjamin, and you will anoint him to be prince over my people Israel. He'll save my people out of the hand of the Philistines; for I have looked upon my people, because their cry has come to me." 
 When Samuel saw Saul, God said to him, "Look, the man of whom I spoke to you! He'll have authority over my people." 
 Then Saul approached Samuel in the gateway, and said, "Please tell me where the seer's house is." 
 Samuel answered Saul and said, "I'm the seer. Go up before me to the high place, for you're to eat with me today. In the morning I'll let you go and will tell you all that's in your heart. 

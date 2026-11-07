@@ -13,4 +13,4 @@ They change the night into day, saying 'The light is near' in the presence of da
 If I look for Hades as my house, if I have spread my couch in the darkness, 
 if I have said to corruption, 'You're my father,' and to the worm, 'My mother,' and 'My sister,' 
 where then is my hope? As for my hope, who will see it? 
-Shall it go down with me to the gates of Hades, or descend together into the dust?" 
+Will it go down with me to the gates of Hades, or descend together into the dust?" 

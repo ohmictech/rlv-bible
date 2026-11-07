@@ -13,7 +13,7 @@ Saul said, "Hear now, you son of Ahitub." He answered, "Here I'm, my lord."
 Saul said to him, "Why have you conspired against me, you and the son of Jesse, in that you have given him bread, and a sword, and have inquired of God for him, that he should rise against me, to lie in wait, as it's today?" 
 Then Ahimelech answered the king, and said, "Who among all your servants is so faithful as David, who's the king's son-in-law, captain of your body guard, and honored in your house? 
 Have I today begun to inquire of God for him? Be it far from me! Don't let the king impute anything to his servant, nor to all the house of my father; for your servant knew nothing of all this, less or more." 
-The king said, "You shall surely die, Ahimelech, you and all your father's house." 
+The king said, "You will surely die, Ahimelech, you and all your father's house." 
 The king said to the guard who stood about him, "Turn and kill the priests of God, because their hand also is with David, and because they knew that he fled and didn't disclose it to me." But the servants of the king wouldn't put out their hand to fall on the priests of God. 
 The king said to Doeg, "Turn and attack the priests!" Doeg the Edomite turned, and he attacked the priests, and he killed on that day eighty-five people who wore a linen ephod. 
 He struck Nob, the city of the priests, with the edge of the sword, both men and women, children and nursing babies, and cattle, donkeys, and sheep, with the edge of the sword. 

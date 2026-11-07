@@ -1,9 +1,9 @@
 ﻿Now, Israel, listen to the statutes and to the ordinances which I teach you, to do them, that you may live and go in and possess the land which the God of your fathers, gives you. 
-You shall not add to the word which I command you, neither shall you take away from it, that you may keep the commandments of your God which I command you. 
+Don't add to the word which I command you, neither will you take away from it, that you may keep the commandments of your God which I command you. 
 Your eyes have seen what God did because of Baal Peor; for your God has destroyed all the men who followed Baal Peor from among you. 
 But you who were faithful to your God are all alive today. 
 Look, I have taught you statutes and ordinances, even as my God commanded me, that you should do so in the middle of the land where you go in to possess it. 
-Keep and do them; for this is your wisdom and your understanding in the sight of the peoples who shall hear all these statutes and say, "Surely this great nation is a wise and understanding people." 
+Keep and do them; for this is your wisdom and your understanding in the sight of the peoples who will hear all these statutes and say, "Surely this great nation is a wise and understanding people." 
 What great nation is there that has a god so near to them as our God is whenever we call on him? 
 What great nation is there that has statutes and ordinances so righteous as all this law which I set before you today? 
 Only be careful, and keep your soul diligently, lest you forget the things which your eyes saw, and lest they depart from your heart all the days of your life; but make them known to your children and your children's children 
@@ -19,15 +19,15 @@ the likeness of anything that creeps on the ground, the likeness of any fish tha
 and lest you lift up your eyes to the sky, and when you see the sun and the moon and the stars, even all the army of the sky, you're drawn away and worship them, and serve them, which your God has allotted to everyones under the whole sky. 
 But God has taken you, and brought you out of the iron furnace, out of Egypt, to be to him a people of inheritance, as it's today. 
 Furthermore God was angry with me for your sakes, and swore that I shouldn't go over the Jordan, and that I shouldn't go in to that good land which your God gives you for an inheritance; 
-but I must die in this land. I must not go over the Jordan, but you shall go over and possess that good land. 
+but I must die in this land. I must not go over the Jordan, but you will go over and possess that good land. 
 Be careful, lest you forget the covenant of your God, which he made with you, and make yourselves a carved image in the form of anything which your God has forbidden you. 
 Your God is a devouring fire, a jealous God. 
 When you father children and children's children, and you have been long in the land, and then corrupt yourselves, and make a carved image in the form of anything, and do that which is bad in your God's sight to provoke him to anger, 
 I call the sky and earth to witness against you today, that you'll soon utterly perish from off the land which you go over the Jordan to possess it. You won't prolong your days on it, but will utterly be destroyed. 
 God will scatter you among the peoples, and you'll be left few in number among the nations where God will lead you away. 
 There you'll serve gods, the work of men's hands, wood and stone, which neither see, nor hear, nor eat, nor smell. 
-But from there you shall seek your God, and you'll find him when you search after him with all your heart and with all your soul. 
-When you're in oppression, and all these things have come on you, in the latter days you shall return to your God and listen to his voice. 
+But from there you will seek your God, and you'll find him when you search after him with all your heart and with all your soul. 
+When you're in oppression, and all these things have come on you, in the latter days you will return to your God and listen to his voice. 
 Your God is a merciful God. He won't fail you nor destroy you, nor forget the covenant of your fathers which he swore to them. 
 Ask now of the days that are past, which were before you, since the day that God created man on the earth, and from the one end of the sky to the other, whether there has been anything as great as this thing is, or has been heard like it? 
 Did a people ever hear the voice of God speaking out of the middle of the fire, as you have heard, and live? 
@@ -37,7 +37,7 @@ Out of the sky he made you to hear his voice, that he might instruct you. On ear
 Because he loved your fathers, he chose their offspring after them, and brought you out with his presence, with his great power, out of Egypt; 
 to drive out nations from before you greater and mightier than you, to bring you in, to give you their land for an inheritance, as it's today. 
 Know today, and take it to heart, that God is the true God in the sky above and on the earth beneath. There's no one else. 
-You shall keep his statutes and his commandments which I command you today, that it may go well with you and with your children after you, and that you may prolong your days in the land which your God gives you for all time. 
+You will keep his statutes and his commandments which I command you today, that it may go well with you and with your children after you, and that you may prolong your days in the land which your God gives you for all time. 
 Then Moses set apart three cities beyond the Jordan toward the sunrise, 
 that the man slayer might flee there, who kills his neighbor unintentionally and didn't hate him in time past, and that fleeing to one of these cities he might live: 
 Bezer in the wilderness, in the plain country, for the Reubenites; and Ramoth in Gilead for the Gadites; and Golan in Bashan for the Manassites. 

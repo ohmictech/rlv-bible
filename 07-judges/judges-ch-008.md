@@ -20,7 +20,7 @@ He said, "They were my brothers, the sons of my mother. As God lives, if you had
 He said to Jether his firstborn, "Get up and kill them!" But the youth didn't draw his sword; for he was afraid, because he was yet a youth. 
 Then Zebah and Zalmunna said, "You rise and fall on us; for as the man is, so is his strength." Gideon arose, and killed Zebah and Zalmunna, and took the crescents that were on their camels' necks. 
 Then the men of Israel said to Gideon, "Rule over us, both you, your son, and your son's son also; for you have saved us out of the hand of Midian." 
-Gideon said to them, "I won't rule over you, neither shall my son rule over you. God shall rule over you." 
+Gideon said to them, "I won't rule over you, neither will my son rule over you. God will rule over you." 
 Gideon said to them, "I do have a request: that you'd each give me the earrings of his plunder." (For they had golden earrings, because they were Ishmaelites.) 
 They answered, "We'll willingly give them." They spread a garment, and every man threw the earrings of his plunder into it. 
 The weight of the golden earrings that he requested was one thousand and seven hundred shekels of gold, in addition to the crescents, and the pendants, and the purple clothing that was on the kings of Midian, and in addition to the chains that were about their camels' necks. 

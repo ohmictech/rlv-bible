@@ -6,7 +6,7 @@ He appointed it in Joseph for a covenant, when he went out over the land of Egyp
 "I removed his shoulder from the burden. His hands were freed from the basket. 
 You called in trouble, and I delivered you. I answered you in the secret place of thunder. I tested you at the waters of Meribah." Selah. 
 "Hear, my people, and I'll testify to you, Israel, if you'd listen to me! 
-There shall be no strange god in you, neither shall you worship any foreign god. 
+There will be no strange god in you, neither will you worship any foreign god. 
 I'm God, your God, who brought you up out of the land of Egypt. Open your mouth wide, and I'll fill it. 
 But my people didn't listen to my voice. Israel desired none of me. 
 So I let them go after the stubbornness of their hearts, that they might walk in their own counsels. 

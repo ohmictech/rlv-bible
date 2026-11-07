@@ -1,16 +1,16 @@
 ﻿Joshua got up early in the morning; and they moved from Shittim and came to the Jordan, he and all the children of Israel. They camped there before they crossed over. 
 After three days, the officers went through the middle of the camp; 
 and they commanded the people, saying, "When you see the ark of your God's covenant, and the Levitical priests bearing it, then leave your place and follow it. 
-Yet there shall be a space between you and it of about two thousand cubits by measure, don't come closer to it, that you may know the way by which you must go; for you haven't passed this way before." 
+Yet there will be a space between you and it of about two thousand cubits by measure, don't come closer to it, that you may know the way by which you must go; for you haven't passed this way before." 
 Joshua said to the people, "Sanctify yourselves; for tomorrow God will do wonders among you." 
 Joshua spoke to the priests, saying, "Take up the ark of the covenant, and cross over before the people." They took up the ark of the covenant, and went before the people. 
 God said to Joshua, "Today I'll begin to magnify you in the sight of all Israel, that they may know that as I was with Moses, so I'll be with you. 
-You shall command the priests who bear the ark of the covenant, saying, 'When you come to the brink of the waters of the Jordan, you shall stand still in the Jordan.'" 
+You will command the priests who bear the ark of the covenant, saying, 'When you come to the brink of the waters of the Jordan, you will stand still in the Jordan.'" 
 Joshua said to the children of Israel, "Come here, and hear the words of your God." 
-Joshua said, "By this you shall know that the living God is among you, and that he'll without fail drive the Canaanite, the Hittite, the Hivite, the Perizzite, the Girgashite, the Amorite, and the Jebusite out from before you. 
+Joshua said, "By this you will know that the living God is among you, and that he'll without fail drive the Canaanite, the Hittite, the Hivite, the Perizzite, the Girgashite, the Amorite, and the Jebusite out from before you. 
 Look, the ark of the covenant of the Lord of all the earth passes over before you into the Jordan. 
 Now take twelve men out of the tribes of Israel, for every tribe a man. 
-It shall be that when the soles of the feet of the priests who bear the ark of GOD, the Lord of all the earth, rest in the waters of the Jordan, that the waters of the Jordan will be cut off. The waters that come down from above shall stand in one heap." 
+It will be that when the soles of the feet of the priests who bear the ark of GOD, the Lord of all the earth, rest in the waters of the Jordan, that the waters of the Jordan will be cut off. The waters that come down from above will stand in one heap." 
 When the people moved from their tents to pass over the Jordan, the priests who bore the ark of the covenant being before the people, 
 and when those who bore the ark had come to the Jordan, and the feet of the priests who bore the ark had dipped in the edge of the water (for the Jordan overflows all its banks all the time of harvest), 
 the waters which came down from above stood, and rose up in one heap a great way off, at Adam, the city that's beside Zarethan; and those that went down toward the sea of the Arabah, even the Salt Sea, were wholly cut off. Then the people passed over near Jericho. 

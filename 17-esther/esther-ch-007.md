@@ -1,5 +1,5 @@
 ﻿So the king and Haman came to banquet with Esther the queen. 
-The king said again to Esther on the second day at the banquet of wine, "What's your petition, queen Esther? It shall be granted you. What's your request? Even to the half of the kingdom it shall be performed." 
+The king said again to Esther on the second day at the banquet of wine, "What's your petition, queen Esther? It will be granted you. What's your request? Even to the half of the kingdom it will be performed." 
 Then Esther the queen answered, "If I have found favor in your sight, O king, and if it pleases the king, let my life be given me at my petition, and my people at my request. 
 We're sold, I and my people, to be destroyed, to be slain, and to perish. But if we had been sold for male and female slaves, I'd have held my peace, although the adversary couldn't have compensated for the king's loss." 
 Then King Ahasuerus said to Esther the queen, "Who's he, and where is he who dared presume in his heart to do so?" 

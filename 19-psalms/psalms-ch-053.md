@@ -3,4 +3,4 @@ God looks down from the sky on the children of men, to see if there are any who 
 Every one of them has gone back. They have become filthy together. There's no one who does good, no, not one. 
 Have the workers of guilt no knowledge, who eat up my people as they eat bread, and don't call on God? 
 There they were in great fear, where no fear was, for God has scattered the bones of him who encamps against you. You have put them to shame, because God has rejected them. 
-Oh that the salvation of Israel would come out of Zion! When God brings back his people from captivity, then Jacob shall rejoice, and Israel shall be glad. 
+Oh that the salvation of Israel would come out of Zion! When God brings back his people from captivity, then Jacob will rejoice, and Israel will be glad. 

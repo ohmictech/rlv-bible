@@ -7,4 +7,4 @@ Neither from the east, nor from the west, nor yet from the south, comes exaltati
 But God is the judge. He puts down one, and lifts up another. 
 In God's hand there's a cup, full of foaming wine mixed with spices. He pours it out. Indeed the guilty of the earth drink and drink it to its very dregs. 
 But I'll declare this for the eras: I'll sing praises to the God of Jacob. 
-I'll cut off all the horns of the guilty, but the horns of the righteous shall be lifted up. 
+I'll cut off all the horns of the guilty, but the horns of the righteous will be lifted up. 

@@ -1,6 +1,6 @@
 ﻿God said to Samuel, "How long will you mourn for Saul, since I have rejected him from being king over Israel? Fill your horn with oil, and go. I'll send you to Jesse the Bethlehemite, for I have provided a king for myself among his sons." 
 Samuel said, "How can I go? If Saul hears it, he'll kill me." God said, "Take a heifer with you, and say, 'I have come to sacrifice to God.' 
-Call Jesse to the sacrifice, and I'll show you what you shall do. You shall anoint to me him whom I name to you." 
+Call Jesse to the sacrifice, and I'll show you what you will do. You will anoint to me him whom I name to you." 
 Samuel did that which God spoke, and came to Bethlehem. The elders of the city came to meet him trembling, and said, "Do you come peaceably?" 
 He said, "Peaceably; I have come to sacrifice to God. Sanctify yourselves, and come with me to the sacrifice." He sanctified Jesse and his sons, and called them to the sacrifice. 
 When they had come, he looked at Eliab, and said, "Surely God's anointed is before him." 

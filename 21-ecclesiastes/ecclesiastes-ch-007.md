@@ -23,7 +23,7 @@ for often your own heart knows that you yourself have likewise cursed others.
 All this I have proved in wisdom. I said, "I'll be wise;" but it was far from me. 
 That which is, is far off and exceedingly deep. Who can find it out? 
 I turned around, and my heart sought to know and to search out, and to seek wisdom and the scheme of things, and to know that guilt is stupidity, and that foolishness is madness. 
-I find more bitter than death the woman whose heart is snares and traps, whose hands are chains. Whoever pleases God shall escape from her; but the one who drifts will be ensnared by her. 
+I find more bitter than death the woman whose heart is snares and traps, whose hands are chains. Whoever pleases God will escape from her; but the one who drifts will be ensnared by her. 
 "Look, I have found this," says the Preacher, "to one another, to find an explanation 
 which my soul still seeks, but I haven't found. I have found one man among a thousand, but I haven't found a woman among all those. 
 Look, I have only found this: that God made mankind upright; but they search for many inventions." 

@@ -14,7 +14,7 @@ Now I don't want you to be unaware, brothers, that I often planned to come to yo
 I'm a debtor both to Greeks and to foreigners, both to the wise and to the foolish. 
 So, for my part, I'm eager to announce the Good News to you also who are in Rome. 
 I'm not ashamed of the Good News of Christ, because it's the power of God for rescue for everyone who trusts, for the Jewish people first, and also for the Greek. 
-In it God's rightness is unveiled from trust to trust. As it's written, "But the one who's right shall live by trust." 
+In it God's rightness is unveiled from trust to trust. As it's written, "But the one who's right will live by trust." 
 The heat of God is unveiled from the sky against all disregard for God and all the wrong of people who hold the truth down by their wrong, 
 because what can be known about God is plain to them, for God made it plain to them. 
 His unseen nature has been clearly seen since the world was made, understood from the things he made, even his never-ending power and his divine nature, so that they have no excuse. 

@@ -2,13 +2,13 @@
 the princes of Israel, the heads of their fathers' houses, gave offerings. These were the princes of the tribes. These are they who were over those who were counted; 
 and they brought their offering before God, six covered wagons and twelve oxen; a wagon for every two of the princes, and for each one an ox. They presented them before the tabernacle. 
 God spoke to Moses, saying, 
-"Accept these from them, that they may be used in doing the service of the Tent of Meeting; and you shall give them to the Levites, to every man according to his service." 
+"Accept these from them, that they may be used in doing the service of the Tent of Meeting; and you will give them to the Levites, to every man according to his service." 
 Moses took the wagons and the oxen, and gave them to the Levites. 
 He gave two wagons and four oxen to the sons of Gershon, according to their service. 
 He gave four wagons and eight oxen to the sons of Merari, according to their service, under the direction of Ithamar the son of Aaron the priest. 
 But to the sons of Kohath he gave none, because the service of the sanctuary belonged to them; they carried it on their shoulders. 
 The princes gave offerings for the dedication of the altar in the day that it was anointed. The princes gave their offerings before the altar. 
-God said to Moses, "They shall offer their offering, each prince on his day, for the dedication of the altar." 
+God said to Moses, "They will offer their offering, each prince on his day, for the dedication of the altar." 
 He who offered his offering the first day was Nahshon the son of Amminadab, of the tribe of Judah, 
 and his offering was: one silver platter, the weight of which was one hundred thirty shekels, one silver bowl of seventy shekels, according to the shekel of the sanctuary, both of them full of fine flour mixed with oil for a meal offering; 
 one golden ladle of ten shekels, full of incense; 

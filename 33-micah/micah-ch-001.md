@@ -4,7 +4,7 @@ Look, God comes out of his place, and will come down and tread on the high place
 The mountains melt under him, and the valleys split apart like wax before the fire, like waters that are poured down a steep place. 
 "All this is for the disobedience of Jacob, and for the drifts of the house of Israel. What's the disobedience of Jacob? Isn't it Samaria? And what are the high places of Judah? Aren't they Jerusalem? 
 So I'll make Samaria like a rubble heap of the field, like places for planting vineyards; and I'll pour down its stones into the valley, and I'll uncover its foundations. 
-All her idols will be beaten to pieces, all her temple gifts will be burned with fire, and I'll destroy all her images; for of the hire of a prostitute has she gathered them, and to the hire of a prostitute shall they return." 
+All her idols will be beaten to pieces, all her temple gifts will be burned with fire, and I'll destroy all her images; for of the hire of a prostitute has she gathered them, and to the hire of a prostitute will they return." 
 This I'll lament and wail. I'll go stripped and naked. I'll howl like the jackals and mourn like the ostriches. 
 Her wounds are incurable; for it has come even to Judah. It reaches to the gate of my people, even to Jerusalem. 
 Don't tell it in Gath. Don't weep at all. At Beth Ophrah I have rolled myself in the dust. 

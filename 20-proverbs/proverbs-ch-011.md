@@ -1,9 +1,9 @@
 ﻿A false balance is an abomination to God, but accurate weights are his delight. 
 When pride comes, then comes shame, but with humility comes wisdom. 
-The integrity of the upright shall guide them, but the perverseness of the treacherous shall destroy them. 
+The integrity of the upright will guide them, but the perverseness of the treacherous will destroy them. 
 Riches don't profit in the day of wrath, but righteousness delivers from death. 
-The righteousness of the blameless will direct his way, but the guilty shall fall by his own guilt. 
-The righteousness of the upright shall deliver them, but the unfaithful will be trapped by bad desires. 
+The righteousness of the blameless will direct his way, but the guilty will fall by his own guilt. 
+The righteousness of the upright will deliver them, but the unfaithful will be trapped by bad desires. 
 When a guilty man dies, hope perishes, and expectation of power comes to nothing. 
 A righteous person is delivered out of trouble, and the guilty takes his place. 
 With his mouth the godless man destroys his neighbor, but the righteous will be delivered through knowledge. 
@@ -22,10 +22,10 @@ Most certainly, the bad man won't be unpunished, but the offspring of the righte
 Like a gold ring in a pig's snout, is a beautiful woman who lacks discretion. 
 The desire of the righteous is only good. The expectation of the guilty is wrath. 
 There's one who scatters, and increases yet more. There's one who withholds more than is appropriate, but gains poverty. 
-The liberal soul shall be made fat. He who waters shall be watered also himself. 
+The liberal soul will be made fat. He who waters will be watered also himself. 
 People curse someone who withholds grain, but blessing will be on the head of him who sells it. 
-He who diligently seeks good seeks favor, but he who searches after bad, it shall come to him. 
-He who trusts in his riches will fall, but the righteous shall flourish as the green leaf. 
-He who troubles his own house shall inherit the wind. The foolish shall be servant to the wise of heart. 
+He who diligently seeks good seeks favor, but he who searches after bad, it will come to him. 
+He who trusts in his riches will fall, but the righteous will flourish as the green leaf. 
+He who troubles his own house will inherit the wind. The foolish will be servant to the wise of heart. 
 The fruit of the righteous is a tree of life. He who's wise wins souls. 
-Look, the righteous shall be repaid on the earth, how much more the guilty and the one who drifts! 
+Look, the righteous will be repaid on the earth, how much more the guilty and the one who drifts! 

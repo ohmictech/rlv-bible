@@ -2,7 +2,7 @@
 He sent messengers into the city to Ahab king of Israel and said to him, "Ben Hadad says, 
 'Your silver and your gold are mine. Your wives also and your children, even the best, are mine.'" 
 The king of Israel answered, "It's according to your saying, my lord, O king. I'm yours, and all that I have." 
-The messengers came again and said, "Ben Hadad says, 'I sent indeed to you, saying, "You shall deliver me your silver, your gold, your wives, and your children; 
+The messengers came again and said, "Ben Hadad says, 'I sent indeed to you, saying, "You will deliver me your silver, your gold, your wives, and your children; 
 but I'll send my servants to you tomorrow about this time, and they'll search your house and the houses of your servants. Whatever is pleasant in your eyes, they'll put it in their hand, and take it away."'" 
 Then the king of Israel called all the elders of the land, and said, "Please notice how this man seeks mischief; for he sent to me for my wives, and for my children, and for my silver, and for my gold; and I didn't deny him." 
 All the elders and everyone said to him, "Don't listen, and don't consent." 
@@ -11,7 +11,7 @@ Ben Hadad sent to him, and said, "The gods do so to me, and more also, if the du
 The king of Israel answered, "Tell him, 'Don't let him who puts on his armor brag like he who takes it off.'" 
 When Ben Hadad heard this message as he was drinking, he and the kings in the pavilions, he said to his servants, "Prepare to attack!" So they prepared to attack the city. 
 Look, a spokesman came near to Ahab king of Israel, and said, "God says, 'Have you seen all this great multitude? Look, I'll deliver it into your hand today. Then you'll know that I'm God.'" 
-Ahab said, "By whom?" He said, "God says, 'By the young men of the princes of the provinces.'" Then he said, "Who shall begin the battle?" He answered, "You." 
+Ahab said, "By whom?" He said, "God says, 'By the young men of the princes of the provinces.'" Then he said, "Who will begin the battle?" He answered, "You." 
 Then he mustered the young men of the princes of the provinces, and they were two hundred and thirty-two. After them, he mustered everyone, even all the children of Israel, being seven thousand. 
 They went out at noon. But Ben Hadad was drinking himself drunk in the pavilions, he and the kings, the thirty-two kings who helped him. 
 The young men of the princes of the provinces went out first; and Ben Hadad sent out, and they told him, saying, "Men are coming out from Samaria." 
@@ -25,19 +25,19 @@ Do this thing: take the kings away, every man out of his place, and put captains
 Muster an army like the army that you have lost, horse for horse and chariot for chariot. We'll fight against them in the plain, and surely we'll be stronger than they're." He listened to their voice and did so. 
 At the return of the year, Ben Hadad mustered the Syrians and went up to Aphek to fight against Israel. 
 The children of Israel were mustered and given provisions, and went against them. The children of Israel encamped before them like two little flocks of young goats, but the Syrians filled the country. 
-A man of God came near and spoke to the king of Israel, and said, "God says, 'Because the Syrians have said, "God is a god of the hills, but he isn't a god of the valleys," I'll deliver all this great multitude into your hand, and you shall know that I'm God.'" 
+A man of God came near and spoke to the king of Israel, and said, "God says, 'Because the Syrians have said, "God is a god of the hills, but he isn't a god of the valleys," I'll deliver all this great multitude into your hand, and you will know that I'm God.'" 
 They encamped opposite each other for seven days. Then on the seventh day the battle was joined; and the children of Israel killed one hundred thousand footmen of the Syrians in one day. 
 But the rest fled to Aphek, into the city; and the wall fell on twenty-seven thousand men who were left. Ben Hadad fled and came into the city, into an inner room. 
 His servants said to him, "See now, we have heard that the kings of the house of Israel are merciful kings. Please let's put sackcloth on our bodies and ropes on our heads, and go out to the king of Israel. Maybe he'll save your life." 
 So they put sackcloth on their bodies and ropes on their heads, and came to the king of Israel, and said, "Your servant Ben Hadad says, 'Please let me live.'" He said, "Is he still alive? He's my brother." 
 Now the men observed diligently and hurried to take this phrase; and they said, "Your brother Ben Hadad." Then he said, "Go, bring him." Then Ben Hadad came out to him; and he caused him to come up into the chariot. 
-Ben Hadad said to him, "The cities which my father took from your father I'll restore. You shall make streets for yourself in Damascus, as my father made in Samaria." "I", said Ahab, "will let you go with this covenant." So he made a covenant with him and let him go. 
+Ben Hadad said to him, "The cities which my father took from your father I'll restore. You will make streets for yourself in Damascus, as my father made in Samaria." "I", said Ahab, "will let you go with this covenant." So he made a covenant with him and let him go. 
 A certain man of the sons of the spokesmen said to his fellow by God's word, "Please strike me!" The man refused to strike him. 
 Then he said to him, "Because you haven't obeyed God's voice, look, as soon as you have departed from me, a lion will kill you." As soon as he had departed from him, a lion found him and killed him. 
 Then he found another man, and said, "Please strike me." The man struck him and wounded him. 
 So the spokesman departed and waited for the king by the way, and disguised himself with his headband over his eyes. 
-As the king passed by, he cried to the king, and he said, "Your servant went out into the middle of the battle; and look, a man came over and brought a man to me, and said, 'Guard this man! If by any means he's missing, then your life shall be for his life, or else you shall pay a talent of silver.' 
-As your servant was busy here and there, he was gone." The king of Israel said to him, "So shall your judgment be. You yourself have decided it." 
+As the king passed by, he cried to the king, and he said, "Your servant went out into the middle of the battle; and look, a man came over and brought a man to me, and said, 'Guard this man! If by any means he's missing, then your life will be for his life, or else you will pay a talent of silver.' 
+As your servant was busy here and there, he was gone." The king of Israel said to him, "So will your judgment be. You yourself have decided it." 
 He hurried, and took the headband away from his eyes; and the king of Israel recognized that he was one of the spokesmen. 
 He said to him, "God says, 'Because you have let go out of your hand the man whom I had devoted to destruction, your life will take the place of his life, and your people take the place of his people.'" 
 The king of Israel went to his house sullen and angry, and came to Samaria. 

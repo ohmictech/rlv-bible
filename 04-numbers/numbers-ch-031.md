@@ -1,7 +1,7 @@
 ﻿God spoke to Moses, saying, 
-"Avenge the children of Israel on the Midianites. Afterward you shall be gathered to your people." 
+"Avenge the children of Israel on the Midianites. Afterward you will be gathered to your people." 
 Moses spoke to the people, saying, "Arm men from among you for war, that they may go against Midian, to execute God's vengeance on Midian. 
-You shall send one thousand out of every tribe, throughout all the tribes of Israel, to the war." 
+You will send one thousand out of every tribe, throughout all the tribes of Israel, to the war." 
 So there were delivered, out of the thousands of Israel, a thousand from every tribe, twelve thousand armed for war. 
 Moses sent them, one thousand of every tribe, to the war with Phinehas the son of Eleazar the priest, to the war, with the vessels of the sanctuary and the trumpets for the alarm in his hand. 
 They fought against Midian, as God commanded Moses. They killed every male. 
@@ -17,17 +17,17 @@ Look, these caused the children of Israel, through the counsel of Balaam, to com
 Now kill every male among the little ones, and kill every woman who has known man by lying with him. 
 But all the girls, who haven't known man by lying with him, keep alive for yourselves. 
 "Encamp outside of the camp for seven days. Whoever has killed any person, and whoever has touched any slain, purify yourselves on the third day and on the seventh day, you and your captives. 
-You shall purify every garment, and all that's made of skin, and all work of goats' hair, and all things made of wood." 
+You will purify every garment, and all that's made of skin, and all work of goats' hair, and all things made of wood." 
 Eleazar the priest said to the men of war who went to the battle, "This is the statute of the law which God has commanded Moses. 
 However the gold, and the silver, the bronze, the iron, the tin, and the lead, 
-everything that may withstand the fire, you shall make to go through the fire, and it shall be clean; nevertheless it shall be purified with the water for impurity. All that doesn't withstand the fire you shall make to go through the water. 
-You shall wash your clothes on the seventh day, and you shall be clean. Afterward you shall come into the camp." 
+everything that may withstand the fire, you will make to go through the fire, and it will be clean; nevertheless it will be purified with the water for impurity. All that doesn't withstand the fire you will make to go through the water. 
+You will wash your clothes on the seventh day, and you will be clean. Afterward you will come into the camp." 
 God spoke to Moses, saying, 
 "Count the plunder that was taken, both of man and of animal, you, and Eleazar the priest, and the heads of the fathers' households of the congregation; 
 and divide the plunder into two parts: between the men skilled in war, who went out to battle, and all the congregation. 
 Levy a tribute to God of the men of war who went out to battle: one soul of five hundred; of the persons, of the cattle, of the donkeys, and of the flocks. 
 Take it from their half, and give it to Eleazar the priest, for God's wave offering. 
-Of the children of Israel's half, you shall take one drawn out of every fifty, of the persons, of the cattle, of the donkeys, and of the flocks, of all the livestock, and give them to the Levites, who perform the duty of God's tabernacle." 
+Of the children of Israel's half, you will take one drawn out of every fifty, of the persons, of the cattle, of the donkeys, and of the flocks, of all the livestock, and give them to the Levites, who perform the duty of God's tabernacle." 
 Moses and Eleazar the priest did as God commanded Moses. 
 Now the plunder, over and above the booty which the men of war took, was six hundred seventy-five thousand sheep, 
 seventy-two thousand head of cattle, 

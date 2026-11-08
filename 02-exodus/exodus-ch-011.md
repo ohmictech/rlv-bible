@@ -1,10 +1,10 @@
-﻿God said to Moses, "I'll bring yet one more plague on Pharaoh, and on Egypt; afterwards he'll let you go. When he lets you go, he'll surely thrust you out altogether. 
-Speak now in the ears of the people, and let every man ask of his neighbor, and every woman of her neighbor, jewels of silver, and jewels of gold." 
-God gave the people favor in the sight of the Egyptians. Moreover, the man Moses was very great in the land of Egypt, in the sight of Pharaoh's servants, and in the sight of the people. 
-Moses said, "This is what God says: 'About midnight I'll go out into the middle of Egypt, 
-and all the firstborn in the land of Egypt will die, from the firstborn of Pharaoh who sits on his throne, even to the firstborn of the female servant who's behind the mill, and all the firstborn of livestock. 
-There will be a great cry throughout all the land of Egypt, such as there hasn't been, nor will be any more. 
-But against any of the children of Israel a dog won't even bark or move its tongue, against man or animal, that you can know that God makes a distinction between the Egyptians and Israel. 
-All these servants of yours will come down to me, and bow down themselves to me, saying, "Get out, with everyone who follow you;" and after that I'll go out.'" He went out from Pharaoh in hot anger. 
-God said to Moses, "Pharaoh won't listen to you, that my wonders may be multiplied in the land of Egypt." 
-Moses and Aaron did all these wonders before Pharaoh, but God hardened Pharaoh's heart, and he didn't let the children of Israel go out of his land. 
+﻿God said to Moses, "I am bringing one more plague on Pharaoh and on Egypt. After that he will let you go, and when he does he will drive you out completely. 
+Tell the people now that every man should ask his neighbor, and every woman her neighbor, for silver and gold jewelry." 
+God made the Egyptians look kindly on the people, and Moses himself was greatly respected in Egypt, among Pharaoh's officials and among the people. 
+Moses said, "This is what God says: 'About midnight I will go through the middle of Egypt, 
+and every firstborn in Egypt will die, from the firstborn of Pharaoh on his throne to the firstborn of the servant girl grinding at the mill, and every firstborn of the livestock. 
+There will be loud crying all through Egypt, worse than there has ever been or ever will be. 
+But not a dog will bark at any Israelite, man or animal, and you will know that God makes a distinction between Egypt and Israel. 
+All these officials of yours will come down to me and bow to me, saying, "Get out, you and all your people." After that I will leave.'" Then Moses left Pharaoh in a burning anger. 
+God said to Moses, "Pharaoh won't listen to you, so that my wonders may be multiplied in Egypt." 
+Moses and Aaron did all these wonders in front of Pharaoh, but God made Pharaoh's heart hard, and he didn't let the Israelites leave his land. 

@@ -13,7 +13,7 @@ the ark, and its poles, the mercy seat, the veil of the screen;
 the table with its poles and all its vessels, and the show bread; 
 the lamp stand also for the light, with its vessels, its lamps, and the oil for the light; 
 and the altar of incense with its poles, the anointing oil, the sweet incense, the screen for the door, at the door of the tabernacle; 
-the altar of burnt offering, with its grating of bronze, its poles, and all its vessels, the bamistake and its base; 
+the altar of burnt offering, with its grating of bronze, its poles, and all its vessels, the basin and its base; 
 the hangings of the court, its pillars, their sockets, and the screen for the gate of the court; 
 the pins of the tabernacle, the pins of the court, and their cords; 
 the finely worked garments for ministering in the holy place, the holy garments for Aaron the priest, and the garments of his sons, to minister in the priest's office.'" 

@@ -4,7 +4,7 @@ Give counsel! Execute justice! Make your shade like the night in the middle of t
 Let my outcasts dwell with you! As for Moab, be a hiding place for him from the face of the destroyer. The extortionist is brought to nothing. Destruction ceases. The oppressors are consumed out of the land. 
 A throne will be established in loving kindness. One will sit on it in truth, in the tent of David, judging, seeking justice, and swift to do righteousness. 
 We have heard of the pride of Moab, that he's very proud; even of his arrogance, his pride, and his wrath. His boastings are nothing. 
-So Moab will wail for Moab. Everyone will wail. You'll mourn for the raimistake cakes of Kir Hareseth, utterly stricken. 
+So Moab will wail for Moab. Everyone will wail. You'll mourn for the raisin cakes of Kir Hareseth, utterly stricken. 
 The fields of Heshbon languish with the vine of Sibmah. The lords of the nations have broken down its choice branches, which reached even to Jazer, which wandered into the wilderness. Its shoots were spread abroad. They passed over the sea. 
 So I'll weep with the weeping of Jazer for the vine of Sibmah. I'll water you with my tears, Heshbon, and Elealeh: for on your summer fruits and on your harvest the battle shout has fallen. 
 Gladness is taken away, and joy out of the fruitful field; and in the vineyards there will be no singing, neither joyful noise. Nobody will tread out wine in the presses. I have made the shouting stop. 

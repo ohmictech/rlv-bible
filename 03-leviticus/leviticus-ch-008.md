@@ -8,7 +8,7 @@ He put the tunic on him, tied the sash on him, clothed him with the robe, put th
 He placed the breastplate on him. He put the Urim and Thummim in the breastplate. 
 He set the turban on his head. He set the golden plate, the holy crown, on the front of the turban, as God commanded Moses. 
 Moses took the anointing oil, and anointed the tabernacle and all that was in it, and sanctified them. 
-He sprinkled it on the altar seven times, and anointed the altar and all its vessels, and the bamistake and its base, to sanctify them. 
+He sprinkled it on the altar seven times, and anointed the altar and all its vessels, and the basin and its base, to sanctify them. 
 He poured some of the anointing oil on Aaron's head, and anointed him, to sanctify him. 
 Moses brought Aaron's sons, and clothed them with tunics, and tied sashes on them, and put headbands on them, as God commanded Moses. 
 He brought the bull of the offering for wrongdoing, and Aaron and his sons laid their hands on the head of the bull of the offering for wrongdoing. 

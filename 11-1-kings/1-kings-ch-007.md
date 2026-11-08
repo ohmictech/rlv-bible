@@ -27,7 +27,7 @@ It was a hand width thick. Its brim was worked like the brim of a cup, like the 
 He made the ten bases of bronze. The length of one base was four cubits, four cubits its width, and three cubits its height. 
 The work of the bases was like this: they had panels; and there were panels between the ledges; 
 and on the panels that were between the ledges were lions, oxen, and cherubim; and on the ledges there was a pedestal above; and beneath the lions and oxen were wreaths of hanging work. 
-Every base had four bronze wheels and axles of bronze; and its four feet had supports. The supports were cast beneath the bamistake, with wreaths at the side of each. 
+Every base had four bronze wheels and axles of bronze; and its four feet had supports. The supports were cast beneath the basin, with wreaths at the side of each. 
 Its opening within the capital and above was a cubit. Its opening was round like the work of a pedestal, a cubit and a half; and also on its opening were engravings, and their panels were square, not round. 
 The four wheels were underneath the panels; and the axles of the wheels were in the base. The height of a wheel was a cubit and half a cubit. 
 The work of the wheels was like the work of a chariot wheel. Their axles, their rims, their spokes, and their hubs were all of cast metal. 
@@ -35,7 +35,7 @@ There were four supports at the four corners of each base. Its supports were of 
 In the top of the base there was a round band half a cubit high; and on the top of the base its supports and its panels were the same. 
 On the plates of its supports and on its panels, he engraved cherubim, lions, and palm trees, each in its space, with wreaths all around. 
 He made the ten bases in this way: everyone had one casting, one measure, and one form. 
-He made ten basins of bronze. One bamistake contained forty baths. Every bamistake measured four cubits. One bamistake was on every one of the ten bases. 
+He made ten basins of bronze. One basin contained forty baths. Every basin measured four cubits. One basin was on every one of the ten bases. 
 He set the bases, five on the right side of the house and five on the left side of the house. He set the sea on the right side of the house eastward and toward the south. 
 Hiram made the pots, the shovels, and the basins. So Hiram finished doing all the work that he worked for King Solomon in God's house: 
 the two pillars; the two bowls of the capitals that were on the top of the pillars; the two networks to cover the two bowls of the capitals that were on the top of the pillars; 

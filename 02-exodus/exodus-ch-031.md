@@ -6,7 +6,7 @@ and in cutting of stones for setting, and in carving of wood, to work in all kin
 Look, I myself have appointed with him Oholiab, the son of Ahisamach, of the tribe of Dan; and in the heart of everyone who's wise-hearted I have put wisdom, that they can make all that I have commanded you: 
 the Tent of Meeting, the ark of the covenant, the mercy seat that's on it, all the furniture of the Tent, 
 the table and its vessels, the pure lamp stand with all its vessels, the altar of incense, 
-the altar of burnt offering with all its vessels, the bamistake and its base, 
+the altar of burnt offering with all its vessels, the basin and its base, 
 the finely worked garments, the holy garments for Aaron the priest, the garments of his sons to minister in the priest's office 
 the anointing oil, and the incense of sweet spices for the holy place: according to all that I have commanded you they will do." 
 God spoke to Moses, saying, 

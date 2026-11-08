@@ -8,7 +8,7 @@ and to devotion to God, affection for your brothers and sisters, and to that aff
 If you have these things and they're growing in you, they'll keep you from being useless and fruitless in knowing our Lord Jesus Christ. 
 Anyone who lacks them is blind and short-sighted, and has forgotten that they were made clean from their old mistakes. 
 So, brothers and sisters, work all the harder to make your calling and your being chosen certain. If you do these things, you'll never trip up. 
-That's how you'll be given a rich welcome into the reign of the eras of our Lord and Restorer, Jesus Christ. 
+That's how you'll be given a rich welcome into the era's reign of our Lord and Restorer, Jesus Christ. 
 So I won't be careless about reminding you of these things, even though you know them and are firmly grounded in the truth you have. 
 I think it right, as long as I'm in this tent of a body, to keep stirring you up by reminding you, 
 because I know that my tent will soon be taken down, just as our Lord Jesus Christ showed me. 

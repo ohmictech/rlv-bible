@@ -32,7 +32,7 @@ One line per lemma. The rendering column is the law; the third column is the rem
 | Lemma | Rendering | Why |
 |---|---|---|
 | aion (n.) | era | World where English idiom demands it. |
-| aionios (adj.) | of the era | Era-long where the word is measuring rather than pointing. |
+| aionios (adj.) | of the era | Era-long where the word is measuring rather than pointing. Singular *αἰώνιος* is always singular in English: Jude 7 "the era's fire"; Heb 13:20; 2 Pet 1:11; 1 Pet 5:10. Plural **of the eras** belongs only to *αἰώνων* (1 Cor 10:11; Eph 3:11; Heb 9:26; 1 Tim 1:17) and to the Hebrew *olam* divine title (Gen 21:33; Isa 9:6; Rom 14:25, kept plural as a title). |
 | zoe aionios | the real life of the era | The noun carries the quality, the adjective carries the address. |
 | kairos | season | The right moment. |
 | chronos | time | In its plain duration. |

@@ -1,89 +1,89 @@
-﻿On the day that Moses had finished setting up the tabernacle, and had anointed it and sanctified it with all its furniture, and the altar with all its vessels, and had anointed and sanctified them; 
-the princes of Israel, the heads of their fathers' houses, gave offerings. These were the princes of the tribes. These are they who were over those who were counted; 
-and they brought their offering before God, six covered wagons and twelve oxen; a wagon for every two of the princes, and for each one an ox. They presented them before the tabernacle. 
-God spoke to Moses, saying, 
-"Accept these from them, that they can be used in doing the service of the Tent of Meeting; and you will give them to the Levites, to every man according to his service." 
-Moses took the wagons and the oxen, and gave them to the Levites. 
-He gave two wagons and four oxen to the sons of Gershon, according to their service. 
-He gave four wagons and eight oxen to the sons of Merari, according to their service, under the direction of Ithamar the son of Aaron the priest. 
-But to the sons of Kohath he gave none, because the service of the sanctuary belonged to them; they carried it on their shoulders. 
-The princes gave offerings for the dedication of the altar in the day that it was anointed. The princes gave their offerings before the altar. 
-God said to Moses, "They will offer their offering, each prince on his day, for the dedication of the altar." 
-He who offered his offering the first day was Nahshon the son of Amminadab, of the tribe of Judah, 
-and his offering was: one silver platter, the weight of which was one hundred thirty shekels, one silver bowl of seventy shekels, according to the shekel of the sanctuary, both of them full of fine flour mixed with oil for a meal offering; 
-one golden ladle of ten shekels, full of incense; 
-one young bull, one ram, one male lamb a year old, for a burnt offering; 
-one male goat for an offering for wrongdoing; 
-and for the sacrifice of offerings for wholeness, two head of cattle, five rams, five male goats, and five male lambs a year old. This was the offering of Nahshon the son of Amminadab. 
-On the second day Nethanel the son of Zuar, prince of Issachar, gave his offering. 
-He offered for his offering: one silver platter, the weight of which was one hundred thirty shekels, one silver bowl of seventy shekels, according to the shekel of the sanctuary, both of them full of fine flour mixed with oil for a meal offering; 
-one golden ladle of ten shekels, full of incense; 
-one young bull, one ram, one male lamb a year old, for a burnt offering; 
-one male goat for an offering for wrongdoing; 
-and for the sacrifice of offerings for wholeness, two head of cattle, five rams, five male goats, five male lambs a year old. This was the offering of Nethanel the son of Zuar. 
-On the third day Eliab the son of Helon, prince of the children of Zebulun, 
-gave his offering: one silver platter, the weight of which was a hundred and thirty shekels, one silver bowl of seventy shekels, according to the shekel of the sanctuary, both of them full of fine flour mixed with oil for a meal offering; 
-one golden ladle of ten shekels, full of incense; 
-one young bull, one ram, one male lamb a year old, for a burnt offering; 
-one male goat for an offering for wrongdoing; 
-and for the sacrifice of offerings for wholeness, two head of cattle, five rams, five male goats, and five male lambs a year old. This was the offering of Eliab the son of Helon. 
-On the fourth day Elizur the son of Shedeur, prince of the children of Reuben, 
-gave his offering: one silver platter, the weight of which was one hundred thirty shekels, one silver bowl of seventy shekels, according to the shekel of the sanctuary, both of them full of fine flour mixed with oil for a meal offering; 
-one golden ladle of ten shekels, full of incense; 
-one young bull, one ram, one male lamb a year old, for a burnt offering; 
-one male goat for an offering for wrongdoing; 
-and for the sacrifice of offerings for wholeness, two head of cattle, five rams, five male goats, and five male lambs a year old. This was the offering of Elizur the son of Shedeur. 
-On the fifth day Shelumiel the son of Zurishaddai, prince of the children of Simeon, 
-gave his offering: one silver platter, the weight of which was one hundred thirty shekels, one silver bowl of seventy shekels, according to the shekel of the sanctuary, both of them full of fine flour mixed with oil for a meal offering; 
-one golden ladle of ten shekels, full of incense; 
-one young bull, one ram, one male lamb a year old, for a burnt offering; 
-one male goat for an offering for wrongdoing; 
-and for the sacrifice of offerings for wholeness, two head of cattle, five rams, five male goats, and five male lambs a year old: this was the offering of Shelumiel the son of Zurishaddai. 
-On the sixth day, Eliasaph the son of Deuel, prince of the children of Gad, 
-gave his offering: one silver platter, the weight of which was one hundred thirty shekels, one silver bowl of seventy shekels, according to the shekel of the sanctuary, both of them full of fine flour mixed with oil for a meal offering; 
-one golden ladle of ten shekels, full of incense; 
-one young bull, one ram, one male lamb a year old, for a burnt offering; 
-one male goat for an offering for wrongdoing; 
-and for the sacrifice of offerings for wholeness, two head of cattle, five rams, five male goats, and five male lambs a year old. This was the offering of Eliasaph the son of Deuel. 
-On the seventh day Elishama the son of Ammihud, prince of the children of Ephraim, 
-gave his offering: one silver platter, the weight of which was one hundred thirty shekels, one silver bowl of seventy shekels, according to the shekel of the sanctuary, both of them full of fine flour mixed with oil for a meal offering; 
-one golden ladle of ten shekels, full of incense; 
-one young bull, one ram, one male lamb a year old, for a burnt offering; 
-one male goat for an offering for wrongdoing; 
-and for the sacrifice of offerings for wholeness, two head of cattle, five rams, five male goats, and five male lambs a year old. This was the offering of Elishama the son of Ammihud. 
-On the eighth day Gamaliel the son of Pedahzur, prince of the children of Manasseh, 
-gave his offering: one silver platter, the weight of which was one hundred thirty shekels, one silver bowl of seventy shekels, according to the shekel of the sanctuary, both of them full of fine flour mixed with oil for a meal offering; 
-one golden ladle of ten shekels, full of incense; 
-one young bull, one ram, one male lamb a year old, for a burnt offering; 
-one male goat for an offering for wrongdoing; 
-and for the sacrifice of offerings for wholeness, two head of cattle, five rams, five male goats, and five male lambs a year old. This was the offering of Gamaliel the son of Pedahzur. 
-On the ninth day Abidan the son of Gideoni, prince of the children of Benjamin, 
-gave his offering: one silver platter, the weight of which was one hundred thirty shekels, one silver bowl of seventy shekels, according to the shekel of the sanctuary, both of them full of fine flour mixed with oil for a meal offering; 
-one golden ladle of ten shekels, full of incense; 
-one young bull, one ram, one male lamb a year old, for a burnt offering; 
-one male goat for an offering for wrongdoing; 
-and for the sacrifice of offerings for wholeness, two head of cattle, five rams, five male goats, and five male lambs a year old. This was the offering of Abidan the son of Gideoni. 
-On the tenth day Ahiezer the son of Ammishaddai, prince of the children of Dan, 
-gave his offering: one silver platter, the weight of which was one hundred thirty shekels, one silver bowl of seventy shekels, according to the shekel of the sanctuary, both of them full of fine flour mixed with oil for a meal offering; 
-one golden ladle of ten shekels, full of incense; 
-one young bull, one ram, one male lamb a year old, for a burnt offering; 
-one male goat for an offering for wrongdoing; 
-and for the sacrifice of offerings for wholeness, two head of cattle, five rams, five male goats, and five male lambs a year old. This was the offering of Ahiezer the son of Ammishaddai. 
-On the eleventh day Pagiel the son of Ochran, prince of the children of Asher, 
-gave his offering: one silver platter, the weight of which was one hundred thirty shekels, one silver bowl of seventy shekels, according to the shekel of the sanctuary, both of them full of fine flour mixed with oil for a meal offering; 
-one golden ladle of ten shekels, full of incense; 
-one young bull, one ram, one male lamb a year old, for a burnt offering; 
-one male goat for an offering for wrongdoing; 
-and for the sacrifice of offerings for wholeness, two head of cattle, five rams, five male goats, and five male lambs a year old. This was the offering of Pagiel the son of Ochran. 
-On the twelfth day Ahira the son of Enan, prince of the children of Naphtali, 
-gave his offering: one silver platter, the weight of which was one hundred thirty shekels, one silver bowl of seventy shekels, according to the shekel of the sanctuary, both of them full of fine flour mixed with oil for a meal offering; 
-one golden ladle of ten shekels, full of incense; 
-one young bull, one ram, one male lamb a year old, for a burnt offering; 
-one male goat for an offering for wrongdoing; 
-and for the sacrifice of offerings for wholeness, two head of cattle, five rams, five male goats, and five male lambs a year old. This was the offering of Ahira the son of Enan. 
-This was the dedication offering of the altar, on the day when it was anointed, by the princes of Israel: twelve silver platters, twelve silver bowls, twelve golden ladles; 
-each silver platter weighing one hundred thirty shekels, and each bowl seventy; all the silver of the vessels two thousand four hundred shekels, according to the shekel of the sanctuary; 
-the twelve golden ladles, full of incense, weighing ten shekels apiece, according to the shekel of the sanctuary; all the gold of the ladles weighed one hundred twenty shekels; 
-all the cattle for the burnt offering twelve bulls, the rams twelve, the male lambs a year old twelve, and their meal offering; and twelve male goats for an offering for wrongdoing; 
-and all the cattle for the sacrifice of offerings for wholeness: twenty-four bulls, sixty rams, sixty male goats, and sixty male lambs a year old. This was the dedication offering of the altar, after it was anointed. 
-When Moses went into the Tent of Meeting to speak with God, he heard his voice speaking to him from above the mercy seat that was on the ark of the Testimony, from between the two cherubim; and he spoke to him. 
+﻿On the day Moses finished setting up the tent, he anointed it and set it apart with everything in it, and the altar with all its utensils, and anointed and set them apart. 
+Then the leaders of Israel, the heads of families, brought offerings. These were the leaders of the tribes, the men over those who were counted. 
+They brought their offering before God: six covered wagons and twelve oxen, one wagon for every two leaders and one ox for each. They presented them in front of the tent. 
+God spoke to Moses: 
+"Accept these from them, so they can be used for the work of the Tent of Meeting, and give them to the Levites, to each group according to its work." 
+Moses took the wagons and oxen and gave them to the Levites. 
+He gave two wagons and four oxen to the Gershonites, according to their work. 
+He gave four wagons and eight oxen to the Merarites, according to their work, under the direction of Ithamar son of Aaron the priest. 
+But he gave none to the Kohathites, because their work was caring for the Holy Place, and they carried it on their shoulders. 
+The leaders brought offerings for the dedication of the altar on the day it was anointed, presenting them in front of the altar. 
+God said to Moses, "Each leader is to bring his offering on his own day, for the dedication of the altar." 
+The one who brought his offering on the first day was Nahshon son of Amminadab, of the tribe of Judah. 
+His offering was one silver platter weighing a hundred thirty shekels and one silver bowl weighing seventy shekels by the sanctuary standard, both full of fine flour mixed with oil for a gift offering, 
+one gold ladle weighing ten shekels, full of incense, 
+one young bull, one ram and one male lamb a year old for a burnt offering, 
+one male goat for an offering for wrongdoing, 
+and for the wholeness sacrifice, two oxen, five rams, five male goats and five male lambs a year old. This was the offering of Nahshon son of Amminadab. 
+On the second day Nethanel son of Zuar, the leader of Issachar, brought his offering. 
+His offering was one silver platter weighing a hundred thirty shekels and one silver bowl weighing seventy shekels by the sanctuary standard, both full of fine flour mixed with oil for a gift offering, 
+one gold ladle weighing ten shekels, full of incense, 
+one young bull, one ram and one male lamb a year old for a burnt offering, 
+one male goat for an offering for wrongdoing, 
+and for the wholeness sacrifice, two oxen, five rams, five male goats and five male lambs a year old. This was the offering of Nethanel son of Zuar. 
+On the third day Eliab son of Helon, the leader of Zebulun, brought his offering. 
+His offering was one silver platter weighing a hundred thirty shekels and one silver bowl weighing seventy shekels by the sanctuary standard, both full of fine flour mixed with oil for a gift offering, 
+one gold ladle weighing ten shekels, full of incense, 
+one young bull, one ram and one male lamb a year old for a burnt offering, 
+one male goat for an offering for wrongdoing, 
+and for the wholeness sacrifice, two oxen, five rams, five male goats and five male lambs a year old. This was the offering of Eliab son of Helon. 
+On the fourth day Elizur son of Shedeur, the leader of Reuben, brought his offering. 
+His offering was one silver platter weighing a hundred thirty shekels and one silver bowl weighing seventy shekels by the sanctuary standard, both full of fine flour mixed with oil for a gift offering, 
+one gold ladle weighing ten shekels, full of incense, 
+one young bull, one ram and one male lamb a year old for a burnt offering, 
+one male goat for an offering for wrongdoing, 
+and for the wholeness sacrifice, two oxen, five rams, five male goats and five male lambs a year old. This was the offering of Elizur son of Shedeur. 
+On the fifth day Shelumiel son of Zurishaddai, the leader of Simeon, brought his offering. 
+His offering was one silver platter weighing a hundred thirty shekels and one silver bowl weighing seventy shekels by the sanctuary standard, both full of fine flour mixed with oil for a gift offering, 
+one gold ladle weighing ten shekels, full of incense, 
+one young bull, one ram and one male lamb a year old for a burnt offering, 
+one male goat for an offering for wrongdoing, 
+and for the wholeness sacrifice, two oxen, five rams, five male goats and five male lambs a year old. This was the offering of Shelumiel son of Zurishaddai. 
+On the sixth day Eliasaph son of Deuel, the leader of Gad, brought his offering. 
+His offering was one silver platter weighing a hundred thirty shekels and one silver bowl weighing seventy shekels by the sanctuary standard, both full of fine flour mixed with oil for a gift offering, 
+one gold ladle weighing ten shekels, full of incense, 
+one young bull, one ram and one male lamb a year old for a burnt offering, 
+one male goat for an offering for wrongdoing, 
+and for the wholeness sacrifice, two oxen, five rams, five male goats and five male lambs a year old. This was the offering of Eliasaph son of Deuel. 
+On the seventh day Elishama son of Ammihud, the leader of Ephraim, brought his offering. 
+His offering was one silver platter weighing a hundred thirty shekels and one silver bowl weighing seventy shekels by the sanctuary standard, both full of fine flour mixed with oil for a gift offering, 
+one gold ladle weighing ten shekels, full of incense, 
+one young bull, one ram and one male lamb a year old for a burnt offering, 
+one male goat for an offering for wrongdoing, 
+and for the wholeness sacrifice, two oxen, five rams, five male goats and five male lambs a year old. This was the offering of Elishama son of Ammihud. 
+On the eighth day Gamaliel son of Pedahzur, the leader of Manasseh, brought his offering. 
+His offering was one silver platter weighing a hundred thirty shekels and one silver bowl weighing seventy shekels by the sanctuary standard, both full of fine flour mixed with oil for a gift offering, 
+one gold ladle weighing ten shekels, full of incense, 
+one young bull, one ram and one male lamb a year old for a burnt offering, 
+one male goat for an offering for wrongdoing, 
+and for the wholeness sacrifice, two oxen, five rams, five male goats and five male lambs a year old. This was the offering of Gamaliel son of Pedahzur. 
+On the ninth day Abidan son of Gideoni, the leader of Benjamin, brought his offering. 
+His offering was one silver platter weighing a hundred thirty shekels and one silver bowl weighing seventy shekels by the sanctuary standard, both full of fine flour mixed with oil for a gift offering, 
+one gold ladle weighing ten shekels, full of incense, 
+one young bull, one ram and one male lamb a year old for a burnt offering, 
+one male goat for an offering for wrongdoing, 
+and for the wholeness sacrifice, two oxen, five rams, five male goats and five male lambs a year old. This was the offering of Abidan son of Gideoni. 
+On the tenth day Ahiezer son of Ammishaddai, the leader of Dan, brought his offering. 
+His offering was one silver platter weighing a hundred thirty shekels and one silver bowl weighing seventy shekels by the sanctuary standard, both full of fine flour mixed with oil for a gift offering, 
+one gold ladle weighing ten shekels, full of incense, 
+one young bull, one ram and one male lamb a year old for a burnt offering, 
+one male goat for an offering for wrongdoing, 
+and for the wholeness sacrifice, two oxen, five rams, five male goats and five male lambs a year old. This was the offering of Ahiezer son of Ammishaddai. 
+On the eleventh day Pagiel son of Ochran, the leader of Asher, brought his offering. 
+His offering was one silver platter weighing a hundred thirty shekels and one silver bowl weighing seventy shekels by the sanctuary standard, both full of fine flour mixed with oil for a gift offering, 
+one gold ladle weighing ten shekels, full of incense, 
+one young bull, one ram and one male lamb a year old for a burnt offering, 
+one male goat for an offering for wrongdoing, 
+and for the wholeness sacrifice, two oxen, five rams, five male goats and five male lambs a year old. This was the offering of Pagiel son of Ochran. 
+On the twelfth day Ahira son of Enan, the leader of Naphtali, brought his offering. 
+His offering was one silver platter weighing a hundred thirty shekels and one silver bowl weighing seventy shekels by the sanctuary standard, both full of fine flour mixed with oil for a gift offering, 
+one gold ladle weighing ten shekels, full of incense, 
+one young bull, one ram and one male lamb a year old for a burnt offering, 
+one male goat for an offering for wrongdoing, 
+and for the wholeness sacrifice, two oxen, five rams, five male goats and five male lambs a year old. This was the offering of Ahira son of Enan. 
+This was the dedication offering for the altar on the day it was anointed, from the leaders of Israel: twelve silver platters, twelve silver bowls and twelve gold ladles. 
+Each silver platter weighed a hundred thirty shekels and each bowl seventy, so all the silver utensils came to two thousand four hundred shekels by the sanctuary standard. 
+The twelve gold ladles full of incense weighed ten shekels each by the sanctuary standard, so all the gold ladles came to a hundred twenty shekels. 
+All the animals for the burnt offering were twelve bulls, twelve rams and twelve male lambs a year old, with their gift offering, and twelve male goats for an offering for wrongdoing. 
+All the animals for the wholeness sacrifice were twenty-four bulls, sixty rams, sixty male goats and sixty male lambs a year old. This was the dedication offering for the altar after it was anointed. 
+When Moses went into the Tent of Meeting to speak with God, he heard the voice speaking to him from above the mercy seat on the ark of the Testimony, from between the two cherubim, and he spoke to him. 

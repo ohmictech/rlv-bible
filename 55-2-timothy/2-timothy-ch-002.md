@@ -17,7 +17,7 @@ But keep away from empty talk, because it only leads people further into disrega
 and their talk will spread like gangrene. Hymenaeus and Philetus are among them. 
 They have missed the way of the truth, saying that the rising again has already happened, and they're wrecking the trust of some. 
 But God's firm foundation stands, with this stamp on it: "The Lord knows who belongs to him," and, "Everyone who names the name of the Lord must turn away from wrong." 
-In a large house there aren't only dishes of gold and silver but also of wood and clay. Some are for honor and some for dishonor. 
+In a large house there aren't only dishes of gold and silver but also of wood and clay. Some are for honor and some for common use. 
 So if anyone keeps himself clean from these, he'll be a dish for honor, set apart, useful to the master, and ready for every good deed. 
 Run from the cravings of youth, and go after rightness, trust, love, and wholeness, along with those who call on the Lord from a clean heart. 
 Have nothing to do with foolish and ignorant arguments; you know they only start quarrels. 

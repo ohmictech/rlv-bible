@@ -17,7 +17,7 @@ The Spirit himself testifies with our spirit that we're children of God;
 and if children, then heirs, heirs of God and joint heirs with Christ, if indeed we suffer with him, that we can also be honored with him. 
 I consider that the hard times of this present time aren't worthy to be compared with the weight which will be revealed toward us. 
 The creation waits with eager expectation for the children of God to be revealed. 
-The creation was subjected to vanity, not of its own will, but because of him who subjected it, in expectation 
+The creation was locked under futility, not because it wanted to be, but because of Him who locked it up, in expectation 
 that the creation itself also will be set free from the bondage of decay into the freedom of the weight of the children of God. 
 We know that the whole creation groans and travails in pain together until now. 
 Not only so, but ourselves also, who have the first fruits of the Spirit, even we ourselves groan within ourselves, waiting for adoption, the setting free of our body. 

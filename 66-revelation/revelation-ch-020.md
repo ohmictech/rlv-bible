@@ -7,7 +7,7 @@ Flourishing and set apart is anyone who has a part in the first rising again. Th
 When the thousand years are over, the Adversary will be let out of his prison, 
 and he'll go out to deceive the nations in the four corners of the land, Gog and Magog, and gather them for battle. Their number is like the sand of the seashore. 
 They marched across the whole land and surrounded the camp of the set-apart ones and the city that's truly loved. But fire came down from the sky from God and burned them up. 
-The Slanderer who had deceived them was thrown into the lake of fire and sulfur, where the beast and the false spokesman already were, and they'll be in anguish day and night for all the eras. 
+The Slanderer who had deceived them was thrown into the lake of fire and sulfur, where the beast and the false spokesman already were, and they'll be in anguish day and night while the eras last. 
 Then I saw a great white throne and the one sitting on it. The land and the sky ran away from his face, and no place was found for them. 
 I saw the dead, great and small, standing in front of the throne, and books were opened. Then another book was opened, which is the book of real life. The dead were judged by what was written in the books, according to what they had done. 
 The sea gave up the dead in it, and Death and Hades gave up the dead in them, and each person was judged according to what they had done. 

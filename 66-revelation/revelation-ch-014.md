@@ -8,7 +8,7 @@ He said in a loud voice, "Fear the Lord and give him weight, because the hour of
 A second messenger followed, saying, "Babylon the great has fallen! She made all the nations drink the wine of the heat of her sleeping around." 
 A third messenger followed them, saying in a loud voice, "If anyone bows down to the beast and its image, and receives a mark on their forehead or on their hand, 
 they too will drink the wine of God's heat, poured full strength into the cup of his anger. They'll be put in anguish with fire and sulfur in front of the set-apart messengers and in front of the Lamb. 
-The smoke of their anguish rises for all the eras, and those who bow down to the beast and its image, and anyone who receives the mark of its name, have no rest day or night. 
+The smoke of their anguish rises while the eras last, and those who bow down to the beast and its image, and anyone who receives the mark of its name, have no rest day or night. 
 This is where the set-apart ones need staying power, those who keep God's commands and hold to the trust of Jesus." 
 Then I heard a voice from the sky saying, "Write this down: 'Flourishing are the dead who die in the Lord from now on.'" "Yes," says the Spirit, "they'll rest from their hard work, because their deeds follow them." 
 Then I looked, and there was a white cloud, and seated on the cloud was someone like a human being, with a gold wreath on his head and a sharp sickle in his hand. 

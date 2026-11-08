@@ -34,6 +34,7 @@ One line per lemma. The rendering column is the law; the third column is the rem
 | aion (n.) | era | World where English idiom demands it. |
 | aionios (adj.) | of the era | Era-long where the word is measuring rather than pointing. Singular *αἰώνιος* is always singular in English: Jude 7 "the era's fire"; Heb 13:20; 2 Pet 1:11; 1 Pet 5:10. Plural **of the eras** belongs only to *αἰώνων* (1 Cor 10:11; Eph 3:11; Heb 9:26; 1 Tim 1:17) and to the Hebrew *olam* divine title (Gen 21:33; Isa 9:6; Rom 14:25, kept plural as a title). |
 | zoe aionios | the real life of the era | The noun carries the quality, the adjective carries the address. |
+| eis tous aionas ton aionon | while the eras last (judgment) / for all the eras (ascription) | Ruled 2026-11-08: the eras are made and they end, since the reign is handed over once everything is subjected (1 Cor 15:24-28), so the phrase can never say **for ever** and must never be turned into a terminus the verse does not name, such as "to the fullness of time," which is a different Greek phrase (Gal 4:4; Eph 1:10) and cannot stand in a doxology. **Judgment:** Rev 14:11, 19:3, 20:10 read **while the eras last**, so the measure is the ages themselves and nothing is said about what follows. **Ascription:** the other 39 occurrences keep **for all the eras**, because a doxology is ascribing and not measuring. |
 | kairos | season | The right moment. |
 | chronos | time | In its plain duration. |
 | mello | coming, about to | 1 Tim 6:19 "for what is coming." |

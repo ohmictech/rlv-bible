@@ -1,6 +1,6 @@
 ﻿After this I heard what sounded like a loud voice of a great crowd in the sky, saying, "Hallelujah! Rescue, power, and weight belong to our God, 
-because his verdicts are true and right. He has passed a verdict on the great prostitute who corrupted the land with her sleeping around, and he has brought payback for the blood of his slaves at her hands." 
-A second time they said, "Hallelujah! Her smoke rises for all the eras." 
+because his verdicts are true and right. He has passed a verdict on the great prostitute who corrupted the land with her sleeping around, and he has brought payback for the blood of her slaves at her hands." 
+A second time they said, "Hallelujah! Her smoke rises while the eras last." 
 The twenty-four elders and the four living creatures fell down and bowed down to God who sits on the throne, saying, "Amen! Hallelujah!" 
 Then a voice came from the throne, saying, "Praise our God, all you his slaves, all you who fear him, small and great!" 
 Then I heard what sounded like the voice of a great crowd, like the sound of rushing waters, and like loud peals of thunder, saying, "Hallelujah! The Lord our God, the one who holds sway over all, has begun to reign! 

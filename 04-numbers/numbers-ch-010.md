@@ -1,36 +1,36 @@
-﻿God spoke to Moses, saying, 
-"Make two trumpets of silver. You will make them of beaten work. You will use them for the calling of the congregation and for the journeying of the camps. 
-When they blow them, all the congregation will gather themselves to you at the door of the Tent of Meeting. 
-If they blow just one, then the princes, the heads of the thousands of Israel, will gather themselves to you. 
-When you blow an alarm, the camps that lie on the east side will go forward. 
-When you blow an alarm the second time, the camps that lie on the south side will go forward. They will blow an alarm for their journeys. 
-But when the assembly is to be gathered together, you will blow, but you won't sound an alarm. 
-"The sons of Aaron, the priests, will blow the trumpets. This will be to you for a statute for the eras throughout your generations. 
-When you go to war in your land against the adversary who oppresses you, then you will sound an alarm with the trumpets. Then you'll be remembered before your God, and you'll be saved from your enemies. 
-"Also in the day of your gladness, and in your set feasts, and in the beginnings of your months, you will blow the trumpets over your burnt offerings, and over the sacrifices of your offerings for wholeness; and they will be to you for a memorial before your God. I'm your God." 
-In the second year, in the second month, on the twentieth day of the month, the cloud was taken up from over the tabernacle of the covenant. 
-The children of Israel went forward on their journeys out of the wilderness of Sinai; and the cloud stayed in the wilderness of Paran. 
-They first went forward according to the commandment of God by Moses. 
-First, the standard of the camp of the children of Judah went forward according to their armies. Nahshon the son of Amminadab was over his army. 
-Nethanel the son of Zuar was over the army of the tribe of the children of Issachar. 
-Eliab the son of Helon was over the army of the tribe of the children of Zebulun. 
-The tabernacle was taken down; and the sons of Gershon and the sons of Merari, who bore the tabernacle, went forward. 
-The standard of the camp of Reuben went forward according to their armies. Elizur the son of Shedeur was over his army. 
-Shelumiel the son of Zurishaddai was over the army of the tribe of the children of Simeon. 
-Eliasaph the son of Deuel was over the army of the tribe of the children of Gad. 
-The Kohathites set forward, bearing the sanctuary. The others set up the tabernacle before they arrived. 
-The standard of the camp of the children of Ephraim set forward according to their armies. Elishama the son of Ammihud was over his army. 
-Gamaliel the son of Pedahzur was over the army of the tribe of the children of Manasseh. 
-Abidan the son of Gideoni was over the army of the tribe of the children of Benjamin. 
-The standard of the camp of the children of Dan, which was the rear guard of all the camps, set forward according to their armies. Ahiezer the son of Ammishaddai was over his army. 
-Pagiel the son of Ochran was over the army of the tribe of the children of Asher. 
-Ahira the son of Enan was over the army of the tribe of the children of Naphtali. 
-Thus were the travels of the children of Israel according to their armies; and they went forward. 
-Moses said to Hobab, the son of Reuel the Midianite, Moses' father-in-law, "We're journeying to the place of which God said, 'I'll give it to you.' Come with us, and we'll treat you well; for God has spoken good concerning Israel." 
-He said to him, "I won't go; but I'll depart to my own land, and to my relatives." 
-Moses said, "Don't leave us, please; because you know how we're to encamp in the wilderness, and you can be our eyes. 
-It will be, if you go with us, yes, it will be, that whatever good God does to us, we'll do the same to you." 
-They set forward from the Mount of God three days' journey. The ark of God's covenant went before them three days' journey, to seek out a resting place for them. 
-The cloud of God was over them by day, when they set forward from the camp. 
-When the ark went forward, Moses said, "Rise up, God, and let your enemies be scattered! Let those who hate you flee before you!" 
-When it rested, he said, "Return, God, to the ten thousands of the thousands of Israel." 
+﻿God spoke to Moses: 
+"Make two silver trumpets, hammered out of one piece. Use them to call the community together and to signal the camps to move. 
+When they are blown, the whole community is to gather to you at the entrance of the Tent of Meeting. 
+If only one is blown, the leaders, the heads of Israel's clans, are to gather to you. 
+When you sound the signal, the camps on the east side are to move out. 
+When you sound it a second time, the camps on the south side are to move out. The signal is to be sounded for each move. 
+But to gather the assembly, blow the trumpets without sounding the signal. 
+"Aaron's sons, the priests, are to blow the trumpets. This is to be a perpetual rule for you through all your generations. 
+When you go to war in your land against an enemy who oppresses you, sound the signal with the trumpets, and you will be remembered before your God and saved from your enemies. 
+"On your days of joy, at your appointed feasts and at the beginning of your months, you are to blow the trumpets over your burnt offerings and over your wholeness sacrifices, and they will be a reminder for you before your God. I am your God." 
+In the second year, on the twentieth day of the second month, the cloud lifted from over the tent of the covenant. 
+The Israelites set out from the Sinai wilderness, and the cloud came to rest in the Paran wilderness. 
+They set out for the first time at God's command through Moses. 
+First the banner of the camp of Judah set out, by their units, with Nahshon son of Amminadab in charge of his unit. 
+Nethanel son of Zuar was in charge of the unit of the tribe of Issachar. 
+Eliab son of Helon was in charge of the unit of the tribe of Zebulun. 
+Then the tent was taken down, and the Gershonites and the Merarites set out, carrying the tent. 
+The banner of the camp of Reuben set out, by their units, with Elizur son of Shedeur in charge of his unit. 
+Shelumiel son of Zurishaddai was in charge of the unit of the tribe of Simeon. 
+Eliasaph son of Deuel was in charge of the unit of the tribe of Gad. 
+Then the Kohathites set out, carrying the Holy Place, and the tent was to be set up before they arrived. 
+The banner of the camp of Ephraim set out, by their units, with Elishama son of Ammihud in charge of his unit. 
+Gamaliel son of Pedahzur was in charge of the unit of the tribe of Manasseh. 
+Abidan son of Gideoni was in charge of the unit of the tribe of Benjamin. 
+The banner of the camp of Dan set out last, behind all the camps, by their units, with Ahiezer son of Ammishaddai in charge of his unit. 
+Pagiel son of Ochran was in charge of the unit of the tribe of Asher. 
+Ahira son of Enan was in charge of the unit of the tribe of Naphtali. 
+That was the order of the Israelites' march, by their units, as they set out. 
+Moses said to Hobab son of Reuel the Midianite, his father-in-law, "We are setting out for the place God promised: 'I will give it to you.' Come with us and we will treat you well, because God has promised good things for Israel." 
+He answered, "I won't come. I am going back to my own land and my own people." 
+Moses said, "Please don't leave us. You know where we should camp in the wilderness, and you can be our eyes. 
+If you come with us, we will share with you whatever good God does for us." 
+They set out from the mountain of God and traveled for three days, and the ark of God's covenant went ahead of them those three days to find them a place to rest. 
+The cloud of God was over them by day as they set out from the camp. 
+Whenever the ark set out, Moses said, "Rise up, God, and let your enemies scatter. Let those who hate you run from you." 
+And when it came to rest, he said, "Come back, God, to the countless thousands of Israel." 

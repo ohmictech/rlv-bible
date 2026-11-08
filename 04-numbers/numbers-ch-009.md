@@ -1,23 +1,23 @@
-﻿God spoke to Moses in the wilderness of Sinai, in the first month of the second year after they had come out of the land of Egypt, saying, 
-"Let the children of Israel keep the Passover in its appointed season. 
-On the fourteenth day of this month, at evening, you will keep it in its appointed season. You will keep it according to all its statutes and according to all its ordinances." 
-Moses told the children of Israel that they should keep the Passover. 
-They kept the Passover in the first month, on the fourteenth day of the month at evening, in the wilderness of Sinai. According to all that God commanded Moses, so the children of Israel did. 
-There were certain men who were unclean because of the dead body of a man, so that they couldn't keep the Passover on that day, and they came before Moses and Aaron on that day. 
-Those men said to him, "We're unclean because of the dead body of a man. Why are we kept back, that we can't offer the offering of God in its appointed season among the children of Israel?" 
-Moses answered them, "Wait, that I can hear what God will command concerning you." 
-God spoke to Moses, saying, 
-"Say to the children of Israel, 'If any man of you or of your generations is unclean by reason of a dead body, or is on a journey far away, he will still keep the Passover to God. 
-In the second month, on the fourteenth day at evening they will keep it; they will eat it with unleavened bread and bitter herbs. 
-They will leave none of it until the morning, nor break a bone of it. According to all the statute of the Passover they will keep it. 
-But the man who's clean, and isn't on a journey, and fails to keep the Passover, that soul will be cut off from his people. Because he didn't offer the offering of God in its appointed season, that man will bear his guilt. 
-"'If a foreigner lives among you and desires to keep the Passover to God, then he will do so according to the statute of the Passover, and according to its ordinance. You will have one statute, both for the foreigner and for him who's born in the land.'" 
-On the day that the tabernacle was raised up, the cloud covered the tabernacle, even the Tent of the Testimony. At evening it was over the tabernacle, as it were the appearance of fire, until morning. 
-So it was continually. The cloud covered it, and the appearance of fire by night. 
-Whenever the cloud was taken up from over the Tent, then after that the children of Israel traveled; and in the place where the cloud remained, there the children of Israel encamped. 
-At the commandment of God, the children of Israel traveled, and at the commandment of God they encamped. As long as the cloud remained on the tabernacle they remained encamped. 
-When the cloud stayed on the tabernacle many days, then the children of Israel kept God's command, and didn't travel. 
-Sometimes the cloud was a few days on the tabernacle; then according to the commandment of God they remained encamped, and according to the commandment of God they traveled. 
-Sometimes the cloud was from evening until morning; and when the cloud was taken up in the morning, they traveled; or by day and by night, when the cloud was taken up, they traveled. 
-Whether it was two days, or a month, or a year that the cloud stayed on the tabernacle, remaining on it, the children of Israel remained encamped, and didn't travel; but when it was taken up, they traveled. 
-At the commandment of God they encamped, and at the commandment of God they traveled. They kept God's command, at the commandment of God by Moses. 
+﻿God spoke to Moses in the Sinai wilderness, in the first month of the second year after they came out of Egypt: 
+"The Israelites are to keep the Passover at its proper time. 
+On the fourteenth day of this month at twilight, keep it at its proper time, following all its rules and all its decisions." 
+Moses told the Israelites to keep the Passover. 
+They kept the Passover in the first month, on the fourteenth day of the month at twilight, in the Sinai wilderness, doing everything just as God commanded Moses. 
+There were some men who were unclean because of a dead body, so they couldn't keep the Passover that day, and they came to Moses and Aaron that day. 
+These men said to him, "We are unclean because of a dead body. Why should we be kept back from bringing God's offering at its proper time with the other Israelites?" 
+Moses answered them, "Wait here while I hear what God commands about you." 
+God spoke to Moses: 
+"Say to the Israelites, 'If any of you or your descendants is unclean because of a dead body, or is on a long journey, he may still keep the Passover to God. 
+He is to keep it in the second month, on the fourteenth day at twilight, and eat it with bread made without yeast and bitter herbs. 
+He is to leave none of it until morning and not break any of its bones. He is to keep it following every rule of the Passover. 
+But anyone who is clean and not on a journey and fails to keep the Passover is to be cut off from his people, because he didn't bring God's offering at its proper time. That man will carry his guilt. 
+"'If a foreigner living among you wants to keep the Passover to God, he is to do so following the rule and the decision about it. You are to have one rule, both for the foreigner and for the man born in the land.'" 
+On the day the tent was set up, the cloud covered the tent, the Tent of the Testimony. In the evening it was over the tent like a fire until morning. 
+That was how it went all the time: the cloud covered it, and at night it looked like fire. 
+Whenever the cloud lifted from over the tent, the Israelites set out, and wherever the cloud settled, there the Israelites camped. 
+At God's command the Israelites set out, and at God's command they camped. As long as the cloud stayed on the tent, they stayed camped. 
+When the cloud stayed on the tent for many days, the Israelites obeyed God's command and didn't set out. 
+Sometimes the cloud stayed on the tent only a few days, and at God's command they camped and at God's command they set out. 
+Sometimes the cloud stayed from evening until morning, and when it lifted in the morning, they set out. Whether by day or by night, whenever it lifted, they set out. 
+Whether it was two days, a month or a year that the cloud stayed on the tent, the Israelites stayed camped and didn't set out, but when it lifted, they set out. 
+At God's command they camped and at God's command they set out. They did what God required, at God's command through Moses. 

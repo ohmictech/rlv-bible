@@ -1,35 +1,35 @@
-﻿God said to Moses, "Chisel two stone tablets like the first. I'll write on the tablets the words that were on the first tablets, which you broke. 
-Be ready by the morning, and come up in the morning to Mount Sinai, and present yourself there to me on the top of the mountain. 
-No one will come up with you or be seen anywhere on the mountain. Don't let the flocks or herds graze in front of that mountain." 
-He chiseled two tablets of stone like the first; then Moses rose up early in the morning, and went up to Mount Sinai, as God had commanded him, and took in his hand two stone tablets. 
-God descended in the cloud, and stood with him there, and proclaimed God's name. 
-God passed by before him, and proclaimed, "God! God, a merciful and gracious God, slow to anger, and abundant in loving kindness and truth, 
-keeping loving kindness for thousands, forgiving guilt and disobedience and drifts; and who will by no means clear the guilty, visiting the guilt of the fathers on the children, and on the children's children, on the third and on the fourth generation." 
-Moses hurried and bowed his head toward the earth, and worshiped. 
-He said, "If now I have found favor in your sight, Lord, please let the Lord go among us, even though this is a stiff-necked people; pardon our guilt and our wrongdoing, and take us for your inheritance." 
-He said, "Look, I make a covenant: before all your people I'll do marvels, such as haven't been worked in all the earth, nor in any nation; and everyone among whom you're will see the work of God; for it's an awesome thing that I do with you. 
-Observe that which I command you today. Look, I'll drive out before you the Amorite, the Canaanite, the Hittite, the Perizzite, the Hivite, and the Jebusite. 
-Be careful, lest you make a covenant with the inhabitants of the land where you're going, lest it be for a snare among you; 
-but you will break down their altars, and dash in pieces their pillars, and you will cut down their Asherah poles; 
-for you will worship no other god; for God, whose name is Jealous, is a jealous God. 
-"Don't make a covenant with the inhabitants of the land, lest they play the prostitute after their gods, and sacrifice to their gods, and one call you and you eat of his sacrifice; 
-and you take of their daughters to your sons, and their daughters play the prostitute after their gods, and make your sons play the prostitute after their gods. 
-"You will make no cast idols for yourselves. 
-"You will keep the feast of unleavened bread. Seven days you will eat unleavened bread, as I commanded you, at the time appointed in the month Abib; for in the month Abib you came out of Egypt. 
-"All that opens the womb is mine; and all your livestock that's male, the firstborn of cow and sheep. 
-You will buy back the firstborn of a donkey with a lamb. If you won't buy it back, then you will break its neck. You will buy back all the firstborn of your sons. No one will appear before me empty. 
-"Six days you will work, but on the seventh day you will rest: in plowing time and in harvest you will rest. 
-"You will observe the feast of weeks with the first fruits of wheat harvest, and the feast of harvest at the year's end. 
-Three times in the year all your males will appear before the God of Israel. 
-I'll drive out nations before you and enlarge your borders; neither will any man desire your land when you go up to appear before God, your God, three times in the year. 
-"Don't offer the blood of my sacrifice with leavened bread. The sacrifice of the feast of the Passover won't be left to the morning. 
-"You will bring the first of the first fruits of your ground to the house of your God. "You won't boil a young goat in its mother's milk." 
-God said to Moses, "Write these words; for in accordance with these words I have made a covenant with you and with Israel." 
-He was there with God forty days and forty nights; he neither ate bread, nor drank water. He wrote on the tablets the words of the covenant, the ten commandments. 
-When Moses came down from Mount Sinai with the two tablets of the covenant in Moses' hand, when he came down from the mountain, Moses didn't know that the skin of his face shone by reason of his speaking with him. 
-When Aaron and all the children of Israel saw Moses, look, the skin of his face shone; and they were afraid to come near him. 
-Moses called to them, and Aaron and all the rulers of the congregation returned to him; and Moses spoke to them. 
-Afterward all the children of Israel came near, and he gave them all the commandments that God had spoken with him on Mount Sinai. 
-When Moses was done speaking with them, he put a veil on his face. 
-But when Moses went in before God to speak with him, he took the veil off, until he came out; and he came out, and spoke to the children of Israel that which he was commanded. 
-The children of Israel saw Moses' face, that the skin of Moses' face shone; so Moses put the veil on his face again, until he went in to speak with him. 
+﻿God said to Moses, "Cut two stone tablets like the first ones, and I will write on them the words that were on the first tablets, the ones you smashed. 
+Be ready in the morning, and come up Mount Sinai and stand before me there on top of the mountain. 
+No one is to come up with you, and no one is to be seen anywhere on the mountain. Don't let the flocks or herds graze in front of it." 
+So Moses cut two stone tablets like the first ones, got up early in the morning and went up Mount Sinai as God had commanded him, carrying the two stone tablets. 
+God came down in the cloud and stood there with him, and proclaimed his name. 
+God passed in front of him and proclaimed, "God, God, compassionate and gracious, slow to anger, full of loyal love and truth, 
+keeping loyal love for thousands, forgiving guilt, disobedience and drifting, but never letting the guilty off, bringing the guilt of the fathers on their children and grandchildren, to the third and fourth generation." 
+Moses bowed quickly to the ground and worshiped. 
+He said, "If I have found favor with you, Lord, then please go among us. This is a stubborn people, but forgive our guilt and our wrongdoing, and take us as your own." 
+God said, "Look, I am making a covenant. Before all your people I will do wonders such as have never been done in any nation on earth. Everyone you live among will see what God does, because what I am going to do with you is awe-inspiring. 
+Do what I command you today. I am going to drive out the Amorites, Canaanites, Hittites, Perizzites, Hivites and Jebusites ahead of you. 
+Be careful not to make a covenant with the people living in the land you are going to, or it will become a trap among you. 
+Tear down their altars, smash their sacred pillars and cut down their Asherah poles, 
+because you must not worship any other god. God, whose name is Jealous, is a jealous God. 
+"Don't make a covenant with the people of the land, or when they go chasing after their gods and sacrifice to them, one of them will invite you and you will eat his sacrifice, 
+and you will take their daughters for your sons, and their daughters will go chasing after their own gods and lead your sons to do the same. 
+"Don't make any cast idols for yourselves. 
+"Keep the festival of bread without yeast. For seven days eat bread without yeast, as I commanded you, at the set time in the month of Abib, because you came out of Egypt in the month of Abib. 
+"Every firstborn is mine, along with every firstborn male of your livestock, of cow and sheep. 
+Buy back the firstborn donkey with a lamb. If you don't buy it back, break its neck. Buy back every firstborn of your sons. No one is to come before me empty-handed. 
+"Work for six days, but rest on the seventh day. Even at plowing time and harvest you are to rest. 
+"Keep the festival of weeks with the firstfruits of the wheat harvest, and the festival of ingathering at the end of the year. 
+Three times a year every male among you must appear before God, the God of Israel. 
+I will drive out nations ahead of you and widen your borders, and no one will covet your land while you go up three times a year to appear before God your God. 
+"Don't offer the blood of my sacrifice with bread that has yeast, and don't leave the Passover sacrifice until morning. 
+"Bring the best of the firstfruits of your ground to the house of your God. "Don't boil a young goat in its mother's milk." 
+God said to Moses, "Write these words down, because on the basis of these words I have made a covenant with you and with Israel." 
+Moses was there with God forty days and forty nights, without eating bread or drinking water, and he wrote on the tablets the words of the covenant, the ten words. 
+When Moses came down from Mount Sinai with the two tablets of the covenant in his hands, he didn't know that his face was glowing because he had been speaking with God. 
+When Aaron and all the Israelites saw Moses, his face was glowing, and they were afraid to come near him. 
+Moses called them, and Aaron and all the leaders of the community came back to him, and Moses spoke to them. 
+After that all the Israelites came near, and he gave them everything God had commanded him on Mount Sinai. 
+When Moses had finished speaking with them, he put a veil over his face. 
+But whenever Moses went in before God to speak with him, he took the veil off until he came out, and then he came out and told the Israelites what he had been commanded. 
+The Israelites saw that Moses' face was glowing, so Moses put the veil back over his face until he went in to speak with God. 

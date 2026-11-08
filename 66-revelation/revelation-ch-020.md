@@ -1,5 +1,5 @@
 ﻿Then I saw a messenger coming down out of the sky, holding the key to the deep and a great chain in his hand. 
-He seized the dragon, that ancient snake, who's the Slanderer and the Adversary, who deceives the whole world, and chained him up for a thousand years. 
+He seized the dragon, that ancient snake, the Slanderer and the Adversary, who deceives the whole world, and chained him up for a thousand years. 
 He threw him into the deep, locked it, and sealed it over him, so that he could no longer deceive the nations until the thousand years were finished. After that, he must be set free for a short time. 
 I saw thrones, and those who sat on them were given the right to pass a verdict. I saw the lives of those who had been beheaded because of the witness Jesus gave and because of God's message, and of those who hadn't bowed down to the beast or to its image and hadn't received the mark on their forehead or hand. They came to life and reigned with Christ for a thousand years. 
 The rest of the dead didn't come to life until the thousand years were finished. This is the first rising again. 

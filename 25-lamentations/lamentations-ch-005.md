@@ -17,6 +17,6 @@ The crown has fallen from our head. Woe to us, for we have drifted!
 This our heart is faint. These things our eyes are dim: 
 for the mountain of Zion, which is desolate. The foxes walk on it. 
 You, God, remain for the eras. Your throne is from generation to generation. 
-Why do you forget us for the eras, and forsake us for so long a time? 
+Why do you forget us for a lifetime, and forsake us for so long a time? 
 Turn us to yourself, God, and we'll be turned. Renew our days as of old. 
 But you have utterly rejected us. You're very angry against us. 

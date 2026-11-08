@@ -2,7 +2,7 @@
 They have given the dead bodies of your servants to be food for the birds of the sky, the flesh of your saints to the animals of the earth. 
 They have shed their blood like water around Jerusalem. There was no one to bury them. 
 We have become a reproach to our neighbors, a scoffing and derision to those who are around us. 
-How long, God? Will you be angry for the eras? Will your jealousy burn like fire? 
+How long, God? Will you be angry for a lifetime? Will your jealousy burn like fire? 
 Pour out your wrath on the nations that don't know you, on the kingdoms that don't call on your name, 
 for they have devoured Jacob, and destroyed his homeland. 
 Don't hold the guilt of our forefathers against us. Let your tender mercies speedily meet us, for we're in desperate need. 

@@ -15,6 +15,6 @@ Shepherd your people with your staff, the flock of your heritage, who dwell by t
 "As in the days of your coming out of the land of Egypt, I'll show them marvelous things." 
 The nations will see and be ashamed of all their might. They'll lay their hand on their mouth. Their ears will be deaf. 
 They'll lick the dust like a serpent. Like crawling things of the earth, they'll come trembling out of their dens. They'll come with fear to our God, and will be afraid because of you. 
-Who's a God like you, who pardons guilt, and passes over the disobedience of the remnant of his heritage? He doesn't retain his anger for the eras, because he delights in loving kindness. 
+Who's a God like you, who pardons guilt, and passes over the disobedience of the remnant of his heritage? He doesn't retain his anger for a lifetime, because he delights in loving kindness. 
 He'll again have compassion on us. He'll tread our guilt under foot. You'll cast all their mistakes into the depths of the sea. 
 You'll give truth to Jacob, and mercy to Abraham, as you have sworn to our fathers from the days of old. 

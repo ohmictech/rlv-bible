@@ -1,4 +1,4 @@
-﻿The Chief Musician. A Psalm by David. How long, God? Will you forget me for the eras? How long will you hide your face from me? 
+﻿The Chief Musician. A Psalm by David. How long, God? Will you forget me for a lifetime? How long will you hide your face from me? 
 How long will I take counsel in my soul, having sorrow in my heart every day? How long will my enemy triumph over me? 
 Look, and answer me, God, my God. Give light to my eyes, lest I sleep in death; 
 lest my enemy say, "I have prevailed against him;" lest my adversaries rejoice when I fall. 

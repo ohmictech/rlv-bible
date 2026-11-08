@@ -20,7 +20,7 @@ though you have crushed us in the haunt of jackals, and covered us with the shad
 If we have forgotten the name of our God, or spread out our hands to a strange god, 
 won't God search this out? He knows the secrets of the heart. 
 Yes, for your sake we're killed all day long. We're regarded as sheep for the slaughter. 
-Wake up! Why do you sleep, Lord? Arise! Don't reject us for the eras. 
+Wake up! Why do you sleep, Lord? Arise! Don't reject us for a lifetime. 
 Why do you hide your face, and forget our affliction and our oppression? 
 Our soul is bowed down to the dust. Our body clings to the earth. 
 Rise up to help us. Buy us back for your loving kindness' sake. 

@@ -28,7 +28,7 @@ It's good for a man that he bear the yoke in his youth.
 Let him sit alone and keep silence, because he has laid it on him. 
 Let him put his mouth in the dust, if it's so that there can be hope. 
 Let him give his cheek to him who strikes him. Let him be filled full of reproach. 
-The Lord won't cast off for the eras. 
+The Lord won't cast off for a lifetime. 
 Though he causes grief, yet he'll have compassion according to the multitude of his loving kindnesses. 
 He doesn't afflict willingly, nor grieve the children of men. 
 To crush under foot all the prisoners of the earth, 

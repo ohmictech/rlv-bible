@@ -2,7 +2,7 @@
 You have forgiven the guilt of your people. You have covered all their wrongdoing. Selah. 
 You have taken away all your wrath. You have turned from the fierceness of your anger. 
 Turn us, God of our salvation, and cause your indignation toward us to cease. 
-Will you be angry with us for the eras? Will you draw out your anger to all generations? 
+Will you be angry with us for a lifetime? Will you draw out your anger to all generations? 
 Won't you revive us again, that your people may rejoice in you? 
 Show us your loving kindness, God. Grant us your salvation. 
 I'll hear what God, God, will speak, for he'll speak peace to his people, his saints; but let them not turn again to folly. 

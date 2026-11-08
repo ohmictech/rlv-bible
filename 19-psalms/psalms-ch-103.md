@@ -6,7 +6,7 @@ who satisfies your desire with good things, so that your youth is renewed like t
 God executes righteous acts, and justice for everyone who's oppressed. 
 He made known his ways to Moses, his deeds to the children of Israel. 
 God is merciful and gracious, slow to anger, and abundant in loving kindness. 
-He won't always accuse; neither will he stay angry for the eras. 
+He won't always accuse; neither will he stay angry for a lifetime. 
 He hasn't dealt with us according to our mistakes, nor repaid us for our guilt. 
 As the sky are high above the earth, so great is his loving kindness toward those who fear him. 
 As far as the east is from the west, so far has he removed our rebellion from us. 

@@ -43,7 +43,7 @@ You have exalted the right hand of his adversaries. You have made all of his ene
 Yes, you turn back the edge of his sword, and haven't supported him in battle. 
 You have ended his splendor, and thrown his throne down to the ground. 
 You have shortened the days of his youth. You have covered him with shame. Selah. 
-How long, God? Will you hide yourself for the eras? Will your wrath burn like fire? 
+How long, God? Will you hide yourself for a lifetime? Will your wrath burn like fire? 
 Remember how short my time is, for what vanity you have created all the children of men! 
 What man is he who will live and not see death, who will deliver his soul from the power of Hades? Selah. 
 Lord, where are your former loving kindnesses, which you swore to David in your faithfulness? 

@@ -11,11 +11,11 @@ The violence done to your brother Jacob, shame will cover you, and you'll be cut
 In the day that you stood on the other side, in the day that strangers carried away his substance and foreigners entered into his gates and cast lots for Jerusalem, even you were like one of them. 
 But don't look down on your brother in the day of his disaster, and don't rejoice over the children of Judah in the day of their destruction. Don't speak proudly in the day of distress. 
 Don't enter into the gate of my people in the day of their calamity. Don't look down on their affliction in the day of their calamity, neither seize their wealth on the day of their calamity. 
-Don't stand in the crossroads to cut off those of his who escape. Don't deliver up those of his who remain in the day of distress. 
+Don't stand in the crossroads to cut off those of his who escape. Don't hand over his survivors in the day of distress. 
 The day of God is near all the nations! As you have done, it'll be done to you. Your deeds will return upon your own head. 
 As you have drunk on my holy mountain, so all the nations will drink continually. Yes, they'll drink, swallow down, and will be as though they hadn't been. 
 But in Mount Zion, there will be those who escape, and it'll be holy. The house of Jacob will possess their possessions. 
-The house of Jacob will be a fire, the house of Joseph a flame, and the house of Esau for stubble. They'll burn among them and devour them. There won't be any remaining to the house of Esau." Indeed, God has spoken. 
+The house of Jacob will be a fire, the house of Joseph a flame, and the house of Esau for stubble. They'll burn among them and devour them. There won't be a survivor left to the house of Esau." Indeed, God has spoken. 
 Those of the South will possess the mountain of Esau, and those of the lowland, the Philistines. They'll possess the field of Ephraim, and the field of Samaria. Benjamin will possess Gilead. 
 The captives of this army of the children of Israel, who are among the Canaanites, will possess even to Zarephath; and the captives of Jerusalem, who are in Sepharad, will possess the cities of the Negev. 
 Saviors will go up on Mount Zion to judge the mountains of Esau, and the kingdom will be God's. 

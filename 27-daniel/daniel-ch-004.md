@@ -1,6 +1,6 @@
 ﻿Nebuchadnezzar the king, to everyones, nations, and languages, who dwell in all the earth: Peace be multiplied to you. 
 It has seemed good to me to show the signs and wonders that the Most High God has worked toward me. 
-How great are his signs! How mighty are his wonders! His kingdom is an perpetual kingdom. His dominion is from generation to generation. 
+How great are his signs! How mighty are his wonders! His kingdom is a perpetual kingdom. His dominion is from generation to generation. 
 I, Nebuchadnezzar, was at rest in my house, and flourishing in my palace. 
 I saw a dream which made me afraid; and the thoughts on my bed and the visions of my head troubled me. 
 So I made a decree to bring in all the wise men of Babylon before me, that they might make known to me the interpretation of the dream. 
@@ -31,7 +31,7 @@ The king spoke and said, "Isn't this great Babylon, which I have built for the r
 While the word was in the king's mouth, a voice came from the sky, saying, "O King Nebuchadnezzar, to you it's spoken: 'The kingdom has departed from you. 
 You will be driven from men, and your dwelling will be with the animals of the field. You will be made to eat grass like oxen. Seven times will pass over you, until you know that the Most High rules in the kingdom of men, and gives it to whomever he'll.'" 
 This was fulfilled the same hour on Nebuchadnezzar. He was driven from men and ate grass like oxen; and his body was wet with the dew of the sky until his hair had grown like eagles' feathers, and his nails like birds' claws. 
-At the end of the days I, Nebuchadnezzar, lifted up my eyes to the sky, and my understanding returned to me; and I blessed the Most High, and I praised and honored him who lives for the eras, for his dominion is an perpetual dominion, and his kingdom from generation to generation. 
+At the end of the days I, Nebuchadnezzar, lifted up my eyes to the sky, and my understanding returned to me; and I blessed the Most High, and I praised and honored him who lives for the eras, for his dominion is a perpetual dominion, and his kingdom from generation to generation. 
 All the inhabitants of the earth are reputed as nothing; and he does according to his will in the army of the sky, and among the inhabitants of the earth; and no one can stop his hand, or ask him, "What are you doing?" 
 At the same time my understanding returned to me; and for the glory of my kingdom, my majesty and brightness returned to me. My counselors and my lords sought me; and I was established in my kingdom, and excellent greatness was added to me. 
 Now I, Nebuchadnezzar, praise and extol and honor the King of the sky; for all his works are truth, and his ways justice; and those who walk in pride he's able to abase. 

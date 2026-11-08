@@ -5,7 +5,7 @@ They'll rebuild the old ruins. They'll raise up the former devastated places. Th
 Strangers will stand and feed your flocks. Foreigners will work your fields and your vineyards. 
 But you'll be called God's priests. Men will call you the servants of our God. You'll eat the wealth of the nations. You'll boast in their glory. 
 Instead of your shame you'll have double. Instead of dishonor, they'll rejoice in their portion. So in their land they'll possess double. Perpetual joy will be to them. 
-"I, God, love justice. I hate robbery and guilt. I'll give them their reward in truth and I'll make an perpetual covenant with them. 
+"I, God, love justice. I hate robbery and guilt. I'll give them their reward in truth and I'll make a perpetual covenant with them. 
 Their offspring will be known among the nations, and their offspring among the peoples. Everyone who sees them will acknowledge them, that they're the offspring which God has blessed." 
 I'll greatly rejoice in God! My soul will be joyful in my God, for he has clothed me with the garments of salvation. He has covered me with the robe of righteousness, as a bridegroom decks himself with a garland and as a bride adorns herself with her jewels. 
 As the earth produces its bud, and as the garden causes the things that are sown in it to spring up, so God will cause righteousness and praise to spring up before all the nations. 

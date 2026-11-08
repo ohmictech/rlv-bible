@@ -31,4 +31,4 @@ for on this day things will be made right for you, to cleanse you. You will be c
 It's a Sabbath of solemn rest to you, and you will afflict your souls. It's a statute for the eras. 
 The priest, who's anointed and who's consecrated to be priest in his father's place, will make the making right, and will put on the linen garments, even the holy garments. 
 Then he will make things right for the Holy Sanctuary; and he will make things right for the Tent of Meeting and for the altar; and he will make things right for the priests and for everyone in the assembly. 
-"This will be an perpetual statute for you, to make things right for the children of Israel once in the year because of all their mistakes." It was done as God commanded Moses. 
+"This will be a perpetual statute for you, to make things right for the children of Israel once in the year because of all their mistakes." It was done as God commanded Moses. 

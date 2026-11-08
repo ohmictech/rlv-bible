@@ -11,7 +11,7 @@ A fiery stream issued and came out from before him. Thousands of thousands minis
 "I watched at that time because of the voice of the arrogant words which the horn spoke. I watched even until the animal was slain, and its body destroyed, and it was given to be burned with fire. 
 As for the rest of the animals, their dominion was taken away; yet their lives were prolonged for a season and a time. 
 "I saw in the night visions, and look, there came with the clouds of the sky one like a son of man, and he came even to the Ancient of Days, and they brought him near before him. 
-Dominion was given him, and glory, and a kingdom, that everyones, nations, and languages should serve him. His dominion is an perpetual dominion, which won't pass away, and his kingdom one that won't be destroyed. 
+Dominion was given him, and glory, and a kingdom, that everyones, nations, and languages should serve him. His dominion is a perpetual dominion, which won't pass away, and his kingdom one that won't be destroyed. 
 "As for me, Daniel, my spirit was grieved within my body, and the visions of my head troubled me. 
 I came near to one of those who stood by, and asked him the truth concerning all this. "So he told me, and made me know the interpretation of the things. 
 'These great animals, which are four, are four kings, who will arise out of the earth. 
@@ -24,5 +24,5 @@ until the Ancient of Days came, and judgment was given to the saints of the Most
 As for the ten horns, ten kings will arise out of this kingdom. Another will arise after them; and he'll be different from the former, and he'll put down three kings. 
 He'll speak words against the Most High, and will wear out the saints of the Most High. He'll plan to change the times and the law; and they'll be given into his hand until a time and times and half a time. 
 "'But the judgment will be set, and they'll take away his dominion, to consume and to destroy it to the end. 
-The kingdom and the dominion, and the greatness of the kingdoms under the whole sky, will be given to the people of the saints of the Most High. His kingdom is an perpetual kingdom, and all dominions will serve and obey him.' 
+The kingdom and the dominion, and the greatness of the kingdoms under the whole sky, will be given to the people of the saints of the Most High. His kingdom is a perpetual kingdom, and all dominions will serve and obey him.' 
 "Here's the end of the matter. As for me, Daniel, my thoughts troubled me greatly, and my face was changed in me; but I kept the matter in my heart." 

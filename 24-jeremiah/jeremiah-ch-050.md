@@ -2,7 +2,7 @@
 "Declare among the nations and publish, and set up a standard; publish, and don't conceal; say, 'Babylon has been taken, Bel is disappointed, Merodach is dismayed! Her images are disappointed. Her idols are dismayed.' 
 A nation comes up out of the north against her, which will make her land desolate, and no one will dwell in it. They have fled. They're gone, both man and animal. 
 "In those days, and in that time," says God, "the children of Israel will come, they and the children of Judah together; they'll go on their way weeping, and will seek their God. 
-They'll inquire concerning Zion with their faces turned toward it, saying, 'Come, and join yourselves to God in an perpetual covenant that won't be forgotten.' 
+They'll inquire concerning Zion with their faces turned toward it, saying, 'Come, and join yourselves to God in a perpetual covenant that won't be forgotten.' 
 My people have been lost sheep. Their shepherds have caused them to go astray. They have turned them away on the mountains. They have gone from mountain to hill. They have forgotten their resting place. 
 Everyone who found them have devoured them. Their adversaries said, 'We aren't guilty, because they have wronged God, the habitation of righteousness, even God, the hope of their fathers.' 
 "Flee out of the middle of Babylon! Go out of the land of the Chaldeans, and be as the male goats before the flocks. 

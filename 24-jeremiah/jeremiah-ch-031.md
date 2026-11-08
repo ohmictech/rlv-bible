@@ -1,6 +1,6 @@
 ﻿"At that time," says God, "I'll be the God of all the families of Israel, and they'll be my people." 
 God says, "The people who survive the sword found favor in the wilderness; even Israel, when I went to cause him to rest." 
-God appeared of old to me, saying, "Yes, I have loved you with an perpetual love. So I have drawn you with loving kindness. 
+God appeared of old to me, saying, "Yes, I have loved you with a perpetual love. So I have drawn you with loving kindness. 
 I'll build you again, and you'll be built, O virgin of Israel. You'll again be adorned with your tambourines, and will go out in the dances of those who make merry. 
 Again you'll plant vineyards on the mountains of Samaria. The planters will plant, and will enjoy its fruit. 
 There will be a day that the watchmen on the hills of Ephraim cry, 'Arise! Let's go up to Zion to our God.'" 

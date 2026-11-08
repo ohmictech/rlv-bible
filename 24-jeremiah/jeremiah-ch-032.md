@@ -37,7 +37,7 @@ Now the God of Israel says concerning this city, about which you say, "It's give
 "Look, I'll gather them out of all the countries where I have driven them in my anger, and in my wrath, and in great indignation; and I'll bring them again to this place. I'll cause them to dwell safely. 
 Then they'll be my people, and I'll be their God. 
 I'll give them one heart and one way, that they can fear me for the eras, for their good and the good of their children after them. 
-I'll make an perpetual covenant with them, that I won't turn away from following them, to do them good. I'll put my fear in their hearts, that they can't depart from me. 
+I'll make a perpetual covenant with them, that I won't turn away from following them, to do them good. I'll put my fear in their hearts, that they can't depart from me. 
 Yes, I'll rejoice over them to do them good, and I'll plant them in this land assuredly with my whole heart and with my whole soul." 
 God says: "Just as I have brought all this great bad on this people, so I'll bring on them all the good that I have promised them. 
 Fields will be bought in this land, about which you say, 'It's desolate, without man or animal. It's given into the hand of the Chaldeans.' 

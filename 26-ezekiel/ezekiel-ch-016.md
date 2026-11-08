@@ -57,7 +57,7 @@ Your sister Sodom wasn't mentioned by your mouth in the day of your pride,
 before your guilt was uncovered, as at the time of the reproach of the daughters of Syria, and of everyone who's around her, the daughters of the Philistines, who despise you all around. 
 You have borne your lewdness and your abominations," says God. 
 "'God says: "I'll also deal with you as you have done, who have despised the oath in breaking the covenant. 
-Nevertheless I'll remember my covenant with you in the days of your youth, and I'll establish an perpetual covenant with you. 
+Nevertheless I'll remember my covenant with you in the days of your youth, and I'll establish a perpetual covenant with you. 
 Then you'll remember your ways and be ashamed when you receive your sisters, your elder sisters and your younger; and I'll give them to you for daughters, but not by your covenant. 
 I'll establish my covenant with you. Then you'll know that I'm God; 
 that you can remember, and be confounded, and never open your mouth any more because of your shame, when I have forgiven you all that you have done," says God.'" 

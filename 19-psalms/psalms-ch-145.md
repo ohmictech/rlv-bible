@@ -10,7 +10,7 @@ God is good to all. His tender mercies are over all his works.
 All your works will give thanks to you, God. Your saints will extol you. 
 They'll speak of the glory of your kingdom, and talk about your power, 
 to make known to the sons of men his mighty acts, the glory of the majesty of his kingdom. 
-Your kingdom is an perpetual kingdom. Your dominion endures throughout all generations. God is faithful in all his words, and loving in all his deeds. 
+Your kingdom is a perpetual kingdom. Your dominion endures throughout all generations. God is faithful in all his words, and loving in all his deeds. 
 God upholds everyone who falls, and raises up everyone who's bowed down. 
 The eyes of all wait for you. You give them their food in due season. 
 You open your hand, and satisfy the desire of every living thing. 

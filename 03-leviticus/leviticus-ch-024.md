@@ -5,7 +5,7 @@ He will keep in order the lamps on the pure gold lamp stand before God continual
 "You will take fine flour, and bake twelve cakes of it: two tenths of an ephah will be in one cake. 
 You will set them in two rows, six on a row, on the pure gold table before God. 
 You will put pure frankincense on each row, that it might be to the bread for a memorial, even an offering made by fire to God. 
-Every Sabbath day he will set it in order before God continually. It's an perpetual covenant on the behalf of the children of Israel. 
+Every Sabbath day he will set it in order before God continually. It's a perpetual covenant on the behalf of the children of Israel. 
 It will be for Aaron and his sons. They will eat it in a holy place; for it's most holy to him of the offerings of God made by fire by a perpetual statute." 
 The son of an Israelite woman, whose father was an Egyptian, went out among the children of Israel; and the son of the Israelite woman and a man of Israel strove together in the camp. 
 The son of the Israelite woman blasphemed the Name, and cursed; and they brought him to Moses. His mother's name was Shelomith, the daughter of Dibri, of the tribe of Dan. 

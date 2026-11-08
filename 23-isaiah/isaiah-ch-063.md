@@ -9,7 +9,7 @@ He said, "Surely, they're my people, children who won't deal falsely;" so he bec
 In all their affliction he was afflicted, and the messenger of his presence saved them. In his love and in his pity he bought back them. He bore them, and carried them all the days of old. 
 But they rebelled and grieved his Holy Spirit. So he turned and became their enemy, and he himself fought against them. 
 Then he remembered the days of old, Moses and his people, saying, "Where is he who brought them up out of the sea with the shepherds of his flock? Where is he who put his Holy Spirit among them?" 
-Who caused his glorious arm to be at Moses' right hand? Who divided the waters before them, to make himself an perpetual name? 
+Who caused his glorious arm to be at Moses' right hand? Who divided the waters before them, to make himself a perpetual name? 
 Who led them through the depths, like a horse in the wilderness, so that they didn't stumble? 
 As the livestock that go down into the valley, God's Spirit caused them to rest. So you led your people to make yourself a glorious name. 
 Look down from the sky, and see from the habitation of your holiness and of your glory. Where are your passion and your mighty acts? The yearning of your heart and your compassion is restrained toward me. 

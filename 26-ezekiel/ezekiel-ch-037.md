@@ -23,6 +23,6 @@ I'll make them one nation in the land, on the mountains of Israel. One king will
 They won't defile themselves any more with their idols, nor with their detestable things, nor with any of their rebellion; but I'll save them out of all their dwelling places in which they have drifted, and will cleanse them. So they'll be my people, and I'll be their God. 
 "'"My servant David will be king over them. They all will have one shepherd. They'll also walk in my ordinances and observe my statutes, and do them. 
 They'll dwell in the land that I have given to Jacob my servant, in which your fathers lived. They'll dwell therein, they, and their children, and their children's children, for the eras. David my servant will be their prince for the eras. 
-Moreover I'll make a covenant of peace with them. It'll be an perpetual covenant with them. I'll place them, multiply them, and will set my sanctuary among them for the eras more. 
+Moreover I'll make a covenant of peace with them. It'll be a perpetual covenant with them. I'll place them, multiply them, and will set my sanctuary among them for the eras more. 
 My tent also will be with them. I'll be their God, and they'll be my people. 
 The nations will know that I'm God who sanctifies Israel, when my sanctuary is among them for the eras more."'" 

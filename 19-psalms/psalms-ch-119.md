@@ -139,7 +139,7 @@ You have commanded your statutes in righteousness. They're fully trustworthy.
 My passion wears me out, because my enemies ignore your words. 
 Your promises have been thoroughly tested, and your servant loves them. 
 I'm small and despised. I don't forget your precepts. 
-Your righteousness is an perpetual righteousness. Your law is truth. 
+Your righteousness is a perpetual righteousness. Your law is truth. 
 Trouble and anguish have taken hold of me. Your commandments are my delight. 
 Your testimonies are righteous for the eras. Give me understanding, that I can live. QOPH 
 I have called with my whole heart. Answer me, God! I'll keep your statutes. 

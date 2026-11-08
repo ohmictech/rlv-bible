@@ -14,7 +14,7 @@ I have raised him up in righteousness, and I'll make all his ways straight. He w
 God says: "The labor of Egypt, and the merchandise of Ethiopia, and the Sabeans, men of stature, will come over to you, and they'll be yours. They'll go after you. They will come over in chains. They'll bow down to you. They'll make supplication to you: 'Surely God is in you; and there's no one else. There's no other god. 
 Most certainly you're a God who has hidden yourself, God of Israel, the Savior.'" 
 They'll be disappointed, yes, confounded, everyone. Those who are makers of idols will go into confusion together. 
-Israel will be saved by God with an perpetual salvation. You won't be disappointed nor confounded to ages perpetual. 
+Israel will be saved by God with a perpetual salvation. You won't be disappointed nor confounded to ages perpetual. 
 God who created the sky, the God who formed the earth and made it, who established it and didn't create it a waste, who formed it to be inhabited says: "I'm God. There's no other. 
 I haven't spoken in secret, in a place of the land of darkness. I didn't say to the offspring of Jacob, 'Seek me in vain.' I, God, speak righteousness. I declare things that are right. 
 "Assemble yourselves and come. Draw near together, you who have escaped from the nations. Those have no knowledge who carry the wood of their engraved image, and pray to a god that can't save. 

@@ -14,7 +14,7 @@ you offspring of Israel his servant, you children of Jacob, his chosen ones.
 He's our God. His judgments are in all the earth. 
 Remember his covenant for the eras, the word which he commanded to a thousand generations, 
 the covenant which he made with Abraham, his oath to Isaac. 
-He confirmed it to Jacob for a statute, and to Israel for an perpetual covenant, 
+He confirmed it to Jacob for a statute, and to Israel for a perpetual covenant, 
 saying, "I'll give you the land of Canaan, The lot of your inheritance," 
 when you were but a few men in number, yes, very few, and foreigners in it. 
 They went about from nation to nation, from one kingdom to another people. 

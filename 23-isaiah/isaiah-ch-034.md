@@ -7,7 +7,7 @@ God's sword is filled with blood. It's covered with fat, with the blood of lambs
 The wild oxen will come down with them, and the young bulls with the mighty bulls; and their land will be drunken with blood, and their dust made greasy with fat. 
 God has a day of vengeance, a year of recompense for the cause of Zion. 
 Its streams will be turned into pitch, its dust into sulfur, and its land will become burning pitch. 
-It won't be quenched night or day. Its smoke will go up for the eras. From generation to generation, it'll lie waste. No one will pass through it for all the eras. 
+It won't be interrupted night or day. Its smoke will go up for the eras. From generation to generation, it'll lie waste. No one will pass through it for all the eras. 
 But the pelican and the porcupine will possess it. The owl and the raven will dwell in it. He'll stretch the line of confusion over it, and the plumb line of emptiness. 
 They will call its nobles to the kingdom, but none will be there; and all its princes will be nothing. 
 Thorns will come up in its palaces, nettles and thistles in its fortresses; and it'll be a habitation of jackals, a court for ostriches. 

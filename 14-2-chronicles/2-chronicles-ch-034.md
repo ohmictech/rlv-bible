@@ -22,7 +22,7 @@ The king commanded Hilkiah, Ahikam the son of Shaphan, Abdon the son of Micah, S
 So Hilkiah and those whom the king had commanded went to Huldah the prophetess, the wife of Shallum the son of Tokhath, the son of Hasrah, keeper of the wardrobe (now she lived in Jerusalem in the second quarter), and they spoke to her to that effect. 
 She said to them, "The God of Israel says: 'Tell the man who sent you to me, 
 "God says, 'Look, I'll bring bad on this place and on its inhabitants, even all the curses that are written in the book which they have read before the king of Judah. 
-Because they have forsaken me, and have burned incense to other gods, that they might provoke me to anger with all the works of their hands, my wrath is poured out on this place, and it won't be quenched.'"' 
+Because they have forsaken me, and have burned incense to other gods, that they might provoke me to anger with all the works of their hands, my wrath is poured out on this place, and it can't be interrupted.'"' 
 But to the king of Judah, who sent you to inquire of God, you will tell him this, 'The God of Israel says: "About the words which you have heard, 
 because your heart was tender, and you humbled yourself before God when you heard his words against this place and against its inhabitants, and have humbled yourself before me, and have torn your clothes and wept before me, I also have heard you," says God. 
 "Look, I'll gather you to your fathers, and you'll be gathered to your grave in peace. Your eyes won't see all the bad that I'll bring on this place and on its inhabitants."'" They brought back this message to the king. 

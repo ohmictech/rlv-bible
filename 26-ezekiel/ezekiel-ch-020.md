@@ -44,6 +44,6 @@ There you'll remember your ways, and all your deeds in which you have polluted y
 You'll know that I'm God, when I have dealt with you for my name's sake, not according to your bad ways, nor according to your corrupt doings, you house of Israel," says God.'" 
 God's word came to me, saying, 
 "Son of man, set your face toward the south, and preach toward the south, and prophesy against the forest of the field in the south. 
-Tell the forest of the south, 'Hear God's word: The God says, "Look, I'll kindle a fire in you, and it'll devour every green tree in you, and every dry tree. The burning flame won't be quenched, and all faces from the south to the north will be burned by it. 
-All flesh will see that I, God, have kindled it. It won't be quenched."'" 
+Tell the forest of the south, 'Hear God's word: The God says, "Look, I'll kindle a fire in you, and it'll devour every green tree in you, and every dry tree. The burning flame can't be interrupted, and all faces from the south to the north will be burned by it. 
+All flesh will see that I, God, have kindled it. It can't be interrupted."'" 
 Then I said, "Ah God! They say of me, 'Isn't he a speaker of parables?'" 

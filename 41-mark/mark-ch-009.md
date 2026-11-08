@@ -40,9 +40,9 @@ But Jesus said, "Don't stop him, because no one who does a powerful work in my n
 Whoever isn't against us is on our side. 
 Whoever gives you a cup of water to drink in my name because you belong to Christ, truly I tell you, he'll in no way lose his earned result. 
 "Whoever causes one of these little ones who trust in me to be trapped would be better off to have a millstone hung around his neck and be thrown into the sea. 
-If your hand traps you, cut it off. It's better for you to enter real life maimed than to have two hands and go into Gehenna, into the fire that can't be put out, 
+If your hand traps you, cut it off. It's better for you to enter real life maimed than to have two hands and go into Gehenna, into the fire that can't be interrupted, 
 'where their worm doesn't die, and the fire isn't put out.' 
-If your foot traps you, cut it off. It's better for you to enter real life lame than to have two feet and be thrown into Gehenna, into the fire that never goes out, 
+If your foot traps you, cut it off. It's better for you to enter real life lame than to have two feet and be thrown into Gehenna, into the fire that can't be interrupted, 
 'where their worm doesn't die, and the fire isn't put out.' 
 If your eye traps you, throw it out. It's better for you to enter God's reign with one eye than to have two eyes and be thrown into the Gehenna of fire, 
 'where their worm doesn't die, and the fire isn't put out.' 

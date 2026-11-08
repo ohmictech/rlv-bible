@@ -17,7 +17,7 @@ I'll cast you out of my sight, as I have cast out all your brothers, even the wh
 Don't you see what they do in the cities of Judah and in the streets of Jerusalem? 
 The children gather wood, and the fathers kindle the fire, and the women knead the dough, to make cakes to the queen of the sky, and to pour out drink offerings to other gods, that they can provoke me to anger. 
 Do they provoke me to anger?" says God. "Don't they provoke themselves, to the confusion of their own faces?" 
-So God says: "Look, my anger and my wrath will be poured out on this place, on man, on animal, on the trees of the field, and on the fruit of the ground; and it'll burn and won't be quenched." 
+So God says: "Look, my anger and my wrath will be poured out on this place, on man, on animal, on the trees of the field, and on the fruit of the ground; and it'll burn and it can't be interrupted." 
 The God of Armies, the God of Israel says: "Add your burnt offerings to your sacrifices and eat meat. 
 I didn't speak to your fathers or command them in the day that I brought them out of the land of Egypt concerning burnt offerings or sacrifices; 
 but this thing I commanded them, saying, 'Listen to my voice, and I'll be your God, and you will be my people. Walk in all the way that I command you, that it might be well with you.' 

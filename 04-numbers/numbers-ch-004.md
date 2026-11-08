@@ -1,49 +1,49 @@
-﻿God spoke to Moses and to Aaron, saying, 
-"Take a census of the sons of Kohath from among the sons of Levi, by their families, by their fathers' houses, 
-from thirty years old and upward even until fifty years old, everyone who enters into the service to do the work in the Tent of Meeting. 
-"This is the service of the sons of Kohath in the Tent of Meeting, regarding the most holy things. 
-When the camp moves forward, Aaron will go in with his sons; and they will take down the veil of the screen, cover the ark of the Testimony with it, 
-put a covering of sealskin on it, spread a blue cloth over it, and put in its poles. 
-"On the table of show bread they will spread a blue cloth, and put on it the dishes, the spoons, the bowls, and the cups with which to pour out; and the continual bread will be on it. 
-They will spread on them a scarlet cloth, and cover it with a covering of sealskin, and will put in its poles. 
-"They will take a blue cloth and cover the lamp stand of the light, its lamps, its snuffers, its snuff dishes, and all its oil vessels, with which they minister to it. 
-They will put it and all its vessels within a covering of sealskin, and will put it on the frame. 
-"On the golden altar they will spread a blue cloth, and cover it with a covering of sealskin, and will put in its poles. 
-"They will take all the vessels of ministry with which they minister in the sanctuary, and put them in a blue cloth, cover them with a covering of sealskin, and will put them on the frame. 
-"They will take away the ashes from the altar, and spread a purple cloth on it. 
-They will put on it all its vessels with which they minister about it, the fire pans, the meat hooks, the shovels, and the basins, all the vessels of the altar; and they will spread on it a covering of sealskin, and put in its poles. 
-"When Aaron and his sons have finished covering the sanctuary and all the furniture of the sanctuary, as the camp moves forward; after that, the sons of Kohath will come to carry it; but they won't touch the sanctuary, lest they die. The sons of Kohath will carry these things belonging to the Tent of Meeting. 
-"The duty of Eleazar the son of Aaron the priest will be the oil for the light, the sweet incense, the continual meal offering, and the anointing oil, the requirements of all the tabernacle, and of all that's in it, the sanctuary, and its furnishings." 
-God spoke to Moses and to Aaron, saying, 
-"Don't cut off the tribe of the families of the Kohathites from among the Levites; 
-but do this to them, that they can live, and not die, when they approach the most holy things: Aaron and his sons will go in and appoint everyone to his service and to his burden; 
-but they won't go in to see the sanctuary even for a moment, lest they die." 
-God spoke to Moses, saying, 
-"Take a census of the sons of Gershon also, by their fathers' houses, by their families; 
-you will count them from thirty years old and upward until fifty years old: everyone who enters in to wait on the service, to do the work in the Tent of Meeting. 
-"This is the service of the families of the Gershonites, in serving and in bearing burdens: 
-they will carry the curtains of the tabernacle and the Tent of Meeting, its covering, the covering of sealskin that's on it, the screen for the door of the Tent of Meeting, 
-the hangings of the court, the screen for the door of the gate of the court which is by the tabernacle and around the altar, their cords, and all the instruments of their service, and whatever will be done with them. They will serve in there. 
-At the commandment of Aaron and his sons will be all the service of the sons of the Gershonites, in all their burden and in all their service; and you will appoint their duty to them in all their responsibilities. 
-This is the service of the families of the sons of the Gershonites in the Tent of Meeting. Their duty will be under the hand of Ithamar the son of Aaron the priest. 
-"As for the sons of Merari, you will count them by their families, by their fathers' houses; 
-you will count them from thirty years old and upward even to fifty years old, everyone who enters on the service, to do the work of the Tent of Meeting. 
-This is the duty of their burden, according to all their service in the Tent of Meeting: the tabernacle's boards, its bars, its pillars, its sockets, 
-the pillars of the court around it, their sockets, their pins, their cords, with all their instruments, and with all their service. You will appoint the instruments of the duty of their burden to them by name. 
-This is the service of the families of the sons of Merari, according to all their service in the Tent of Meeting, under the hand of Ithamar the son of Aaron the priest." 
-Moses and Aaron and the princes of the congregation counted the sons of the Kohathites by their families, and by their fathers' houses, 
-from thirty years old and upward even to fifty years old, everyone who entered into the service for work in the Tent of Meeting. 
-Those who were counted of them by their families were two thousand seven hundred fifty. 
-These are those who were counted of the families of the Kohathites, everyone who served in the Tent of Meeting, whom Moses and Aaron counted according to the commandment of God by Moses. 
-Those who were counted of the sons of Gershon, by their families, and by their fathers' houses, 
-from thirty years old and upward even to fifty years old, everyone who entered into the service for work in the Tent of Meeting, 
-even those who were counted of them, by their families, by their fathers' houses, were two thousand six hundred thirty. 
-These are those who were counted of the families of the sons of Gershon, everyone who served in the Tent of Meeting, whom Moses and Aaron counted according to the commandment of God. 
-Those who were counted of the families of the sons of Merari, by their families, by their fathers' houses, 
-from thirty years old and upward even to fifty years old, everyone who entered into the service for work in the Tent of Meeting, 
-even those who were counted of them by their families, were three thousand two hundred. 
-These are those who were counted of the families of the sons of Merari, whom Moses and Aaron counted according to the commandment of God by Moses. 
-Everyone who was counted of the Levites whom Moses and Aaron and the princes of Israel counted, by their families and by their fathers' houses, 
-from thirty years old and upward even to fifty years old, everyone who entered in to do the work of service and the work of bearing burdens in the Tent of Meeting, 
-even those who were counted of them, were eight thousand five hundred eighty. 
-According to the commandment of God they were counted by Moses, everyone according to his service and according to his burden. Thus they were counted by him, as God commanded Moses. 
+﻿God spoke to Moses and Aaron: 
+"Take a census of the Kohathites from among the Levites, by their families and clans, 
+from thirty years old to fifty, everyone who is fit for service and for work in the Tent of Meeting. 
+"This is the work of the Kohathites at the Tent of Meeting: the most holy things. 
+When the camp moves, Aaron and his sons are to go in and take down the curtain screen and cover the ark of the Testimony with it. 
+They are to put a sea cow hide cover over that, spread a blue cloth on top, and put the ark's poles in place. 
+"Over the table of the bread set out before God they are to spread a blue cloth and put on it the dishes, the small bowls, the large bowls and the jars for pouring, and the bread that is always there. 
+They are to spread a scarlet cloth over them, cover that with a sea cow hide, and put the table's poles in place. 
+"They are to take a blue cloth and cover the lampstand for the light, its lamps, its wick trimmers, its trays and all its oil jars used in its service. 
+They are to put it and all its utensils in a sea cow hide cover and place it on a carrying frame. 
+"Over the gold altar they are to spread a blue cloth, cover it with a sea cow hide, and put its poles in place. 
+"They are to take all the utensils used for serving in the Holy Place, wrap them in a blue cloth, cover them with a sea cow hide, and place them on a carrying frame. 
+"They are to clear the ashes from the altar and spread a purple cloth over it, 
+and put on it all the utensils used with it: the fire pans, the meat forks, the shovels and the basins, everything used at the altar. Then they are to spread a sea cow hide over it and put its poles in place. 
+"When Aaron and his sons have finished covering the Holy Place and everything in it, as the camp moves out, the Kohathites are to come and carry it. They must not touch the Holy Place, or they will die. These are the things the Kohathites carry from the Tent of Meeting. 
+"Eleazar son of Aaron the priest is responsible for the oil for the light, the fragrant incense, the regular gift offering and the anointing oil. He is in charge of the whole tent and everything in it, the Holy Place and its furnishings." 
+God spoke to Moses and Aaron: 
+"Don't let the Kohathite families be cut off from among the Levites. 
+Do this for them, so they can live and not die when they come near the most holy things: Aaron and his sons are to go in and assign each man his work and what he is to carry. 
+But the Kohathites must not go in to look at the Holy Place even for a moment, or they will die." 
+God spoke to Moses: 
+"Take a census of the Gershonites too, by their families and clans. 
+Count them from thirty years old to fifty, everyone who is fit for service and for work at the Tent of Meeting. 
+"This is the work of the Gershonite families as they serve and carry: 
+they are to carry the curtains of the tent and the Tent of Meeting, its cover, the sea cow hide cover over it, and the screen for the entrance of the Tent of Meeting, 
+the curtains of the courtyard, the screen for the gate of the courtyard around the tent and the altar, the ropes, all the equipment for their work, and everything that goes with it. That is what they are to do. 
+All the Gershonites' work, everything they carry and everything they do, is to be done at the order of Aaron and his sons, and you are to assign them everything they are to carry. 
+This is the work of the Gershonite families at the Tent of Meeting, and they are to serve under Ithamar son of Aaron the priest. 
+"As for the Merarites, count them by their families and clans. 
+Count them from thirty years old to fifty, everyone who is fit for service and for work at the Tent of Meeting. 
+This is what they are to carry, all their work at the Tent of Meeting: the frames of the tent, its crossbars, its posts and its bases, 
+and the posts of the courtyard around it, their bases, their pegs, their ropes, all their equipment and all their work. Assign each man by name the equipment he is to carry. 
+This is the work of the Merarite families, everything they are to do at the Tent of Meeting, and they are to serve under Ithamar son of Aaron the priest." 
+Moses, Aaron and the leaders of the community counted the Kohathites by their families and clans, 
+from thirty years old to fifty, everyone fit for service and for work at the Tent of Meeting. 
+Those counted by their families were two thousand seven hundred fifty. 
+These are the Kohathites who were counted, all who served at the Tent of Meeting, whom Moses and Aaron counted at God's command through Moses. 
+The Gershonites were counted by their families and clans, 
+from thirty years old to fifty, everyone fit for service and for work at the Tent of Meeting. 
+Those counted by their families and clans were two thousand six hundred thirty. 
+These are the Gershonite families who were counted, all who served at the Tent of Meeting, whom Moses and Aaron counted at God's command. 
+The Merarite families were counted by their families and clans, 
+from thirty years old to fifty, everyone fit for service and for work at the Tent of Meeting. 
+Those counted by their families were three thousand two hundred. 
+These are the Merarites who were counted, whom Moses and Aaron counted at God's command through Moses. 
+All the Levites counted by Moses, Aaron and the leaders of Israel, by families and clans, 
+from thirty years old to fifty, everyone who came to do the work of serving and of carrying at the Tent of Meeting, 
+numbered eight thousand five hundred eighty. 
+At God's command through Moses each was counted and assigned his work and what he was to carry, just as God commanded Moses. 

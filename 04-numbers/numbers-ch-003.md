@@ -1,51 +1,51 @@
-﻿Now this is the history of the generations of Aaron and Moses in the day that God spoke with Moses in Mount Sinai. 
-These are the names of the sons of Aaron: Nadab the firstborn, and Abihu, Eleazar, and Ithamar. 
-These are the names of the sons of Aaron, the priests who were anointed, whom he consecrated to minister in the priest's office. 
-Nadab and Abihu died before God when they offered strange fire before God in the wilderness of Sinai, and they had no children. Eleazar and Ithamar ministered in the priest's office in the presence of Aaron their father. 
-God spoke to Moses, saying, 
-"Bring the tribe of Levi near, and set them before Aaron the priest, that they can minister to him. 
-They will keep his requirements, and the requirements of the whole congregation before the Tent of Meeting, to do the service of the tabernacle. 
-They will keep all the furnishings of the Tent of Meeting, and the obligations of the children of Israel, to do the service of the tabernacle. 
-You will give the Levites to Aaron and to his sons. They're wholly given to him on the behalf of the children of Israel. 
-You will appoint Aaron and his sons, and they will keep their priesthood, but the stranger who comes near will be put to death." 
-God spoke to Moses, saying, 
-"Look, I have taken the Levites from among the children of Israel instead of all the firstborn who open the womb among the children of Israel; and the Levites will be mine, 
-for all the firstborn are mine. On the day that I struck down all the firstborn in the land of Egypt I made holy to me all the firstborn in Israel, both man and animal. They will be mine. I'm God." 
-God spoke to Moses in the wilderness of Sinai, saying, 
-"Count the children of Levi by their fathers' houses, by their families. You will count every male from a month old and upward." 
-Moses counted them according to God's word, as he was commanded. 
-These were the sons of Levi by their names: Gershon, Kohath, and Merari. 
-These are the names of the sons of Gershon by their families: Libni and Shimei. 
-The sons of Kohath by their families: Amram, Izhar, Hebron, and Uzziel. 
-The sons of Merari by their families: Mahli and Mushi. These are the families of the Levites according to their fathers' houses. 
-Of Gershon was the family of the Libnites, and the family of the Shimeites. These are the families of the Gershonites. 
-Those who were counted of them, according to the number of all the males from a month old and upward, even those who were counted of them were seven thousand five hundred. 
-The families of the Gershonites will encamp behind the tabernacle westward. 
-Eliasaph the son of Lael will be the prince of the fathers' house of the Gershonites. 
-The duty of the sons of Gershon in the Tent of Meeting will be the tabernacle, the tent, its covering, the screen for the door of the Tent of Meeting, 
-the hangings of the court, the screen for the door of the court which is by the tabernacle and around the altar, and its cords for all of its service. 
-Of Kohath was the family of the Amramites, the family of the Izharites, the family of the Hebronites, and the family of the Uzzielites. These are the families of the Kohathites. 
-According to the number of all the males from a month old and upward, there were eight thousand six hundred keeping the requirements of the sanctuary. 
-The families of the sons of Kohath will encamp on the south side of the tabernacle. 
-The prince of the fathers' house of the families of the Kohathites will be Elizaphan the son of Uzziel. 
-Their duty will be the ark, the table, the lamp stand, the altars, the vessels of the sanctuary with which they minister, the screen, and all its service. 
-Eleazar the son of Aaron the priest will be prince of the princes of the Levites, with the oversight of those who keep the requirements of the sanctuary. 
-Of Merari was the family of the Mahlites and the family of the Mushites. These are the families of Merari. 
-Those who were counted of them, according to the number of all the males from a month old and upward, were six thousand two hundred. 
-The prince of the fathers' house of the families of Merari was Zuriel the son of Abihail. They will encamp on the north side of the tabernacle. 
-The appointed duty of the sons of Merari will be the tabernacle's boards, its bars, its pillars, its sockets, all its instruments, all its service, 
-the pillars of the court around it, their sockets, their pins, and their cords. 
-Those who encamp before the tabernacle eastward, in front of the Tent of Meeting toward the sunrise, will be Moses, with Aaron and his sons, keeping the requirements of the sanctuary for the duty of the children of Israel. The outsider who comes near will be put to death. 
-Everyone who was counted of the Levites, whom Moses and Aaron counted at the commandment of God, by their families, all the males from a month old and upward, were twenty-two thousand. 
-God said to Moses, "Count all the firstborn males of the children of Israel from a month old and upward, and take the number of their names. 
-You will take the Levites for me, I'm God, instead of all the firstborn among the children of Israel; and the livestock of the Levites instead of all the firstborn among the livestock of the children of Israel." 
-Moses counted, as God commanded him, all the firstborn among the children of Israel. 
-All the firstborn males according to the number of names from a month old and upward, of those who were counted of them, were twenty-two thousand two hundred seventy-three. 
-God spoke to Moses, saying, 
-"Take the Levites instead of all the firstborn among the children of Israel, and the livestock of the Levites instead of their livestock; and the Levites will be mine. I'm God. 
-The buying back of the two hundred seventy-three of the firstborn of the children of Israel who exceed the number of the Levites, 
-you will take five shekels apiece for each one; according to the shekel of the sanctuary you will take them (the shekel is twenty gerahs); 
-and you will give the money, with which their remainder is bought back, to Aaron and to his sons." 
-Moses took the buying back money from those who exceeded the number of those who were bought back by the Levites; 
-from the firstborn of the children of Israel he took the money, one thousand three hundred sixty-five shekels, according to the shekel of the sanctuary; 
-and Moses gave the buying back money to Aaron and to his sons, according to God's word, as God commanded Moses. 
+﻿This is the record of Aaron and Moses at the time God spoke with Moses on Mount Sinai. 
+These are the names of Aaron's sons: Nadab the firstborn, Abihu, Eleazar and Ithamar. 
+These are the names of Aaron's sons, the anointed priests, who were set apart to serve as priests. 
+Nadab and Abihu died before God when they offered unauthorized fire before God in the Sinai wilderness, and they had no children. Eleazar and Ithamar served as priests while their father Aaron was alive. 
+God spoke to Moses: 
+"Bring the tribe of Levi near and set them before Aaron the priest, to help him. 
+They are to do what he and the whole community need at the Tent of Meeting, doing the work of the tent. 
+They are to take care of all the furnishings of the Tent of Meeting and do what the Israelites need, doing the work of the tent. 
+Give the Levites to Aaron and his sons. They are given to him entirely from among the Israelites. 
+Appoint Aaron and his sons, and they are to carry out their priesthood, but any outsider who comes near is to be put to death." 
+God spoke to Moses: 
+"I have taken the Levites from among the Israelites in place of every firstborn who opens the womb among the Israelites, so the Levites will be mine, 
+because all the firstborn are mine. On the day I struck down all the firstborn in Egypt, I set apart to myself all the firstborn in Israel, both people and animals. They are mine. I am God." 
+God spoke to Moses in the Sinai wilderness: 
+"Count the descendants of Levi by their families and clans. Count every male a month old and up." 
+Moses counted them as God's word commanded. 
+These were Levi's sons by name: Gershon, Kohath and Merari. 
+These are the names of Gershon's sons by their families: Libni and Shimei. 
+Kohath's sons by their families: Amram, Izhar, Hebron and Uzziel. 
+Merari's sons by their families: Mahli and Mushi. These are the Levite families by their clans. 
+From Gershon came the family of the Libnites and the family of the Shimeites. These are the Gershonite families. 
+Those counted, every male a month old and up, numbered seven thousand five hundred. 
+The Gershonite families are to camp behind the tent on the west side. 
+The leader of the Gershonite families is Eliasaph son of Lael. 
+The Gershonites are responsible at the Tent of Meeting for the tent itself, its cover, the screen for the entrance of the Tent of Meeting, 
+the curtains of the courtyard, the screen for the gate of the courtyard around the tent and the altar, and the ropes for all their work. 
+From Kohath came the family of the Amramites, the family of the Izharites, the family of the Hebronites and the family of the Uzzielites. These are the Kohathite families. 
+Counting every male a month old and up, there were eight thousand six hundred, responsible for the Holy Place. 
+The Kohathite families are to camp on the south side of the tent. 
+The leader of the Kohathite families is Elizaphan son of Uzziel. 
+They are responsible for the ark, the table, the lampstand, the altars, the utensils of the Holy Place used in serving, the screen, and all the work that goes with them. 
+Eleazar son of Aaron the priest is the chief of the Levite leaders, in charge of those responsible for the Holy Place. 
+From Merari came the family of the Mahlites and the family of the Mushites. These are the Merarite families. 
+Those counted, every male a month old and up, numbered six thousand two hundred. 
+The leader of the Merarite families is Zuriel son of Abihail. They are to camp on the north side of the tent. 
+The Merarites are assigned the frames of the tent, its crossbars, its posts, its bases, all its equipment and all the work that goes with them, 
+and the posts of the courtyard around it, their bases, their pegs and their ropes. 
+Those who camp in front of the tent on the east side, in front of the Tent of Meeting toward the sunrise, are Moses, Aaron and his sons, responsible for the Holy Place on behalf of the Israelites. Any outsider who comes near is to be put to death. 
+All the Levites counted by Moses and Aaron at God's command, by their families, every male a month old and up, numbered twenty-two thousand. 
+God said to Moses, "Count all the firstborn males of the Israelites a month old and up and make a list of their names. 
+Take the Levites for me, since I am God, in place of all the firstborn among the Israelites, and take the Levites' livestock in place of the firstborn among the Israelites' livestock." 
+Moses counted all the firstborn among the Israelites, just as God commanded him. 
+All the firstborn males a month old and up, listed by name, numbered twenty-two thousand two hundred seventy-three. 
+God spoke to Moses: 
+"Take the Levites in place of all the firstborn among the Israelites, and the Levites' livestock in place of their livestock, and the Levites will be mine. I am God. 
+For the two hundred seventy-three firstborn Israelites who exceed the number of the Levites, you are to collect the buying back price: 
+five shekels for each one, by the sanctuary standard, the shekel being twenty gerahs. 
+Give the money from the buying back of the extra ones to Aaron and his sons." 
+So Moses collected the buying back money from those who exceeded the number bought back by the Levites. 
+He collected the money from the firstborn of the Israelites, one thousand three hundred sixty-five shekels by the sanctuary standard, 
+and Moses gave the buying back money to Aaron and his sons, just as God's word commanded him. 

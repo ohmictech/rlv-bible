@@ -1,31 +1,31 @@
-﻿God spoke to Moses, saying, 
-"Speak to the children of Israel, that they turn back and encamp before Pihahiroth, between Migdol and the sea, before Baal Zephon. You will encamp opposite it by the sea. 
-Pharaoh will say of the children of Israel, 'They're entangled in the land. The wilderness has shut them in.' 
-I'll harden Pharaoh's heart, and he'll follow after them; and I'll get honor over Pharaoh, and over all his armies; and the Egyptians will know that I'm God." They did so. 
-The king of Egypt was told that the people had fled; and the heart of Pharaoh and of his servants was changed toward the people, and they said, "What's this we have done, that we have let Israel go from serving us?" 
-He prepared his chariot, and took his army with him; 
-and he took six hundred chosen chariots, and all the chariots of Egypt, with captains over everyone. 
-God hardened the heart of Pharaoh king of Egypt, and he pursued the children of Israel; for the children of Israel went out with a high hand. 
-The Egyptians pursued them. All the horses and chariots of Pharaoh, his horsemen, and his army overtook them encamping by the sea, beside Pihahiroth, before Baal Zephon. 
-When Pharaoh came near, the children of Israel lifted up their eyes, and look, the Egyptians were marching after them; and they were very afraid. The children of Israel cried out to God. 
-They said to Moses, "Because there were no graves in Egypt, have you taken us away to die in the wilderness? Why have you treated us this way, to bring us out of Egypt? 
-Isn't this the word that we spoke to you in Egypt, saying, 'Leave us alone, that we can serve the Egyptians'? It would have been better for us to serve the Egyptians than to die in the wilderness." 
-Moses said to the people, "Don't be afraid. Stand still, and see the salvation of God, which he'll work for you today; for you'll never again see the Egyptians whom you have seen today. 
-God will fight for you, and you will be still." 
-God said to Moses, "Why do you cry to me? Speak to the children of Israel, that they go forward. 
-Lift up your rod, and stretch out your hand over the sea and divide it. Then the children of Israel will go into the middle of the sea on dry ground. 
-Look, I myself will harden the hearts of the Egyptians, and they'll go in after them. I'll get myself honor over Pharaoh, and over all his armies, over his chariots, and over his horsemen. 
-The Egyptians will know that I'm God when I have gotten myself honor over Pharaoh, over his chariots, and over his horsemen." 
-The messenger of God, who went before the camp of Israel, moved and went behind them; and the pillar of cloud moved from before them, and stood behind them. 
-It came between the camp of Egypt and the camp of Israel. There was the cloud and the darkness, yet it gave light by night. One didn't come near the other all night. 
-Moses stretched out his hand over the sea, and God caused the sea to go back by a strong east wind all night, and made the sea dry land, and the waters were divided. 
-The children of Israel went into the middle of the sea on the dry ground; and the waters were a wall to them on their right hand and on their left. 
-The Egyptians pursued, and went in after them into the middle of the sea: all of Pharaoh's horses, his chariots, and his horsemen. 
-In the morning watch, God looked out on the Egyptian army through the pillar of fire and of cloud, and confused the Egyptian army. 
-He took off their chariot wheels, and they drove them heavily; so that the Egyptians said, "Let's flee from the face of Israel, for God fights for them against the Egyptians!" 
-God said to Moses, "Stretch out your hand over the sea, that the waters may come again on the Egyptians, on their chariots, and on their horsemen." 
-Moses stretched out his hand over the sea, and the sea returned to its strength when the morning appeared; and the Egyptians fled against it. God overthrew the Egyptians in the middle of the sea. 
-The waters returned, and covered the chariots and the horsemen, even all Pharaoh's army that went in after them into the sea. There remained not so much as one of them. 
-But the children of Israel walked on dry land in the middle of the sea, and the waters were a wall to them on their right hand and on their left. 
-Thus God saved Israel that day out of the hand of the Egyptians; and Israel saw the Egyptians dead on the seashore. 
-Israel saw the great work which God did to the Egyptians, and the people feared God; and they believed in God and in his servant Moses. 
+﻿God spoke to Moses: 
+"Tell the Israelites to turn back and camp in front of Pi Hahiroth, between Migdol and the sea, facing Baal Zephon. Camp there by the sea. 
+Pharaoh will think, 'The Israelites are wandering around in the land. The wilderness has closed in on them.' 
+I will make Pharaoh's heart stubborn and he will chase after them, and I will win honor over Pharaoh and all his army, and the Egyptians will know that I am God." And that is what they did. 
+When the king of Egypt was told the people had run away, he and his officials changed their minds about them and said, "What have we done, letting Israel go and stop serving us?" 
+So he had his chariot made ready and took his army with him. 
+He took six hundred of the best chariots and all the other chariots of Egypt, with officers over all of them. 
+God made Pharaoh king of Egypt stubborn, and he chased after the Israelites, who had marched out boldly. 
+The Egyptians chased them with all Pharaoh's horses and chariots, his horsemen and his army, and caught up with them camped by the sea near Pi Hahiroth, facing Baal Zephon. 
+As Pharaoh came near, the Israelites looked up and saw the Egyptians marching after them, and they were terrified. They cried out to God. 
+They said to Moses, "Were there no graves in Egypt, that you had to bring us out here to die in the wilderness? What have you done to us, bringing us out of Egypt? 
+Didn't we tell you in Egypt, 'Leave us alone and let us serve the Egyptians'? It would have been better to serve them than to die out here." 
+Moses said to the people, "Don't be afraid. Stand still and watch God rescue you today. The Egyptians you see now, you will never see again. 
+God will fight for you. You only have to stay still." 
+God said to Moses, "Why are you crying out to me? Tell the Israelites to move on. 
+Lift up your staff, stretch out your hand over the sea and split it, and the Israelites will walk into the middle of the sea on dry ground. 
+I will make the Egyptians stubborn so they follow you in, and I will win honor over Pharaoh, over all his army, his chariots and his horsemen. 
+And the Egyptians will know that I am God when I have won honor over Pharaoh, his chariots and his horsemen." 
+The messenger of God, who had been going ahead of Israel's camp, moved and went behind them, and the pillar of cloud moved from in front and stood behind them. 
+It came between the Egyptian camp and the Israelite camp. There was cloud and darkness, and it lit up the night, and neither side came near the other all night. 
+Moses stretched out his hand over the sea, and all night God drove the sea back with a strong east wind and turned it into dry land, and the waters split apart. 
+The Israelites walked into the middle of the sea on dry ground, with the water like a wall on their right and on their left. 
+The Egyptians chased them in, all Pharaoh's horses, chariots and horsemen, into the middle of the sea. 
+In the last watch of the night God looked down on the Egyptian army from the pillar of fire and cloud and threw it into confusion. 
+He jammed their chariot wheels so they could hardly drive, and the Egyptians said, "Let's get away from the Israelites. God is fighting for them against Egypt!" 
+God said to Moses, "Stretch out your hand over the sea, and the water will come back over the Egyptians, their chariots and their horsemen." 
+So Moses stretched out his hand over the sea, and at daybreak the sea went back to its place. The Egyptians ran straight into it, and God swept them away in the middle of the sea. 
+The water came back and covered the chariots and horsemen, the whole army of Pharaoh that had followed them into the sea. Not one of them was left. 
+But the Israelites walked through the middle of the sea on dry ground, with the water like a wall on their right and on their left. 
+That day God rescued Israel from the Egyptians, and Israel saw the Egyptians lying dead on the shore. 
+When Israel saw the great thing God had done to the Egyptians, the people feared God and trusted him and his servant Moses. 

@@ -1,22 +1,22 @@
-﻿God spoke to Moses, saying, 
-"Sanctify to me all the firstborn, whatever opens the womb among the children of Israel, both of man and of animal. It's mine." 
-Moses said to the people, "Remember this day, in which you came out of Egypt, out of the house of bondage; for by strength of hand God brought you out from this place. No leavened bread will be eaten. 
-Today you go out in the month Abib. 
-It will be, when God brings you into the land of the Canaanite, and the Hittite, and the Amorite, and the Hivite, and the Jebusite, which he swore to your fathers to give you, a land flowing with milk and honey, that you will keep this service in this month. 
-Seven days you will eat unleavened bread, and in the seventh day will be a feast to God. 
-Unleavened bread will be eaten throughout the seven days; and no leavened bread will be seen with you. No yeast will be seen with you, within all your borders. 
-You will tell your son in that day, saying, 'It's because of that which God did for me when I came out of Egypt.' 
-It will be for a sign to you on your hand, and for a memorial between your eyes, that God's law may be in your mouth; for with a strong hand God has brought you out of Egypt. 
-You will keep this ordinance in its season from year to year. 
-"It will be, when God brings you into the land of the Canaanite, as he swore to you and to your fathers, and will give it to you, 
-that you will set apart to God all that opens the womb, and every firstborn that comes from an animal which you have. The males will be God's. 
-Every firstborn of a donkey you will buy back with a lamb; and if you won't buy it back, then you will break its neck; and you will buy back all the firstborn of man among your sons. 
-It will be, when your son asks you in time to come, saying, 'What's this?' that you will tell him, 'By strength of hand God brought us out from Egypt, from the house of bondage. 
-When Pharaoh stubbornly refused to let's go, God killed all the firstborn in the land of Egypt, both the firstborn of man, and the firstborn of livestock. So I sacrifice to God all that opens the womb, being males; but all the firstborn of my sons I buy back.' 
-It will be for a sign on your hand, and for symbols between your eyes; for by strength of hand God brought us out of Egypt." 
-When Pharaoh had let the people go, God didn't lead them by the way of the land of the Philistines, although that was near; for God said, "Lest perhaps the people change their minds when they see war, and they return to Egypt"; 
-but God led the people around by the way of the wilderness by the Red Sea; and the children of Israel went up armed out of the land of Egypt. 
-Moses took the bones of Joseph with him, for he had made the children of Israel swear, saying, "God will surely visit you, and you will carry up my bones away from here with you." 
-They took their journey from Succoth, and encamped in Etham, in the edge of the wilderness. 
-God went before them by day in a pillar of cloud, to lead them on their way, and by night in a pillar of fire, to give them light, that they might go by day and by night: 
-the pillar of cloud by day, and the pillar of fire by night, didn't depart from before the people. 
+﻿God spoke to Moses: 
+"Set apart for me every firstborn. The first child of every womb among the Israelites, human or animal, is mine." 
+Moses said to the people, "Remember this day, the day you came out of Egypt, out of the house of slavery, because God brought you out of there with a strong hand. On this day, eat nothing with yeast. 
+You are leaving today, in the month of Abib. 
+When God brings you into the land of the Canaanites, Hittites, Amorites, Hivites and Jebusites, the land he swore to your fathers to give you, a land flowing with milk and honey, you will keep this ceremony in this month. 
+For seven days you will eat bread without yeast, and on the seventh day there will be a festival to God. 
+Eat bread without yeast for all seven days. Nothing with yeast may be seen among you, no yeast at all anywhere within your borders. 
+On that day tell your son, 'This is because of what God did for me when I came out of Egypt.' 
+It will be like a sign on your hand and a reminder on your forehead, so that God's law stays on your lips, because God brought you out of Egypt with a strong hand. 
+Keep this rule at its season, year after year. 
+"When God brings you into the land of the Canaanites, as he swore to you and your fathers, and gives it to you, 
+you will give God every firstborn, every first male that comes from your animals. The males belong to God. 
+Buy back every firstborn donkey with a lamb, and if you don't buy it back, break its neck. And buy back every firstborn among your sons. 
+When your son asks you some day, 'What does this mean?' tell him, 'God brought us out of Egypt, out of the house of slavery, with a strong hand. 
+When Pharaoh stubbornly refused to let us go, God killed every firstborn in Egypt, both people and animals. That's why I sacrifice to God every first male that opens the womb, and buy back every firstborn of my sons.' 
+It will be like a sign on your hand and a mark on your forehead, because God brought us out of Egypt with a strong hand." 
+When Pharaoh let the people go, God didn't lead them along the coastal road through Philistine country, even though that was shorter. God said, "If they face war, they may change their minds and go back to Egypt." 
+So God took them the long way around, through the wilderness toward the Red Sea, and the Israelites left Egypt ready for battle. 
+Moses took Joseph's bones with him, because Joseph had made the Israelites swear, "God will surely come to you, and you must carry my bones up from here with you." 
+They set out from Succoth and camped at Etham, on the edge of the wilderness. 
+God went ahead of them in a pillar of cloud by day to guide them, and a pillar of fire by night to give them light, so they could travel by day or night. 
+Neither the pillar of cloud by day nor the pillar of fire by night ever left its place in front of the people. 

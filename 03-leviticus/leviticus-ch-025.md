@@ -1,55 +1,55 @@
-﻿God said to Moses on Mount Sinai, 
-"Speak to the children of Israel, and tell them, 'When you come into the land which I give you, then the land will keep a Sabbath to God. 
-You will sow your field six years, and you will prune your vineyard six years, and gather in its fruits; 
-but in the seventh year there will be a Sabbath of solemn rest for the land, a Sabbath to God. You won't sow your field or prune your vineyard. 
-What grows of itself in your harvest you won't reap, and you won't gather the grapes of your undressed vine. It will be a year of solemn rest for the land. 
-The Sabbath of the land will be for food for you; for yourself, for your servant, for your maid, for your hired servant, and for your stranger, who lives as a foreigner with you. 
-Your livestock also, and for the animals that are in your land, will all its increase be for food. 
-"'You will count off seven Sabbaths of years, seven times seven years; and there will be to you the days of seven Sabbaths of years, even forty-nine years. 
-Then you will sound the loud trumpet on the tenth day of the seventh month. On the Day of Making Right you will sound the trumpet throughout all your land. 
-You will make the fiftieth year holy, and proclaim liberty throughout the land to all its inhabitants. It will be a jubilee to you; and each of you will return to his own property, and each of you will return to his family. 
-That fiftieth year will be a jubilee to you. In it you won't sow, neither reap that which grows of itself, nor gather from the undressed vines. 
-It's a jubilee; it will be holy to you. You will eat of its increase out of the field. 
-"'In this Year of Jubilee each of you will return to his property. 
-"'If you sell anything to your neighbor, or buy from your neighbor, you won't wrong one another. 
-According to the number of years after the Jubilee you will buy from your neighbor. According to the number of years of the crops he will sell to you. 
-According to the length of the years you will increase its price, and according to the shortness of the years you will diminish its price; for he's selling the number of the crops to you. 
-Don't wrong one another, but you will fear your God; for I'm your God. 
-"'So you will do my statutes, and keep my ordinances and do them; and you will dwell in the land in safety. 
-The land will yield its fruit, and you will eat your fill, and dwell therein in safety. 
-If you said, "What will we eat the seventh year? Look, we won't sow, nor gather in our increase;" 
-then I'll command my blessing on you in the sixth year, and it will bear fruit for the three years. 
-You will sow the eighth year, and eat of the fruits from the old store until the ninth year. Until its fruits come in, you will eat the old store. 
-"'The land won't be sold in perpetuity, for the land is mine; for you're strangers and live as foreigners with me. 
-In all the land of your possession you will grant a buying back for the land. 
-"'If your brother becomes poor, and sells some of his possessions, then his kinsman who's next to him will come, and buy back that which his brother has sold. 
-If a man has no one to buy it back, and he becomes prosperous and finds sufficient means to buy it back, 
-then let him reckon the years since its sale, and restore the surplus to the man to whom he sold it; and he will return to his property. 
-But if he isn't able to get it back for himself, then what he has sold will remain in the hand of him who has bought it until the Year of Jubilee. In the Jubilee it will be released, and he will return to his property. 
-"'If a man sells a dwelling house in a walled city, then he can buy it back within a whole year after it has been sold. A full year he will have the right of buying back. 
-If it isn't bought back within the space of a full year, then the house that's in the walled city will be made sure in perpetuity to him who bought it, throughout his generations. It won't be released in the Jubilee. 
-But the houses of the villages which have no wall around them will be accounted for with the fields of the country: they can be bought back, and they will be released in the Jubilee. 
-"'Nevertheless, in the cities of the Levites, the Levites may buy back the houses in the cities of their possession at any time. 
-The Levites may buy back the house that was sold, and the city of his possession, and it will be released in the Jubilee; for the houses of the cities of the Levites are their possession among the children of Israel. 
-But the field of the pasture lands of their cities can't be sold, for it's their perpetual possession. 
-"'If your brother has become poor, and his hand can't support himself among you, then you will uphold him. He will live with you like an alien and a temporary resident. 
-Take no interest from him or profit; but fear your God, that your brother may live among you. 
-Don't lend him your money at interest, nor give him your food for profit. 
-I'm your God, who brought you out of the land of Egypt, to give you the land of Canaan, and to be your God. 
-"'If your brother has grown poor among you, and sells himself to you, you won't make him to serve as a slave. 
-As a hired servant, and as a temporary resident, he will be with you; he will serve with you until the Year of Jubilee. 
-Then he will go out from you, he and his children with him, and will return to his own family, and to the possession of his fathers. 
-They're my servants, whom I brought out of the land of Egypt. They won't be sold as slaves. 
-Don't rule over him with harshness, but will fear your God. 
-"'As for your male and your female slaves, whom you can have from the nations that are around you, from them you can buy male and female slaves. 
-Moreover, of the children of the aliens who live among you, of them you can buy, and of their families who are with you, which they have conceived in your land; and they'll be your property. 
-You can make them an inheritance for your children after you, to hold for a possession. Of them you can take your slaves for the eras, but over your brothers the children of Israel you won't rule, one over another, with harshness. 
-"'If an alien or temporary resident with you becomes rich, and your brother beside him has grown poor, and sells himself to the stranger or foreigner living among you, or to a member of the stranger's family, 
-after he's sold he can be bought back. One of his brothers may buy him back; 
-or his uncle, or his uncle's son, may buy him back, or any who's a close relative to him of his family may buy him back; or if he has grown rich, he can buy him backself. 
-He will reckon with him who bought him from the year that he sold himself to him to the Year of Jubilee. The price of his sale will be according to the number of years; he will be with him according to the time of a hired servant. 
-If there are yet many years, according to them he will give back the price of his buying back out of the money that he was bought for. 
-If there remain but a few years to the year of jubilee, then he will reckon with him; according to his years of service he will give back the price of his buying back. 
-As a servant hired year by year will he be with him. He won't rule with harshness over him in your sight. 
-If he isn't bought back by these means, then he will be released in the Year of Jubilee: he and his children with him. 
-To me the children of Israel are servants; they're my servants whom I brought out of the land of Egypt. I'm your God. 
+﻿God said to Moses on Mount Sinai: 
+"Speak to the Israelites and tell them, 'When you come into the land I am giving you, the land itself is to keep a Sabbath to God. 
+For six years you are to sow your field and prune your vineyard and gather its crops, 
+but in the seventh year the land is to have a Sabbath of complete rest, a Sabbath to God. You are not to sow your field or prune your vineyard. 
+Don't reap what grows on its own from your harvest, and don't gather the grapes from your unpruned vines. It is a year of complete rest for the land. 
+What the land produces during its Sabbath will be food for you: for you, your male and female servants, your hired workers and the foreigners living with you, 
+and for your livestock and the wild animals in your land. Everything it grows will be food. 
+"'Count off seven sabbaths of years, seven times seven years, so that the seven sabbaths of years come to forty-nine years. 
+Then sound the loud trumpet on the tenth day of the seventh month. On the Day of Making Things Right sound the trumpet through all your land. 
+Set the fiftieth year apart and proclaim freedom through the land for all its inhabitants. It is to be a jubilee for you, and each of you is to return to his own property and to his own family. 
+That fiftieth year is to be a jubilee for you. You are not to sow, or reap what grows on its own, or gather from the unpruned vines. 
+It is a jubilee, and it is to be set apart for you. You are to eat what the field grows that year. 
+"'In this Year of Jubilee each of you is to return to his own property. 
+"'If you sell anything to your neighbor or buy from your neighbor, don't take advantage of each other. 
+When you buy from your neighbor, count the years since the Jubilee, and when he sells to you, he is to count the number of crops still to come. 
+The more years there are, the higher the price, and the fewer years there are, the lower the price, because what he is selling you is a number of harvests. 
+Don't take advantage of each other, but fear your God, because I am your God. 
+"'So do my rules and keep my decisions and do them, and you will live in the land in safety. 
+The land will give its fruit, and you will eat your fill and live there in safety. 
+If you ask, "What will we eat in the seventh year, since we aren't sowing or gathering crops?" 
+then I will command my blessing for you in the sixth year, and it will produce enough for three years. 
+When you sow in the eighth year, you will still be eating from the old store, and you will keep eating the old store until the crops come in in the ninth year. 
+"'The land must not be sold permanently, because the land is mine, and you are foreigners and guests living with me. 
+In all the land you hold, you are to allow the land to be bought back. 
+"'If your brother becomes poor and sells some of his property, his nearest relative is to come and buy back what his brother sold. 
+If a man has no one to buy it back for him, but he later gets enough money himself, 
+he is to count the years since he sold it, pay back the surplus to the man he sold it to, and return to his property. 
+But if he can't get the money to buy it back, what he sold stays with the buyer until the Year of Jubilee. In the Jubilee it is released, and he returns to his property. 
+"'If a man sells a house in a walled city, he may buy it back for a full year after the sale. He has that right for a full year. 
+If it isn't bought back within the year, the house in the walled city becomes permanently the buyer's, through all his generations. It is not released in the Jubilee. 
+But houses in villages without a wall around them count as fields in the open country: they may be bought back, and they are released in the Jubilee. 
+"'As for the cities of the Levites, the Levites always have the right to buy back houses in their cities. 
+If a Levite buys back a house, the house that was sold in his city is released in the Jubilee, because the houses of the Levite cities are their property among the Israelites. 
+But the pasture land around their cities can't be sold, because it is their permanent property. 
+"'If your brother becomes poor and can't support himself among you, help him, so he can keep living with you as a foreigner and a guest would. 
+Don't charge him interest or make a profit from him, but fear your God, so your brother can go on living among you. 
+Don't lend him money at interest or sell him food at a profit. 
+I am your God, who brought you out of Egypt to give you the land of Canaan and to be your God. 
+"'If your brother becomes poor among you and sells himself to you, don't make him work as a slave. 
+He is to be with you as a hired worker or a guest, and serve with you until the Year of Jubilee. 
+Then he is to leave you, he and his children with him, and return to his own family and to the property of his fathers. 
+They are my servants, whom I brought out of Egypt, and they must not be sold as slaves. 
+Don't rule over him harshly, but fear your God. 
+"'As for the male and female slaves you may have, you may buy them from the nations around you, 
+and you may also buy from the foreigners living among you and from their families born in your land, and they will be your property. 
+You may leave them to your children as inherited property, and you may use them as slaves for the eras, but you must not rule harshly over your brothers, the Israelites, one over another. 
+"'If a foreigner or guest living with you becomes rich and your brother beside him becomes poor and sells himself to that foreigner or guest, or to a member of the foreigner's family, 
+he may be bought back after he is sold. One of his brothers may buy him back, 
+or his uncle, or his uncle's son, or any close relative from his family may buy him back, or if he gets money himself, he may buy himself back. 
+He is to work out the price with his buyer from the year he sold himself until the Year of Jubilee. The price is to be set by the number of years, counted like the wage of a hired worker. 
+If many years remain, he is to pay back a share of the price he was bought for. 
+If only a few years remain until the Jubilee, he is to work it out, and pay back the price according to his years of service. 
+He is to be with him as a worker hired year by year, and he must not rule over him harshly while you watch. 
+If he is not bought back in any of these ways, then he and his children with him are to be released in the Year of Jubilee, 
+because the Israelites are my servants. They are my servants, whom I brought out of Egypt. I am your God. 

@@ -1,33 +1,33 @@
-﻿God spoke to Moses and to Aaron, saying, 
-"Speak to the children of Israel, and tell them, 'When any man has a discharge from his body, because of his discharge he's unclean. 
-This will be his uncleanness in his discharge: whether his body runs with his discharge, or his body has stopped from his discharge, it's his uncleanness. 
-"'Every bed on which he who has the discharge lies will be unclean; and everything he sits on will be unclean. 
-Whoever touches his bed will wash his clothes, and bathe himself in water, and be unclean until the evening. 
-He who sits on anything on which the man who has the discharge sat will wash his clothes, and bathe himself in water, and be unclean until the evening. 
-"'He who touches the body of him who has the discharge will wash his clothes, and bathe himself in water, and be unclean until the evening. 
-"'If he who has the discharge spits on him who's clean, then he will wash his clothes, and bathe himself in water, and be unclean until the evening. 
-"'Whatever saddle he who has the discharge rides on will be unclean. 
-Whoever touches anything that was under him will be unclean until the evening. He who carries those things will wash his clothes, and bathe himself in water, and be unclean until the evening. 
-"'Whomever he who has the discharge touches, without having rinsed his hands in water, he will wash his clothes, and bathe himself in water, and be unclean until the evening. 
-"'The earthen vessel, which he who has the discharge touches, will be broken; and every vessel of wood will be rinsed in water. 
-"'When he who has a discharge is cleansed of his discharge, then he will count to himself seven days for his cleansing, and wash his clothes; and he will bathe his flesh in running water, and will be clean. 
-"'On the eighth day he will take two turtledoves, or two young pigeons, and come before God to the door of the Tent of Meeting, and give them to the priest. 
-The priest will offer them, the one for an offering for wrongdoing, and the other for a burnt offering. The priest will make things right for him before God for his discharge. 
-"'If any man has an emission of semen, then he will bathe all his flesh in water, and be unclean until the evening. 
-Every garment and every skin which the semen is on will be washed with water, and be unclean until the evening. 
-If a man lies with a woman and there's an emission of semen, they will both bathe themselves in water, and be unclean until the evening. 
-"'If a woman has a discharge, and her discharge in her flesh is blood, she will be in her impurity seven days. Whoever touches her will be unclean until the evening. 
-"'Everything that she lies on in her impurity will be unclean. Everything also that she sits on will be unclean. 
-Whoever touches her bed will wash his clothes, and bathe himself in water, and be unclean until the evening. 
-Whoever touches anything that she sits on will wash his clothes, and bathe himself in water, and be unclean until the evening. 
-If it's on the bed, or on anything she sits on, when he touches it, he will be unclean until the evening. 
-"'If any man lies with her, and her monthly flow is on him, he will be unclean seven days; and every bed he lies on will be unclean. 
-"'If a woman has a discharge of her blood many days not in the time of her period, or if she has a discharge beyond the time of her period, all the days of the discharge of her uncleanness will be as in the days of her period. She's unclean. 
-Every bed she lies on all the days of her discharge will be to her as the bed of her period. Everything she sits on will be unclean, as the uncleanness of her period. 
-Whoever touches these things will be unclean, and will wash his clothes and bathe himself in water, and be unclean until the evening. 
-"'But if she's cleansed of her discharge, then she will count to herself seven days, and after that she will be clean. 
-On the eighth day she will take two turtledoves, or two young pigeons, and bring them to the priest, to the door of the Tent of Meeting. 
-The priest will offer the one for an offering for wrongdoing, and the other for a burnt offering; and the priest will make things right for her before God for the uncleanness of her discharge. 
-"'Thus you will separate the children of Israel from their uncleanness, so they won't die in their uncleanness when they defile my tabernacle that's among them.'" 
-This is the law of him who has a discharge, and of him who has an emission of semen, so that he's unclean by it; 
-and of her who has her period, and of a man or woman who has a discharge, and of him who lies with her who's unclean. 
+﻿God spoke to Moses and Aaron: 
+"Speak to the Israelites and tell them, 'When a man has a discharge from his body, the discharge makes him unclean. 
+This is how his discharge makes him unclean: whether his body flows with the discharge or has stopped flowing, he is unclean. 
+"'Any bed the man with the discharge lies on is unclean, and anything he sits on is unclean. 
+Whoever touches his bed is to wash his clothes and wash himself in water, and will be unclean until evening. 
+Whoever sits on anything the man with the discharge sat on is to wash his clothes and wash himself in water, and will be unclean until evening. 
+"'Whoever touches the body of the man with the discharge is to wash his clothes and wash himself in water, and will be unclean until evening. 
+"'If the man with the discharge spits on someone who is clean, that person is to wash his clothes and wash himself in water, and will be unclean until evening. 
+"'Any saddle the man with the discharge rides on is unclean. 
+Whoever touches anything that was under him will be unclean until evening, and whoever carries those things is to wash his clothes and wash himself in water, and will be unclean until evening. 
+"'Anyone the man with the discharge touches without having rinsed his hands in water is to wash his clothes and wash himself in water, and will be unclean until evening. 
+"'A clay pot the man with the discharge touches must be broken, and any wooden utensil must be rinsed in water. 
+"'When the man with the discharge is cleansed of it, he is to count off seven days for his cleansing, wash his clothes, and wash his body in running water, and he will be clean. 
+On the eighth day he is to take two doves or two young pigeons, come before God at the entrance of the Tent of Meeting and give them to the priest. 
+The priest is to offer them, one as an offering for wrongdoing and the other as a burnt offering, and the priest will make things right for him before God for his discharge. 
+"'If a man has an emission of semen, he is to wash his whole body in water and will be unclean until evening. 
+Every garment and every piece of leather the semen is on must be washed with water and will be unclean until evening. 
+If a man lies with a woman and there is an emission of semen, both are to wash themselves in water and will be unclean until evening. 
+"'If a woman has a discharge of blood from her body, she will be in her impurity for seven days. Whoever touches her will be unclean until evening. 
+"'Anything she lies on during her impurity is unclean, and anything she sits on is unclean. 
+Whoever touches her bed is to wash his clothes and wash himself in water, and will be unclean until evening. 
+Whoever touches anything she sits on is to wash his clothes and wash himself in water, and will be unclean until evening. 
+If it is on the bed or on anything she sits on, when he touches it he will be unclean until evening. 
+"'If a man lies with her and her monthly flow is on him, he will be unclean for seven days, and every bed he lies on will be unclean. 
+"'If a woman has a flow of blood for many days outside her period, or if it goes on beyond her period, she will be unclean all the days of the flow, the same as during her period. 
+Every bed she lies on during the flow will be for her like the bed of her period, and everything she sits on will be unclean, the same as during her period. 
+Whoever touches these things will be unclean, and is to wash his clothes and wash himself in water, and will be unclean until evening. 
+"'When she is cleansed of her flow, she is to count off seven days, and after that she will be clean. 
+On the eighth day she is to take two doves or two young pigeons and bring them to the priest at the entrance of the Tent of Meeting. 
+The priest is to offer one as an offering for wrongdoing and the other as a burnt offering, and the priest will make things right for her before God for the uncleanness of her flow. 
+"'You must keep the Israelites away from their uncleanness, so they don't die in their uncleanness by making my tent, which is among them, unclean.'" 
+This is the law for the man with a discharge and for the man with an emission of semen, who becomes unclean by it, 
+and for the woman in her period, and for anyone, man or woman, with a discharge, and for the man who lies with a woman who is unclean. 

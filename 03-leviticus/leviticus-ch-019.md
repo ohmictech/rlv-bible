@@ -1,37 +1,37 @@
-﻿God spoke to Moses, saying, 
-"Speak to all the congregation of the children of Israel, and tell them, 'You will be holy; for I, your God, am holy. 
-"'Each one of you will respect his mother and his father. You will keep my Sabbaths. I'm your God. 
-"'Don't turn to idols, nor make molten gods for yourselves. I'm your God. 
-"'When you offer a sacrifice of offerings for wholeness to God, you will offer it so that you can be accepted. 
-It will be eaten the same day you offer it, and on the next day. If anything remains until the third day, it will be burned with fire. 
-If it's eaten at all on the third day, it's an abomination. It won't be accepted; 
-but everyone who eats it will bear his guilt, because he has profaned the holy thing of God, and that soul will be cut off from his people. 
-"'When you reap the harvest of your land, you won't wholly reap the corners of your field, neither will you gather the gleanings of your harvest. 
-Don't glean your vineyard, neither will you gather the fallen grapes of your vineyard. You will leave them for the poor and for the foreigner. I'm your God. 
-"'Don't steal. "'Don't lie. "'Don't deceive one another. 
-"'Don't swear by my name falsely, and profane the name of your God. I'm God. 
-"'Don't oppress your neighbor, nor rob him. "'The wages of a hired servant won't remain with you all night until the morning. 
-"'Don't curse the deaf, nor put a stumbling block before the blind; but you will fear your God. I'm God. 
-"'You will do no injustice in judgment. Don't be partial to the poor, nor show favoritism to the great; but you will judge your neighbor in righteousness. 
-"'Don't go around as a slanderer among your people. "'Don't endanger the life of your neighbor. I'm God. 
-"'Don't hate your brother in your heart. You will surely rebuke your neighbor, and not incur guilt because of him. 
-"'Don't take vengeance, nor bear any grudge against the children of your people; but you will love your neighbor as yourself. I'm God. 
-"'You will keep my statutes. "'Don't cross-breed different kinds of animals. "'Don't sow your field with two kinds of seed; "'Don't wear a garment made of two kinds of material. 
-"'If a man lies carnally with a woman who's a slave girl, pledged to be married to another man, and not ransomed or given her freedom; they will be punished. They won't be put to death, because she wasn't free. 
-He will bring his trespass offering to God, to the door of the Tent of Meeting, even a ram for a trespass offering. 
-The priest will make things right for him with the ram of the trespass offering before God for the wrong he has done; and the wrongdoing he has committed will be forgiven him. 
-"'When you come into the land, and have planted all kinds of trees for food, then you will count their fruit as forbidden. Three years it will be forbidden to you. It won't be eaten. 
-But in the fourth year all its fruit will be holy, for giving praise to God. 
-In the fifth year you will eat its fruit, that it may yield its increase to you. I'm your God. 
-"'Don't eat any meat with the blood still in it. Don't use enchantments, nor practice sorcery. 
-"'Don't cut the hair on the sides of your head or clip off the edge of your beard. 
-"'Don't make any cuttings in your flesh for the dead, nor tattoo any marks on you. I'm God. 
-"'Don't profane your daughter, to make her a prostitute; lest the land fall to prostitution, and the land become full of guilt. 
-"'You will keep my Sabbaths, and reverence my sanctuary; I'm God. 
-"'Don't turn to those who are mediums, nor to the wizards. Don't seek them out, to be defiled by them. I'm your God. 
-"'You will rise up before the gray head and honor the face of the elderly; and you will fear your God. I'm God. 
-"'If a stranger lives as a foreigner with you in your land, you won't do him wrong. 
-The stranger who lives as a foreigner with you will be to you as the native-born among you, and you will love him as yourself; for you lived as foreigners in the land of Egypt. I'm your God. 
-"'You will do no unrighteousness in judgment, in measures of length, of weight, or of quantity. 
-You will have just balances, just weights, a just ephah, and a just hin. I'm your God, who brought you out of the land of Egypt. 
-"'You will observe all my statutes and all my ordinances, and do them. I'm God.'" 
+﻿God spoke to Moses: 
+"Speak to the whole community of Israel and tell them, 'Be set apart, because I, your God, am set apart. 
+"'Each of you is to respect his mother and father, and keep my Sabbaths. I am your God. 
+"'Don't turn to idols or make metal gods for yourselves. I am your God. 
+"'When you offer a wholeness sacrifice to God, offer it so that you will be accepted. 
+It is to be eaten on the day you offer it, or the next day, and anything left until the third day must be burned with fire. 
+If any of it is eaten on the third day, it is disgusting and will not be accepted. 
+Anyone who eats it will carry his guilt, because he has made unclean what was set apart for God, and that person is to be cut off from his people. 
+"'When you harvest your land, don't reap all the way to the edges of your field or pick up what is left after the harvest. 
+Don't strip your vineyard or pick up the grapes that fall. Leave them for the poor and the foreigner. I am your God. 
+"'Don't steal. Don't lie. Don't deceive each other. 
+"'Don't swear falsely by my name and make the name of your God unclean. I am God. 
+"'Don't cheat your neighbor or rob him. Don't keep a hired man's pay overnight until morning. 
+"'Don't curse a deaf person or put something in the way of a blind person, but fear your God. I am God. 
+"'Don't be unjust in court. Don't favor the poor or show partiality to the great, but judge your neighbor fairly. 
+"'Don't go around spreading slander among your people. Don't put your neighbor's life in danger. I am God. 
+"'Don't hate your brother in your heart. Correct your neighbor openly, so you don't share his guilt. 
+"'Don't take revenge or hold a grudge against your people, but love your neighbor as yourself. I am God. 
+"'Keep my rules. Don't breed two kinds of animals together. Don't plant your field with two kinds of seed. Don't wear clothes woven from two kinds of material. 
+"'If a man has sex with a woman who is a slave girl promised to another man, and she has not been bought back or given her freedom, there is to be a penalty. They are not to be put to death, because she was not free. 
+He is to bring his offering for guilt to God at the entrance of the Tent of Meeting, a ram as an offering for guilt. 
+The priest will make things right for him with the ram of the offering for guilt before God for the wrong he has done, and the wrongdoing he committed will be forgiven him. 
+"'When you come into the land and plant fruit trees of any kind, treat their fruit as forbidden. For three years it is forbidden to you and must not be eaten. 
+In the fourth year all its fruit is set apart, a praise offering to God. 
+In the fifth year you may eat its fruit, so that it keeps giving you more. I am your God. 
+"'Don't eat meat with the blood still in it. Don't use magic or practice sorcery. 
+"'Don't cut the hair at the sides of your head or trim the edges of your beard. 
+"'Don't cut your bodies for the dead or put tattoo marks on yourselves. I am God. 
+"'Don't make your daughter unclean by turning her into a prostitute, or the land will turn to prostitution and be full of guilt. 
+"'Keep my Sabbaths and honor my Holy Place. I am God. 
+"'Don't turn to people who talk to the dead or to fortune tellers. Don't go looking for them and become unclean through them. I am your God. 
+"'Stand up in the presence of gray hair and honor the elderly, and fear your God. I am God. 
+"'If a foreigner lives with you in your land, don't mistreat him. 
+The foreigner living with you is to be treated as one of your own people. Love him as yourself, because you were foreigners in Egypt. I am your God. 
+"'Don't be dishonest in court, in measuring length, weight or quantity. 
+Use honest scales, honest weights, an honest ephah and an honest hin. I am your God, who brought you out of Egypt. 
+"'Keep all my rules and all my decisions and do them. I am God.'" 

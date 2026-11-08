@@ -1,27 +1,27 @@
-﻿God spoke to Moses, saying, 
-"Moreover, you will tell the children of Israel, 'Anyone of the children of Israel, or of the strangers who live as foreigners in Israel, who gives any of his offspring to Molech will surely be put to death. The people of the land will stone that person with stones. 
-I also will set my face against that person, and will cut him off from among his people, because he has given of his offspring to Molech, to defile my sanctuary, and to profane my holy name. 
-If the people of the land all hide their eyes from that person when he gives of his offspring to Molech, and don't put him to death, 
-then I'll set my face against that man and against his family, and will cut him off, and everyone who plays the prostitute after him to play the prostitute with Molech, from among their people. 
-"'The person that turns to those who are mediums and wizards, to play the prostitute after them, I'll even set my face against that person, and will cut him off from among his people. 
-"'Sanctify yourselves, and be holy; for I'm your God. 
-You will keep my statutes, and do them. I'm God who sanctifies you. 
-"'Everyone who curses his father or his mother will surely be put to death. He has cursed his father or his mother. His blood will be upon himself. 
-"'The man who commits adultery with another man's wife, even he who commits adultery with his neighbor's wife, the adulterer and the adulteress will surely be put to death. 
-"'The man who lies with his father's wife has uncovered his father's nakedness. Both of them will surely be put to death. Their blood will be upon themselves. 
-"'If a man lies with his daughter-in-law, both of them will surely be put to death. They have committed a perversion. Their blood will be upon themselves. 
-"'If a man lies with a male, as with a woman, both of them have committed an abomination. They will surely be put to death. Their blood will be upon themselves. 
-"'If a man takes a wife and her mother, it's guilt. They will be burned with fire, both he and they, that there may be no guilt among you. 
-"'If a man lies with an animal, he will surely be put to death; and you will kill the animal. 
-"'If a woman approaches any animal and lies with it, you will kill the woman and the animal. They will surely be put to death. Their blood will be upon them. 
-"'If a man takes his sister, his father's daughter, or his mother's daughter, and sees her nakedness, and she sees his nakedness, it's a shameful thing. They will be cut off in the sight of the children of their people. He has uncovered his sister's nakedness. He will bear his guilt. 
-"'If a man lies with a woman having her monthly period, and uncovers her nakedness, he has made her fountain naked, and she has uncovered the fountain of her blood. Both of them will be cut off from among their people. 
-"'Don't uncover the nakedness of your mother's sister, nor of your father's sister, for he has made his close relative naked. They will bear their guilt. 
-If a man lies with his uncle's wife, he has uncovered his uncle's nakedness. They will bear their guilt. They will die childless. 
-"'If a man takes his brother's wife, it's an impurity. He has uncovered his brother's nakedness. They will be childless. 
-"'You will keep all my statutes and all my ordinances, and do them, that the land where I am bringing you to dwell can't vomit you out. 
-Don't walk in the customs of the nation which I'm casting out before you; for they did all these things, and so I abhorred them. 
-But I have said to you, "You will inherit their land, and I'll give it to you to possess it, a land flowing with milk and honey." I'm your God, who has separated you from the peoples. 
-"'You will make a distinction between the clean animal and the unclean, and between the unclean fowl and the clean. You won't make yourselves abominable by animal, or by bird, or by anything with which the ground teems, which I have separated from you as unclean for you. 
-You will be holy to me, for I, God, am holy, and have set you apart from the peoples, that you should be mine. 
-"'A man or a woman that's a medium or is a wizard will surely be put to death. They will be stoned with stones. Their blood will be upon themselves.'" 
+﻿God spoke to Moses: 
+"You are also to tell the Israelites, 'Any Israelite, or any foreigner living in Israel, who gives any of his children to Molech is to be put to death. The people of the land are to stone him. 
+I will set my face against that man and cut him off from among his people, because he has given his children to Molech, making my Holy Place unclean and dishonoring my set apart name. 
+If the people of the land look the other way when he gives his children to Molech and don't put him to death, 
+then I will set my face against that man and his family and cut them off from among their people, along with everyone who follows him in chasing after Molech. 
+"'I will set my face against anyone who turns to people who talk to the dead and to fortune tellers and chases after them, and I will cut him off from among his people. 
+"'Set yourselves apart and be set apart, because I am your God. 
+Keep my rules and do them. I am God, who sets you apart. 
+"'Anyone who curses his father or mother is to be put to death. He has cursed his father or mother, and his blood is on his own head. 
+"'A man who commits adultery with another man's wife, with his neighbor's wife, is to be put to death, both the man and the woman. 
+"'A man who has sex with his father's wife has dishonored his father. Both of them are to be put to death, and their blood is on their own heads. 
+"'If a man has sex with his daughter-in-law, both are to be put to death. They have done a perverse thing, and their blood is on their own heads. 
+"'If a man has sex with a man the way he would with a woman, both have done something detestable. They are to be put to death, and their blood is on their own heads. 
+"'If a man marries a woman and her mother, it is a disgrace. He and both women are to be burned with fire, so there is no disgrace among you. 
+"'If a man has sex with an animal, he is to be put to death, and you are to kill the animal. 
+"'If a woman goes to an animal and mates with it, you are to kill the woman and the animal. They are to be put to death, and their blood is on their own heads. 
+"'If a man takes his sister, his father's daughter or his mother's daughter, and has sex with her, it is a shameful thing, and they are to be cut off in the sight of their people. He has had sex with his sister and will carry his guilt. 
+"'If a man has sex with a woman during her period, he has exposed the source of her blood, and she has exposed it too. Both of them are to be cut off from among their people. 
+"'Don't have sex with your mother's sister or your father's sister, because that exposes a close relative, and they will carry their guilt. 
+If a man has sex with his uncle's wife, he has dishonored his uncle. They will carry their guilt and die childless. 
+"'If a man takes his brother's wife, it is impurity. He has dishonored his brother, and they will be childless. 
+"'Keep all my rules and all my decisions and do them, so that the land I am bringing you into will not throw you out. 
+Don't follow the customs of the nation I am driving out ahead of you, because they did all these things and I was sickened by them. 
+But I have told you, "You will take over their land, and I will give it to you as your own, a land flowing with milk and honey." I am your God, who has set you apart from the other peoples. 
+"'So you must tell the difference between clean animals and unclean, and between unclean birds and clean ones. Don't make yourselves disgusting with any animal, bird or crawling thing on the ground that I have set apart as unclean for you. 
+You are to be set apart to me, because I, God, am set apart, and I have set you apart from the other peoples to be mine. 
+"'A man or a woman who talks to the dead or tells fortunes is to be put to death. They are to be stoned, and their blood is on their own heads.'" 

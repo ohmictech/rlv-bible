@@ -728,7 +728,7 @@ Same format, same Rule 13: one line per lemma. **Only the divine name is ruled s
 | YHWH stacked with a title | God / your God | Stacked titles collapse: "the LORD God" and "Lord GOD" both read **God**, and "the LORD your God" reads **your God**. Gen 2:4; Ex 20:2; Ezek 2:4. |
 
 | olam | for the eras | The Hebrew twin of aion, so never "for ever": adverbial forms read **for the eras**, doxologies **for all the eras**. Gen 6:3; Ps 90:2. |
-| olam (adjective) | perpetual | Where it modifies a thing: "a perpetual covenant," "perpetual joy." The two divine titles read **of the eras** (Gen 21:33; Isa 9:6). |
+| olam (adjective) | perpetual | Where it modifies a thing: "a perpetual covenant," "perpetual joy." The two divine titles read **of the eras** (Gen 21:33; Isa 9:6). Ruled 2026-11-08: where it measures a state rather than attaching to a thing, it reads **of the era**, so Dan 12:2 gives "the real life of the era" and "shame and contempt of the era," because the verse is setting two ages side by side and not making a claim about duration. |
 | navi | spokesman | The Hebrew twin of prophetes, so the Old Testament follows Part 2. Gen 20:7; 1 Sam 9:9; Jer 1:5. Set phrase exception belongs to prophetes. |
 | mal'ak | messenger | The Hebrew twin of angelos, ruled **messenger**, never "angel." Gen 16:7; Judg 6:11; Mal 3:1. |
 | kaphar / kippur | make things right | The covering word, never "atonement," which no 20-year-old can define. Lev 16:16; Num 35:33. |

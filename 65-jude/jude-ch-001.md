@@ -4,7 +4,7 @@ My truly loved friends, I was very eager to write to you about the rescue we sha
 Certain people have slipped in among you unnoticed. They were marked out long ago for this verdict: they disregard God, they turn the favor of our God into an excuse for shameless living, and they deny our only Master, God and Lord, Jesus Christ. 
 I want to remind you, even though you already know it, that the Lord rescued a people out of the land of Egypt and afterward ruined those who didn't trust him. 
 And the messengers who didn't keep their own place of authority, but left their proper home, he has kept in chains of the era under darkness for the verdict of the great day. 
-In the same way, Sodom and Gomorrah and the towns around them gave themselves over to sleeping around and went after bodies that weren't their own. They stand as an example, suffering the penalty of fire for the eras. 
+In the same way, Sodom and Gomorrah and the towns around them gave themselves over to sleeping around and went after bodies that weren't their own. They stand as an example, suffering the penalty of the era's fire. 
 In the same way, these dreamers make the flesh unclean, despise authority, and slander glorious beings. 
 But even Michael the archangel, when he was arguing with the Slanderer about the body of Moses, didn't dare to bring a slanderous verdict against him. Instead he said, "May the Lord correct you!" 
 But these people slander whatever they don't understand, and what they do understand by instinct, like animals without reason, is what ruins them. 

@@ -18,4 +18,4 @@ so that Christ can make his home in your hearts through trust, and so that you, 
 may have the strength to grasp, along with all the set-apart ones, how wide and long and high and deep it is, 
 and to know the love of Christ that goes beyond all knowing, so that you can be filled with all the fullness of God. 
 Now to the one who's able to do far beyond all that we ask or imagine, measured by the power at work in us, 
-to him be the weight in the gathering and in Christ Jesus through all generations, for all the eras. Amen. 
+to him be the weight in the gathering and in Christ Jesus through all generations, through all the eras. Amen. 

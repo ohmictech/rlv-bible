@@ -15,7 +15,7 @@ Dominion was given him, and glory, and a kingdom, that everyones, nations, and l
 "As for me, Daniel, my spirit was grieved within my body, and the visions of my head troubled me. 
 I came near to one of those who stood by, and asked him the truth concerning all this. "So he told me, and made me know the interpretation of the things. 
 'These great animals, which are four, are four kings, who will arise out of the earth. 
-But the saints of the Most High will receive the kingdom, and possess the kingdom for the eras, even for all the eras.' 
+But the saints of the Most High will receive the kingdom, and possess the kingdom for the eras, even through all the eras.' 
 "Then I desired to know the truth concerning the fourth animal, which was different from everyone, exceedingly terrible, whose teeth were of iron, and its nails of bronze; which devoured, broke in pieces, and stamped the residue with its feet; 
 and concerning the ten horns that were on its head and the other horn which came up, and before which three fell, even that horn that had eyes and a mouth that spoke arrogantly, whose look was more stout than its fellows. 
 I saw, and the same horn made war with the saints, and prevailed against them, 

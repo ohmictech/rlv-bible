@@ -3,7 +3,7 @@ Praise him, all his messengers! Praise him, all his army!
 Praise him, sun and moon! Praise him, all you shining stars! 
 Praise him, you skies above the skies, you waters that are above the sky. 
 Let them praise God's name, for he commanded, and they were created. 
-He has also established them for all the eras. He has made a decree which won't pass away. 
+He has also established them through all the eras. He has made a decree which won't pass away. 
 Praise God from the earth, you great sea creatures, and all depths, 
 lightning and hail, snow and clouds, stormy wind, fulfilling his word, 
 mountains and all hills, fruit trees and all cedars, 

@@ -2,7 +2,7 @@
 I'll be glad and rejoice in you. I'll sing praise to your name, O Most High. 
 When my enemies turn back, they stumble and perish in your presence. 
 You have maintained my just cause. You sit on the throne judging righteously. 
-You have rebuked the nations. You have destroyed the guilty. You have blotted out their name for all the eras. 
+You have rebuked the nations. You have destroyed the guilty. You have blotted out their name through all the eras. 
 The enemy is overtaken by lasting ruin. The very memory of the cities which you have overthrown has perished. 
 But God reigns for the eras. He has prepared his throne for judgment. 
 He'll judge the world in righteousness. He'll administer judgment to the peoples in uprightness. 

@@ -22,4 +22,4 @@ Keep yourselves in God's love, waiting for the mercy of our Lord Jesus Christ, w
 Show mercy to some, who are wavering, 
 and save others by snatching them out of the fire; and to others show mercy mixed with fear, hating even the clothing stained by the flesh. 
 Now to the one who's able to keep you from tripping, and to bring you without fault into the presence of his weight with great joy, 
-to God our Restorer, who alone is wise, be weight and majesty, authority and power, both now and for all the eras. Amen. 
+to God our Restorer, who alone is wise, be weight and majesty, authority and power, both now and through all the eras. Amen. 

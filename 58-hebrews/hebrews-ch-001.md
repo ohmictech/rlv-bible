@@ -5,7 +5,7 @@ He became as far above the messengers as the name he has been given is above the
 To which of the messengers did he ever say, "You're my Son. Today I have become your father"? And again, "I'll be a Father to him, and he'll be a Son to me"? 
 And when he brings his firstborn into the world again, he says, "Let all God's messengers bow down to him." 
 Of the messengers he says, "He makes his messengers winds, and his servants a flame of fire." 
-But of the Son he says, "Your throne, O God, is for all the eras. The scepter of uprightness is the scepter of your reign. 
+But of the Son he says, "Your throne, O God, stands through all the eras. The scepter of uprightness is the scepter of your reign. 
 You have loved rightness and hated living as if there were no law; that's why God, your God, has anointed you with the oil of gladness above your companions." 
 And, "You, Lord, laid the foundation of the earth in the beginning. The skies are the work of your hands. 
 They'll wear out, but you go on. They'll all grow old like a piece of clothing. 

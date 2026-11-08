@@ -8,7 +8,7 @@ The end of everything is near. So be clear-headed and self-controlled, so that y
 Above all, love one another deeply, because love covers over a great many mistakes. 
 Welcome each other into your homes without grumbling. 
 Each of you has received a gift. Use it to serve one another, as good managers of God's gift in all its different forms. 
-If anyone speaks, they should speak God's own words. If anyone serves, they should serve with the strength God provides, so that in everything God can be honored through Jesus Christ. To him belong the weight and the power for all the eras. Amen. 
+If anyone speaks, they should speak God's own words. If anyone serves, they should serve with the strength God provides, so that in everything God can be honored through Jesus Christ. To him belong the weight and the power through all the eras. Amen. 
 My truly loved friends, don't be surprised at the fire that has come on you to test you, as though something strange were happening to you. 
 Instead, celebrate, because you share in the sufferings of Christ, so that you can also celebrate and be glad when his weight is unveiled. 
 If you're insulted because of the name of Christ, you're flourishing, because the Spirit of splendor, the Spirit of God, rests on you. As for them, he's slandered; as for you, he's honored. 

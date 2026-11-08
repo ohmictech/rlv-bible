@@ -2,7 +2,7 @@
 that I have great sorrow and unceasing pain in my heart. 
 I could wish that I myself were given over from Christ for my brothers' sake, my relatives according to the flesh 
 who are Israelites; whose is the adoption, the weight, the binding arrangements, the giving of the law, the service, and the promises; 
-of whom are the ancestors, and from whom Christ came according to the flesh, who's over all, God, praised for all the eras. Amen. 
+of whom are the ancestors, and from whom Christ came according to the flesh, who's over all, God, praised through all the eras. Amen. 
 But it isn't as though the word of God has come to nothing. They aren't all Israel that are of Israel. 
 Neither, because they're Abraham's offspring, are they all children. But, "your offspring will be accounted as from Isaac." 
 That is, it isn't the children of the flesh who are children of God, but the children of the promise are counted as heirs. 

@@ -18,7 +18,7 @@ Do what your leaders tell you and follow them, because they keep watch over your
 Pray for us, for we're persuaded that we have a clean conscience, and we want to live honorably in all things. 
 I especially urge you to pray, so that I can be given back to you sooner. 
 Now may the God of wholeness, who brought back from the dead our Lord Jesus, the great shepherd of the sheep, by the blood of the arrangement of the era, 
-make you complete in every good deed so that you can do his will, working in you what's pleasing in his sight, through Jesus Christ, to whom be the weight for all the eras. Amen. 
+make you complete in every good deed so that you can do his will, working in you what's pleasing in his sight, through Jesus Christ, to whom be the weight through all the eras. Amen. 
 But I urge you, brothers and sisters, to bear with this word of encouragement, because I have written to you only briefly. 
 Know that our brother Timothy has been set free, and if he comes soon, I'll see you with him. 
 Greet all of your leaders and all the set-apart ones. Those from Italy greet you. 

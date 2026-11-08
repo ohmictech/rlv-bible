@@ -1,5 +1,5 @@
-﻿A praise psalm by David. I'll exalt you, my God, the King. I'll praise your name for all the eras. 
-Every day I'll praise you. I'll extol your name for all the eras. 
+﻿A praise psalm by David. I'll exalt you, my God, the King. I'll praise your name through all the eras. 
+Every day I'll praise you. I'll extol your name through all the eras. 
 Great is God, and greatly to be praised! His greatness is unsearchable. 
 One generation will commend your works to another, and will declare your mighty acts. 
 I'll meditate on the glorious majesty of your honor, on your wondrous works. 
@@ -18,4 +18,4 @@ God is righteous in all his ways, and gracious in all his works.
 God is near to everyone who calls on him, to everyone who calls on him in truth. 
 He'll fulfill the desire of those who fear him. He also will hear their cry, and will save them. 
 God preserves everyone who loves him, but he'll destroy all the guilty. 
-My mouth will speak the praise of God. Let all flesh bless his holy name for all the eras. 
+My mouth will speak the praise of God. Let all flesh bless his holy name through all the eras. 

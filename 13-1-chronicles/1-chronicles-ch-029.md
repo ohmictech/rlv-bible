@@ -7,7 +7,7 @@ Then the princes of the fathers' households, and the princes of the tribes of Is
 and they gave for the service of God's house of gold five thousand talents and ten thousand darics, of silver ten thousand talents, of bronze eighteen thousand talents, and of iron one hundred thousand talents. 
 People with whom precious stones were found gave them to the treasure of God's house, under the hand of Jehiel the Gershonite. 
 Then the people rejoiced, because they offered willingly, because with a perfect heart they offered willingly to God; and David the king also rejoiced with great joy. 
-So David blessed God before all the assembly; and David said, "You're blessed, the God of Israel our father, for all the eras. 
+So David blessed God before all the assembly; and David said, "You're blessed, the God of Israel our father, through all the eras. 
 Yours, God, is the greatness, the power, the glory, the victory, and the majesty! All that's in the sky and on the earth is yours. Yours is the kingdom, God, and you're exalted as head above all. 
 Both riches and honor come from you, and you rule over all! In your hand is power and might! It's in your hand to make great, and to give strength to all! 
 Now, our God, we thank you and praise your glorious name. 

@@ -13,6 +13,6 @@ Arise, God! God, lift up your hand! Don't forget the helpless.
 Why does the guilty person condemn God, and say in his heart, "God won't call me into account"? 
 But you do see trouble and grief. You consider it to take it into your hand. You help the victim and the fatherless. 
 Break the arm of the guilty. As for the bad man, seek out his guilt until you find none. 
-God is King for all the eras! The nations will perish out of his land. 
+God is King over all the eras! The nations will perish out of his land. 
 God, you have heard the desire of the humble. You'll prepare their heart. You'll cause your ear to hear, 
 to judge the fatherless and the oppressed, that man who's of the earth may terrify no more. 

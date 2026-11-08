@@ -22,7 +22,7 @@ Because, knowing God, they didn't give him weight as God or give thanks, but bec
 Claiming to be wise, they became fools, 
 and traded the weight of the undecaying God for images made to look like a decaying human being, and like birds, four-footed animals, and crawling things. 
 So God handed them over, in the cravings of their hearts, to uncleanness, so that their bodies were dishonored among themselves; 
-They traded the truth of God for a lie, and worshiped and served the creation rather than its Creator, who's praised for all the eras. Amen. 
+They traded the truth of God for a lie, and worshiped and served the creation rather than its Creator, who's praised through all the eras. Amen. 
 That's why God handed them over to dishonoring passions. Their women traded the natural function for what's against nature. 
 In the same way the men also left the natural function of the woman and burned in their craving for one another. Men did shameful things with men, and received in themselves the payback their wrongdoing deserved. 
 And just as they didn't think it worth holding God in their knowledge, God handed them over to a mind that fails the test, to do things that shouldn't be done; 

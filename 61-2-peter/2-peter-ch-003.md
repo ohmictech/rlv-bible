@@ -15,4 +15,4 @@ So, my truly loved friends, while you're looking forward to this, make every eff
 Think of our Lord's patience as rescue. That's what our truly loved brother Paul also wrote to you about, with the wisdom God gave him, 
 and he says the same in all his letters. Some things in them are hard to understand, and people who don't know any better and aren't steady twist them, as they do the rest of the Scriptures, to their own ruin. 
 So, my truly loved friends, since you know this ahead of time, be on your guard so that you aren't carried away by the error of those who live as if there were no law, and lose your own firm footing. 
-Instead, grow in the favor and the knowing of our Lord and Restorer Jesus Christ. To him be the weight both now and for all the eras. Amen. 
+Instead, grow in the favor and the knowing of our Lord and Restorer Jesus Christ. To him be the weight both now and through all the eras. Amen. 

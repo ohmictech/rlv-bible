@@ -8,7 +8,7 @@ throwing all your worries on him, because he cares about you.
 Stay clear-headed and stay awake. The one who's against you, the Slanderer, prowls around like a roaring lion, looking for someone to swallow up. 
 Stand against him, firm in your trust, knowing that your brothers and sisters all over the world are going through the same kinds of suffering. 
 And after you have suffered for a little while, may the God of all favor, who called you to his honor of the era in Christ Jesus, make you complete, make you firm, make you strong, and set you on a solid foundation. 
-To him be the weight and the power for all the eras. Amen. 
+To him be the weight and the power through all the eras. Amen. 
 I have written to you briefly through Silvanus, whom I consider a trustworthy brother, to encourage you and to bear witness that this is the true favor of God. Stand firm in it. 
 The gathering in Babylon, chosen along with you, sends you greetings. So does Mark, my son. 
 Greet one another with a kiss of love. Wholeness to all of you who are in Christ. Amen. 

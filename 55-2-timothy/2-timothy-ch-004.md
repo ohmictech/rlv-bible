@@ -15,7 +15,7 @@ Alexander the metalworker did me a great deal of harm. The Lord will pay him bac
 You should watch out for him too, because he fought hard against everything we said. 
 At my first defense no one stood with me; everyone left me. May it not be held against them. 
 But the Lord stood by me and gave me strength, so that through me the message might be announced in full and all the nations might hear it. And I was rescued out of the lion's mouth. 
-The Lord will rescue me from every bad deed and bring me safely into his reign in the sky. To him be the weight for all the eras. Amen. 
+The Lord will rescue me from every bad deed and bring me safely into his reign in the sky. To him be the weight through all the eras. Amen. 
 Greet Prisca and Aquila, and the household of Onesiphorus. 
 Erastus stayed at Corinth, and I left Trophimus at Miletus sick. 
 Do your best to come before winter. Eubulus, Pudens, Linus, Claudia, and all the brothers and sisters send their greetings. 

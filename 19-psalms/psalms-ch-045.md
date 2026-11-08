@@ -3,7 +3,7 @@ You're the most excellent of the sons of men. Grace has anointed your lips, God 
 Strap your sword on your thigh, O mighty one, in your splendor and your majesty. 
 In your majesty ride on victoriously on behalf of truth, humility, and righteousness. Let your right hand display awesome deeds. 
 Your arrows are sharp. The nations fall under you, with arrows in the heart of the king's enemies. 
-Your throne, God, is for all the eras. A scepter of equity is the scepter of your kingdom. 
+Your throne, God, stands through all the eras. A scepter of equity is the scepter of your kingdom. 
 You have loved righteousness, and hated guilt. So God, your God, has anointed you with the oil of gladness above your fellows. 
 All your garments smell like myrrh, aloes, and cassia. Out of ivory palaces stringed instruments have made you glad. 
 Kings' daughters are among your honorable women. At your right hand the queen stands in gold of Ophir. 
@@ -14,4 +14,4 @@ The princess inside is all glorious. Her clothing is interwoven with gold.
 She will be led to the king in embroidered work. The virgins, her companions who follow her, will be brought to you. 
 With gladness and rejoicing they will be led. They will enter into the king's palace. 
 Your sons will take the place of your fathers. You will make them princes in all the earth. 
-I'll make your name to be remembered in all generations. So the peoples will give you thanks for all the eras. 
+I'll make your name to be remembered in all generations. So the peoples will give you thanks through all the eras. 

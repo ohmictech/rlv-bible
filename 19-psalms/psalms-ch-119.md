@@ -41,7 +41,7 @@ Look, I long for your precepts! Revive me in your righteousness. VAV
 Let your loving kindness also come to me, God, your salvation, according to your word. 
 So I'll have an answer for him who reproaches me, for I trust in your word. 
 Don't snatch the word of truth out of my mouth, for I put my hope in your ordinances. 
-So I'll obey your law continually, for all the eras. 
+So I'll obey your law continually, through all the eras. 
 I'll walk in liberty, for I have sought your precepts. 
 I'll also speak of your statutes before kings, and won't be disappointed. 
 I'll delight myself in your commandments, because I love them. 

@@ -23,4 +23,4 @@ Do you have trust? Have it to yourself before God. Flourishing is the one who do
 But the one who doubts is sentenced if they eat, because it isn't of trust; and whatever isn't of trust is the drift. 
 Now to him who's able to establish you according to my Good News and the announcing of Jesus Christ, according to the unveiling of the secret which has been kept secret through long ages, 
 but now is revealed, and by the Scriptures of the spokesmen, according to the commandment of the God of the eras, is made known for obedience of trust to all the nations; 
-to the only wise God, through Jesus Christ, to whom be the weight for all the eras! Amen. 
+to the only wise God, through Jesus Christ, to whom be the weight through all the eras! Amen. 

@@ -2,7 +2,7 @@
 and all the brothers with me, to the gatherings of Galatia: 
 Favor and wholeness to you from God the Father and our Lord Jesus Christ, 
 who gave himself for our mistakes, to rescue us out of this present bad era, by the will of our God and Father, 
-to whom be the weight for all the eras. Amen. 
+to whom be the weight through all the eras. Amen. 
 I'm amazed that you're so quickly turning away from the one who called you by the favor of Christ, to a different "good news", 
 but there isn't another "good news." Only there are some who are troubling you and want to twist the Good News of Christ. 
 But even if we, or a messenger from the sky, announce to you any "good news" other than what we announced to you, let him be given over. 

@@ -17,7 +17,7 @@ Daniel went in, and desired of the king that he'd appoint him a time, and he'd s
 Then Daniel went to his house and made the thing known to Hananiah, Mishael, and Azariah, his companions: 
 that they'd desire mercies of the God of the sky concerning this secret, that Daniel and his companions wouldn't perish with the rest of the wise men of Babylon. 
 Then the secret was revealed to Daniel in a vision of the night. Then Daniel blessed the God of the sky. 
-Daniel answered, "Blessed be the name of God for all the eras; for wisdom and might are his. 
+Daniel answered, "Blessed be the name of God through all the eras; for wisdom and might are his. 
 He changes the times and the seasons. He removes kings and sets up kings. He gives wisdom to the wise, and knowledge to those who have understanding. 
 He reveals the deep and secret things. He knows what's in the darkness, and the light dwells with him. 
 I thank you and praise you, O God of my fathers, who have given me wisdom and might, and have now made known to me what we desired of you; for you have made known to us the king's matter." 

@@ -15,7 +15,7 @@ The peoples heard and trembled. Pain seized the people of Philistia.
 Then the chiefs of Edom were terrified. Trembling seized the warriors of Moab, and everyone in Canaan melted away. 
 Terror and dread fall on them. By the greatness of your arm they are still as stone, until your people pass over, God, until the people you bought pass over. 
 You will bring them in and plant them on the mountain that is your own, the place, God, you made for yourself to live in, the sanctuary, Lord, that your hands established. 
-God will reign for all the eras." 
+God will reign over all the eras." 
 Pharaoh's horses went into the sea with his chariots and horsemen, and God brought the water back over them, but the Israelites walked through the middle of the sea on dry ground. 
 Then Miriam the prophetess, Aaron's sister, took a tambourine, and all the women followed her with tambourines and dancing. 
 Miriam sang back to them: "Sing to God, because he has won a great victory. He has thrown the horse and its rider into the sea." 

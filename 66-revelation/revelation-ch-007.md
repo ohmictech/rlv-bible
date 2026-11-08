@@ -9,7 +9,7 @@ of the tribe of Zebulun twelve thousand, of the tribe of Joseph twelve thousand,
 After this I looked, and there was a great crowd that no one could count, from every nation and from all tribes and peoples and languages, standing in front of the throne and in front of the Lamb, dressed in white robes, with palm branches in their hands. 
 They cried out in a loud voice, saying, "Rescue belongs to our God, who sits on the throne, and to the Lamb!" 
 All the messengers were standing around the throne, the elders, and the four living creatures, and they fell on their faces in front of the throne and bowed down to God, 
-saying, "Amen! Blessing, weight, wisdom, thanksgiving, honor, power, and might be to our God for all the eras! Amen." 
+saying, "Amen! Blessing, weight, wisdom, thanksgiving, honor, power, and might be to our God through all the eras! Amen." 
 One of the elders spoke up and said to me, "These who are dressed in the white robes, who are they, and where did they come from?" 
 I told him, "Sir, you know." He said to me, "These are the ones who came through the great hard times. They washed their robes and made them white in the Lamb's blood. 
 That's why they're in front of the throne of God, and they serve him day and night in his temple. The one who sits on the throne will spread his tent over them. 

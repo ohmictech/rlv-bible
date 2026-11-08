@@ -10,5 +10,5 @@ And they sang a new song: "You're worthy to take the scroll and to open its seal
 You made us a kingdom and priests to serve our God, and we'll reign on the land." 
 Then I looked and heard the voice of many messengers around the throne, and of the living creatures and the elders. There were ten thousands of ten thousands of them, and thousands of thousands, 
 and they said in a loud voice, "The Lamb who was killed is worthy to receive power, wealth, wisdom, strength, honor, weight, and blessing!" 
-And I heard every created thing in the sky, on the land, under the land, on the sea, and everything in them, saying, "To the one who sits on the throne and to the Lamb be blessing, honor, weight, and power for all the eras! Amen!" 
+And I heard every created thing in the sky, on the land, under the land, on the sea, and everything in them, saying, "To the one who sits on the throne and to the Lamb be blessing, honor, weight, and power through all the eras! Amen!" 
 The four living creatures said, "Amen!" And the elders fell down and bowed low. 

@@ -17,7 +17,7 @@ Even while I was in Thessalonica you sent help for my needs more than once.
 Not that I'm looking for a gift; what I'm looking for is the fruit that piles up to your account. 
 I have everything I need and more than enough. I'm full, now that I have received from Epaphroditus what you sent, a sweet smell, a sacrifice that God accepts, pleasing to him. 
 And my God will fill every need of yours out of his riches in weight, in Christ Jesus. 
-To our God and Father be the weight for all the eras! Amen. 
+To our God and Father be the weight through all the eras! Amen. 
 Greet every set-apart one in Christ Jesus. The brothers and sisters with me greet you. 
 All the set-apart ones greet you, especially those in Caesar's household. 
 The favor of the Lord Jesus Christ be with you all. Amen. 

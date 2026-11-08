@@ -1,29 +1,29 @@
-﻿Bezalel made the ark of acacia wood. Its length was two and a half cubits, and its width a cubit and a half, and a cubit and a half its height. 
-He overlaid it with pure gold inside and outside, and made a molding of gold for it around it. 
-He cast four rings of gold for it in its four feet, two rings on its one side, and two rings on its other side. 
-He made poles of acacia wood and overlaid them with gold. 
-He put the poles into the rings on the sides of the ark, to bear the ark. 
-He made a mercy seat of pure gold. Its length was two and a half cubits, and a cubit and a half its width. 
-He made two cherubim of gold. He made them of beaten work, at the two ends of the mercy seat: 
-one cherub at the one end, and one cherub at the other end. He made the cherubim of one piece with the mercy seat at its two ends. 
-The cherubim spread out their wings above, covering the mercy seat with their wings, with their faces toward one another. The faces of the cherubim were toward the mercy seat. 
-He made the table of acacia wood. Its length was two cubits, and its width was a cubit, and its height was a cubit and a half. 
-He overlaid it with pure gold, and made a gold molding around it. 
-He made a border of a hand's width around it, and made a golden molding on its border around it. 
-He cast four rings of gold for it, and put the rings in the four corners that were on its four feet. 
-The rings were close by the border, the places for the poles to carry the table. 
-He made the poles of acacia wood, and overlaid them with gold, to carry the table. 
-He made the vessels which were on the table, its dishes, its spoons, its bowls, and its pitchers with which to pour out, of pure gold. 
-He made the lamp stand of pure gold. He made the lamp stand of beaten work. Its base, its shaft, its cups, its buds, and its flowers were of one piece with it. 
-There were six branches going out of its sides: three branches of the lamp stand out of its one side, and three branches of the lamp stand out of its other side: 
-three cups made like almond blossoms in one branch, a bud and a flower, and three cups made like almond blossoms in the other branch, a bud and a flower; so for the six branches going out of the lamp stand. 
-In the lamp stand were four cups made like almond blossoms, its buds and its flowers; 
-and a bud under two branches of one piece with it, and a bud under two branches of one piece with it, and a bud under two branches of one piece with it, for the six branches going out of it. 
-Their buds and their branches were of one piece with it. The whole thing was one beaten work of pure gold. 
-He made its seven lamps, and its snuffers, and its snuff dishes, of pure gold. 
-He made it of a talent of pure gold, with all its vessels. 
-He made the altar of incense of acacia wood. It was square: its length was a cubit, and its width a cubit. Its height was two cubits. Its horns were of one piece with it. 
-He overlaid it with pure gold: its top, its sides around it, and its horns. He made a gold molding around it. 
-He made two golden rings for it under its molding crown, on its two ribs, on its two sides, for places for poles with which to carry it. 
-He made the poles of acacia wood, and overlaid them with gold. 
-He made the holy anointing oil and the pure incense of sweet spices, after the art of the perfumer. 
+﻿Bezalel made the ark of acacia wood, two and a half cubits long, a cubit and a half wide and a cubit and a half high. 
+He covered it with pure gold, inside and out, and put a gold trim all around it. 
+He cast four gold rings for its four feet, two on one side and two on the other. 
+He made poles of acacia wood and covered them with gold. 
+He put the poles through the rings on the sides of the ark so it could be carried. 
+He made a mercy seat of pure gold, two and a half cubits long and a cubit and a half wide. 
+He made two cherubim of hammered gold at the two ends of the mercy seat, 
+one cherub at each end, all of one piece with the mercy seat. 
+The cherubim spread their wings upward, covering the mercy seat, with their faces toward each other, looking at the mercy seat. 
+He made the table of acacia wood, two cubits long, a cubit wide and a cubit and a half high. 
+He covered it with pure gold and put a gold trim all around it. 
+He made a rim a hand's width around it, with a gold trim around the rim. 
+He cast four gold rings and put them at the four corners, on its four legs. 
+The rings were close to the rim, to hold the poles for carrying the table. 
+He made the poles of acacia wood and covered them with gold, to carry the table. 
+He made the equipment for the table, its plates, its pans, its bowls and its pitchers for pouring out the drink offerings, all of pure gold. 
+He made the lampstand of pure gold, hammered work, with its base and shaft, its cups, its buds and its flowers all one piece with it. 
+Six branches came out of its sides, three on one side and three on the other. 
+Three cups shaped like almond blossoms on one branch, with a bud and a flower, and three on the other branch, with a bud and a flower, and so for the six branches of the lampstand. 
+On the lampstand itself were four cups shaped like almond blossoms, with their buds and flowers, 
+and a bud under the first pair of branches, a bud under the second pair and a bud under the third pair, for the six branches coming out of it. 
+Their buds and branches were all one piece with it. The whole thing was one hammered work of pure gold. 
+He made its seven lamps, its wick trimmers and its trays of pure gold. 
+He made it, and all its accessories, out of a talent of pure gold. 
+He made the altar of incense of acacia wood, a square, a cubit long and a cubit wide and two cubits high, with its horns all one piece with it. 
+He covered it with pure gold, its top, its sides and its horns, and put a gold trim all around it. 
+He made two gold rings for it below the trim on its two sides, to hold the poles for carrying it. 
+He made the poles of acacia wood and covered them with gold. 
+He made the holy anointing oil and the pure fragrant incense, blended the way a perfumer works. 

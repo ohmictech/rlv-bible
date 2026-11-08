@@ -1,31 +1,31 @@
-﻿He made the altar of burnt offering of acacia wood. It was square. Its length was five cubits, its width was five cubits, and its height was three cubits. 
-He made its horns on its four corners. Its horns were of one piece with it, and he overlaid it with bronze. 
-He made all the vessels of the altar: the pots, the shovels, the basins, the forks, and the fire pans. He made all its vessels of bronze. 
-He made for the altar a grating of a network of bronze, under the ledge around it beneath, reaching halfway up. 
-He cast four rings for the four corners of bronze grating, to be places for the poles. 
-He made the poles of acacia wood, and overlaid them with bronze. 
-He put the poles into the rings on the sides of the altar, with which to carry it. He made it hollow with planks. 
-He made the basin of bronze, and its base of bronze, out of the mirrors of the ministering women who ministered at the door of the Tent of Meeting. 
-He made the court: for the south side southward the hangings of the court were of fine twined linen, one hundred cubits; 
-their pillars were twenty, and their sockets twenty, of bronze; the hooks of the pillars and their fillets were of silver. 
-The north side one hundred cubits, their pillars twenty, and their sockets twenty, of bronze; the hooks of the pillars, and their fillets, of silver. 
-The west side were hangings of fifty cubits, their pillars ten, and their sockets ten; the hooks of the pillars, and their fillets, of silver. 
-The east side eastward fifty cubits, 
-the hangings for the one side were fifteen cubits; their pillars three, and their sockets three; 
-and so for the other side: on this hand and that hand by the gate of the court were hangings of fifteen cubits; their pillars three, and their sockets three. 
-All the hangings around the court were of fine twined linen. 
-The sockets for the pillars were of bronze. The hooks of the pillars and their fillets were of silver. Their capitals were overlaid with silver. All the pillars of the court had silver bands. 
-The screen for the gate of the court was the work of the embroiderer, of blue, purple, scarlet, and fine twined linen. Twenty cubits was the length, and the height along the width was five cubits, like the hangings of the court. 
-Their pillars were four, and their sockets four, of bronze; their hooks of silver, and the overlaying of their capitals, and their fillets, of silver. 
-All the pins of the tabernacle, and around the court, were of bronze. 
-These are the amounts of materials used for the tabernacle, even the Tabernacle of the Testimony, as they were counted, according to the commandment of Moses, for the service of the Levites, by the hand of Ithamar, the son of Aaron the priest. 
-Bezalel the son of Uri, the son of Hur, of the tribe of Judah, made all that God commanded Moses. 
-With him was Oholiab, the son of Ahisamach, of the tribe of Dan, an engraver, and a skillful workman, and an embroiderer in blue, in purple, in scarlet, and in fine linen. 
-All the gold that was used for the work in all the work of the sanctuary, even the gold of the offering, was twenty-nine talents and seven hundred thirty shekels, according to the shekel of the sanctuary. 
-The silver of those who were counted of the congregation was one hundred talents and one thousand seven hundred seventy-five shekels, according to the shekel of the sanctuary: 
-a beka a head, that is, half a shekel, according to the shekel of the sanctuary, for everyone who passed over to those who were counted, from twenty years old and upward, for six hundred three thousand five hundred fifty men. 
-The one hundred talents of silver were for casting the sockets of the sanctuary and the sockets of the veil: one hundred sockets for the one hundred talents, one talent per socket. 
-From the one thousand seven hundred seventy-five shekels he made hooks for the pillars, overlaid their capitals, and made fillets for them. 
-The bronze of the offering was seventy talents and two thousand four hundred shekels. 
-With this he made the sockets to the door of the Tent of Meeting, the bronze altar, the bronze grating for it, all the vessels of the altar, 
-the sockets around the court, the sockets of the gate of the court, all the pins of the tabernacle, and all the pins around the court. 
+﻿He made the altar of burnt offering of acacia wood, a square, five cubits long, five cubits wide and three cubits high. 
+He made horns at its four corners, all one piece with it, and covered it with bronze. 
+He made all the altar's equipment: the pots, shovels, bowls, meat forks and fire pans, all of bronze. 
+He made a grating of bronze netting for the altar, under its ledge, reaching halfway up. 
+He cast four rings at the four corners of the bronze grating, to hold the poles. 
+He made the poles of acacia wood and covered them with bronze. 
+He put the poles through the rings on the sides of the altar to carry it. He made the altar hollow, out of boards. 
+He made the bronze basin and its bronze stand from the mirrors of the women who served at the entrance of the Tent of Meeting. 
+He made the courtyard. On the south side the curtains of the courtyard were of fine twisted linen, a hundred cubits long, 
+with twenty posts and twenty bronze bases, and silver hooks and bands on the posts. 
+On the north side they were a hundred cubits long, with twenty posts and twenty bronze bases, and silver hooks and bands on the posts. 
+On the west side there were curtains fifty cubits long, with ten posts and ten bases, and silver hooks and bands on the posts. 
+On the east side, fifty cubits, 
+with curtains of fifteen cubits and three posts with three bases on one side, 
+and curtains of fifteen cubits and three posts with three bases on the other side of the gate. 
+All the curtains around the courtyard were of fine twisted linen. 
+The bases for the posts were bronze, and the hooks and bands on the posts were silver, and their tops were covered with silver. All the posts of the courtyard had silver bands. 
+The screen for the gate of the courtyard was embroidered work, of blue, purple and scarlet yarn and fine twisted linen. It was twenty cubits long and five cubits high, matching the curtains of the courtyard. 
+It had four posts and four bronze bases, with silver hooks and silver covered tops and bands. 
+All the pegs of the tent and of the courtyard all around were bronze. 
+These are the amounts of material used for the tent, the tent of the testimony, counted as Moses commanded for the work of the Levites, under the direction of Ithamar son of Aaron the priest. 
+Bezalel son of Uri, son of Hur, from the tribe of Judah, made everything God commanded Moses, 
+with Oholiab son of Ahisamach, from the tribe of Dan, an engraver, a designer and an embroiderer in blue, purple and scarlet yarn and fine linen. 
+All the gold used for the work, all the gold of the offering, weighed twenty-nine talents and seven hundred and thirty shekels, by the shekel of the sanctuary. 
+The silver from those counted in the community weighed a hundred talents and one thousand seven hundred and seventy-five shekels, by the shekel of the sanctuary, 
+half a shekel per person, by the shekel of the sanctuary, for everyone counted, twenty years old and up, six hundred and three thousand five hundred and fifty men. 
+The hundred talents of silver went to cast the bases of the sanctuary and the bases of the curtain, a hundred bases from the hundred talents, one talent per base. 
+From the one thousand seven hundred and seventy-five shekels he made hooks for the posts, covered their tops and made bands for them. 
+The bronze of the offering weighed seventy talents and two thousand four hundred shekels. 
+With it he made the bases for the entrance of the Tent of Meeting, the bronze altar and its bronze grating, and all the altar's equipment, 
+the bases around the courtyard and at its gate, and all the pegs of the tent and of the courtyard. 

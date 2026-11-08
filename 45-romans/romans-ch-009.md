@@ -25,7 +25,7 @@ us, whom he also called, not from the Jewish people only, but also from the nati
 As he says also in Hosea, "I'll call them 'my people,' which weren't my people; and her 'truly loved,' who wasn't truly loved." 
 "It'll be that in the place where it was said to them, 'You aren't my people,' there they'll be called 'children of the living God.'" 
 Isaiah cries concerning Israel, "If the number of the children of Israel are as the sand of the sea, it's the remnant who will be rescued; 
-for he'll finish the work and cut it short in rightness, because the Lord will make a short work upon the land." 
+for he'll finish the work and cut it short in rightness, because the Lord will make a short work on the land." 
 As Isaiah has said before, "Unless the Lord of Armies had left us a seed, we'd have become like Sodom, and would have been made like Gomorrah." 
 What will we say then? That the nations, who didn't follow after rightness, reached rightness, the rightness that comes by trust; 
 but Israel, following after a law of rightness, didn't arrive at the law of rightness. 

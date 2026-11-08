@@ -21,4 +21,4 @@ They will bring all your brothers out of all the nations for an offering to God,
 Of them I'll also select priests and Levites," says God. 
 "As the new skies and the new earth, which I'll make, will remain before me," says God, "so your offspring and your name will remain. 
 It will happen that from one new moon to another, and from one Sabbath to another, all flesh will come to worship before me," says God. 
-"They'll go out, and look at the dead bodies of the men who have transgressed against me; for their worm won't die, and their fire can't be interrupted, and they'll be loathsome to all mankind." 
+"They'll go out, and look at the dead bodies of the men who have transgressed against me; for their ruin is never undone, and their fire can't be interrupted, and everyone will be sickened by the sight of them." 

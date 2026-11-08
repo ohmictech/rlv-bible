@@ -41,6 +41,7 @@ from reportlab.platypus import (
 from reportlab.platypus.tableofcontents import TableOfContents
 
 ROOT = Path(__file__).resolve().parent.parent
+NOTES_DIR = ROOT / "notes"
 BOOK_DIR_RE = re.compile(r"^(\d{2})-([a-z0-9]+(?:-[a-z0-9]+)*)$")
 CHAPTER_RE = re.compile(r"^[a-z0-9-]+-ch-(\d{3})\.md$")
 
@@ -111,6 +112,21 @@ def chapter_files(book_dir: Path) -> list[tuple[int, Path]]:
             chapters.append((int(match.group(1)), path))
     chapters.sort()
     return chapters
+
+
+def chapter_notes(path: Path) -> list[tuple[str, str]]:
+    """Notes for a chapter, from notes/<chapter-stem>.notes.txt, one 'ref | text' per line."""
+    notes_path = NOTES_DIR / f"{path.stem}.notes.txt"
+    if not notes_path.exists():
+        return []
+    entries = []
+    for line in notes_path.read_text(encoding="utf-8-sig").split("\n"):
+        line = line.strip()
+        if not line or "|" not in line:
+            continue
+        ref, text = line.split("|", 1)
+        entries.append((ref.strip(), text.strip()))
+    return entries
 
 
 # ---------------------------------------------------------------------- flowables
@@ -232,6 +248,25 @@ def styles(justify: bool, base_size: float) -> dict[str, ParagraphStyle]:
             leftIndent=0,
             firstLineIndent=0,
         ),
+        "notes_head": ParagraphStyle(
+            "NotesHead",
+            fontName=SERIF,
+            fontSize=round(base_size * 0.86, 1),
+            leading=round(base_size * 1.25, 1),
+            charSpace=1.1,
+            textColor=DARK,
+            spaceBefore=round(base_size * 1.6, 1),
+            spaceAfter=round(base_size * 0.5, 1),
+            keepWithNext=1,
+        ),
+        "note": ParagraphStyle(
+            "Note",
+            fontName=SERIF,
+            fontSize=round(base_size * 0.84, 1),
+            leading=round(base_size * 1.16, 1),
+            spaceAfter=round(base_size * 0.5, 1),
+            alignment=TA_LEFT,
+        ),
     }
 
 
@@ -346,6 +381,17 @@ def book_story(doc, book_state: dict, order: int, slug: str, book_dir: Path, lay
         for index, chunk in enumerate(verse_markup(verses, layout, number_size)):
             paragraph_style = style["body_first"] if index == 0 else style["body"]
             story.append(Paragraph(chunk, paragraph_style))
+
+    notes = []
+    for number, path in chapters:
+        for ref, text in chapter_notes(path):
+            word = "verses" if "," in ref else "verse"
+            label = f"Chapter {number}, {word} {ref}." if len(chapters) > 1 else f"{word.capitalize()} {ref}."
+            notes.append(f"<b>{label}</b> {escape(text)}")
+    if notes:
+        story.append(Paragraph("NOTES", style["notes_head"]))
+        for note in notes:
+            story.append(Paragraph(note, style["note"]))
     return story
 
 

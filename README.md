@@ -72,6 +72,8 @@ One folder per book in canonical order, one file per chapter, verses only:
 
 Verse *V* sits on line *V*, so the verse number is the line number. Files are UTF-8 with BOM, LF line endings only, a newline at the end of the file, one trailing space on each line, straight quotes only, and no em or en dashes.
 
+Notes live beside the text in `notes/`, one file per chapter as `<chapter>.notes.txt`, one line per note in the form `verse | note`. They are kept out of the chapter files so the verse lines stay exactly one per verse, and the PDF builder prints them at the end of each book.
+
 ## Building a reading edition
 
 `tools/build_pdf.py` turns the chapter files into a PDF. By default it makes one volume for the whole Bible at 6 by 9 inches, set in two columns at 10 point with the verses of a chapter running together, which comes to about 1,570 pages. It carries a title page, contents, running heads, page numbers, book and chapter headings in letterspaced capitals, and the verse number set small at the start of each verse. `--columns 1` gives a single wider column, `--font-size 8.5` tightens the type, `--layout verse` gives every verse a line of its own, `--justify` sets the lines to full measure instead of ragged right, `--book genesis` builds a single book, and `--per-book` writes a separate file for each book. Everything it writes goes to `build/`, which git ignores, so the text never has a second copy to fall out of step. It needs the packages in `tools/requirements.txt`.

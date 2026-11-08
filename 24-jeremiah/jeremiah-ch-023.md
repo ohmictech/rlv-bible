@@ -37,4 +37,4 @@ You'll mention the message from God no more, for every man's own word has become
 You'll say to the spokesman, 'What has God answered you?' and, 'What has God spoken?' 
 Although you say, 'The message from God,' God says: 'Because you say this word, "The message from God," and I have sent to you, telling you not to say, "The message from God," 
 Look, I'll utterly forget you, and I'll cast you off with the city that I gave to you and to your fathers, away from my presence. 
-I'll bring an perpetual reproach on you, and a perpetual shame, which won't be forgotten.'" 
+I'll bring a perpetual reproach on you, and a perpetual shame, which won't be forgotten.'" 

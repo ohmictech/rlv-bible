@@ -4,9 +4,9 @@ What the law couldn't do, because it was weak through the flesh, God did: he sen
 so that the ordinance of the law would be fulfilled in us who don't walk according to the flesh, but according to the Spirit. 
 Those who live according to the flesh set their minds on the things of the flesh, but those who live according to the Spirit, the things of the Spirit. 
 The mind of the flesh is death, but the mind of the Spirit is real life and wholeness; 
-because the mind of the flesh is hostile toward God, for it isn't subject to God's law, neither indeed can it be. 
+because the mind of the flesh is hostile toward God, it isn't subject to God's law, and it can't be. 
 Those who are in the flesh can't please God. 
-But you aren't in the flesh but in the Spirit, if it's so that the Spirit of God dwells in you. But if any man doesn't have the Spirit of Christ, he isn't his. 
+But you aren't in the flesh but in the Spirit, if it's true that the Spirit of God dwells in you. But if any man doesn't have the Spirit of Christ, he isn't his. 
 If Christ is in you, the body is dead because of the drift, but the spirit is alive because of rightness. 
 But if the Spirit of him who raised up Jesus from the dead dwells in you, he who raised up Christ Jesus from the dead will also give life to your mortal bodies through his Spirit who dwells in you. 
 So then, brothers, we're debtors, not to the flesh, to live after the flesh. 
@@ -17,13 +17,13 @@ The Spirit himself testifies with our spirit that we're children of God;
 and if children, then heirs, heirs of God and joint heirs with Christ, if indeed we suffer with him, that we can also be honored with him. 
 I consider that the hard times of this present time aren't worthy to be compared with the weight which will be revealed toward us. 
 The creation waits with eager expectation for the children of God to be revealed. 
-The creation was locked under futility, not because it wanted to be, but because of Him who locked it up, in expectation 
-that the creation itself also will be set free from the bondage of decay into the freedom of the weight of the children of God. 
-We know that the whole creation groans and travails in pain together until now. 
-Not only so, but ourselves also, who have the first fruits of the Spirit, even we ourselves groan within ourselves, waiting for adoption, the setting free of our body. 
+The creation was locked under frustration by Him, not because it wanted to be, in expectation 
+that the creation itself will be set free from the bondage of decay into the freedom of the weight of the children of God. 
+We know that the whole creation groans and is in labor together until now. 
+Not only so, but ourselves also, who have the first fruits of the Spirit, even we ourselves sigh inwardly, waiting for adoption, the setting free of our body. 
 We were rescued in expectation, but expectation that's seen isn't expectation. Who expects what they see? 
 But if we expect what we don't see, we wait for it with patience. 
-In the same way, the Spirit also helps our weaknesses, for we don't know how to pray as we ought. But the Spirit himself makes intercession for us with groanings which can't be uttered. 
+In the same way, the Spirit also helps our weaknesses, for we don't know how to pray as we ought. But the Spirit himself pleads for us with sighs too deep for words. 
 He who searches the hearts knows what's on the Spirit's mind, because he speaks on behalf of the set-apart ones according to God. 
 We know that all things work together for good for those who love God, for those who are called according to his purpose. 
 Those he knew ahead of time, he also marked out ahead of time to be shaped like the image of his Son, so that he'd be the firstborn among many brothers and sisters. 
@@ -31,7 +31,7 @@ Those he marked out ahead of time, he also called. Those he called, he also made
 What then will we say about these things? If God is for us, who can be against us? 
 He who didn't spare his own Son, but delivered him up for us all, how would he not also with him freely give us all things? 
 Who could bring a charge against God's chosen ones? It's God who justifies. 
-Who's he who condemns? It's Christ who died, yes rather, who was raised from the dead, who's at the right hand of God, who also makes intercession for us. 
+Who's he who condemns? It's Christ who died, yes rather, who was raised from the dead, who's at the right hand of God, who also pleads for us. 
 Who will separate us from the love of Christ? Could oppression, or anguish, or persecution, or famine, or nakedness, or peril, or sword? 
 Even as it's written, "Your sake we're killed all day long. We were accounted as sheep for the slaughter." 
 No, in all these things we're more than conquerors through him who loved us. 

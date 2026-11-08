@@ -30,12 +30,12 @@ When she heard this, she arose quickly and went to him.
 Now Jesus hadn't yet come into the village, but was in the place where Martha met him. 
 Then the Jewish people who were with her in the house and were consoling her, when they saw Mary, that she rose up quickly and went out, followed her, saying, "She's going to the tomb to weep there." 
 So when Mary came to where Jesus was and saw him, she fell down at his feet, saying to him, "Lord, if you had been here, my brother wouldn't have died." 
-When Jesus saw her weeping, and the Jewish people weeping who came with her, he groaned in the spirit and was troubled, 
+When Jesus saw her weeping, and the Jewish people weeping who came with her, he was deeply moved and troubled, 
 and said, "Where have you laid him?" They told him, "Lord, come and see." 
 Jesus wept. 
 The Jewish people said, "See how much affection he had for him!" 
 Some of them said, "Couldn't this man, who opened the eyes of him who was blind, have also kept this man from dying?" 
-Jesus, again groaning in himself, came to the tomb. Now it was a cave, and a stone lay against it. 
+Jesus, again deeply moved inside, came to the tomb. Now it was a cave, and a stone lay against it. 
 Jesus said, "Take away the stone." Martha, the sister of him who was dead, said to him, "Lord, by this time there's a stench, for he has been dead four days." 
 Jesus said to her, "Didn't I tell you that if you trusted, you'd see God's weight?" 
 So they took away the stone from the place where the dead man was lying. Jesus lifted up his eyes and said, "Father, I thank you that you listened to me. 

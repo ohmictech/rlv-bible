@@ -142,6 +142,7 @@ One line per lemma. The rendering column is the law; the third column is the rem
 | ekdikos | the avenger | 1 Thess 4:6 "the Lord is an avenger in these things," context of wronged persons, not torture chambers. |
 | brugmos | grinding | (of teeth). |
 | klauthmos | crying, weeping | Keep. |
+| stenazo (v.), stenagmos (n.) | groan; sigh where the sound is inward | Ruled 2026-11-08: the burden word, the noise of something carried that won't shift, so **groan** where it is audible (Rom 8:22; 2 Cor 5:2, 4) and **sigh** where it is wordless and inside (Rom 8:23, 26). Never **groanings**, which is not an English noun, and Rom 8:26 reads "sighs too deep for words". Distinct from embrimaomai, which is the snort of strong feeling and reads **deeply moved** (Mark 7:34; 8:12; John 11:33, 38). |
 | taphos / mnemeion / mnema | tomb | Keep. |
 | ptoma / aetos | carcass / vultures | Where the body falls, the birds that eat carrion gather. |
 | agape | love | Real love where the sentence wants the full weight (1 John 4:8 "God is real love") |

@@ -1,36 +1,36 @@
-﻿They took their journey from Elim, and all the congregation of the children of Israel came to the wilderness of Sin, which is between Elim and Sinai, on the fifteenth day of the second month after their departing out of the land of Egypt. 
-The whole congregation of the children of Israel murmured against Moses and against Aaron in the wilderness; 
-and the children of Israel said to them, "We wish that we had died by God's hand in the land of Egypt, when we sat by the meat pots, when we ate our fill of bread, for you have brought us out into this wilderness to kill this whole assembly with hunger." 
-Then God said to Moses, "Look, I'll rain bread from the sky for you, and the people will go out and gather a day's portion every day, that I can test them, whether they'll walk in my law or not. 
-It will come to pass on the sixth day, that they will prepare that which they bring in, and it will be twice as much as they gather daily." 
-Moses and Aaron said to all the children of Israel, "At evening, you will know that God has brought you out from the land of Egypt. 
-In the morning, you will see God's glory; because he hears your murmurings against God. Who are we, that you murmur against us?" 
-Moses said, "Now God will give you meat to eat in the evening, and in the morning bread to satisfy you, because God hears your murmurings which you murmur against him. And who are we? Your murmurings aren't against us, but against God." 
-Moses said to Aaron, "Tell all the congregation of the children of Israel, 'Come close to God, for he has heard your murmurings.'" 
-As Aaron spoke to the whole congregation of the children of Israel, they looked toward the wilderness, and look, God's glory appeared in the cloud. 
-God spoke to Moses, saying, 
-"I have heard the murmurings of the children of Israel. Speak to them, saying, 'At evening you will eat meat, and in the morning you will be filled with bread. Then you'll know that I'm your God.'" 
-In the evening, quail came up and covered the camp; and in the morning the dew lay around the camp. 
-When the dew that lay had gone, look, on the surface of the wilderness was a small round thing, small as the frost on the ground. 
-When the children of Israel saw it, they said to one another, "What's it?" They didn't know what it was. Moses said to them, "It's the bread which God has given you to eat. 
-This is the thing which God has commanded: 'Gather of it everyone according to his eating; an omer a head, according to the number of your persons, you will take it, every man for those who are in his tent.'" 
-The children of Israel did so, and some gathered more, some less. 
-When they measured it with an omer, he who gathered much had nothing over, and he who gathered little had no lack. They each gathered according to his eating. 
-Moses said to them, "Let no one leave of it until the morning." 
-Notwithstanding they didn't listen to Moses, but some of them left of it until the morning, so it bred worms and became foul; and Moses was angry with them. 
-They gathered it morning by morning, everyone according to his eating. When the sun grew hot, it melted. 
-On the sixth day, they gathered twice as much bread, two omers for each one; and all the rulers of the congregation came and told Moses. 
-He said to them, "This is that which God has spoken, 'Tomorrow is a solemn rest, a holy Sabbath to God. Bake that which you want to bake, and boil that which you want to boil; and all that remains over lay up for yourselves to be kept until the morning.'" 
-They laid it up until the morning, as Moses ordered, and it didn't become foul, and there were no worms in it. 
-Moses said, "Eat that today, for today is a Sabbath to God. Today you won't find it in the field. 
-Six days you will gather it, but on the seventh day is the Sabbath. In it there will be none." 
-On the seventh day, some of the people went out to gather, and they found none. 
-God said to Moses, "How long do you refuse to keep my commandments and my laws? 
-Look, because God has given you the Sabbath, he gives you on the sixth day the bread of two days. Everyone stay in his place. Let no one go out of his place on the seventh day." 
+﻿They set out from Elim, and the whole community of Israel came to the wilderness of Sin, between Elim and Sinai, on the fifteenth day of the second month after they left Egypt. 
+There in the wilderness the whole community complained against Moses and Aaron, 
+and the Israelites said, "We wish God had killed us in Egypt, where we sat by pots of meat and ate all the bread we wanted. You have brought us out into this wilderness to starve this whole crowd to death." 
+Then God said to Moses, "I will rain bread down from the sky for you. The people will go out and gather a day's worth each day, and I will test them to see whether they follow my law or not. 
+On the sixth day they will prepare what they bring in, and it will be twice as much as they gather on other days." 
+Moses and Aaron said to all the Israelites, "This evening you will know that God brought you out of Egypt, 
+and in the morning you will see the splendor of God, because he has heard your complaining against him. Who are we, that you complain about us?" 
+Moses said, "God will give you meat to eat this evening and bread in the morning to fill you, because he has heard you complaining against him. Who are we? Your complaints aren't against us, they're against God." 
+Then Moses said to Aaron, "Tell the whole community of Israel, 'Come near to God, because he has heard your complaining.'" 
+While Aaron was speaking to the whole community, they looked toward the wilderness, and there was the splendor of God, appearing in the cloud. 
+God said to Moses, 
+"I have heard the Israelites complaining. Tell them, 'This evening you will eat meat, and in the morning you will have all the bread you want. Then you will know that I am your God.'" 
+That evening quail came up and covered the camp, and in the morning there was dew all around it. 
+When the dew dried, there on the surface of the wilderness were thin flakes, as fine as frost on the ground. 
+When the Israelites saw it they asked each other, "What is it?" because they didn't know what it was. Moses said, "It's the bread God has given you to eat. 
+This is what God has commanded: 'Each of you gather as much as you can eat, an omer for each person, according to how many are in your tent.'" 
+The Israelites did that, some gathering more and some less. 
+When they measured it by the omer, the one who gathered much had nothing left over and the one who gathered little had no shortage. Each had gathered as much as he could eat. 
+Moses said, "No one is to keep any of it until morning." 
+But they didn't listen to Moses, and some kept part of it until morning, and it bred worms and stank, and Moses was angry with them. 
+They gathered it every morning, each as much as he could eat, and when the sun grew hot it melted. 
+On the sixth day they gathered twice as much, two omers each, and all the leaders of the community came and told Moses. 
+He said, "This is what God has said: 'Tomorrow is a day of rest, a holy Sabbath to God. Bake what you want to bake and boil what you want to boil, and whatever is left over, set aside and keep it until morning.'" 
+So they set it aside until morning as Moses ordered, and it didn't stink or grow worms. 
+Moses said, "Eat it today, because today is a Sabbath to God. You won't find any in the field today. 
+You gather it for six days, but the seventh day is the Sabbath, and there won't be any." 
+On the seventh day some of the people still went out to gather, and found nothing. 
+God said to Moses, "How long will you refuse to keep my commands and my rules? 
+Understand that God has given you the Sabbath, which is why he gives you two days of bread on the sixth day. Everyone stay where he is. No one is to leave his place on the seventh day." 
 So the people rested on the seventh day. 
-The house of Israel called its name "Manna", and it was like coriander seed, white; and its taste was like wafers with honey. 
-Moses said, "This is the thing which God has commanded, 'Let an omer-full of it be kept throughout your generations, that they can see the bread with which I fed you in the wilderness, when I brought you out of the land of Egypt.'" 
-Moses said to Aaron, "Take a pot, and put an omer-full of manna in it, and lay it up before God, to be kept throughout your generations." 
-As God commanded Moses, so Aaron laid it up before the Testimony, to be kept. 
-The children of Israel ate the manna forty years, until they came to an inhabited land. They ate the manna until they came to the borders of the land of Canaan. 
-Now an omer is one tenth of an ephah. 
+The house of Israel called it manna. It was white like coriander seed, and it tasted like honey wafers. 
+Moses said, "This is what God has commanded: 'Keep an omer of it for the generations to come, so they can see the bread I fed you in the wilderness when I brought you out of Egypt.'" 
+Moses said to Aaron, "Take a jar and put an omer of manna in it, and set it before God to keep for the generations to come." 
+So Aaron set it before the Testimony to be kept, as God commanded Moses. 
+The Israelites ate manna for forty years, until they came to a land where people lived. They ate manna until they reached the border of Canaan. 
+An omer is a tenth of an ephah. 

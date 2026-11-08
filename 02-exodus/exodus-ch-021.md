@@ -19,7 +19,7 @@ But if a man plans it and kills his neighbor on purpose, take him even from my a
 then if he gets up and walks around outside on his staff, the one who hit him is not guilty. He must still pay for the time the man lost and see that he is properly healed. 
 "If a man beats his male or female slave with a stick and the slave dies on the spot, he must be punished. 
 But if the slave gets up after a day or two, he won't be punished, because the slave is his property. 
-"If men are fighting and hit a pregnant woman so that she gives birth early, but nothing worse happens, the man responsible must pay whatever the woman's husband demands and the judges agree to. 
+"If men are fighting and hit a pregnant woman so that her child comes out, but nothing worse happens, the man responsible must pay whatever the woman's husband demands and the judges agree to. 
 But if something worse happens, you must take life for life, 
 eye for eye, tooth for tooth, hand for hand, foot for foot, 
 burn for burn, wound for wound, bruise for bruise. 

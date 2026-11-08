@@ -1,38 +1,38 @@
-﻿"Bezalel and Oholiab will work with every wise-hearted man, in whom God has put wisdom and understanding to know how to do all the work for the service of the sanctuary, according to all that God has commanded." 
-Moses called Bezalel and Oholiab, and every wise-hearted man, in whose heart God had put wisdom, even everyone whose heart stirred him up to come to the work to do it. 
-They received from Moses all the offering which the children of Israel had brought for the work of the service of the sanctuary, with which to make it. They kept bringing free will offerings to him every morning. 
-All the wise men, who performed all the work of the sanctuary, each came from his work which he did. 
-They spoke to Moses, saying, "The people have brought much more than enough for the service of the work which God commanded to make." 
-Moses gave a commandment, and they caused it to be proclaimed throughout the camp, saying, "Let neither man nor woman make anything else for the offering for the sanctuary." So the people were restrained from bringing. 
-The stuff they had was sufficient to do all the work, and too much. 
-All the wise-hearted men among those who did the work made the tabernacle with ten curtains of fine twined linen, blue, purple, and scarlet. They made them with cherubim, the work of a skillful workman. 
-The length of each curtain was twenty-eight cubits, and the width of each curtain four cubits. All the curtains had one measure. 
-He coupled five curtains to one another, and the other five curtains he coupled to one another. 
-He made loops of blue on the edge of the one curtain from the edge in the coupling. Likewise he made in the edge of the curtain that was outermost in the second coupling. 
-He made fifty loops in the one curtain, and he made fifty loops in the edge of the curtain that was in the second coupling. The loops were opposite to one another. 
-He made fifty clasps of gold, and coupled the curtains to one another with the clasps: so the tabernacle was a unit. 
-He made curtains of goats' hair for a covering over the tabernacle. He made them eleven curtains. 
-The length of each curtain was thirty cubits, and four cubits the width of each curtain. The eleven curtains had one measure. 
-He coupled five curtains by themselves, and six curtains by themselves. 
-He made fifty loops on the edge of the curtain that was outermost in the coupling, and he made fifty loops on the edge of the curtain which was outermost in the second coupling. 
-He made fifty clasps of bronze to couple the tent together, that it might be a unit. 
-He made a covering for the tent of rams' skins dyed red, and a covering of sea cow hides above. 
-He made the boards for the tabernacle of acacia wood, standing up. 
-Ten cubits was the length of a board, and a cubit and a half the width of each board. 
-Each board had two tenons, joined to one another. He made all the boards of the tabernacle this way. 
-He made the boards for the tabernacle, twenty boards for the south side southward. 
-He made forty sockets of silver under the twenty boards: two sockets under one board for its two tenons, and two sockets under another board for its two tenons. 
-The second side of the tabernacle, on the north side, he made twenty boards 
-and their forty sockets of silver: two sockets under one board, and two sockets under another board. 
-The far part of the tabernacle westward he made six boards. 
-He made two boards for the corners of the tabernacle in the far part. 
-They were double beneath, and in the same way they were all the way to its top to one ring. He did this to both of them in the two corners. 
-There were eight boards and their sockets of silver, sixteen sockets, under every board two sockets. 
-He made bars of acacia wood: five for the boards of the one side of the tabernacle, 
-and five bars for the boards of the other side of the tabernacle, and five bars for the boards of the tabernacle for the hinder part westward. 
-He made the middle bar to pass through in the middle of the boards from the one end to the other. 
-He overlaid the boards with gold, and made their rings of gold as places for the bars, and overlaid the bars with gold. 
-He made the veil of blue, purple, scarlet, and fine twined linen, with cherubim. He made it the work of a skillful workman. 
-He made four pillars of acacia for it, and overlaid them with gold. Their hooks were of gold. He cast four sockets of silver for them. 
-He made a screen for the door of the tent, of blue, purple, scarlet, and fine twined linen, the work of an embroiderer; 
-and the five pillars of it with their hooks. He overlaid their capitals and their fillets with gold, and their five sockets were of bronze. 
+﻿"Bezalel and Oholiab are to work with every skilled craftsman in whom God has put the skill and understanding to do all the work of the sanctuary, just as God has commanded." 
+So Moses called Bezalel and Oholiab and every skilled craftsman in whom God had put skill, everyone whose heart moved them to come and do the work. 
+They received from Moses everything the Israelites had brought for the work of the sanctuary, and the people kept bringing freewill offerings to him every morning. 
+Then all the skilled men doing the work of the sanctuary left what they were doing 
+and said to Moses, "The people are bringing far more than is needed for the work God commanded." 
+So Moses gave an order and it was announced throughout the camp: "No man or woman is to make anything else for the sanctuary offering." And the people stopped bringing. 
+What they had was enough to do all the work, and more. 
+All the skilled men among those doing the work made the tent with ten curtains of fine twisted linen, blue, purple and scarlet yarn, with cherubim worked into them by a skilled craftsman. 
+Each curtain was twenty-eight cubits long and four cubits wide, all the same size. 
+He joined five of the curtains to each other, and the other five to each other. 
+He made blue loops along the edge of the last curtain in the first set, and the same on the edge of the last curtain in the second set. 
+He made fifty loops on one curtain and fifty on the other, with the loops facing each other. 
+He made fifty gold clasps and joined the curtains with them, so the tent was one piece. 
+He made eleven curtains of goats' hair to cover the tent. 
+Each curtain was thirty cubits long and four cubits wide, all eleven the same size. 
+He joined five of them into one set and six into another. 
+He made fifty loops on the edge of the last curtain in the first set and fifty on the edge of the last curtain in the second set. 
+He made fifty bronze clasps to join the tent together as one piece. 
+He made a covering for the tent of rams' skins dyed red, and over that a covering of sea cow hide. 
+He made upright frames of acacia wood for the tent. 
+Each frame was ten cubits long and a cubit and a half wide. 
+Each frame had two pegs joined by a crossbar, and he made all the frames of the tent this way. 
+He made twenty frames for the south side of the tent, 
+and forty silver bases under the twenty frames, two bases under each frame for its two pegs. 
+For the north side he made twenty frames 
+with their forty silver bases, two under each frame. 
+For the back of the tent, on the west side, he made six frames. 
+He made two frames for the corners at the back of the tent. 
+They were doubled at the bottom and joined at the top by a single ring. He did this for both corners. 
+So there were eight frames with sixteen silver bases, two under each frame. 
+He made crossbars of acacia wood: five for the frames on one side of the tent, 
+five for the frames on the other side, and five for the frames at the back, on the west side. 
+He made the middle crossbar run through the frames from end to end. 
+He covered the frames with gold and made gold rings to hold the crossbars, and covered the crossbars with gold. 
+He made the curtain of blue, purple and scarlet yarn and fine twisted linen, with cherubim worked into it by a skilled craftsman. 
+He made four acacia posts for it and covered them with gold, with gold hooks, and cast four silver bases for them. 
+He made a screen for the entrance of the tent, of blue, purple and scarlet yarn and fine twisted linen, embroidered work, 
+and its five posts with their hooks. He covered their tops and bands with gold, and their five bases were bronze. 

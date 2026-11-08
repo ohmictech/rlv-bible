@@ -1,35 +1,35 @@
-﻿Moses assembled all the congregation of the children of Israel, and said to them, "These are the words which God has commanded, that you should do them. 
-'Six days will work be done, but on the seventh day there will be a holy day for you, a Sabbath of solemn rest to God: whoever does any work in it will be put to death. 
-You will kindle no fire throughout your habitations on the Sabbath day.'" 
-Moses spoke to all the congregation of the children of Israel, saying, "This is the thing which God commanded, saying, 
-'Take from among you an offering to God. Whoever is of a willing heart, let him bring it as God's offering: gold, silver, bronze, 
-blue, purple, scarlet, fine linen, goats' hair, 
-rams' skins dyed red, sea cow hides, acacia wood, 
-oil for the light, spices for the anointing oil and for the sweet incense, 
-onyx stones, and stones to be set for the ephod and for the breastplate. 
-"'Let every wise-hearted man among you come, and make all that God has commanded: 
-the tabernacle, its outer covering, its roof, its clasps, its boards, its bars, its pillars, and its sockets; 
-the ark, and its poles, the mercy seat, the veil of the screen; 
-the table with its poles and all its vessels, and the show bread; 
-the lamp stand also for the light, with its vessels, its lamps, and the oil for the light; 
-and the altar of incense with its poles, the anointing oil, the sweet incense, the screen for the door, at the door of the tabernacle; 
-the altar of burnt offering, with its grating of bronze, its poles, and all its vessels, the basin and its base; 
-the hangings of the court, its pillars, their sockets, and the screen for the gate of the court; 
-the pins of the tabernacle, the pins of the court, and their cords; 
-the finely worked garments for ministering in the holy place, the holy garments for Aaron the priest, and the garments of his sons, to minister in the priest's office.'" 
-All the congregation of the children of Israel departed from the presence of Moses. 
-They came, everyone whose heart stirred him up, and everyone whom his spirit made willing, and brought God's offering for the work of the Tent of Meeting, and for all of its service, and for the holy garments. 
-They came, both men and women, as many as were willing-hearted, and brought brooches, earrings, signet rings, and armlets, all jewels of gold; even every man who offered an offering of gold to God. 
-Everyone with whom was found blue, purple, scarlet, fine linen, goats' hair, rams' skins dyed red, and sea cow hides, brought them. 
-Everyone who offered an offering of silver and bronze brought God's offering; and everyone with whom was found acacia wood for any work of the service, brought it. 
-All the women who were wise-hearted spun with their hands, and brought that which they had spun: the blue, the purple, the scarlet, and the fine linen. 
-All the women whose heart stirred them up in wisdom spun the goats' hair. 
-The rulers brought the onyx stones and the stones to be set for the ephod and for the breastplate; 
-with the spice and the oil for the light, for the anointing oil, and for the sweet incense. 
-The children of Israel brought a free will offering to God; every man and woman whose heart made them willing to bring for all the work, which God had commanded to be made by Moses. 
-Moses said to the children of Israel, "Look, God has called by name Bezalel the son of Uri, the son of Hur, of the tribe of Judah. 
-He has filled him with the Spirit of God, in wisdom, in understanding, in knowledge, and in all kinds of workmanship; 
-and to make skillful works, to work in gold, in silver, in bronze, 
-in cutting of stones for setting, and in carving of wood, to work in all kinds of skillful workmanship. 
-He has put in his heart that he can teach, both he and Oholiab, the son of Ahisamach, of the tribe of Dan. 
-He has filled them with wisdom of heart to work all kinds of workmanship, of the engraver, of the skillful workman, and of the embroiderer, in blue, in purple, in scarlet, and in fine linen, and of the weaver, even of those who do any workmanship, and of those who make skillful works. 
+﻿Moses gathered the whole community of Israel and said, "These are the things God has commanded you to do. 
+'Work is to be done for six days, but the seventh day is to be holy for you, a Sabbath of complete rest to God. Anyone who does any work on it must be put to death. 
+Don't light a fire in any of your homes on the Sabbath day.'" 
+Moses said to the whole community of Israel, "This is what God has commanded: 
+'Take an offering for God from among you. Everyone whose heart is willing should bring it, God's offering: gold, silver, bronze, 
+blue, purple and scarlet yarn, fine linen, goats' hair, 
+rams' skins dyed red, sea cow hide, acacia wood, 
+olive oil for the lamps, spices for the anointing oil and for the fragrant incense, 
+onyx stones, and stones to be set in the ephod and the breastplate. 
+"'Let every skilled craftsman among you come and make everything God has commanded: 
+the tent, its outer cover, its roof, its clasps, its frames, its crossbars, its posts and its bases; 
+the ark and its poles, the mercy seat, the curtain screen; 
+the table with its poles and all its equipment, and the bread set out before God; 
+the lampstand for the light, with its equipment, its lamps and the oil for the light; 
+the altar of incense with its poles, the anointing oil, the fragrant incense, and the screen for the entrance of the tent; 
+the altar of burnt offering with its bronze grating, its poles and all its equipment, and the basin and its stand; 
+the curtains of the courtyard, its posts and bases, and the screen for the gate of the courtyard; 
+the pegs of the tent, the pegs of the courtyard and their ropes; 
+the woven garments for serving in the Holy Place, the set apart garments for Aaron the priest, and the garments for his sons to serve as priests.'" 
+Then the whole community of Israel left Moses. 
+Everyone whose heart moved them and whose spirit was willing came and brought God's offering for the work on the Tent of Meeting, for all its service and for the set apart garments. 
+Men and women alike came, everyone who was willing, and brought brooches, earrings, rings and bracelets, all of them gold jewelry. Everyone who had gold to offer brought it to God. 
+Everyone who had blue, purple or scarlet yarn, fine linen, goats' hair, rams' skins dyed red or sea cow hide brought it. 
+Everyone who had silver or bronze brought it as God's offering, and everyone who had acacia wood for any part of the work brought it. 
+All the skilled women spun yarn with their hands and brought what they had spun: the blue, purple and scarlet yarn and the fine linen. 
+And the women whose hearts were moved to use their skill spun the goats' hair. 
+The leaders brought the onyx stones and the stones for setting in the ephod and the breastplate, 
+along with the spice and the oil for the lamps, the anointing oil and the fragrant incense. 
+So the Israelites brought a freewill offering to God, every man and woman whose heart was willing, for all the work God had commanded through Moses. 
+Moses said to the Israelites, "Look, God has chosen Bezalel son of Uri, son of Hur, from the tribe of Judah. 
+He has filled him with the Spirit of God, with skill, understanding, knowledge and every kind of craftsmanship, 
+to design works of skill in gold, silver and bronze, 
+in cutting stones for setting and carving wood, in every kind of skilled craftsmanship. 
+And he has given him the ability to teach, both him and Oholiab son of Ahisamach, from the tribe of Dan. 
+He has filled them with skill to do every kind of work: engraving, designing, embroidering in blue, purple and scarlet yarn and fine linen, and weaving, all of them craftsmen and designers. 

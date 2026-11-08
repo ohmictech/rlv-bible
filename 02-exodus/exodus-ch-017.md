@@ -1,16 +1,16 @@
-﻿All the congregation of the children of Israel traveled from the wilderness of Sin, starting according to God's commandment, and encamped in Rephidim; but there was no water for the people to drink. 
-So the people quarreled with Moses, and said, "Give us water to drink." Moses said to them, "Why do you quarrel with me? Why do you test God?" 
-The people were thirsty for water there; so the people murmured against Moses, and said, "Why have you brought us up out of Egypt, to kill us, our children, and our livestock with thirst?" 
-Moses cried to God, saying, "What will I do with these people? They're almost ready to stone me." 
-God said to Moses, "Walk on before the people, and take the elders of Israel with you, and take the rod in your hand with which you struck the Nile, and go. 
-Look, I'll stand before you there on the rock in Horeb. You will strike the rock, and water will come out of it, that the people may drink." Moses did so in the sight of the elders of Israel. 
-He called the name of the place Massah, and Meribah, because the children of Israel quarreled, and because they tested God, saying, "Is God among us, or not?" 
-Then Amalek came and fought with Israel in Rephidim. 
-Moses said to Joshua, "Choose men for us, and go out to fight with Amalek. Tomorrow I'll stand on the top of the hill with God's rod in my hand." 
-So Joshua did as Moses had told him, and fought with Amalek; and Moses, Aaron, and Hur went up to the top of the hill. 
-When Moses held up his hand, Israel prevailed. When he let down his hand, Amalek prevailed. 
-But Moses' hands were heavy; so they took a stone, and put it under him, and he sat on it. Aaron and Hur held up his hands, the one on the one side, and the other on the other side. His hands were steady until sunset. 
-Joshua defeated Amalek and his people with the edge of the sword. 
-God said to Moses, "Write this for a memorial in a book, and rehearse it in the ears of Joshua: that I'll utterly blot out the memory of Amalek from under the sky." 
-Moses built an altar, and called its name "God our Banner". 
-He said, "God has sworn: 'God will have war with Amalek from generation to generation.'" 
+﻿The whole community of Israel set out from the wilderness of Sin, moving on as God commanded, and camped at Rephidim, where there was no water for the people to drink. 
+The people quarreled with Moses and said, "Give us water to drink." Moses said, "Why are you quarreling with me? Why are you testing God?" 
+The people were thirsty, and they complained against Moses: "Why did you bring us out of Egypt, to kill us and our children and our livestock with thirst?" 
+Moses cried out to God, "What am I going to do with these people? They're ready to stone me." 
+God said to Moses, "Go on ahead of the people, and take some of Israel's elders with you. Take in your hand the staff you used to strike the Nile, and go. 
+I will stand there in front of you on the rock at Horeb. Strike the rock, and water will come out of it for the people to drink." And Moses did that in front of the elders of Israel. 
+He named the place Massah and Meribah, because the Israelites quarreled there and tested God, saying, "Is God among us or not?" 
+Then Amalek came and attacked Israel at Rephidim. 
+Moses said to Joshua, "Choose men and go out and fight Amalek. Tomorrow I will stand on top of the hill with the staff of God in my hand." 
+So Joshua did as Moses said and fought Amalek, while Moses, Aaron and Hur went up to the top of the hill. 
+As long as Moses kept his hands up, Israel was winning. When he lowered them, Amalek was winning. 
+When Moses' arms grew tired, they put a stone under him and he sat on it, and Aaron and Hur held his arms up, one on each side. So his hands stayed steady until sunset. 
+And Joshua cut down Amalek and his people with the sword. 
+God said to Moses, "Write this down in a book as a memorial, and read it to Joshua: I will blot out the memory of Amalek from under the sky." 
+Moses built an altar and named it "God is my banner." 
+He said, "God has sworn: God will be at war with Amalek from generation to generation." 

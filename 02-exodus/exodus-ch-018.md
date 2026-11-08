@@ -1,27 +1,27 @@
-﻿Now Jethro, the priest of Midian, Moses' father-in-law, heard of all that God had done for Moses and for Israel his people, how God had brought Israel out of Egypt. 
-Jethro, Moses' father-in-law, received Zipporah, Moses' wife, after he had sent her away, 
-and her two sons. The name of one son was Gershom, for Moses said, "I have lived as a foreigner in a foreign land". 
-The name of the other was Eliezer, for he said, "My father's God was my help and delivered me from Pharaoh's sword." 
-Jethro, Moses' father-in-law, came with Moses' sons and his wife to Moses into the wilderness where he was encamped, at the Mountain of God. 
-He said to Moses, "I, your father-in-law Jethro, have come to you with your wife, and her two sons with her." 
-Moses went out to meet his father-in-law, and bowed and kissed him. They asked each other of their welfare, and they came into the tent. 
-Moses told his father-in-law all that God had done to Pharaoh and to the Egyptians for Israel's sake, all the hardships that had come on them on the way, and how God delivered them. 
-Jethro rejoiced for all the goodness which God had done to Israel, in that he had delivered them out of the hand of the Egyptians. 
-Jethro said, "Blessed be God, who has delivered you out of the hand of the Egyptians, and out of the hand of Pharaoh; who has delivered the people from under the hand of the Egyptians. 
-Now I know that God is greater than all gods because of the way that they treated people arrogantly." 
-Jethro, Moses' father-in-law, took a burnt offering and sacrifices for God. Aaron came with all the elders of Israel, to eat bread with Moses' father-in-law before God. 
-On the next day, Moses sat to judge the people, and the people stood around Moses from the morning to the evening. 
-When Moses' father-in-law saw all that he did to the people, he said, "What's this thing that you do for the people? Why do you sit alone, and everyone stand around you from morning to evening?" 
-Moses said to his father-in-law, "Because the people come to me to inquire of God. 
-When they have a matter, they come to me, and I judge between a man and his neighbor, and I make them know the statutes of God, and his laws." 
-Moses' father-in-law said to him, "The thing that you do isn't good. 
-You'll surely wear away, both you, and this people that's with you; for the thing is too heavy for you. You aren't able to perform it yourself alone. 
-Listen now to my voice. I'll give you counsel, and God be with you. You represent the people before God, and bring the causes to God. 
-You will teach them the statutes and the laws, and will show them the way in which they must walk, and the work that they must do. 
-Moreover you will provide out of everyone able men which fear God: men of truth, hating unjust gain; and place such over them, to be rulers of thousands, rulers of hundreds, rulers of fifties, and rulers of tens. 
-Let them judge the people at all times. It will be that every great matter they will bring to you, but every small matter they will judge themselves. So will it be easier for you, and they will share the load with you. 
-If you'll do this thing, and God commands you so, then you'll be able to endure, and all these people also will go to their place in peace." 
-So Moses listened to the voice of his father-in-law, and did all that he had said. 
-Moses chose able men out of all Israel, and made them heads over the people, rulers of thousands, rulers of hundreds, rulers of fifties, and rulers of tens. 
-They judged the people at all times. They brought the hard cases to Moses, but every small matter they judged themselves. 
-Moses let his father-in-law depart, and he went his way into his own land. 
+﻿Jethro, the priest of Midian and Moses' father-in-law, heard everything God had done for Moses and for Israel his people, and how God had brought Israel out of Egypt. 
+Jethro had taken in Zipporah, Moses' wife, after Moses had sent her back, 
+along with her two sons. One was named Gershom, because Moses had said, "I have been a foreigner in a foreign land." 
+The other was named Eliezer, because he said, "My father's God came to my help and saved me from Pharaoh's sword." 
+Jethro came to Moses in the wilderness, where he was camped near the mountain of God, bringing Moses' sons and his wife. 
+He sent word to Moses: "I, your father-in-law Jethro, am coming to you with your wife and her two sons." 
+So Moses went out to meet his father-in-law, bowed to him and kissed him, and they asked each other how they were. Then they went into the tent. 
+Moses told him everything God had done to Pharaoh and the Egyptians for Israel's sake, all the hardship they had met on the way, and how God had rescued them. 
+Jethro was glad about all the good God had done for Israel in rescuing them from the Egyptians. 
+Jethro said, "Praise God, who rescued you from the Egyptians and from Pharaoh, who rescued the people from Egypt's grip. 
+Now I know that God is greater than all the gods, because of how they treated the people so arrogantly." 
+Then Jethro brought a burnt offering and other sacrifices to God, and Aaron came with all the elders of Israel to eat with him in God's presence. 
+The next day Moses sat down to settle disputes for the people, and they stood around him from morning until evening. 
+When his father-in-law saw everything he was doing for the people, he said, "What is this you're doing? Why do you sit here alone with all these people standing around you from morning to evening?" 
+Moses said, "The people come to me to find out what God wants. 
+Whenever they have a dispute, they bring it to me, and I decide between a man and his neighbor and tell them God's rules and laws." 
+His father-in-law said, "What you're doing isn't good. 
+You'll wear yourself out, and the people with you, because this job is too heavy for one person. You can't do it alone. 
+Listen to me. I'll give you some advice, and God be with you. You stand in God's presence on behalf of the people and bring their disputes to him. 
+Teach them his rules and laws, and show them how to live and what to do. 
+And pick out capable men from all the people, men who fear God, men who tell the truth and hate bribes, and put them over the people as leaders of thousands, of hundreds, of fifties and of tens. 
+Let them settle disputes for the people at all times. They can bring every big case to you and settle the small ones themselves. That will make it easier for you, and they will share the load. 
+If you do this, and God tells you to, you'll be able to keep going, and all these people will go home satisfied." 
+Moses listened to his father-in-law and did everything he suggested. 
+Moses chose capable men from all Israel and made them leaders over the people, over thousands, hundreds, fifties and tens. 
+They settled disputes for the people at all times. They brought the hard cases to Moses and settled the small ones themselves. 
+Then Moses said goodbye to his father-in-law, and Jethro went back to his own country. 

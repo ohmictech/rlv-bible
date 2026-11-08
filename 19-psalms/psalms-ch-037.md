@@ -17,7 +17,7 @@ Better is a little that the righteous has, than the abundance of many guilty.
 The arms of the guilty will be broken, but God upholds the righteous. 
 God knows the days of the perfect. Their inheritance will be for the eras. 
 They won't be disappointed in the time of bad. In the days of famine they will be satisfied. 
-But the guilty will perish. The enemies of God will be like the beauty of the fields. They'll vanish, vanish like smoke. 
+But the guilty will perish. The enemies of God will be like the beauty of the fields. They'll be consumed, consumed like smoke. 
 The guilty borrow, and don't pay back, but the righteous give generously. 
 Such as are blessed by him will inherit the land. Those who are cursed by him will be cut off. 
 A man's steps are established by God. He delights in his way. 

@@ -1,7 +1,7 @@
 ﻿God's word came to me again, saying, 
 "What do you mean, that you use this proverb concerning the land of Israel, saying, 'The fathers have eaten sour grapes, and the children's teeth are set on edge'? 
 "As I live," says God, "you won't use this proverb any more in Israel. 
-Look, all souls are mine; as the soul of the father, so also the soul of the son is mine. The soul who drifts, he will die. 
+Look, every living person is mine, father and son alike. The one who drifts is the one who dies. 
 "But if a man is just, and does that which is lawful and right, 
 and hasn't eaten on the mountains, hasn't lifted up his eyes to the idols of the house of Israel, hasn't defiled his neighbor's wife, hasn't come near a woman in her impurity, 
 and hasn't wronged any, but has restored to the debtor his pledge, has taken nothing by robbery, has given his bread to the hungry, and has covered the naked with a garment; 
@@ -17,7 +17,7 @@ hasn't wronged any, hasn't taken anything to pledge, hasn't taken by robbery, bu
 who has withdrawn his hand from the poor, who hasn't received interest or increase, has executed my ordinances, has walked in my statutes; he won't die for the guilt of his father. He will surely live. 
 As for his father, because he cruelly oppressed, robbed his brother, and did that which isn't good among his people, look, he'll die in his guilt. 
 "Yet you say, 'Why doesn't the son bear the guilt of the father?' When the son has done that which is lawful and right, and has kept all my statutes, and has done them, he'll surely live. 
-The soul who drifts, he will die. The son won't bear the guilt of the father, neither will the father bear the guilt of the son. The righteousness of the righteous will be on him, and the guilt of the guilty will be on him. 
+The one who drifts is the one who dies. The son won't bear the guilt of the father, neither will the father bear the guilt of the son. The righteousness of the righteous will be on him, and the guilt of the guilty will be on him. 
 "But if the guilty turns from all his mistakes that he has committed, and keeps all my statutes, and does that which is lawful and right, he will surely live. He won't die. 
 None of his rebellion that he has committed will be remembered against him. In his righteousness that he has done, he will live. 
 Have I any pleasure in the death of the guilty?" says God, "and not rather that he should return from his way, and live? 

@@ -25,7 +25,7 @@ So the Lord, GOD of Armies, the Mighty One of Israel, says: "Ah, I'll get relief
 I'll turn my hand on you, thoroughly purge away your dross, and will take away all your tin. 
 I'll restore your judges as at the first, and your counselors as at the beginning. Afterward you will be called 'The city of righteousness, a faithful town.' 
 Zion will be bought back with justice, and her converts with righteousness. 
-But the destruction of transgressors and those who have drifted will be together, and those who forsake God will be consumed. 
+But rebels and drifters will be broken together, and those who forsake God will be consumed. 
 They will be ashamed of the oaks which you have desired, and you will be confounded for the gardens that you have chosen. 
 You will be as an oak whose leaf fades, and as a garden that has no water. 
 The strong will be like tinder, and his work like a spark. They'll both burn together, and no one will quench them." 

@@ -8,7 +8,7 @@ if my step has turned out of the way, if my heart walked after my eyes, if any d
 then let me sow, and let another eat. Yes, let the produce of my field be rooted out. 
 "If my heart has been enticed to a woman, and I have laid wait at my neighbor's door, 
 then let my wife grind for another, and let others sleep with her. 
-That would be a heinous crime. Yes, it would be an guilt to be punished by the judges, 
+That would be a heinous crime. Yes, it would be a guilt to be punished by the judges, 
 for it's a fire that consumes to destruction, and would root out all my increase. 
 "If I have despised the cause of my male servant or of my female servant, when they contended with me, 
 what then will I do when God rises up? When he visits, what will I answer him? 
@@ -25,7 +25,7 @@ Calamity from God is a terror to me. Because of his majesty, I can do nothing.
 If I have rejoiced because my wealth was great, and because my hand had gotten much; 
 if I have seen the sun when it shined, or the moon moving in splendor, 
 and my heart has been secretly enticed, and my hand threw a kiss from my mouth; 
-this also would be an guilt to be punished by the judges, for I'd have denied the God who's above. 
+this also would be a guilt to be punished by the judges, for I'd have denied the God who's above. 
 "If I have rejoiced at the destruction of him who hated me, or lifted up myself when bad found him 
 (I have certainly not allowed my mouth to drift by asking his life with a curse); 
 if the men of my tent haven't said, 'Who can find one who hasn't been filled with his meat?' 

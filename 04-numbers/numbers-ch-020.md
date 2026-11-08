@@ -13,7 +13,7 @@ God said to Moses and Aaron, "Because you didn't believe in me, to sanctify me i
 These are the waters of Meribah; because the children of Israel strove with God, and he was sanctified in them. 
 Moses sent messengers from Kadesh to the king of Edom, saying: "Your brother Israel says: You know all the travail that has happened to us; 
 how our fathers went down into Egypt, and we lived in Egypt a long time. The Egyptians mistreated us and our fathers. 
-When we cried to God, he heard our voice, sent an messenger, and brought us out of Egypt. Look, we're in Kadesh, a city in the edge of your border. 
+When we cried to God, he heard our voice, sent a messenger, and brought us out of Egypt. Look, we're in Kadesh, a city in the edge of your border. 
 "Please let's pass through your land. We won't pass through field or through vineyard, neither will we drink from the water of the wells. We'll go along the king's highway. We won't turn away to the right hand nor to the left, until we have passed your border." 
 Edom said to him, "You won't pass through me, lest I come out with the sword against you." 
 The children of Israel said to him, "We'll go up by the highway; and if we drink your water, I and my livestock, then I'll give its price. Only let me, without doing anything else, pass through on my feet." 

@@ -6,7 +6,7 @@ for he put his life in his hand and struck the Philistine, and God worked a grea
 Saul listened to the voice of Jonathan; and Saul swore, "As God lives, he won't be put to death." 
 Jonathan called David, and Jonathan showed him all those things. Then Jonathan brought David to Saul, and he was in his presence as before. 
 There was war again. David went out and fought with the Philistines, and killed them with a great slaughter; and they fled before him. 
-An harmful spirit from God was on Saul as he sat in his house with his spear in his hand; and David was playing music with his hand. 
+A harmful spirit from God was on Saul as he sat in his house with his spear in his hand; and David was playing music with his hand. 
 Saul sought to pin David to the wall with the spear, but he slipped away out of Saul's presence; and he stuck the spear into the wall. David fled and escaped that night. 
 Saul sent messengers to David's house to watch him and to kill him in the morning. Michal, David's wife, told him, saying, "If you don't save your life tonight, tomorrow you'll be killed." 
 So Michal let David down through the window. He went away, fled, and escaped. 

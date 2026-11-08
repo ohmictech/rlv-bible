@@ -11,8 +11,8 @@ Jesse made seven of his sons to pass before Samuel. Samuel said to Jesse, "God h
 Samuel said to Jesse, "Are all your children here?" He said, "There remains yet the youngest. Look, he's keeping the sheep." Samuel said to Jesse, "Send and get him, for we won't sit down until he comes here." 
 He sent, and brought him in. Now he was ruddy, with a handsome face and good appearance. God said, "Arise! Anoint him, for this is he." 
 Then Samuel took the horn of oil and anointed him in the middle of his brothers. Then God's Spirit came mightily on David from that day forward. So Samuel rose up and went to Ramah. 
-Now God's Spirit departed from Saul, and an harmful spirit from God troubled him. 
-Saul's servants said to him, "See now, an harmful spirit from God troubles you. 
+Now God's Spirit departed from Saul, and a harmful spirit from God troubled him. 
+Saul's servants said to him, "See now, a harmful spirit from God troubles you. 
 Let our lord now command your servants who are in front of you to seek out a man who's a skillful player on the harp. Then when the harmful spirit from God is on you, he'll play with his hand, and you'll be well." 
 Saul said to his servants, "Provide me now a man who can play well, and bring him to me." 
 Then one of the young men answered and said, "Look, I have seen a son of Jesse the Bethlehemite who's skillful in playing, a mighty man of valor, a man of war, prudent in speech, and a handsome person; and God is with him." 

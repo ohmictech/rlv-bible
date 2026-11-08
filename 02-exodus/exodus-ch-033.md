@@ -1,5 +1,5 @@
 ﻿God spoke to Moses, "Depart, go up from here, you and the people that you have brought up out of the land of Egypt, to the land of which I swore to Abraham, to Isaac, and to Jacob, saying, 'I'll give it to your offspring.' 
-I'll send an messenger before you; and I'll drive out the Canaanite, the Amorite, and the Hittite, and the Perizzite, the Hivite, and the Jebusite. 
+I'll send a messenger before you; and I'll drive out the Canaanite, the Amorite, and the Hittite, and the Perizzite, the Hivite, and the Jebusite. 
 Go to a land flowing with milk and honey; but I won't go up among you, for you're a stiff-necked people, lest I consume you on the way." 
 When the people heard this bad news, they mourned; and no one put on his jewelry. 
 God had said to Moses, "Tell the children of Israel, 'You're a stiff-necked people. If I were to go up among you for one moment, I'd consume you. So now take off your jewelry from you, that I can know what to do to you.'" 

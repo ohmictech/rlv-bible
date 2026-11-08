@@ -7,7 +7,7 @@ As they came, when David returned from the slaughter of the Philistine, the wome
 The women sang to one another as they played, and said, "Saul has slain his thousands, and David his ten thousands." 
 Saul was very angry, and this saying displeased him. He said, "They have credited David with ten thousands, and they have only credited me with thousands. What can he have more but the kingdom?" 
 Saul watched David from that day and forward. 
-On the next day, an harmful spirit from God came mightily on Saul, and he prophesied in the middle of the house. David played with his hand, as he did day by day. Saul had his spear in his hand; 
+On the next day, a harmful spirit from God came mightily on Saul, and he prophesied in the middle of the house. David played with his hand, as he did day by day. Saul had his spear in his hand; 
 and Saul threw the spear, for he said, "I'll pin David to the wall!" David escaped from his presence twice. 
 Saul was afraid of David, because God was with him, and had departed from Saul. 
 So Saul removed him from his presence, and made him his captain over a thousand; and he went out and came in before the people. 

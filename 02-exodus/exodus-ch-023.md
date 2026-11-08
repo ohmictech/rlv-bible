@@ -1,33 +1,33 @@
-﻿"Don't spread a false report. Don't join your hand with the guilty to be a malicious witness. 
-"Don't follow a crowd to do bad things. You won't testify in court to side with a multitude to pervert justice. 
-Don't favor a poor man in his cause. 
-"If you meet your enemy's ox or his donkey going astray, you will surely bring it back to him again. 
-If you see the donkey of him who hates you fallen down under his burden, don't leave him. You will surely help him with it. 
-"Don't deny justice to your poor people in their lawsuits. 
-"Keep far from a false charge, and don't kill the innocent and righteous; for I won't justify the guilty. 
-"You will take no bribe, for a bribe blinds those who have sight and perverts the words of the righteous. 
-"Don't oppress an alien, for you know the heart of an alien, since you were aliens in the land of Egypt. 
-"Six years you will sow your land, and will gather in its increase, 
-but the seventh year you will let it rest and lie fallow, that the poor of your people may eat; and what they leave the animal of the field will eat. In the same way, you will deal with your vineyard and with your olive grove. 
-"Six days you will do your work, and on the seventh day you will rest, that your ox and your donkey may have rest, and the son of your servant, and the alien may be refreshed. 
-"Be careful to do all things that I have said to you; and don't invoke the name of other gods or even let them be heard out of your mouth. 
-"You will observe a feast to me three times a year. 
-You will observe the feast of unleavened bread. Seven days you will eat unleavened bread, as I commanded you, at the time appointed in the month Abib (for in it you came out of Egypt), and no one will appear before me empty. 
-And the feast of harvest, the first fruits of your labors, which you sow in the field; and the feast of ingathering, at the end of the year, when you gather in your labors out of the field. 
-Three times in the year all your males will appear before God. 
-"Don't offer the blood of my sacrifice with leavened bread. The fat of my feast won't remain all night until the morning. 
-You will bring the first of the first fruits of your ground into the house of your God. "You won't boil a young goat in its mother's milk. 
-"Look, I send an messenger before you, to keep you by the way, and to bring you into the place which I have prepared. 
-Pay attention to him, and listen to his voice. Don't provoke him, for he won't pardon your disobedience, for my name is in him. 
-But if you indeed listen to his voice, and do all that I speak, then I'll be an enemy to your enemies, and an adversary to your adversaries. 
-My messenger will go before you, and bring you in to the Amorite, the Hittite, the Perizzite, the Canaanite, the Hivite, and the Jebusite; and I'll cut them off. 
-Don't bow down to their gods, nor serve them, nor follow their practices, but you will utterly overthrow them and demolish their pillars. 
-You will serve your God, and he'll bless your bread and your water, and I'll take sickness away from among you. 
-No one will miscarry or be barren in your land. I'll fulfill the number of your days. 
-I'll send my terror before you, and will confuse everyone to whom you come, and I'll make all your enemies turn their backs to you. 
-I'll send the hornet before you, which will drive out the Hivite, the Canaanite, and the Hittite, from before you. 
-I won't drive them out from before you in one year, lest the land become desolate, and the animals of the field multiply against you. 
-Little by little I'll drive them out from before you, until you have increased and inherit the land. 
-I'll set your border from the Red Sea even to the sea of the Philistines, and from the wilderness to the River; for I'll deliver the inhabitants of the land into your hand, and you will drive them out before you. 
-You will make no covenant with them, nor with their gods. 
-They won't dwell in your land, lest they make you wrong me, for if you serve their gods, it'll surely be a snare to you." 
+﻿"Don't spread a false report. Don't join hands with the guilty to be a malicious witness. 
+"Don't follow a crowd into doing wrong. Don't testify in a case just to side with the crowd and bend justice. 
+Don't show favoritism to a poor man in his case. 
+"If you come across your enemy's ox or donkey wandering off, take it back to him. 
+If you see the donkey of someone who hates you lying under its load, don't walk past. Help him with it. 
+"Don't deny justice to your poor in their lawsuits. 
+"Stay far from a false charge. Don't kill the innocent and the right, because I won't let the guilty off. 
+"Don't take a bribe, because a bribe blinds those who can see and twists the words of the right. 
+"Don't oppress a foreigner, because you know how a foreigner feels. You were foreigners in Egypt. 
+"For six years you sow your land and gather its produce, 
+but in the seventh year let it rest and lie fallow, so the poor among your people can eat, and what they leave the wild animals can eat. Do the same with your vineyard and your olive grove. 
+"For six days you do your work, but on the seventh day you rest, so your ox and your donkey can rest too, and your servant's son and the foreigner can be refreshed. 
+"Be careful to do everything I have told you. Don't call on the names of other gods, or even let them be heard from your mouth. 
+"Three times a year you are to hold a festival for me. 
+Keep the festival of bread without yeast. For seven days eat bread without yeast, as I commanded you, at the set time in the month of Abib, because that is when you came out of Egypt, and no one is to come before me empty-handed. 
+Then the festival of harvest, with the firstfruits of what you sow in the field, and the festival of ingathering at the end of the year, when you gather your work from the field. 
+Three times a year every male among you must appear before God. 
+"Don't offer the blood of my sacrifice along with bread that has yeast. The fat of my festival must not be left until morning. 
+Bring the best of the firstfruits of your ground to the house of your God. "Don't boil a young goat in its mother's milk. 
+"I am sending a messenger ahead of you to keep you on the way and to bring you to the place I have prepared. 
+Pay attention to him and listen to his voice. Don't rebel against him, because he won't forgive your disobedience, since my name is in him. 
+But if you listen carefully to his voice and do everything I say, then I will be an enemy to your enemies and an adversary to your adversaries. 
+My messenger will go ahead of you and bring you to the Amorites, Hittites, Perizzites, Canaanites, Hivites and Jebusites, and I will cut them off. 
+Don't bow down to their gods or serve them or follow their practices. Tear them down completely and smash their sacred pillars. 
+Serve your God, and he will bless your bread and your water, and I will take sickness away from among you. 
+No one in your land will lose a child or be barren, and I will give you your full span of days. 
+I will send my terror ahead of you and throw into panic everyone you come to, and I will make all your enemies turn and run. 
+I will send hornets ahead of you to drive the Hivites, Canaanites and Hittites out of your way. 
+I won't drive them out in a single year, or the land would become empty and the wild animals would multiply against you. 
+I will drive them out little by little, until you have grown enough to take the land. 
+I will set your borders from the Red Sea to the sea of the Philistines, and from the wilderness to the River, because I will hand the people of the land over to you and you will drive them out. 
+Make no covenant with them or with their gods. 
+They must not live in your land, or they will make you wrong me, because serving their gods will be a trap for you." 

@@ -1,18 +1,18 @@
-﻿He said to Moses, "Come up to God, you, and Aaron, Nadab, and Abihu, and seventy of the elders of Israel; and worship from a distance. 
-Moses alone will come near to God, but they won't come near. The people won't go up with him." 
-Moses came and told the people all God's words, and all the ordinances; and everyone answered with one voice, and said, "All the words which God has spoken we'll do." 
-Moses wrote all God's words, then rose up early in the morning and built an altar at the base of the mountain, with twelve pillars for the twelve tribes of Israel. 
-He sent young men of the children of Israel, who offered burnt offerings and sacrificed offerings for wholeness of cattle to God. 
-Moses took half of the blood and put it in basins, and half of the blood he sprinkled on the altar. 
-He took the book of the covenant and read it in the hearing of the people, and they said, "We'll do all that God has said, and be obedient." 
-Moses took the blood, and sprinkled it on the people, and said, "Look, this is the blood of the covenant, which God has made with you concerning all these words." 
-Then Moses, Aaron, Nadab, Abihu, and seventy of the elders of Israel went up. 
-They saw the God of Israel. Under his feet was like a paved work of sapphire stone, like the skies for clearness. 
-He didn't lay his hand on the nobles of the children of Israel. They saw God, and ate and drank. 
-God said to Moses, "Come up to me on the mountain, and stay here, and I'll give you the stone tablets with the law and the commands that I have written, that you can teach them." 
-Moses rose up with Joshua, his servant, and Moses went up onto God's Mountain. 
-He said to the elders, "Wait here for us, until we come again to you. Look, Aaron and Hur are with you. Whoever is involved in a dispute can go to them." 
-Moses went up on the mountain, and the cloud covered the mountain. 
-God's glory settled on Mount Sinai, and the cloud covered it six days. The seventh day he called to Moses out of the middle of the cloud. 
-The appearance of God's glory was like devouring fire on the top of the mountain in the eyes of the children of Israel. 
-Moses entered into the middle of the cloud, and went up on the mountain; and Moses was on the mountain forty days and forty nights. 
+﻿God said to Moses, "Come up to me, you and Aaron, Nadab and Abihu, and seventy of the elders of Israel, and worship from a distance. 
+Only Moses may come near to God. The others must not come near, and the people must not come up with him." 
+Moses came and told the people everything God had said, all the rulings, and all the people answered together, "We will do everything God has said." 
+Moses wrote down everything God had said. He got up early the next morning and built an altar at the foot of the mountain, with twelve pillars for the twelve tribes of Israel. 
+Then he sent young Israelite men, and they offered burnt offerings and sacrificed oxen as offerings for wholeness to God. 
+Moses took half the blood and put it in bowls, and the other half he splashed on the altar. 
+Then he took the book of the covenant and read it aloud to the people, and they said, "We will do everything God has said, and we will obey." 
+Moses took the blood and sprinkled it on the people, and said, "This is the blood of the covenant God has made with you on the basis of all these words." 
+Moses, Aaron, Nadab, Abihu and seventy of the elders of Israel went up, 
+and they saw the God of Israel. Under his feet was something like a pavement of sapphire, clear as the sky itself. 
+He did not raise his hand against the leading men of Israel. They saw God, and they ate and drank. 
+God said to Moses, "Come up to me on the mountain and stay there, and I will give you the stone tablets with the law and the commands I have written, so you can teach them." 
+So Moses set out with Joshua his servant, and Moses went up the mountain of God. 
+He said to the elders, "Wait here for us until we come back. Aaron and Hur are here with you, so anyone with a dispute can go to them." 
+Then Moses went up the mountain, and the cloud covered it. 
+The weight of God settled on Mount Sinai, and the cloud covered it for six days. On the seventh day he called to Moses from inside the cloud. 
+To the Israelites it looked like a consuming fire on top of the mountain. 
+Moses went into the cloud and up the mountain, and he was on the mountain forty days and forty nights. 

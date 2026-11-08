@@ -24,7 +24,7 @@ The king said to Shimei, "You won't die." The king swore to him.
 Mephibosheth the son of Saul came down to meet the king; and he had neither groomed his feet, nor trimmed his beard, nor washed his clothes, from the day the king departed until the day he came home in peace. 
 When he had come to Jerusalem to meet the king, the king said to him, "Why didn't you go with me, Mephibosheth?" 
 He answered, "My lord, O king, my servant deceived me. Your servant said, 'I'll saddle a donkey for myself, that I can ride on it and go with the king,' because your servant is lame. 
-He has slandered your servant to my lord the king, but my lord the king is as an messenger of God. So do what's good in your eyes. 
+He has slandered your servant to my lord the king, but my lord the king is as a messenger of God. So do what's good in your eyes. 
 All my father's house were but dead men before my lord the king; yet you set your servant among those who ate at your own table. What right have I yet that I should appeal any more to the king?" 
 The king said to him, "Why do you speak any more of your matters? I say, you and Ziba divide the land." 
 Mephibosheth said to the king, "Yes, let him take all, because my lord the king has come in peace to his own house." 

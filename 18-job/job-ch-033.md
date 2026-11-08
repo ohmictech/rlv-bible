@@ -20,7 +20,7 @@ He keeps back his soul from the pit, and his life from perishing by the sword.
 so that his life abhors bread, and his soul dainty food. 
 His flesh is so consumed away that it can't be seen. His bones that weren't seen stick out. 
 Yes, his soul draws near to the pit, and his life to the destroyers. 
-"If there's beside him an messenger, an interpreter, one among a thousand, to show to man what's right for him, 
+"If there's beside him a messenger, an interpreter, one among a thousand, to show to man what's right for him, 
 then God is gracious to him, and says, 'Deliver him from going down to the pit, I have found a ransom.' 
 His flesh will be fresher than a child's. He returns to the days of his youth. 
 He prays to God, and he's favorable to him, so that he sees his face with joy. He restores to man his righteousness. 

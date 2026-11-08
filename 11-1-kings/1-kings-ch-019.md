@@ -2,7 +2,7 @@
 Then Jezebel sent a messenger to Elijah, saying, "So let the gods do to me, and more also, if I don't make your life as the life of one of them by tomorrow about this time!" 
 When he saw that, he arose and ran for his life, and came to Beersheba, which belongs to Judah, and left his servant there. 
 But he himself went a day's journey into the wilderness, and came and sat down under a juniper tree. Then he requested for himself that he might die, and said, "It's enough. Now, O God, take away my life; for I'm not better than my fathers." 
-He lay down and slept under a juniper tree; and look, an messenger touched him, and said to him, "Arise and eat!" 
+He lay down and slept under a juniper tree; and look, a messenger touched him, and said to him, "Arise and eat!" 
 He looked, and look, there was at his head a cake baked on the coals, and a jar of water. He ate and drank, and lay down again. 
 God's messenger came again the second time, and touched him, and said, "Arise and eat, because the journey is too great for you." 
 He arose, and ate and drank, and went in the strength of that food forty days and forty nights to Horeb, God's Mountain. 

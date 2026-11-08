@@ -14,10 +14,10 @@ The woman said, "Why then have you devised such a thing against the people of Go
 We must die, and are like water spilled on the ground, which can't be gathered up again; neither does God take away life, but devises means, that he who's banished not be an outcast from him. 
 Now, seeing that I have come to speak this word to my lord the king, it's because the people have made me afraid. Your servant said, 'I'll now speak to the king; it might be that the king will perform the request of his servant.' 
 The king will hear, to deliver his servant out of the hand of the man who would destroy me and my son together out of the inheritance of God. 
-Then your servant said, 'Please let the word of my lord the king bring rest; for as an messenger of God, so is my lord the king to discern good and bad. May God, your God, be with you.'" 
+Then your servant said, 'Please let the word of my lord the king bring rest; for as a messenger of God, so is my lord the king to discern good and bad. May God, your God, be with you.'" 
 Then the king answered the woman, "Please don't hide anything from me that I ask you." The woman said, "Let my lord the king now speak." 
 The king said, "Is the hand of Joab with you in all this?" The woman answered, "As your soul lives, my lord the king, no one can turn to the right hand or to the left from anything that my lord the king has spoken; for your servant Joab urged me, and he put all these words in the mouth of your servant. 
-Your servant Joab has done this thing to change the face of the matter. My lord is wise, according to the wisdom of an messenger of God, to know all things that are on the earth." 
+Your servant Joab has done this thing to change the face of the matter. My lord is wise, according to the wisdom of a messenger of God, to know all things that are on the earth." 
 The king said to Joab, "Look now, I have granted this thing. Go, and bring the young man Absalom back." 
 Joab fell to the ground on his face, showed respect, and blessed the king. Joab said, "Today your servant knows that I have found favor in your sight, my lord, O king, in that the king has performed the request of his servant." 
 So Joab arose and went to Geshur, and brought Absalom to Jerusalem. 

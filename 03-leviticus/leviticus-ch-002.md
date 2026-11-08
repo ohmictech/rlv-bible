@@ -1,16 +1,16 @@
-﻿"'When anyone offers an offering of a meal offering to God, his offering will be of fine flour. He will pour oil on it, and put frankincense on it. 
-He will bring it to Aaron's sons, the priests. He will take his handful of its fine flour, and of its oil, with all its frankincense, and the priest will burn its memorial on the altar, an offering made by fire, of a pleasant aroma to God. 
-That which is left of the meal offering will be Aaron's and his sons'. It's a most holy part of the offerings of God made by fire. 
-"'When you offer an offering of a meal offering baked in the oven, it will be unleavened cakes of fine flour mixed with oil, or unleavened wafers anointed with oil. 
-If your offering is a meal offering made on a griddle, it will be of unleavened fine flour, mixed with oil. 
-You will cut it in pieces, and pour oil on it. It's a meal offering. 
-If your offering is a meal offering of the pan, it will be made of fine flour with oil. 
-You will bring the meal offering that's made of these things to God. It will be presented to the priest, and he will bring it to the altar. 
-The priest will take from the meal offering its memorial, and will burn it on the altar, an offering made by fire, of a pleasant aroma to God. 
-That which is left of the meal offering will be Aaron's and his sons'. It's a most holy part of the offerings of God made by fire. 
-"'No meal offering which you will offer to God will be made with yeast; for you will burn no yeast, nor any honey, as an offering made by fire to God. 
-As an offering of first fruits you will offer them to God, but they won't rise up as a pleasant aroma on the altar. 
-Every offering of your meal offering you will season with salt. You won't allow the salt of the covenant of your God to be lacking from your meal offering. With all your offerings you will offer salt. 
-"'If you offer a meal offering of first fruits to God, you will offer for the meal offering of your first fruits fresh heads of grain parched with fire and crushed. 
-You will put oil on it and lay frankincense on it. It's a meal offering. 
-The priest will burn as its memorial part of its crushed grain and part of its oil, along with all its frankincense. It's an offering made by fire to God. 
+﻿"'When anyone brings a grain offering to God, his offering is to be of fine flour. He is to pour oil on it and put frankincense on it. 
+He is to bring it to Aaron's sons, the priests, and one of them is to take a handful of the flour and the oil, with all the frankincense, and the priest is to burn the memorial portion on the altar, an offering made by fire, a soothing aroma to God. 
+What is left of the grain offering belongs to Aaron and his sons. It is a most holy part of God's offerings made by fire. 
+"'When you bring a grain offering baked in an oven, it is to be cakes of fine flour mixed with oil and made without yeast, or wafers made without yeast with oil poured over them. 
+If your offering is a grain offering cooked on a griddle, it is to be fine flour mixed with oil and made without yeast. 
+Break it into pieces and pour oil on it. It is a grain offering. 
+If your offering is a grain offering cooked in a pan, it is to be made of fine flour with oil. 
+Bring the grain offering made in any of these ways to God, give it to the priest, and he will bring it to the altar. 
+The priest is to take the memorial portion from the grain offering and burn it on the altar, an offering made by fire, a soothing aroma to God. 
+What is left of the grain offering belongs to Aaron and his sons. It is a most holy part of God's offerings made by fire. 
+"'No grain offering you bring to God is to be made with yeast, because you are never to burn yeast or honey as an offering made by fire to God. 
+You may bring them to God as an offering of firstfruits, but they are not to go up on the altar as a soothing aroma. 
+Season every grain offering you bring with salt. Never leave the salt of your God's covenant out of your grain offering. Bring salt with every offering you make. 
+"'If you bring a grain offering of firstfruits to God, bring new grain, roasted in the fire and crushed, as the grain offering of your firstfruits. 
+Put oil on it and lay frankincense on it. It is a grain offering. 
+The priest is to burn the memorial portion of the crushed grain and the oil, along with all the frankincense, as an offering made by fire to God. 

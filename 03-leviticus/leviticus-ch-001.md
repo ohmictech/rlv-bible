@@ -1,17 +1,17 @@
-﻿God called to Moses, and spoke to him from the Tent of Meeting, saying, 
-"Speak to the children of Israel, and tell them, 'When anyone of you offers an offering to God, you will offer your offering of the livestock, from the herd and from the flock. 
-"'If his offering is a burnt offering from the herd, he will offer a male without defect. He will offer it at the door of the Tent of Meeting, that he can be accepted before God. 
-He will lay his hand on the head of the burnt offering, and it will be accepted for him to make things right for him. 
-He will kill the bull before God. Aaron's sons, the priests, will present the blood and sprinkle the blood around on the altar that's at the door of the Tent of Meeting. 
-He will skin the burnt offering and cut it into pieces. 
-The sons of Aaron the priest will put fire on the altar, and lay wood in order on the fire; 
-and Aaron's sons, the priests, will lay the pieces, the head, and the fat in order on the wood that's on the fire which is on the altar; 
-but he will wash its innards and its legs with water. The priest will burn all of it on the altar, for a burnt offering, an offering made by fire, of a pleasant aroma to God. 
-"'If his offering is from the flock, from the sheep or from the goats, for a burnt offering, he will offer a male without defect. 
-He will kill it on the north side of the altar before God. Aaron's sons, the priests, will sprinkle its blood around on the altar. 
-He will cut it into its pieces, with its head and its fat. The priest will lay them in order on the wood that's on the fire which is on the altar, 
-but the innards and the legs he will wash with water. The priest will offer the whole, and burn it on the altar. It's a burnt offering, an offering made by fire, of a pleasant aroma to God. 
-"'If his offering to God is a burnt offering of birds, then he will offer his offering from turtledoves or of young pigeons. 
-The priest will bring it to the altar, and wring off its head, and burn it on the altar; and its blood will be drained out on the side of the altar; 
-and he will take away its crop and its feathers, and cast it beside the altar on the east part, in the place of the ashes. 
-He will tear it by its wings, but won't divide it apart. The priest will burn it on the altar, on the wood that's on the fire. It's a burnt offering, an offering made by fire, of a pleasant aroma to God. 
+﻿God called to Moses and spoke to him from the Tent of Meeting: 
+"Speak to the Israelites and tell them, 'When any of you brings an offering to God, bring your offering from the livestock, from the herd or from the flock. 
+"'If his offering is a burnt offering from the herd, he is to bring a male without defect. He is to bring it to the entrance of the Tent of Meeting, so it will be accepted for him before God. 
+He is to lay his hand on the head of the burnt offering, and it will be accepted for him to make things right for him. 
+He is to kill the young bull before God, and Aaron's sons, the priests, are to present the blood and splash it against all sides of the altar at the entrance of the Tent of Meeting. 
+He is to skin the burnt offering and cut it into pieces. 
+The sons of Aaron the priest are to put fire on the altar and lay the wood out on the fire, 
+and Aaron's sons, the priests, are to lay the pieces, the head and the fat, out on the wood on the fire on the altar. 
+But he is to wash the inner organs and the legs with water, and the priest is to burn it all on the altar as a burnt offering, an offering made by fire, a soothing aroma to God. 
+"'If his offering is from the flock, from the sheep or the goats, for a burnt offering, he is to bring a male without defect. 
+He is to kill it on the north side of the altar before God, and Aaron's sons, the priests, are to splash its blood against all sides of the altar. 
+He is to cut it into pieces with its head and its fat, and the priest is to lay them out on the wood on the fire on the altar. 
+But he is to wash the inner organs and the legs with water, and the priest is to bring the whole thing and burn it on the altar. It is a burnt offering, an offering made by fire, a soothing aroma to God. 
+"'If his offering to God is a burnt offering of birds, he is to bring it from the doves or the young pigeons. 
+The priest is to bring it to the altar, twist off its head and burn it on the altar, and its blood is to be drained out against the side of the altar. 
+He is to take out the pouch of its throat and its feathers and throw them beside the altar on the east side, where the ashes go. 
+He is to tear it open by its wings but not cut it in two. The priest is to burn it on the altar, on the wood on the fire. It is a burnt offering, an offering made by fire, a soothing aroma to God. 

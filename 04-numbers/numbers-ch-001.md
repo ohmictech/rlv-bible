@@ -1,54 +1,54 @@
-﻿God spoke to Moses in the wilderness of Sinai, in the Tent of Meeting, on the first day of the second month, in the second year after they had come out of the land of Egypt, saying, 
-"Take a census of all the congregation of the children of Israel, by their families, by their fathers' houses, according to the number of the names, every male, one by one, 
-from twenty years old and upward, everyone who's able to go out to war in Israel. You and Aaron will count them by their divisions. 
-With you there will be a man of every tribe, each one head of his fathers' house. 
-These are the names of the men who will stand with you: Of Reuben: Elizur the son of Shedeur. 
-Of Simeon: Shelumiel the son of Zurishaddai. 
-Of Judah: Nahshon the son of Amminadab. 
-Of Issachar: Nethanel the son of Zuar. 
-Of Zebulun: Eliab the son of Helon. 
-Of the children of Joseph: of Ephraim: Elishama the son of Ammihud; of Manasseh: Gamaliel the son of Pedahzur. 
-Of Benjamin: Abidan the son of Gideoni. 
-Of Dan: Ahiezer the son of Ammishaddai. 
-Of Asher: Pagiel the son of Ochran. 
-Of Gad: Eliasaph the son of Deuel. 
-Of Naphtali: Ahira the son of Enan." 
-These are those who were called of the congregation, the princes of the tribes of their fathers; they were the heads of the thousands of Israel. 
-Moses and Aaron took these men who are mentioned by name. 
-They assembled all the congregation together on the first day of the second month; and they declared their ancestry by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, one by one. 
-As God commanded Moses, so he counted them in the wilderness of Sinai. 
-The children of Reuben, Israel's firstborn, their generations, by their families, by their fathers' houses, according to the number of the names, one by one, every male from twenty years old and upward, everyone who was able to go out to war: 
-those who were counted of them, of the tribe of Reuben, were forty-six thousand five hundred. 
-Of the children of Simeon, their generations, by their families, by their fathers' houses, those who were counted of it, according to the number of the names, one by one, every male from twenty years old and upward, everyone who was able to go out to war: 
-those who were counted of them, of the tribe of Simeon, were fifty-nine thousand three hundred. 
-Of the children of Gad, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, everyone who was able to go out to war: 
-those who were counted of them, of the tribe of Gad, were forty-five thousand six hundred fifty. 
-Of the children of Judah, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, everyone who was able to go out to war: 
-those who were counted of them, of the tribe of Judah, were seventy-four thousand six hundred. 
-Of the children of Issachar, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, everyone who was able to go out to war: 
-those who were counted of them, of the tribe of Issachar, were fifty-four thousand four hundred. 
-Of the children of Zebulun, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, everyone who was able to go out to war: 
-those who were counted of them, of the tribe of Zebulun, were fifty-seven thousand four hundred. 
-Of the children of Joseph: of the children of Ephraim, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, everyone who was able to go out to war: 
-those who were counted of them, of the tribe of Ephraim, were forty thousand five hundred. 
-Of the children of Manasseh, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, everyone who was able to go out to war: 
-those who were counted of them, of the tribe of Manasseh, were thirty-two thousand two hundred. 
-Of the children of Benjamin, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, everyone who was able to go out to war: 
-those who were counted of them, of the tribe of Benjamin, were thirty-five thousand four hundred. 
-Of the children of Dan, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, everyone who was able to go out to war: 
-those who were counted of them, of the tribe of Dan, were sixty-two thousand seven hundred. 
-Of the children of Asher, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, everyone who was able to go out to war: 
-those who were counted of them, of the tribe of Asher, were forty-one thousand five hundred. 
-Of the children of Naphtali, their generations, by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, everyone who was able to go out to war: 
-those who were counted of them, of the tribe of Naphtali, were fifty-three thousand four hundred. 
-These are those who were counted, whom Moses and Aaron counted, and the twelve men who were princes of Israel, each one for his fathers' house. 
-So everyone who was counted of the children of Israel by their fathers' houses, from twenty years old and upward, everyone who was able to go out to war in Israel 
-all those who were counted were six hundred three thousand five hundred fifty. 
-But the Levites after the tribe of their fathers weren't counted among them. 
-God spoke to Moses, saying, 
-"Only the tribe of Levi you won't count, neither will you take a census of them among the children of Israel; 
-but appoint the Levites over the Tabernacle of the Testimony, and over all its furnishings, and over all that belongs to it. They will carry the tabernacle and all its furnishings; and they will take care of it, and will encamp around it. 
-When the tabernacle is to move, the Levites will take it down; and when the tabernacle is to be set up, the Levites will set it up. The stranger who comes near will be put to death. 
-The children of Israel will pitch their tents, every man by his own camp, and every man by his own standard, according to their divisions. 
-But the Levites will encamp around the Tabernacle of the Testimony, that there may be no wrath on the congregation of the children of Israel. The Levites will be responsible for the Tabernacle of the Testimony." 
-Thus the children of Israel did. According to all that God commanded Moses, so they did. 
+﻿God spoke to Moses in the Tent of Meeting in the Sinai wilderness, on the first day of the second month of the second year after they came out of Egypt: 
+"Take a census of the whole community of Israel, by clans and families, listing every male by name, one by one, 
+from twenty years old and up, everyone in Israel able to serve in the army. You and Aaron are to count them by their units. 
+With you there is to be one man from each tribe, each the head of his family. 
+These are the men who are to stand with you: from Reuben, Elizur son of Shedeur; 
+from Simeon, Shelumiel son of Zurishaddai; 
+from Judah, Nahshon son of Amminadab; 
+from Issachar, Nethanel son of Zuar; 
+from Zebulun, Eliab son of Helon; 
+from the sons of Joseph: from Ephraim, Elishama son of Ammihud, and from Manasseh, Gamaliel son of Pedahzur; 
+from Benjamin, Abidan son of Gideoni; 
+from Dan, Ahiezer son of Ammishaddai; 
+from Asher, Pagiel son of Ochran; 
+from Gad, Eliasaph son of Deuel; 
+from Naphtali, Ahira son of Enan." 
+These were the men chosen from the community, the leaders of their ancestral tribes, the heads of Israel's clans. 
+Moses and Aaron took these men who had been named, 
+and gathered the whole community on the first day of the second month. They registered themselves by clan and family, listing the names of everyone twenty years old and up, one by one, 
+just as God commanded Moses, and he counted them there in the Sinai wilderness. 
+The descendants of Reuben, Israel's firstborn, were listed by clan and family, by name, every male twenty years old and up who could serve in the army. 
+Those counted from the tribe of Reuben were forty-six thousand five hundred. 
+The descendants of Simeon were listed by clan and family, by name, every male twenty years old and up who could serve in the army. 
+Those counted from the tribe of Simeon were fifty-nine thousand three hundred. 
+The descendants of Gad were listed by clan and family, by name, every male twenty years old and up who could serve in the army. 
+Those counted from the tribe of Gad were forty-five thousand six hundred fifty. 
+The descendants of Judah were listed by clan and family, by name, every male twenty years old and up who could serve in the army. 
+Those counted from the tribe of Judah were seventy-four thousand six hundred. 
+The descendants of Issachar were listed by clan and family, by name, every male twenty years old and up who could serve in the army. 
+Those counted from the tribe of Issachar were fifty-four thousand four hundred. 
+The descendants of Zebulun were listed by clan and family, by name, every male twenty years old and up who could serve in the army. 
+Those counted from the tribe of Zebulun were fifty-seven thousand four hundred. 
+From the sons of Joseph: the descendants of Ephraim were listed by clan and family, by name, every male twenty years old and up who could serve in the army. 
+Those counted from the tribe of Ephraim were forty thousand five hundred. 
+The descendants of Manasseh were listed by clan and family, by name, every male twenty years old and up who could serve in the army. 
+Those counted from the tribe of Manasseh were thirty-two thousand two hundred. 
+The descendants of Benjamin were listed by clan and family, by name, every male twenty years old and up who could serve in the army. 
+Those counted from the tribe of Benjamin were thirty-five thousand four hundred. 
+The descendants of Dan were listed by clan and family, by name, every male twenty years old and up who could serve in the army. 
+Those counted from the tribe of Dan were sixty-two thousand seven hundred. 
+The descendants of Asher were listed by clan and family, by name, every male twenty years old and up who could serve in the army. 
+Those counted from the tribe of Asher were forty-one thousand five hundred. 
+The descendants of Naphtali were listed by clan and family, by name, every male twenty years old and up who could serve in the army. 
+Those counted from the tribe of Naphtali were fifty-three thousand four hundred. 
+These are the ones counted by Moses and Aaron, with the twelve leaders of Israel, one from each family. 
+So all the Israelites counted by their families, twenty years old and up, everyone able to serve in the army in Israel, 
+came to six hundred three thousand five hundred fifty. 
+But the Levites were not counted with the rest by their ancestral tribe. 
+God spoke to Moses: 
+"You are not to count the tribe of Levi or take their census along with the other Israelites. 
+Instead, put the Levites in charge of the tent of the Testimony, all its furnishings and everything that belongs to it. They are to carry the tent and all its furnishings, take care of it and camp around it. 
+When the tent is to move, the Levites are to take it down, and when it is to be set up, the Levites are to set it up. Any outsider who comes near is to be put to death. 
+The Israelites are to camp each in his own camp and under his own banner, by their units. 
+But the Levites are to camp around the tent of the Testimony, so that my anger doesn't fall on the community of Israel. The Levites are to be responsible for the tent of the Testimony." 
+The Israelites did all this, just as God commanded Moses. 

@@ -41,10 +41,10 @@ Whoever isn't against us is on our side.
 Whoever gives you a cup of water to drink in my name because you belong to Christ, truly I tell you, he'll in no way lose his earned result. 
 "Whoever causes one of these little ones who trust in me to be trapped would be better off to have a millstone hung around his neck and be thrown into the sea. 
 If your hand traps you, cut it off. It's better for you to enter real life maimed than to have two hands and go into Gehenna, into the fire that can't be interrupted, 
-'where their worm doesn't die, and the fire isn't put out.' 
+'where their worm doesn't die, and the fire can't be interrupted.' 
 If your foot traps you, cut it off. It's better for you to enter real life lame than to have two feet and be thrown into Gehenna, into the fire that can't be interrupted, 
-'where their worm doesn't die, and the fire isn't put out.' 
+'where their worm doesn't die, and the fire can't be interrupted.' 
 If your eye traps you, throw it out. It's better for you to enter God's reign with one eye than to have two eyes and be thrown into the Gehenna of fire, 
-'where their worm doesn't die, and the fire isn't put out.' 
+'where their worm doesn't die, and the fire can't be interrupted.' 
 Everyone will be salted with fire, and every sacrifice will be seasoned with salt. 
 Salt is good, but if the salt has lost its saltiness, what will you season it with? Have salt in yourselves, and keep wholeness with one another." 

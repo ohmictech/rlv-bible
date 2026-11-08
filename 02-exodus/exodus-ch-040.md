@@ -1,38 +1,38 @@
-﻿God spoke to Moses, saying, 
-"On the first day of the first month you will raise up the tabernacle of the Tent of Meeting. 
-You will put the ark of the covenant in it, and you will screen the ark with the veil. 
-You will bring in the table, and set in order the things that are on it. You will bring in the lamp stand, and light its lamps. 
-You will set the golden altar for incense before the ark of the covenant, and put the screen of the door to the tabernacle. 
-"You will set the altar of burnt offering before the door of the tabernacle of the Tent of Meeting. 
-You will set the basin between the Tent of Meeting and the altar, and will put water therein. 
-You will set up the court around it, and hang up the screen of the gate of the court. 
-"You will take the anointing oil, and anoint the tabernacle and all that's in it, and will make it holy, and all its furniture, and it'll be holy. 
-You will anoint the altar of burnt offering, with all its vessels, and sanctify the altar, and the altar will be most holy. 
-You will anoint the basin and its base, and sanctify it. 
-"You will bring Aaron and his sons to the door of the Tent of Meeting, and will wash them with water. 
-You will put on Aaron the holy garments; and you will anoint him, and sanctify him, that he can minister to me in the priest's office. 
-You will bring his sons, and put tunics on them. 
-You will anoint them, as you anointed their father, that they can minister to me in the priest's office. Their anointing will be to them for a perpetual priesthood throughout their generations." 
-Moses did so. According to all that God commanded him, so he did. 
-In the first month in the second year, on the first day of the month, the tabernacle was raised up. 
-Moses raised up the tabernacle, and laid its sockets, and set up its boards, and put in its bars, and raised up its pillars. 
-He spread the covering over the tent, and put the roof of the tabernacle above on it, as God commanded Moses. 
-He took and put the covenant into the ark, and set the poles on the ark, and put the mercy seat above on the ark. 
-He brought the ark into the tabernacle, and set up the veil of the screen, and screened the ark of the covenant, as God commanded Moses. 
-He put the table in the Tent of Meeting, on the north side of the tabernacle, outside of the veil. 
-He set the bread in order on it before God, as God commanded Moses. 
-He put the lamp stand in the Tent of Meeting, opposite the table, on the south side of the tabernacle. 
-He lit the lamps before God, as God commanded Moses. 
-He put the golden altar in the Tent of Meeting before the veil; 
-and he burned incense of sweet spices on it, as God commanded Moses. 
-He put up the screen of the door to the tabernacle. 
-He set the altar of burnt offering at the door of the tabernacle of the Tent of Meeting, and offered on it the burnt offering and the meal offering, as God commanded Moses. 
-He set the basin between the Tent of Meeting and the altar, and put water therein, with which to wash. 
-Moses, Aaron, and his sons washed their hands and their feet there. 
-When they went into the Tent of Meeting, and when they came near to the altar, they washed, as God commanded Moses. 
-He raised up the court around the tabernacle and the altar, and set up the screen of the gate of the court. So Moses finished the work. 
-Then the cloud covered the Tent of Meeting, and God's glory filled the tabernacle. 
-Moses wasn't able to enter into the Tent of Meeting, because the cloud stayed on it, and God's glory filled the tabernacle. 
-When the cloud was taken up from over the tabernacle, the children of Israel went onward, throughout all their journeys; 
-but if the cloud wasn't taken up, then they didn't travel until the day that it was taken up. 
-The cloud of God was on the tabernacle by day, and there was fire in the cloud by night, in the sight of all the house of Israel, throughout all their journeys. 
+﻿God spoke to Moses: 
+"On the first day of the first month you are to set up the tent, the Tent of Meeting. 
+Put the ark of the covenant in it and screen the ark with the curtain. 
+Bring in the table and set out what belongs on it, then bring in the lampstand and light its lamps. 
+Put the gold altar for incense in front of the ark of the covenant, and hang the screen at the entrance of the tent. 
+"Put the altar of burnt offering in front of the entrance of the tent, the Tent of Meeting. 
+Put the basin between the Tent of Meeting and the altar, and fill it with water. 
+Set up the courtyard around it and hang the screen at its gate. 
+"Take the anointing oil and anoint the tent and everything in it, and set it apart with all its furnishings, and it will be holy. 
+Anoint the altar of burnt offering and all its equipment, and set the altar apart, and it will be most holy. 
+Anoint the basin and its stand and set them apart. 
+"Bring Aaron and his sons to the entrance of the Tent of Meeting and wash them with water. 
+Dress Aaron in the set apart garments, anoint him and set him apart, so he can serve me as priest. 
+Bring his sons and dress them in tunics. 
+Anoint them as you anointed their father, so they can serve me as priest, and their anointing will be theirs as a lasting priesthood through all their generations." 
+Moses did everything just as God commanded him. 
+In the first month of the second year, on the first day of the month, the tent was set up. 
+Moses set up the tent: he laid its bases, set up its frames, put in its crossbars and raised its posts. 
+He spread the covering over the tent and put its outer roof on top, just as God commanded Moses. 
+He took the covenant and put it in the ark, set the poles on the ark and put the mercy seat on top. 
+He brought the ark into the tent, hung the curtain screen and screened off the ark of the covenant, just as God commanded Moses. 
+He put the table in the Tent of Meeting, on the north side of the tent, outside the curtain. 
+He set the bread out on it before God, just as God commanded Moses. 
+He put the lampstand in the Tent of Meeting, across from the table, on the south side of the tent. 
+He lit the lamps before God, just as God commanded Moses. 
+He put the gold altar in the Tent of Meeting in front of the curtain, 
+and burned fragrant incense on it, just as God commanded Moses. 
+He hung the screen at the entrance of the tent. 
+He set the altar of burnt offering at the entrance of the tent, the Tent of Meeting, and offered the burnt offering and the grain offering on it, just as God commanded Moses. 
+He set the basin between the Tent of Meeting and the altar and filled it with water for washing. 
+Moses, Aaron and his sons washed their hands and feet there. 
+Whenever they went into the Tent of Meeting or came near the altar, they washed, just as God commanded Moses. 
+He set up the courtyard around the tent and the altar and hung the screen at its gate. So Moses finished the work. 
+Then the cloud covered the Tent of Meeting, and the weight of God filled the tent. 
+Moses couldn't go into the Tent of Meeting because the cloud rested on it and the weight of God filled the tent. 
+Whenever the cloud lifted from the tent, the Israelites set out on the next stage of their journey, 
+and if the cloud didn't lift, they didn't set out until the day it did. 
+The cloud of God stayed over the tent by day, and there was fire in the cloud by night, in the sight of all the house of Israel through every stage of their journey. 

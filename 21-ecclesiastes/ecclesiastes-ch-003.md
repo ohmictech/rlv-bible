@@ -8,7 +8,7 @@ a time to tear, and a time to sew; a time to keep silence, and a time to speak;
 a time to love, and a time to hate; a time for war, and a time for peace. 
 What profit has he who works in that in which he labors? 
 I have seen the burden which God has given to the sons of men to be afflicted with. 
-He has made everything beautiful in its time. He has also set eternity in their hearts, yet so that man can't find out the work that God has done from the beginning even to the end. 
+He has made everything beautiful in its time. He has also put the hidden times in their hearts, yet so that man can't find out the work that God has done from the beginning even to the end. 
 I know that there's nothing better for them than to rejoice, and to do good as long as they live. 
 Also that every man should eat and drink, and enjoy good in all his labor, is the gift of God. 
 I know that whatever God does, it will be for the eras. Nothing can be added to it, nor anything taken from it; and God has done it, that men should fear before him. 

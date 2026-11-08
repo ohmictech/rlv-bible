@@ -1,4 +1,4 @@
-﻿Praise God, for it's good to driftg praises to our God; for it's pleasant and fitting to praise him. 
+﻿Praise God, for it's good to sing praises to our God; for it's pleasant and fitting to praise him. 
 God builds up Jerusalem. He gathers together the outcasts of Israel. 
 He heals the broken in heart, and binds up their wounds. 
 He counts the number of the stars. He calls them all by their names. 

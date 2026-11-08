@@ -27,7 +27,7 @@ The Levites stood with David's instruments, and the priests with the trumpets.
 Hezekiah commanded them to offer the burnt offering on the altar. When the burnt offering began, God's song also began, along with the trumpets and instruments of David king of Israel. 
 All the assembly worshiped, the singers sang, and the trumpeters sounded. All this continued until the burnt offering was finished. 
 When they had finished offering, the king and everyone who was present with him bowed themselves and worshiped. 
-Moreover Hezekiah the king and the princes commanded the Levites to driftg praises to God with the words of David, and of Asaph the seer. They sang praises with gladness, and they bowed their heads and worshiped. 
+Moreover Hezekiah the king and the princes commanded the Levites to sing praises to God with the words of David, and of Asaph the seer. They sang praises with gladness, and they bowed their heads and worshiped. 
 Then Hezekiah answered, "Now you have consecrated yourselves to God. Come near and bring sacrifices and thank offerings into God's house." The assembly brought in sacrifices and thank offerings, and as many as were of a willing heart brought burnt offerings. 
 The number of the burnt offerings which the assembly brought was seventy bulls, one hundred rams, and two hundred lambs. All these were for a burnt offering to God. 
 The consecrated things were six hundred head of cattle and three thousand sheep. 

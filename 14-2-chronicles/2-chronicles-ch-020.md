@@ -18,8 +18,8 @@ You won't need to fight this battle. Set yourselves, stand still, and see the sa
 Jehoshaphat bowed his head with his face to the ground; and all Judah and the inhabitants of Jerusalem fell down before God, worshiping God. 
 The Levites, of the children of the Kohathites and of the children of the Korahites, stood up to praise the God of Israel, with an exceedingly loud voice. 
 They rose early in the morning and went out into the wilderness of Tekoa. As they went out, Jehoshaphat stood and said, "Listen to me, Judah and you inhabitants of Jerusalem! Believe in your God, so you'll be established! Believe his spokesmen, so you'll prosper." 
-When he had taken counsel with the people, he appointed those who were to driftg to God and give praise in holy array as they go out before the army, and say, "Give thanks to God, for his loving kindness endures for the eras." 
-When they began to driftg and to praise, God set ambushers against the children of Ammon, Moab, and Mount Seir, who had come against Judah; and they were struck. 
+When he had taken counsel with the people, he appointed those who were to sing to God and give praise in holy array as they go out before the army, and say, "Give thanks to God, for his loving kindness endures for the eras." 
+When they began to sing and to praise, God set ambushers against the children of Ammon, Moab, and Mount Seir, who had come against Judah; and they were struck. 
 The children of Ammon and Moab stood up against the inhabitants of Mount Seir to utterly kill and destroy them. When they had finished the inhabitants of Seir, everyone helped to destroy each other. 
 When Judah came to the place overlooking the wilderness, they looked at the multitude; and look, they were dead bodies fallen to the earth, and there were none who escaped. 
 When Jehoshaphat and his people came to take their plunder, they found among them in abundance both riches and dead bodies with precious jewels, which they stripped off for themselves, more than they could carry away. They took plunder for three days, it was so much. 

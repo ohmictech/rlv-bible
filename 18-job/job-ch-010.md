@@ -8,7 +8,7 @@ Although you know that I'm not guilty, there's no one who can deliver out of you
 "'Your hands have framed me and fashioned me altogether, yet you destroy me. 
 Remember, I beg you, that you have fashioned me as clay. Will you bring me into dust again? 
 Haven't you poured me out like milk, and curdled me like cheese? 
-You have clothed me with skin and flesh, and knit me together with bones and driftsews. 
+You have clothed me with skin and flesh, and knit me together with bones and sinews. 
 You have granted me life and loving kindness. Your visitation has preserved my spirit. 
 Yet you hid these things in your heart. I know that this is with you: 
 if I drift, then you mark me. You won't acquit me from my guilt. 

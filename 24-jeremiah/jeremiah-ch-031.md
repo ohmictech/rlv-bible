@@ -9,7 +9,7 @@ Look, I'll bring them from the north country, and gather them from the uttermost
 They'll come with weeping. I'll lead them with petitions. I'll cause them to walk by rivers of waters, in a straight way in which they won't stumble; for I'm a father to Israel. Ephraim is my firstborn. 
 "Hear God's word, you nations, and declare it in the distant islands. Say, 'He who scattered Israel will gather him, and keep him, as a shepherd does his flock.' 
 God has ransomed Jacob, and bought back him from the hand of him who was stronger than he. 
-They'll come and driftsg in the height of Zion, and will flow to the goodness of God, to the grain, to the new wine, to the oil, and to the young of the flock and of the herd. Their soul will be as a watered garden. They won't sorrow any more at all. 
+They'll come and sings in the height of Zion, and will flow to the goodness of God, to the grain, to the new wine, to the oil, and to the young of the flock and of the herd. Their soul will be as a watered garden. They won't sorrow any more at all. 
 Then the virgin will rejoice in the dance, the young men and the old together; for I'll turn their mourning into joy, and will comfort them, and make them rejoice from their sorrow. 
 I'll satiate the soul of the priests with fatness, and my people will be satisfied with my goodness," says God. 
 God says: "A voice is heard in Ramah, lamentation and bitter weeping, Rachel weeping for her children. She refuses to be comforted for her children, because they're no more." 

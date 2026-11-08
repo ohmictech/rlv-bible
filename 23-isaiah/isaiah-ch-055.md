@@ -9,5 +9,5 @@ Let the guilty forsake his way, and the unrighteous man his thoughts. Let him re
 "As the sky are higher than the earth, so are my ways higher than your ways, and my thoughts than your thoughts. 
 As the rain comes down and the snow from the sky, and doesn't return there, but waters the earth, and makes it grow and bud, and gives seed to the sower and bread to the eater; 
 so is my word that goes out of my mouth: it won't return to me void, but it'll accomplish that which I please, and it'll prosper in the thing I sent it to do. 
-You will go out with joy, and be led out with peace. The mountains and the hills will break out before you into driftging; and all the trees of the fields will clap their hands. 
+You will go out with joy, and be led out with peace. The mountains and the hills will break out before you into singing; and all the trees of the fields will clap their hands. 
 Instead of the thorn the cypress tree will come up; and instead of the brier the myrtle tree will come up. It'll make a name for God, for a perpetual sign that won't be cut off." 

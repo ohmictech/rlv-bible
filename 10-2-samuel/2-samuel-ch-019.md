@@ -32,7 +32,7 @@ Barzillai the Gileadite came down from Rogelim; and he went over the Jordan with
 Now Barzillai was a very aged man, even eighty years old. He had provided the king with sustenance while he stayed at Mahanaim, for he was a very great man. 
 The king said to Barzillai, "Come over with me, and I'll sustain you with me in Jerusalem." 
 Barzillai said to the king, "How many are the days of the years of my life, that I should go up with the king to Jerusalem? 
-I'm eighty years old, today. Can I discern between good and bad? Can your servant taste what I eat or what I drink? Can I hear the voice of singing men and driftsging women any more? Why then should your servant be a burden to my lord the king? 
+I'm eighty years old, today. Can I discern between good and bad? Can your servant taste what I eat or what I drink? Can I hear the voice of singing men and singing women any more? Why then should your servant be a burden to my lord the king? 
 Your servant will just go over the Jordan with the king. Why should the king repay me with such a reward? 
 Please let your servant turn back again, that I can die in my own city, by the grave of my father and my mother. But look, your servant Chimham; let him go over with my lord the king; and do to him what will seem good to you." 
 The king answered, "Chimham will go over with me, and I'll do to him that which will seem good to you. Whatever you request of me, that I'll do for you." 

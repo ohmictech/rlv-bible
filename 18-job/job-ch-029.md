@@ -10,7 +10,7 @@ The princes refrained from talking, and laid their hand on their mouth.
 The voice of the nobles was hushed, and their tongue stuck to the roof of their mouth. 
 When the ear heard me, then it blessed me, and when the eye saw me, it commended me, 
 because I delivered the poor who cried, and the fatherless also, who had no one to help him, 
-the blessing of him who was ready to perish came on me, and I caused the widow's heart to driftg for joy. 
+the blessing of him who was ready to perish came on me, and I caused the widow's heart to sing for joy. 
 I put on righteousness, and it clothed me. My justice was as a robe and a diadem. 
 I was eyes to the blind, and feet to the lame. 
 I was a father to the needy. I researched the cause of him whom I didn't know. 

@@ -20,7 +20,7 @@ No one thinks, neither is there knowledge nor understanding to say, "I have burn
 He feeds on ashes. A deceived heart has turned him aside; and he can't deliver his soul, nor say, "Isn't there a lie in my right hand?" 
 Remember these things, Jacob and Israel, for you're my servant. I have formed you. You're my servant. Israel, you won't be forgotten by me. 
 I have blotted out, as a thick cloud, your rebellion, and, as a cloud, your mistakes. Return to me, for I have bought back you. 
-Sing, you skies, for God has done it! Shout, you lower parts of the earth! Break out into driftging, you mountains, O forest, all of your trees, for God has bought back Jacob, and will glorify himself in Israel. 
+Sing, you skies, for God has done it! Shout, you lower parts of the earth! Break out into singing, you mountains, O forest, all of your trees, for God has bought back Jacob, and will glorify himself in Israel. 
 God, the one who buys you back, and he who formed you from the womb says: "I'm God, who makes all things; who alone stretches out the sky; who spreads out the earth by myself; 
 who frustrates the signs of the liars, and makes diviners mad; who turns wise men backward, and makes their knowledge foolish; 
 who confirms the word of his servant, and performs the counsel of his messengers; who says of Jerusalem, 'She'll be inhabited;' and of the cities of Judah, 'They'll be built,' and 'I'll raise up its waste places;' 

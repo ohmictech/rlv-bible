@@ -5,7 +5,7 @@ God says: "My people went down at the first into Egypt to live there; and the As
 "Now, what do I do here," says God, "seeing that my people are taken away for nothing? Those who rule over them mock," says God, "and my name is blasphemed continually all day long. 
 So my people will know my name. So they will know in that day that I'm he who speaks. Look, it's I." 
 How beautiful on the mountains are the feet of him who brings good news, who publishes peace, who brings good news, who proclaims salvation, who says to Zion, "Your God reigns!" 
-Your watchmen lift up their voice. Together they driftg; for they will see eye to eye when God returns to Zion. 
+Your watchmen lift up their voice. Together they sing; for they will see eye to eye when God returns to Zion. 
 Break out into joy! Sing together, you waste places of Jerusalem; for God has comforted his people. He has bought back Jerusalem. 
 God has made his holy arm bare in the eyes of all the nations. All the ends of the earth have seen the salvation of our God. 
 Depart! Depart! Go out from there! Touch no unclean thing! Go out from among her! Cleanse yourselves, you who carry God's vessels. 

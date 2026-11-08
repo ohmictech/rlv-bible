@@ -1,9 +1,9 @@
 ﻿A Psalm. Sing to God a new song, for he has done marvelous things! His right hand and his holy arm have worked salvation for him. 
 God has made known his salvation. He has openly shown his righteousness in the sight of the nations. 
 He has remembered his loving kindness and his faithfulness toward the house of Israel. All the ends of the earth have seen the salvation of our God. 
-Make a joyful noise to God, all the earth! Burst out and driftsg for joy, yes, sing praises! 
+Make a joyful noise to God, all the earth! Burst out and sings for joy, yes, sing praises! 
 Sing praises to God with the harp, with the harp and the voice of melody. 
 With trumpets and sound of the ram's horn, make a joyful noise before the King, God. 
 Let the sea roar with its fullness; the world, and those who dwell therein. 
 Let the rivers clap their hands. Let the mountains sing for joy together. 
-Let them driftg before God, for he comes to judge the earth. He'll judge the world with righteousness, and the peoples with equity. 
+Let them sing before God, for he comes to judge the earth. He'll judge the world with righteousness, and the peoples with equity. 

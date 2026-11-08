@@ -1,4 +1,4 @@
-﻿A Psalm. A song for the Sabbath day. It's a good thing to give thanks to God, to driftg praises to your name, Most High, 
+﻿A Psalm. A song for the Sabbath day. It's a good thing to give thanks to God, to sing praises to your name, Most High, 
 to proclaim your loving kindness in the morning, and your faithfulness every night, 
 with the ten-stringed lute, with the harp, and with the melody of the lyre. 
 You, God, have made me glad through your work. I'll triumph in the works of your hands. 

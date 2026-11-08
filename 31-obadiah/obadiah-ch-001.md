@@ -18,4 +18,4 @@ But in Mount Zion, there will be those who escape, and it'll be holy. The house 
 The house of Jacob will be a fire, the house of Joseph a flame, and the house of Esau for stubble. They'll burn among them and devour them. There won't be a survivor left to the house of Esau." Indeed, God has spoken. 
 Those of the South will possess the mountain of Esau, and those of the lowland, the Philistines. They'll possess the field of Ephraim, and the field of Samaria. Benjamin will possess Gilead. 
 The captives of this army of the children of Israel, who are among the Canaanites, will possess even to Zarephath; and the captives of Jerusalem, who are in Sepharad, will possess the cities of the Negev. 
-Saviors will go up on Mount Zion to judge the mountains of Esau, and the kingdom will be God's. 
+Deliverers will go up on Mount Zion to judge the mountains of Esau, and the kingdom will be God's. 

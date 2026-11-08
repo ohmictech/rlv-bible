@@ -347,6 +347,7 @@ One line per lemma. The rendering column is the law; the third column is the rem
 | doxa (n.) | honor, weight, or splendor | **Honor** where it is given or received; **weight** where it fills, settles, or is paired with timē; **splendor** where it is beheld or shines. Luke 2:14; Rom 2:7; 2 Cor 3:18. |
 | doxazo | honor, or make much of | **Honor** where God or Christ is given it; **make much of** for a thing, Rom 11:13. |
 | timē | honor | The worth or price assigned to someone, 141 instances. It owns **honor**, so doxa may only take honor in a verse where timē is absent; where both appear, doxa stays **weight**. Rom 2:7; Rev 4:11. |
+| atimia | common use, without honor | Ruled 2026-11-08: atimia is the absence of honor, not a state of disgrace, and **dishonor** in 2026 means shameful conduct, which is far darker than a potter's working jar. The pair timē / atimia reads **honor / common use**. Rom 9:21; 2 Tim 2:20. |
 | agathos | good | Keep. |
 | dikaios | right | In the right; the dikaios rows above govern. |
 | hagios (adj.) | set apart | The basic word: set apart for God, which means becoming like the One you are set apart to. |

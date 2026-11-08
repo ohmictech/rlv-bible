@@ -6,7 +6,7 @@ Make the poles of acacia wood and cover them with gold.
 Put it in front of the curtain that is by the ark of the covenant, in front of the mercy seat over the covenant, where I will meet with you. 
 Every morning Aaron is to burn fragrant incense on it when he tends the lamps. 
 And when he lights the lamps at dusk he is to burn it, incense that never stops before God, through all your generations. 
-Don't offer any other incense on it, or a burnt offering, or a grain offering, and don't pour a drink offering on it. 
+Don't offer any other incense on it, or a burnt offering, or a gift offering, and don't pour a drink offering on it. 
 Once a year Aaron is to make things right on its horns, using the blood of the offering for wrongdoing that makes things right, once a year, through all your generations. It is most holy to God." 
 God spoke to Moses: 
 "When you take a census of the Israelites and count them, each man is to give God a ransom for his life when he is counted, so no plague comes on them when they are counted. 

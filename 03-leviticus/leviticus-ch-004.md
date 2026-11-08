@@ -1,35 +1,35 @@
-﻿God spoke to Moses, saying, 
-"Speak to the children of Israel, saying, 'If anyone drifts unintentionally, in any of the things which God has commanded not to be done, and does any one of them, 
-if the anointed priest drifts so as to bring guilt on the people, then let him offer a young bull without defect to God as an offering for wrongdoing, for the wrong he has done. 
-He will bring the bull to the door of the Tent of Meeting before God; and he will lay his hand on the head of the bull, and kill the bull before God. 
-The anointed priest will take some of the blood of the bull, and bring it to the Tent of Meeting. 
-The priest will dip his finger in the blood, and sprinkle some of the blood seven times before God, before the veil of the sanctuary. 
-The priest will put some of the blood on the horns of the altar of sweet incense before God, which is in the Tent of Meeting; and he will pour out the rest of the blood of the bull at the base of the altar of burnt offering, which is at the door of the Tent of Meeting. 
-He will take all the fat of the bull of the offering for wrongdoing from it: the fat that covers the innards, and all the fat that's on the innards, 
-and the two kidneys, and the fat that's on them, which is by the loins, and the cover on the liver, with the kidneys, he will remove, 
-as it's removed from the bull of the sacrifice of offerings for wholeness. The priest will burn them on the altar of burnt offering. 
-He will carry the bull's skin, all its meat, with its head, and with its legs, its innards, and its dung 
-all the rest of the bull, outside of the camp to a clean place where the ashes are poured out, and burn it on wood with fire. It will be burned where the ashes are poured out. 
-"'If the whole congregation of Israel drifts, and the thing is hidden from the eyes of the assembly, and they have done any of the things which God has commanded not to be done, and are guilty; 
-when the wrongdoing they have done is known, then the assembly will offer a young bull for an offering for wrongdoing, and bring it before the Tent of Meeting. 
-The elders of the congregation will lay their hands on the head of the bull before God; and the bull will be killed before God. 
-The anointed priest will bring some of the blood of the bull to the Tent of Meeting. 
-The priest will dip his finger in the blood and sprinkle it seven times before God, before the veil. 
-He will put some of the blood on the horns of the altar which is before God, that's in the Tent of Meeting; and the rest of the blood he will pour out at the base of the altar of burnt offering, which is at the door of the Tent of Meeting. 
-All its fat he will take from it, and burn it on the altar. 
-He will do this with the bull; as he did with the bull of the offering for wrongdoing, so he will do with this; and the priest will make things right for them, and they will be forgiven. 
-He will carry the bull outside the camp, and burn it as he burned the first bull. It's the offering for wrongdoing for the assembly. 
-"'When a ruler drifts, and unwittingly does any one of all the things which his God has commanded not to be done, and is guilty, 
-if the wrong he has done is made known to him, he will bring as his offering a goat, a male without defect. 
-He will lay his hand on the head of the goat, and kill it in the place where they kill the burnt offering before God. It's an offering for wrongdoing. 
-The priest will take some of the blood of the offering for wrongdoing with his finger, and put it on the horns of the altar of burnt offering. He will pour out the rest of its blood at the base of the altar of burnt offering. 
-All its fat he will burn on the altar, like the fat of the sacrifice of offerings for wholeness; and the priest will make things right for him concerning his wrongdoing, and he'll be forgiven. 
-"'If anyone of the common people drift unwittingly, in doing any of the things which God has commanded not to be done, and is guilty, 
-if the wrong he has done is made known to him, then he will bring a female goat without defect as his offering, for the wrong he has done. 
-He will lay his hand on the head of the offering for wrongdoing, and kill the offering for wrongdoing in the place of burnt offering. 
-The priest will take some of its blood with his finger, and put it on the horns of the altar of burnt offering; and the rest of its blood he will pour out at the base of the altar. 
-All its fat he will take away, like the fat is taken away from the sacrifice of offerings for wholeness; and the priest will burn it on the altar for a pleasant aroma to God; and the priest will make things right for him, and he'll be forgiven. 
-"'If he brings a lamb as his offering for an offering for wrongdoing, he will bring a female without defect. 
-He will lay his hand on the head of the offering for wrongdoing, and kill it for an offering for wrongdoing in the place where they kill the burnt offering. 
-The priest will take some of the blood of the offering for wrongdoing with his finger, and put it on the horns of the altar of burnt offering; and all the rest of its blood he will pour out at the base of the altar. 
-He will remove all its fat, like the fat of the lamb is removed from the sacrifice of offerings for wholeness. The priest will burn them on the altar, on the offerings of God made by fire. The priest will make things right for him concerning the wrong he has done, and he'll be forgiven. 
+﻿God spoke to Moses: 
+"Speak to the Israelites and tell them, 'When a person drifts without meaning to, doing any of the things God has commanded not to be done, and becomes guilty in any one of them, 
+if the anointed priest drifts and so brings guilt on the people, he is to bring a young bull without defect to God as an offering for wrongdoing for the wrong he has done. 
+He is to bring the bull to the entrance of the Tent of Meeting before God, lay his hand on its head and kill it before God. 
+The anointed priest is to take some of the blood of the bull and carry it into the Tent of Meeting. 
+He is to dip his finger in the blood and splash some of it seven times before God, in front of the curtain. 
+The priest is to put some of the blood on the horns of the altar of fragrant incense before God in the Tent of Meeting, and pour out the rest of the bull's blood at the base of the altar of burnt offering at the entrance of the Tent of Meeting. 
+He is to take all the fat out of the bull of the offering for wrongdoing: the fat that covers the inner organs and all the fat on them, 
+the two kidneys with the fat on them by the loins, and the covering over the liver, which he is to take out with the kidneys, 
+the same way it is taken out of the bull of the offering for wholeness. The priest is to burn them on the altar of burnt offering. 
+But the bull's skin and all its meat, its head, its legs, its inner organs and its dung, 
+the whole rest of the bull, he is to carry outside the camp to a clean place where the ashes are poured out, and burn it on a wood fire. It is to be burned where the ashes are poured out. 
+"'If the whole community of Israel drifts and the matter is hidden from the eyes of the assembly, and they do any of the things God has commanded not to be done and become guilty, 
+once the wrong they have done is known, the assembly is to bring a young bull as an offering for wrongdoing and bring it in front of the Tent of Meeting. 
+The elders of the community are to lay their hands on the head of the bull before God, and the bull is to be killed before God. 
+The anointed priest is to carry some of the bull's blood into the Tent of Meeting. 
+He is to dip his finger in the blood and splash it seven times before God, in front of the curtain. 
+He is to put some of the blood on the horns of the altar that is before God in the Tent of Meeting, and pour out the rest of the blood at the base of the altar of burnt offering at the entrance of the Tent of Meeting. 
+He is to take all its fat out of it and burn it on the altar. 
+This is what he is to do with the bull, exactly as he did with the bull of the offering for wrongdoing, and the priest will make things right for them, and they will be forgiven. 
+He is to carry the bull outside the camp and burn it the way he burned the first bull. It is the offering for wrongdoing for the assembly. 
+"'When a leader drifts and without meaning to does any of the things God has commanded not to be done, and becomes guilty, 
+once the wrong he has done is made known to him, he is to bring as his offering a male goat without defect. 
+He is to lay his hand on the head of the goat and kill it in the place where the burnt offering is killed before God. It is an offering for wrongdoing. 
+The priest is to take some of the blood of the offering for wrongdoing on his finger and put it on the horns of the altar of burnt offering, and pour out the rest of its blood at the base of the altar of burnt offering. 
+He is to burn all its fat on the altar the way the fat of the offering for wholeness is burned. So the priest will make things right for him for the wrong he has done, and he will be forgiven. 
+"'If someone from among the ordinary people drifts without meaning to, doing any of the things God has commanded not to be done, and becomes guilty, 
+once the wrong he has done is made known to him, he is to bring a female goat without defect as his offering for the wrong he has done. 
+He is to lay his hand on the head of the offering for wrongdoing and kill it in the place where the burnt offering is killed. 
+The priest is to take some of its blood on his finger and put it on the horns of the altar of burnt offering, and pour out the rest of its blood at the base of the altar. 
+He is to take out all its fat the way the fat is taken out of the offering for wholeness, and the priest is to burn it on the altar as a soothing aroma to God. So the priest will make things right for him, and he will be forgiven. 
+"'If he brings a lamb as his offering for wrongdoing, he is to bring a female without defect. 
+He is to lay his hand on the head of the offering for wrongdoing and kill it as an offering for wrongdoing in the place where the burnt offering is killed. 
+The priest is to take some of the blood of the offering for wrongdoing on his finger and put it on the horns of the altar of burnt offering, and pour out all the rest of its blood at the base of the altar. 
+He is to take out all its fat the way the fat of a lamb is taken out of the offering for wholeness, and the priest is to burn it on the altar, on top of God's offerings made by fire. So the priest will make things right for him for the wrong he has done, and he will be forgiven. 

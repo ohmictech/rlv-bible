@@ -26,7 +26,7 @@ He lit the lamps before God, just as God commanded Moses.
 He put the gold altar in the Tent of Meeting in front of the curtain, 
 and burned fragrant incense on it, just as God commanded Moses. 
 He hung the screen at the entrance of the tent. 
-He set the altar of burnt offering at the entrance of the tent, the Tent of Meeting, and offered the burnt offering and the grain offering on it, just as God commanded Moses. 
+He set the altar of burnt offering at the entrance of the tent, the Tent of Meeting, and offered the burnt offering and the gift offering on it, just as God commanded Moses. 
 He set the basin between the Tent of Meeting and the altar and filled it with water for washing. 
 Moses, Aaron and his sons washed their hands and feet there. 
 Whenever they went into the Tent of Meeting or came near the altar, they washed, just as God commanded Moses. 

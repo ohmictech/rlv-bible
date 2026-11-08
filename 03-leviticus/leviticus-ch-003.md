@@ -1,17 +1,17 @@
-﻿"'If his offering is a sacrifice of offerings for wholeness, if he offers it from the herd, whether male or female, he will offer it without defect before God. 
-He will lay his hand on the head of his offering, and kill it at the door of the Tent of Meeting. Aaron's sons, the priests, will sprinkle the blood around on the altar. 
-He will offer of the sacrifice of offerings for wholeness an offering made by fire to God. The fat that covers the innards, and all the fat that's on the innards, 
-and the two kidneys, and the fat that's on them, which is by the loins, and the cover on the liver, with the kidneys, he will take away. 
-Aaron's sons will burn it on the altar on the burnt offering, which is on the wood that's on the fire: it's an offering made by fire, of a pleasant aroma to God. 
-"'If his offering for a sacrifice of offerings for wholeness to God is from the flock, either male or female, he will offer it without defect. 
-If he offers a lamb for his offering, then he will offer it before God; 
-and he will lay his hand on the head of his offering, and kill it before the Tent of Meeting. Aaron's sons will sprinkle its blood around on the altar. 
-He will offer from the sacrifice of offerings for wholeness an offering made by fire to God; its fat, the entire tail fat, he will take away close to the backbone; and the fat that covers the entrails, and all the fat that's on the entrails, 
-and the two kidneys, and the fat that's on them, which is by the loins, and the cover on the liver, with the kidneys, he will take away. 
-The priest will burn it on the altar: it's the food of the offering made by fire to God. 
-"'If his offering is a goat, then he will offer it before God. 
-He will lay his hand on its head, and kill it before the Tent of Meeting; and the sons of Aaron will sprinkle its blood around on the altar. 
-He will offer from it as his offering, an offering made by fire to God; the fat that covers the innards, and all the fat that's on the innards, 
-and the two kidneys, and the fat that's on them, which is by the loins, and the cover on the liver, with the kidneys, he will take away. 
-The priest will burn them on the altar: it's the food of the offering made by fire, for a pleasant aroma; all the fat is God's. 
-"'It will be a perpetual statute throughout your generations in all your dwellings, that you will eat neither fat nor blood.'" 
+﻿"'If his offering is an animal for the wholeness offering, and he brings it from the herd, male or female, he is to bring it without defect before God. 
+He is to lay his hand on the head of his offering and kill it at the entrance of the Tent of Meeting, and Aaron's sons, the priests, are to splash the blood against all sides of the altar. 
+From the wholeness offering he is to bring an offering made by fire to God: the fat that covers the inner organs, and all the fat on them, 
+the two kidneys with the fat on them by the loins, and the covering over the liver, which he is to take out with the kidneys. 
+Then Aaron's sons are to burn it on the altar, on top of the burnt offering that is on the wood on the fire. It is an offering made by fire, a soothing aroma to God. 
+"'If his offering to God for the wholeness offering comes from the flock, male or female, he is to bring it without defect. 
+If he brings a lamb as his offering, he is to bring it before God, 
+lay his hand on the head of his offering and kill it in front of the Tent of Meeting, and Aaron's sons are to splash its blood against all sides of the altar. 
+From the wholeness offering he is to bring an offering made by fire to God: its fat, the whole fat tail cut off close to the backbone, the fat that covers the inner organs, and all the fat on them, 
+the two kidneys with the fat on them by the loins, and the covering over the liver, which he is to take out with the kidneys. 
+The priest is to burn it on the altar. It is the food of an offering made by fire to God. 
+"'If his offering is a goat, he is to bring it before God, 
+lay his hand on its head and kill it in front of the Tent of Meeting, and Aaron's sons are to splash its blood against all sides of the altar. 
+From it he is to bring his offering, an offering made by fire to God: the fat that covers the inner organs, and all the fat on them, 
+the two kidneys with the fat on them by the loins, and the covering over the liver, which he is to take out with the kidneys. 
+The priest is to burn them on the altar. It is the food of an offering made by fire, a soothing aroma. All the fat belongs to God. 
+"'This is a perpetual rule for all your generations, wherever you live: you are never to eat fat or blood.'" 

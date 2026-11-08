@@ -38,7 +38,7 @@ For seven days make things right for the altar and set it apart, and the altar w
 "This is what you are to offer on the altar: two lambs a year old, every day, without fail. 
 Offer one lamb in the morning and the other lamb at dusk, 
 and with the first lamb a tenth of an ephah of fine flour mixed with a quarter of a hin of beaten oil, and a quarter of a hin of wine as a drink offering. 
-Offer the second lamb at dusk, with the same grain offering and drink offering as in the morning, a soothing aroma, an offering made by fire to God. 
+Offer the second lamb at dusk, with the same gift offering and drink offering as in the morning, a soothing aroma, an offering made by fire to God. 
 It is a burnt offering that never stops, through all your generations, at the entrance of the Tent of Meeting before God, where I will meet with you and speak to you. 
 There I will meet with the Israelites, and the place will be set apart by my splendor. 
 I will set apart the Tent of Meeting and the altar, and I will set apart Aaron and his sons to serve me as priest. 

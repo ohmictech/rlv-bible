@@ -1,19 +1,19 @@
-﻿"'If anyone drifts, in that he hears a public adjuration to testify, he being a witness, whether he has seen or known, if he doesn't report it, then he will bear his guilt. 
-"'Or if anyone touches any unclean thing, whether it's the carcass of an unclean animal, or the carcass of unclean livestock, or the carcass of unclean creeping things, and it's hidden from him, and he's unclean, then he will be guilty. 
-"'Or if he touches the uncleanness of man, whatever his uncleanness is with which he's unclean, and it's hidden from him; when he knows of it, then he will be guilty. 
-"'Or if anyone swears rashly with his lips to do bad things or to do good, whatever it's that a man might utter rashly with an oath, and it's hidden from him, when he knows of it, then he'll be guilty of one of these. 
-It will be, when he's guilty of one of these, he will confess that in which he has drifted; 
-and he will bring his trespass offering to God for the wrong he has done: a female from the flock, a lamb or a goat, for an offering for wrongdoing; and the priest will make things right for him concerning his wrongdoing. 
-"'If he can't afford a lamb, then he will bring his trespass offering for that in which he has drifted, two turtledoves, or two young pigeons, to God; one for an offering for wrongdoing, and the other for a burnt offering. 
-He will bring them to the priest, who will first offer the one which is for the offering for wrongdoing. He will wring off its head from its neck, but won't sever it completely. 
-He will sprinkle some of the blood of the offering for wrongdoing on the side of the altar; and the rest of the blood will be drained out at the base of the altar. It's an offering for wrongdoing. 
-He will offer the second for a burnt offering, according to the ordinance; and the priest will make things right for him concerning the wrong he has done, and he will be forgiven. 
-"'But if he can't afford two turtledoves or two young pigeons, then he will bring as his offering for that in which he has drifted, one tenth of an ephah of fine flour for an offering for wrongdoing. He will put no oil on it, and he won't put any frankincense on it, for it's an offering for wrongdoing. 
-He will bring it to the priest, and the priest will take his handful of it as the memorial portion, and burn it on the altar, on the offerings of God made by fire. It's an offering for wrongdoing. 
-The priest will make things right for him concerning the wrong he has done in any of these things, and he'll be forgiven; and the rest will be the priest's, as the meal offering.'" 
-God spoke to Moses, saying, 
-"If anyone commits a trespass, and drifts unwittingly regarding God's holy things, then he will bring his trespass offering to God: a ram without defect from the flock, according to your estimation in silver by shekels, according to the shekel of the sanctuary, for a trespass offering. 
-He will make restitution for that which he has done wrong regarding the holy thing, and will add a fifth part to it, and give it to the priest; and the priest will make things right for him with the ram of the trespass offering, and he'll be forgiven. 
-"If anyone drifts, doing any of the things which God has commanded not to be done, though he didn't know it, he's still guilty, and will bear his guilt. 
-He will bring a ram without defect from of the flock, according to your estimation, for a trespass offering, to the priest; and the priest will make things right for him concerning the thing in which he drifted and didn't know it, and he'll be forgiven. 
-It's a trespass offering. He's certainly guilty before God." 
+﻿"'If anyone drifts by keeping quiet when he hears a public call to testify, and he is a witness who has seen or knows what happened, he carries his guilt. 
+"'Or if anyone touches something unclean, whether the carcass of an unclean animal, or the carcass of unclean livestock, or the carcass of an unclean crawling thing, and he doesn't realize it, he is unclean and guilty. 
+"'Or if he touches human uncleanness, whatever it is that makes a person unclean, and he doesn't realize it, when he learns of it he will be guilty. 
+"'Or if anyone swears rashly with his lips to do something bad or something good, whatever a person might blurt out with an oath, and he doesn't realize it, when he learns of it he will be guilty of one of these. 
+When he is guilty of any of these, he is to confess the wrong he has done, 
+and bring his offering for guilt to God for the wrong he has done: a female from the flock, a lamb or a goat, as an offering for wrongdoing, and the priest will make things right for him for his wrong. 
+"'If he can't afford a lamb, he is to bring two doves or two young pigeons to God for his wrong, one as an offering for wrongdoing and the other as a burnt offering. 
+He is to bring them to the priest, who will first offer the one for the offering for wrongdoing. He is to twist off its head at the neck but not pull it off completely. 
+He is to splash some of the blood of the offering for wrongdoing against the side of the altar, and the rest of the blood is to be drained out at the base of the altar. It is an offering for wrongdoing. 
+He is to offer the second as a burnt offering, following the rule, and the priest will make things right for him for the wrong he has done, and he will be forgiven. 
+"'If he can't afford two doves or two young pigeons, he is to bring a tenth of an ephah of fine flour as his offering for his wrong. He is not to put oil on it or frankincense on it, because it is an offering for wrongdoing. 
+He is to bring it to the priest, and the priest is to take a handful of it as the memorial portion and burn it on the altar, on top of God's offerings made by fire. It is an offering for wrongdoing. 
+The priest will make things right for him for the wrong he has done in any of these things, and he will be forgiven, and the rest will belong to the priest, as with the gift offering.'" 
+God spoke to Moses: 
+"If anyone breaks faith and drifts without meaning to in regard to God's holy things, he is to bring his offering for guilt to God: a ram without defect from the flock, valued in silver shekels by the sanctuary standard, as an offering for guilt. 
+He is to make good for the wrong he did to the holy thing and add a fifth of its value and give it to the priest, and the priest will make things right for him with the ram of the offering for guilt, and he will be forgiven. 
+"If anyone drifts and does any of the things God has commanded not to be done, even though he didn't know it, he is still guilty and carries his guilt. 
+He is to bring a ram without defect from the flock, valued as you assess it, as an offering for guilt to the priest, and the priest will make things right for him for the thing he drifted into without knowing it, and he will be forgiven. 
+It is an offering for guilt. He is certainly guilty before God." 

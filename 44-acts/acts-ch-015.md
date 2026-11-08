@@ -15,7 +15,7 @@ Simeon has reported how God first visited the nations to take out of them a peop
 This agrees with the words of the spokesmen. As it's written, 
 'After these things I'll return. I'll again build the tent of David, which has fallen. I'll again build its ruins. I'll set it up 
 that the rest of people may seek after the Lord: all the nations who are called by my name, says the Lord, who does all these things.' 
-"All of God's works are known to him from eternity. 
+"All of God's works have been known to him since the eras began. 
 So my verdict is that we don't trouble those from among the nations who turn to God, 
 but that we write to them that they abstain from the pollution of idols, from sleeping around, from what's strangled, and from blood. 
 Moses from generations of old has in every city those who announce him, being read in the gathering places every Sabbath." 

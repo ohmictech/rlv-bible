@@ -25,7 +25,7 @@ The proud and arrogant man, "Scoffer" is his name, he works in the arrogance of 
 The desire of the sluggard kills him, for his hands refuse to labor. 
 There are those who covet greedily all day long; but the righteous give and don't withhold. 
 The sacrifice of the guilty is an abomination, how much more, when he brings it with a guilty mind! 
-A false witness will perish. A man who listens speaks to eternity. 
+A false witness will perish. A man who listens speaks so his words stand. 
 A guilty man hardens his face; but as for the upright, he establishes his ways. 
 There's no wisdom nor understanding nor counsel against God. 
 The horse is prepared for the day of battle; but victory is with God. 

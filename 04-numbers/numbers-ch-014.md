@@ -1,45 +1,45 @@
-﻿All the congregation lifted up their voice, and cried; and the people wept that night. 
-All the children of Israel murmured against Moses and against Aaron. The whole congregation said to them, "We wish that we had died in the land of Egypt, or that we had died in this wilderness! 
-Why does God bring us to this land, to fall by the sword? Our wives and our little ones will be captured or killed! Wouldn't it be better for us to return into Egypt?" 
-They said to one another, "Let's choose a leader, and let's return into Egypt." 
-Then Moses and Aaron fell on their faces before all the assembly of the congregation of the children of Israel. 
-Joshua the son of Nun and Caleb the son of Jephunneh, who were of those who spied out the land, tore their clothes. 
-They spoke to all the congregation of the children of Israel, saying, "The land, which we passed through to spy it out, is an exceedingly good land. 
-If God delights in us, then he'll bring us into this land, and give it to us: a land which flows with milk and honey. 
-Only don't rebel against God, neither fear the people of the land; for they're bread for us. Their defense is removed from over them, and God is with us. Don't fear them." 
-But all the congregation threatened to stone them with stones. God's glory appeared in the Tent of Meeting to all the children of Israel. 
-God said to Moses, "How long will this people despise me? How long will they not believe in me, for all the signs which I have worked among them? 
-I'll strike them with the pestilence, and disinherit them, and will make of you a nation greater and mightier than they." 
-Moses said to God, "Then the Egyptians will hear it; for you brought up this people in your might from among them. 
-They'll tell it to the inhabitants of this land. They have heard that you God are among this people; for you God are seen face to face, and your cloud stands over them, and you go before them, in a pillar of cloud by day, and in a pillar of fire by night. 
-Now if you killed this people as one man, then the nations which have heard the fame of you'll speak, saying, 
-'Because God wasn't able to bring this people into the land which he swore to them, he has slain them in the wilderness.' 
-Now please let the power of the Lord be great, according as you have spoken, saying, 
-'God is slow to anger, and abundant in loving kindness, forgiving guilt and disobedience; and he'll by no means clear the guilty, visiting the guilt of the fathers on the children, on the third and on the fourth generation.' 
-Please pardon the guilt of this people according to the greatness of your loving kindness, and just as you have forgiven this people, from Egypt even until now." 
-God said, "I have pardoned according to your word; 
-but in very deed, as I live, and as all the earth will be filled with God's glory 
-because all those men who have seen my glory and my signs, which I worked in Egypt and in the wilderness, yet have tempted me these ten times, and haven't listened to my voice; 
-surely they won't see the land which I swore to their fathers, neither will any of those who despised me see it. 
-But my servant Caleb, because he had another spirit with him, and has followed me fully, him I'll bring into the land into which he went. His offspring will possess it. 
-Since the Amalekite and the Canaanite dwell in the valley, tomorrow turn and go into the wilderness by the way to the Red Sea." 
-God spoke to Moses and to Aaron, saying, 
-"How long will I bear with this bad congregation that complain against me? I have heard the complaints of the children of Israel, which they complain against me. 
-Tell them, 'As I live, says God, surely as you have spoken in my ears, so I'll do to you. 
-Your dead bodies will fall in this wilderness; and everyone who was counted of you, according to your whole number, from twenty years old and upward, who have complained against me, 
-surely you won't come into the land concerning which I swore that I'd make you dwell therein, except Caleb the son of Jephunneh, and Joshua the son of Nun. 
-But I'll bring in your little ones that you said should be captured or killed, and they will know the land which you have rejected. 
-But as for you, your dead bodies will fall in this wilderness. 
-Your children will be wanderers in the wilderness forty years, and will bear your prostitution, until your dead bodies are consumed in the wilderness. 
-After the number of the days in which you spied out the land, even forty days, for every day a year, you'll bear your guilt, even forty years, and you'll know my alienation.' 
-I, God, have spoken. I'll surely do this to all this bad congregation who are gathered together against me. In this wilderness they will be consumed, and there they will die." 
-The men whom Moses sent to spy out the land, who returned and made all the congregation to murmur against him by bringing up a bad report against the land, 
-even those men who brought up a bad report of the land, died by the plague before God. 
-But Joshua the son of Nun and Caleb the son of Jephunneh remained alive of those men who went to spy out the land. 
-Moses told these words to all the children of Israel, and the people mourned greatly. 
-They rose up early in the morning and went up to the top of the mountain, saying, "Look, we're here, and will go up to the place which God has promised; for we have drifted." 
-Moses said, "Why now do you disobey the commandment of God, since it won't prosper? 
-Don't go up, for God isn't among you; that way you won't be struck down before your enemies. 
-There the Amalekite and the Canaanite are before you, and you'll fall by the sword because you turned back from following God; God won't be with you." 
-But they presumed to go up to the top of the mountain. Nevertheless, the ark of God's covenant and Moses didn't depart out of the camp. 
-Then the Amalekites came down, and the Canaanites who lived in that mountain, and struck them and beat them down even to Hormah. 
+﻿The whole community raised their voices and cried out, and the people wept that night. 
+All the Israelites grumbled against Moses and Aaron, and the whole community said to them, "If only we had died in Egypt, or in this wilderness! 
+Why is God bringing us to this land, to fall by the sword? Our wives and children will be taken as plunder. Wouldn't it be better to go back to Egypt?" 
+They said to each other, "Let's appoint a leader and go back to Egypt." 
+Then Moses and Aaron fell face down in front of the whole assembly of the Israelites. 
+Joshua son of Nun and Caleb son of Jephunneh, who had been among those who spied out the land, tore their clothes 
+and said to the whole community of Israel, "The land we went through and spied out is an extremely good land. 
+If God is pleased with us, he will bring us into this land and give it to us, a land that flows with milk and honey. 
+Only don't rebel against God, and don't be afraid of the people of the land, because they are our food. Their protection is gone, and God is with us. Don't be afraid of them." 
+But the whole community talked about stoning them. Then God's splendor appeared at the Tent of Meeting to all the Israelites. 
+God said to Moses, "How long will these people treat me with contempt? How long will they refuse to trust me, after all the signs I have done among them? 
+I will strike them with disease and disown them, and I will make you into a nation greater and stronger than they are." 
+Moses said to God, "Then the Egyptians will hear about it, because you brought these people out from among them by your strength, 
+and they will tell the people living in this land. They have heard that you, God, are among these people, that you appear to them face to face, that your cloud stands over them, and that you go ahead of them in a pillar of cloud by day and a pillar of fire by night. 
+If you put these people to death all at once, the nations who have heard about you will say, 
+'God couldn't bring these people into the land he swore to give them, so he killed them in the wilderness.' 
+Now please let the power of the Lord be shown great, just as you have said: 
+'God is slow to anger and full of loyal love, forgiving guilt and rebellion, but he never lets the guilty off, bringing the guilt of the fathers on their children to the third and fourth generation.' 
+Please forgive the guilt of these people, in keeping with your great loyal love, just as you have forgiven them from Egypt until now." 
+God said, "I have forgiven them, as you asked. 
+But as surely as I live, and as surely as all the earth will be filled with God's splendor, 
+none of the people who saw my splendor and the signs I did in Egypt and in the wilderness, and still tested me these ten times and refused to listen to me, 
+will see the land I swore to give their fathers. None of those who treated me with contempt will see it. 
+But my servant Caleb has a different spirit and has followed me completely, so I will bring him into the land he went into, and his descendants will take possession of it. 
+Since the Amalekites and Canaanites live in the valleys, turn back tomorrow and set out for the wilderness by the way to the Red Sea." 
+God spoke to Moses and Aaron: 
+"How long will I put up with this bad community that keeps grumbling against me? I have heard the Israelites grumbling against me. 
+Tell them, 'As surely as I live, says God, I will do to you exactly what you said in my hearing. 
+Your bodies will fall in this wilderness, every one of you who was counted, the whole number of you twenty years old and up, everyone who grumbled against me. 
+Not one of you will enter the land I swore to settle you in, except Caleb son of Jephunneh and Joshua son of Nun. 
+But your children, the ones you said would be taken as plunder, I will bring in, and they will know the land you rejected. 
+As for you, your bodies will fall in this wilderness. 
+Your children will wander in the wilderness for forty years and carry the cost of your unfaithfulness, until your bodies are used up in the wilderness. 
+For forty days you scouted the land, and for each day you will bear your guilt a year, forty years, and you will know what it means when I turn away from you.' 
+I, God, have spoken, and I will do this to all this bad community gathered against me. In this wilderness they will come to an end, and there they will die." 
+The men Moses sent to spy out the land, who came back and made the whole community grumble against him by spreading a bad report about the land, 
+these men who spread the bad report died of the plague before God. 
+But Joshua son of Nun and Caleb son of Jephunneh were left alive out of the men who had gone to spy out the land. 
+Moses told all this to the Israelites, and the people mourned deeply. 
+They got up early the next morning and went up toward the top of the hill country, saying, "Here we are. We will go up to the place God promised, because we have drifted." 
+Moses said, "Why are you disobeying God's command now? It won't succeed. 
+Don't go up, because God isn't with you, and you will be beaten by your enemies. 
+The Amalekites and Canaanites are waiting for you there, and you will fall by the sword, because you turned back from following God, and God won't be with you." 
+But they went ahead and climbed toward the top of the hill country anyway, though the ark of God's covenant and Moses stayed in the camp. 
+Then the Amalekites and Canaanites who lived in that hill country came down and struck them and drove them back as far as Hormah. 

@@ -1,33 +1,33 @@
-﻿God spoke to Moses, saying, 
-"Send men, that they can spy out the land of Canaan, which I give to the children of Israel. Of every tribe of their fathers, you will send a man, every one a prince among them." 
-Moses sent them from the wilderness of Paran according to the commandment of God. All of them were men who were heads of the children of Israel. 
-These were their names: Of the tribe of Reuben, Shammua the son of Zaccur. 
-Of the tribe of Simeon, Shaphat the son of Hori. 
-Of the tribe of Judah, Caleb the son of Jephunneh. 
-Of the tribe of Issachar, Igal the son of Joseph. 
-Of the tribe of Ephraim, Hoshea the son of Nun. 
-Of the tribe of Benjamin, Palti the son of Raphu. 
-Of the tribe of Zebulun, Gaddiel the son of Sodi. 
-Of the tribe of Joseph, of the tribe of Manasseh, Gaddi the son of Susi. 
-Of the tribe of Dan, Ammiel the son of Gemalli. 
-Of the tribe of Asher, Sethur the son of Michael. 
-Of the tribe of Naphtali, Nahbi the son of Vophsi. 
-Of the tribe of Gad, Geuel the son of Machi. 
-These are the names of the men who Moses sent to spy out the land. Moses called Hoshea the son of Nun Joshua. 
-Moses sent them to spy out the land of Canaan, and said to them, "Go up this way by the South, and go up into the hill country. 
-See the land, what it is; and the people who dwell therein, whether they're strong or weak, whether they're few or many; 
-and what the land is that they dwell in, whether it's good or bad; and what cities they're that they dwell in, whether in camps, or in strongholds; 
-and what the land is, whether it's fertile or poor, whether there's wood therein, or not. Be courageous, and bring some of the fruit of the land." Now the time was the time of the first-ripe grapes. 
-So they went up, and spied out the land from the wilderness of Zin to Rehob, to the entrance of Hamath. 
-They went up by the South, and came to Hebron; and Ahiman, Sheshai, and Talmai, the children of Anak, were there. (Now Hebron was built seven years before Zoan in Egypt.) 
-They came to the valley of Eshcol, and cut down from there a branch with one cluster of grapes, and they bore it on a staff between two. They also brought some of the pomegranates and figs. 
-That place was called the valley of Eshcol, because of the cluster which the children of Israel cut down from there. 
-They returned from spying out the land at the end of forty days. 
-They went and came to Moses, to Aaron, and to all the congregation of the children of Israel, to the wilderness of Paran, to Kadesh; and brought back word to them and to all the congregation. They showed them the fruit of the land. 
-They told him, and said, "We came to the land where you sent us. Surely it flows with milk and honey, and this is its fruit. 
-However, the people who dwell in the land are strong, and the cities are fortified and very large. Moreover, we saw the children of Anak there. 
-Amalek dwells in the land of the South. The Hittite, the Jebusite, and the Amorite dwell in the hill country. The Canaanite dwells by the sea, and along the side of the Jordan." 
-Caleb stilled the people before Moses, and said, "Let's go up at once, and possess it; for we're well able to overcome it!" 
-But the men who went up with him said, "We aren't able to go up against the people; for they're stronger than we." 
-They brought up a bad report of the land which they had spied out to the children of Israel, saying, "The land, through which we have gone to spy it out, is a land that eats up its inhabitants; and everyone who we saw in it are men of great stature. 
-There we saw the Nephilim, the sons of Anak, who come from the Nephilim. We were in our own sight as grasshoppers, and so we were in their sight." 
+﻿God spoke to Moses: 
+"Send men to spy out the land of Canaan, which I am giving to the Israelites. From each of their ancestral tribes send one man, each a leader among them." 
+Moses sent them from the Paran wilderness at God's command. All of them were heads of the Israelites. 
+These were their names: from the tribe of Reuben, Shammua son of Zaccur; 
+from the tribe of Simeon, Shaphat son of Hori; 
+from the tribe of Judah, Caleb son of Jephunneh; 
+from the tribe of Issachar, Igal son of Joseph; 
+from the tribe of Ephraim, Hoshea son of Nun; 
+from the tribe of Benjamin, Palti son of Raphu; 
+from the tribe of Zebulun, Gaddiel son of Sodi; 
+from the tribe of Joseph, from the tribe of Manasseh, Gaddi son of Susi; 
+from the tribe of Dan, Ammiel son of Gemalli; 
+from the tribe of Asher, Sethur son of Michael; 
+from the tribe of Naphtali, Nahbi son of Vophsi; 
+from the tribe of Gad, Geuel son of Machi. 
+These are the men Moses sent to spy out the land. Moses gave Hoshea son of Nun the name Joshua. 
+Moses sent them to spy out the land of Canaan and said, "Go up through the Negev and on into the hill country. 
+See what the land is like, and whether the people living there are strong or weak, few or many. 
+See what the land they live in is like, whether it is good or bad, and what their cities are like, whether they are open camps or walled. 
+See what the land itself is like, whether it is rich or poor, and whether there are trees. Be brave and bring back some of the fruit of the land." It was the season for the first ripe grapes. 
+So they went up and spied out the land from the Zin wilderness as far as Rehob, on the road to Hamath. 
+They went up through the Negev and came to Hebron, where Ahiman, Sheshai and Talmai, the descendants of Anak, were living. Hebron was built seven years before Zoan in Egypt. 
+They came to the Eshcol valley and cut down a branch with a single cluster of grapes, which they carried on a pole between two of them, along with some pomegranates and figs. 
+That place was called the Eshcol valley, because of the cluster the Israelites cut down there. 
+They came back from spying out the land after forty days. 
+They went and came to Moses, Aaron and the whole community of Israel at Kadesh in the Paran wilderness, and reported to them and to the whole community, and showed them the fruit of the land. 
+They told him, "We went to the land you sent us to. It does flow with milk and honey, and this is its fruit. 
+But the people living there are strong, and the cities are walled and very large. We even saw the descendants of Anak there. 
+Amalekites live in the Negev, Hittites, Jebusites and Amorites live in the hill country, and Canaanites live along the sea and along the Jordan." 
+Caleb quieted the people in front of Moses and said, "Let's go up right now and take it. We can certainly win." 
+But the men who had gone up with him said, "We can't go up against those people. They are stronger than we are." 
+So they spread a bad report about the land they had spied out among the Israelites, saying, "The land we went through to spy out eats up the people living in it, and everyone we saw there is very tall. 
+We saw the Nephilim there, the descendants of Anak, who come from the Nephilim. We looked like grasshoppers to ourselves, and that is how we looked to them." 

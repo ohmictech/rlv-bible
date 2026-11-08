@@ -123,7 +123,7 @@ One line per lemma. The rendering column is the law; the third column is the rem
 | thumos | flare | The flash of passion, and a different word from orge. |
 | pyr | fire | Keep. |
 | asbestos pyr / lo tikhbeh ("unquenchable fire") | fire that can't be interrupted | Ruled 2026-11-07: *asbestos* says nothing can put the fire out, not that it burns without end, so the rendering carries **interrupted** and never **everlasting**. Matt 3:12; Luke 3:17; Mark 9:43, 45; Isa 34:10; Jer 7:20; Jer 17:27; Ezek 20:47, 20:48; 2 Kgs 22:17; 2 Chr 34:25. |
-| "their worm does not die" (Isa 66:24, quoted Mark 9:44, 46, 48) | their ruin is never undone | Ruled 2026-11-07: the clause asserts **irreversibility**, not endlessness, so the plain text carries the meaning and a note carries the image. Rendered once, identically, in all four places. |
+| "their worm does not die" (Isa 66:24, quoted Mark 9:44, 46, 48) | what decays never comes back | Ruled 2026-11-07: the clause asserts **irreversibility of the part that is lost**, not endlessness and not the total destruction of the person, so the plain text carries the meaning and a note carries the refuse-heap image. Mark reads "where what decays never comes back, and the fire can't be interrupted"; Isaiah keeps its own third clause about the shame and adds nothing else. |
 | "no one can quench it" (of wrath) | kept as written | Jer 4:4; Jer 21:12; Amos 5:6. The idiom is already plain and carries no doctrine of duration. |
 | theion | sulfur | θεῖον is chemically sulfur, and the ancients burned it to fumigate and purify, which is where the tradition's. |
 | limne | lake | The standing body of poured water. |

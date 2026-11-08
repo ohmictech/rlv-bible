@@ -1,29 +1,29 @@
-﻿God said to Moses, "Go in to Pharaoh, for I have hardened his heart and the heart of his servants, that I can show these my signs among them; 
-and that you can tell in the hearing of your son, and of your son's son, what things I have done to Egypt, and my signs which I have done among them; that you can know that I'm God." 
-Moses and Aaron went in to Pharaoh, and said to him, "This is what the God of the Hebrews, says: 'How long will you refuse to humble yourself before me? Let my people go, that they can serve me. 
-Or else, if you refuse to let my people go, look, tomorrow I'll bring locusts into your country, 
-and they will cover the surface of the earth, so that one won't be able to see the earth. They will eat the residue of that which has escaped, which remains to you from the hail, and will eat every tree which grows for you out of the field. 
-Your houses will be filled, and the houses of all your servants, and the houses of all the Egyptians, as neither your fathers nor your fathers' fathers have seen, since the day that they were on the earth to this day.'" He turned, and went out from Pharaoh. 
-Pharaoh's servants said to him, "How long will this man be a snare to us? Let the men go, that they can serve God, their God. Don't you yet know that Egypt is destroyed?" 
-Moses and Aaron were brought again to Pharaoh, and he said to them, "Go, serve your God; but who are those who will go?" 
-Moses said, "We'll go with our young and with our old. We'll go with our sons and with our daughters, with our flocks and with our herds; for we must hold a feast to God." 
-He said to them, "God be with you if I let you go with your little ones! See, bad is clearly before your faces. 
-Not so! Go now you who are men, and serve God; for that's what you desire!" Then they were driven out from Pharaoh's presence. 
-God said to Moses, "Stretch out your hand over the land of Egypt for the locusts, that they can come up on the land of Egypt, and eat every herb of the land, even all that the hail has left." 
-Moses stretched out his rod over the land of Egypt, and God brought an east wind on the land all that day, and all night; and when it was morning, the east wind brought the locusts. 
-The locusts went up over all the land of Egypt, and rested in all the borders of Egypt. They were very grievous. Before them there were no such locusts as they, nor will there ever be again. 
-They covered the surface of the whole earth, so that the land was darkened, and they ate every herb of the land, and all the fruit of the trees which the hail had left. There remained nothing green, either tree or herb of the field, through all the land of Egypt. 
-Then Pharaoh called for Moses and Aaron in haste, and he said, "I have wronged your God, and against you. 
-Now please forgive my wrongdoing again, and pray to your God, that he can also take away from me this death." 
-Moses went out from Pharaoh, and prayed to God. 
-God sent an exceedingly strong west wind, which took up the locusts, and drove them into the Red Sea. There remained not one locust in all the borders of Egypt. 
-But God hardened Pharaoh's heart, and he didn't let the children of Israel go. 
-God said to Moses, "Stretch out your hand toward the sky, that there may be darkness over the land of Egypt, even darkness which may be felt." 
-Moses stretched out his hand toward the sky, and there was a thick darkness in all the land of Egypt for three days. 
-They didn't see one another, and nobody rose from his place for three days; but all the children of Israel had light in their dwellings. 
-Pharaoh called to Moses, and said, "Go, serve God. Only let your flocks and your herds stay behind. Let your little ones also go with you." 
-Moses said, "You must also give into our hand sacrifices and burnt offerings, that we can sacrifice to our God. 
-Our livestock also will go with us. Not a hoof will be left behind, for of it we must take to serve our God; and we don't know with what we must serve God, until we come there." 
-But God hardened Pharaoh's heart, and he wouldn't let them go. 
-Pharaoh said to him, "Get away from me! Be careful to see my face no more; for in the day you see my face you will die!" 
-Moses said, "You have spoken well. I'll see your face again no more." 
+﻿God said to Moses, "Go to Pharaoh. I have made his heart and the hearts of his officials stubborn so I can show my signs among them, 
+and so you can tell your son and your grandson what I did to Egypt and what signs I did among them, and so you will know that I am God." 
+So Moses and Aaron went to Pharaoh and said, "This is what the God of the Hebrews says: 'How long will you refuse to humble yourself before me? Let my people go so they can serve me. 
+If you refuse, tomorrow I will bring locusts into your country. 
+They will cover the ground so completely that you can't see it. They will eat what is left after the hail, everything still growing in your fields, and every tree you have. 
+They will fill your houses and the houses of all your officials and all the Egyptians, worse than anything your fathers or grandfathers saw from the day they came to this land until now.'" Then Moses turned and left Pharaoh. 
+Pharaoh's officials said to him, "How long is this man going to be a trap for us? Let them go and serve their God. Don't you realize Egypt is ruined?" 
+So Moses and Aaron were brought back to Pharaoh, and he said, "Go and serve your God. But who is it that's going?" 
+Moses said, "We're going with our young and our old, our sons and our daughters, our flocks and our herds, because we're holding a festival for God." 
+Pharaoh said, "God be with you, if I ever let you take your children! Clearly you have something bad in mind. 
+No. Only the men may go and serve God, since that's what you've been asking for." And they were driven out of Pharaoh's presence. 
+God said to Moses, "Stretch out your hand over Egypt, and locusts will come up and eat every plant in the land, everything the hail left." 
+So Moses stretched out his staff over Egypt, and God sent an east wind over the land that whole day and night, and in the morning the east wind brought the locusts. 
+The locusts came up over all Egypt and settled everywhere in the country. There had never been so many, and there never would be again. 
+They covered the whole ground until it was dark, and ate every plant in the land and all the fruit the hail had left. Nothing green was left anywhere in Egypt, not on a tree or in a field. 
+Pharaoh quickly called for Moses and Aaron and said, "I have wronged God and I have wronged you. 
+Now please forgive my wrongdoing once more, and pray to God to take this death away from me." 
+So Moses left Pharaoh and prayed to God. 
+God sent a very strong west wind that picked up the locusts and drove them into the Red Sea. Not one locust was left anywhere in Egypt. 
+But God made Pharaoh's heart hard, and he didn't let the Israelites go. 
+God said to Moses, "Stretch out your hand toward the sky, and darkness will cover Egypt, darkness so thick you can feel it." 
+So Moses stretched out his hand toward the sky, and thick darkness covered all Egypt for three days. 
+Nobody could see anyone else, and nobody got up from where he was for three days. But the Israelites all had light where they lived. 
+Then Pharaoh called Moses in and said, "Go and serve God. Only leave your flocks and herds behind. Your children can go with you." 
+Moses said, "You'll have to give us animals for sacrifices and burnt offerings to offer to God. 
+Our livestock goes with us too. Not a hoof stays behind, because we have to use them to worship God, and we won't know what to use until we get there." 
+But God made Pharaoh's heart hard, and he wouldn't let them go. 
+Pharaoh said to him, "Get out of my sight. Don't ever come before me again. The day you see my face, you die." 
+Moses said, "As you say. I'll never see your face again." 

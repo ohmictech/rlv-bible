@@ -1,35 +1,35 @@
-﻿Then God said to Moses, "Go in to Pharaoh, and tell him, 'This is what the God of the Hebrews, says: "Let my people go, that they can serve me. 
-If you refuse to let them go, and hold them still, 
-Look, God's hand is on your livestock which are in the field, on the horses, on the donkeys, on the camels, on the herds, and on the flocks with a very grievous pestilence. 
-God will make a distinction between the livestock of Israel and the livestock of Egypt; and nothing will die of all that belongs to the children of Israel."'" 
-God appointed a set time, saying, "Tomorrow God will do this thing in the land." 
-God did that thing on the next day; and all the livestock of Egypt died, but of the livestock of the children of Israel, not one died. 
-Pharaoh sent, and, look, there wasn't so much as one of the livestock of the Israelites dead. But the heart of Pharaoh was stubborn, and he didn't let the people go. 
-God said to Moses and to Aaron, "Take handfuls of ashes of the furnace, and let Moses sprinkle it toward the sky in the sight of Pharaoh. 
-It will become small dust over all the land of Egypt, and will be boils and blisters breaking out on man and on animal, throughout all the land of Egypt." 
-They took ashes of the furnace, and stood before Pharaoh; and Moses sprinkled it up toward the sky; and it became boils and blisters breaking out on man and on animal. 
-The magicians couldn't stand before Moses because of the boils; for the boils were on the magicians and on all the Egyptians. 
-God hardened the heart of Pharaoh, and he didn't listen to them, as God had spoken to Moses. 
-God said to Moses, "Rise up early in the morning, and stand before Pharaoh, and tell him, 'This is what the God of the Hebrews, says: "Let my people go, that they can serve me. 
-This time I'll send all my plagues against your heart, against your officials, and against your people; that you can know that there's no one like me in all the earth. 
-Now I'd have stretched out my hand, and struck you and your people with pestilence, and you'd have been cut off from the earth; 
-but indeed for this cause I have made you stand: to show you my power, and that my name may be declared throughout all the earth, 
-because you still exalt yourself against my people, that you won't let them go. 
-Look, tomorrow about this time I'll cause it to rain a very grievous hail, such as hasn't been in Egypt since the day it was founded even until now. 
-Now command that all of your livestock and all that you have in the field be brought into shelter. The hail will come down on every man and animal that's found in the field, and isn't brought home, and they'll die."'" 
-Those who feared God's word among the servants of Pharaoh made their servants and their livestock flee into the houses. 
-Whoever didn't respect God's word left his servants and his livestock in the field. 
-God said to Moses, "Stretch out your hand toward the sky, that there may be hail in all the land of Egypt, on man, and on animal, and on every herb of the field, throughout the land of Egypt." 
-Moses stretched out his rod toward the sky, and God sent thunder and hail; and lightning flashed down to the earth. God rained hail on the land of Egypt. 
-So there was very severe hail, and lightning mixed with the hail, such as hadn't been in all the land of Egypt since it became a nation. 
-The hail struck throughout all the land of Egypt all that was in the field, both man and animal; and the hail struck every herb of the field, and broke every tree of the field. 
-Only in the land of Goshen, where the children of Israel were, there was no hail. 
-Pharaoh sent and called for Moses and Aaron, and said to them, "I have drifted this time. God is righteous, and I and my people are guilty. 
-Pray to God; for there has been enough of mighty thunderings and hail. I'll let you go, and you will stay no longer." 
-Moses said to him, "As soon as I have gone out of the city, I'll spread out my hands to God. The thunders will cease, and there won't be any more hail; that you can know that the earth is God's. 
-But as for you and your servants, I know that you don't yet fear God." 
-The flax and the barley were struck, for the barley had ripened and the flax was blooming. 
-But the wheat and the spelt weren't struck, for they hadn't grown up. 
-Moses went out of the city from Pharaoh, and spread out his hands to God; and the thunders and hail ceased, and the rain wasn't poured on the earth. 
-When Pharaoh saw that the rain and the hail and the thunders had ceased, he drifted yet more, and hardened his heart, he and his servants. 
-The heart of Pharaoh was hardened, and he didn't let the children of Israel go, just as God had spoken through Moses. 
+﻿God said to Moses, "Go to Pharaoh and tell him, 'This is what the God of the Hebrews says: "Let my people go so they can serve me. 
+If you refuse and keep holding them back, 
+then the hand of God will come on your livestock in the fields, on the horses, donkeys, camels, cattle and sheep, with a terrible plague. 
+But God will make a distinction between Israel's livestock and Egypt's, and nothing belonging to the Israelites will die."'" 
+God set a time: "Tomorrow God will do this in the land." 
+And God did it the next day. All the livestock of Egypt died, but not one of Israel's animals died. 
+Pharaoh sent men to check, and not one of Israel's animals had died. But Pharaoh's heart was stubborn and he didn't let the people go. 
+God said to Moses and Aaron, "Take handfuls of ashes from a furnace and have Moses throw them into the air in front of Pharaoh. 
+They will become fine dust over all Egypt, and they will turn into boils that break out on people and animals everywhere in Egypt." 
+So they took ashes from a furnace and stood before Pharaoh, and Moses threw them into the air, and boils broke out on people and animals. 
+The magicians couldn't even stand in front of Moses because of the boils, since they had them too, like every other Egyptian. 
+But God made Pharaoh's heart hard, and he wouldn't listen, just as God had said to Moses. 
+God said to Moses, "Get up early and stand in front of Pharaoh and tell him, 'This is what the God of the Hebrews says: "Let my people go so they can serve me. 
+This time I will send the full weight of my plagues on you, on your officials and on your people, so you will know that there is no one like me anywhere on earth. 
+I could have reached out my hand and struck you and your people with a plague and wiped you off the earth. 
+But I kept you standing for this reason: to show you my power and to have my name declared throughout the earth. 
+You are still setting yourself against my people by refusing to let them go. 
+So tomorrow at this time I will send a hailstorm like nothing Egypt has seen since the day it was founded. 
+Now send word to bring your livestock and everything you have in the fields under shelter. The hail will fall on every person and animal left out in the open, and they will die."'" 
+Some of Pharaoh's officials feared what God had said and hurried their servants and livestock indoors. 
+Those who paid no attention to what God had said left their servants and livestock in the fields. 
+God said to Moses, "Stretch out your hand toward the sky, and hail will fall on all Egypt, on people and animals and every plant in the fields." 
+So Moses stretched out his staff toward the sky, and God sent thunder and hail, with lightning flashing down to the ground, and God rained hail on Egypt. 
+The hail was severe, with lightning mixed in, worse than anything Egypt had seen since it became a nation. 
+Throughout Egypt the hail struck down everything in the fields, people and animals alike, and it flattened every plant and shattered every tree. 
+The only place with no hail was Goshen, where the Israelites were. 
+Pharaoh sent for Moses and Aaron and said, "This time I have drifted. God is in the right, and I and my people are in the wrong. 
+Pray to God. We have had enough of this thunder and hail. I'll let you go, and you won't stay any longer." 
+Moses said, "As soon as I leave the city I will spread out my hands to God, and the thunder will stop and there will be no more hail, so you will know that the earth belongs to God. 
+But as for you and your officials, I know you still don't fear God." 
+The flax and barley were ruined, because the barley was ripe and the flax was in bloom. 
+The wheat and spelt survived, because they come up later. 
+Moses left the city and spread out his hands to God, and the thunder and hail stopped, and the rain stopped falling. 
+But when Pharaoh saw the rain and hail and thunder had stopped, he drifted still further and hardened his heart, he and his officials. 
+Pharaoh's heart was hard, and he didn't let the Israelites go, just as God had said through Moses. 

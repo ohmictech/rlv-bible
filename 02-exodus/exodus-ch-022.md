@@ -1,31 +1,31 @@
-﻿"If a man steals an ox or a sheep, and kills it or sells it, he will pay five oxen for an ox, and four sheep for a sheep. 
-If the thief is found breaking in, and is struck so that he dies, there will be no guilt of bloodshed for him. 
-If the sun has risen on him, he's guilty of bloodshed. He will make restitution. If he has nothing, then he will be sold for his theft. 
-If the stolen property is found in his hand alive, whether it's ox, donkey, or sheep, he will pay double. 
-"If a man causes a field or vineyard to be eaten by letting his animal loose, and it grazes in another man's field, he will make restitution from the best of his own field, and from the best of his own vineyard. 
-"If fire breaks out, and catches in thorns so that the shocks of grain, or the standing grain, or the field are consumed; he who kindled the fire will surely make restitution. 
-"If a man delivers to his neighbor money or stuff to keep, and it's stolen out of the man's house, if the thief is found, he will pay double. 
-If the thief isn't found, then the master of the house will come near to God, to find out whether or not he has put his hand on his neighbor's goods. 
-Every matter of trespass, whether it's for ox, for donkey, for sheep, for clothing, or for any kind of lost thing, about which one says, 'This is mine,' the cause of both parties will come before God. He whom God condemns will pay double to his neighbor. 
-"If a man delivers to his neighbor a donkey, an ox, a sheep, or any animal to keep, and it dies or is injured, or driven away, no man seeing it; 
-the oath of God will be between them both, he hasn't put his hand on his neighbor's goods; and its owner will accept it, and he won't make restitution. 
-But if it's stolen from him, the one who stole will make restitution to its owner. 
-If it's torn in pieces, let him bring it for evidence. He won't make good that which was torn. 
-"If a man borrows anything of his neighbor's, and it's injured, or dies, its owner not being with it, he will surely make restitution. 
-If its owner is with it, he won't make it good. If it's a leased thing, it came for its lease. 
-"If a man entices a virgin who isn't pledged to be married, and lies with her, he will surely pay a dowry for her to be his wife. 
-If her father utterly refuses to give her to him, he will pay money according to the dowry of virgins. 
-"Don't allow a sorceress to live. 
-"Whoever has sex with an animal will surely be put to death. 
-"He who sacrifices to any god, except to God only, will be utterly destroyed. 
-"Don't wrong an alien or oppress him, for you were aliens in the land of Egypt. 
-"Don't take advantage of any widow or fatherless child. 
-If you take advantage of them at all, and they cry at all to me, I'll surely hear their cry; 
-and my wrath will grow hot, and I'll kill you with the sword; and your wives will be widows, and your children fatherless. 
-"If you lend money to any of my people with you who's poor, you won't be to him as a creditor. You won't charge him interest. 
-If you take your neighbor's garment as collateral, you will restore it to him before the sun goes down, 
-for that's his only covering, it's his garment for his skin. What would he sleep in? It'll happen, when he cries to me, that I'll hear, for I'm gracious. 
-"Don't blaspheme God, nor curse a ruler of your people. 
-"Don't delay to offer from your harvest and from the outflow of your presses. "You will give the firstborn of your sons to me. 
-You will do likewise with your cattle and with your sheep. It will be with its mother seven days, then on the eighth day you will give it to me. 
-"You will be holy men to me, you won't eat any meat that's torn by animals in the field. You will cast it to the dogs. 
+﻿"If a man steals an ox or a sheep and kills it or sells it, he must pay back five oxen for the ox, and four sheep for the sheep. 
+If a thief is caught breaking in and is struck and dies, there is no guilt for his blood. 
+If it happens after sunrise, there is guilt for his blood. A thief must make full restitution. If he has nothing, he is to be sold for his theft. 
+If what was stolen is found alive in his hand, whether ox, donkey or sheep, he must pay double. 
+"If a man lets his animal loose so that it grazes in someone else's field or vineyard, he must pay back from the best of his own field and the best of his own vineyard. 
+"If a fire breaks out and spreads into the thorns so that stacked grain, standing grain or the whole field is burned, the one who started the fire must pay for it. 
+"If a man gives his neighbor money or goods to look after, and they are stolen from the house, the thief, if caught, must pay double. 
+If the thief isn't found, the owner of the house must be brought before God to find out whether he laid hands on his neighbor's property. 
+In every case of a claim, whether about an ox, a donkey, a sheep, clothing or anything lost, where one says, 'This is mine,' both sides will come before God, and the one God finds guilty must pay double to his neighbor. 
+"If a man gives his neighbor a donkey, an ox, a sheep or any animal to look after, and it dies or is injured or is driven off with no one watching, 
+an oath before God will settle it between them, whether he laid hands on his neighbor's property. The owner must accept the oath, and no payment is required. 
+But if it was stolen from him, he must pay the owner back. 
+If it was torn apart by a wild animal, he must bring the remains as evidence, and he doesn't have to pay for what was torn. 
+"If a man borrows an animal from his neighbor and it is injured or dies while the owner isn't there, he must pay for it. 
+If the owner was there, he doesn't have to pay. If it was hired, the hire price covers it. 
+"If a man seduces a virgin who isn't promised to anyone and sleeps with her, he must pay her bride price and marry her. 
+If her father refuses to give her to him, he must still pay the bride price for a virgin. 
+"Don't let a sorceress live. 
+"Anyone who has sex with an animal must be put to death. 
+"Anyone who sacrifices to any god but God must be destroyed. 
+"Don't mistreat a foreigner or oppress him, because you were foreigners in Egypt. 
+"Don't take advantage of any widow or orphan. 
+If you do, and they cry out to me, I will certainly hear them. 
+My anger will burn, and I will kill you with the sword, and your own wives will be widows and your own children orphans. 
+"If you lend money to any of my people who are poor, don't act like a moneylender. Don't charge interest. 
+If you take your neighbor's coat as a pledge, give it back before sunset, 
+because that's the only covering he has, the cloak for his skin. What else would he sleep in? When he cries out to me, I will hear him, because I am gracious. 
+"Don't speak against God, and don't curse a leader of your people. 
+"Don't hold back your grain and your wine. "You are to give me the firstborn of your sons. 
+Do the same with your cattle and your sheep. Let it stay with its mother seven days, and give it to me on the eighth. 
+"You will be my set apart people. Don't eat meat torn by wild animals in the field. Throw it to the dogs. 

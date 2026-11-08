@@ -1,38 +1,38 @@
-﻿"You will make an altar to burn incense on. You will make it of acacia wood. 
-Its length will be a cubit, and its width a cubit. It will be square, and its height will be two cubits. Its horns will be of one piece with it. 
-You will overlay it with pure gold, its top, its sides around it, and its horns; and you will make a gold molding around it. 
-You will make two golden rings for it under its molding; on its two ribs, on its two sides you will make them; and they will be for places for poles with which to bear it. 
-You will make the poles of acacia wood, and overlay them with gold. 
-You will put it before the veil that's by the ark of the covenant, before the mercy seat that's over the covenant, where I'll meet with you. 
-Aaron will burn incense of sweet spices on it every morning. When he tends the lamps, he will burn it. 
-When Aaron lights the lamps at evening, he will burn it, a perpetual incense before God throughout your generations. 
-You will offer no strange incense on it, nor burnt offering, nor meal offering; and you will pour no drink offering on it. 
-Aaron will make things right on its horns once in the year; with the blood of the offering for wrongdoing that makes things right once in the year he will make things right for it throughout your generations. It's most holy to God." 
-God spoke to Moses, saying, 
-"When you take a census of the children of Israel, according to those who are counted among them, then each man will give a ransom for his soul to God when you count them, that there be no plague among them when you count them. 
-They will give this, everyone who passes over to those who are counted, half a shekel according to the shekel of the sanctuary (the shekel is twenty gerahs); half a shekel for an offering to God. 
-Everyone who passes over to those who are counted, from twenty years old and upward, will give the offering to God. 
-The rich won't give more, and the poor won't give less, than the half shekel, when they give the offering of God, to make things right for your souls. 
-You will take the making right money from the children of Israel, and will appoint it for the service of the Tent of Meeting; that it might be a memorial for the children of Israel before God, to make things right for your souls." 
-God spoke to Moses, saying, 
-"You will also make a basin of bronze, and its base of bronze, in which to wash. You will put it between the Tent of Meeting and the altar, and you will put water in it. 
-Aaron and his sons will wash their hands and their feet in it. 
-When they go into the Tent of Meeting, they will wash with water, that they don't die; or when they come near to the altar to minister, to burn an offering made by fire to God. 
-So they will wash their hands and their feet, that they not die. This will be a statute for the eras to them, even to him and to his descendants throughout their generations." 
-Moreover God spoke to Moses, saying, 
-"Also take fine spices: of liquid myrrh, five hundred shekels; and of fragrant cinnamon half as much, even two hundred and fifty; and of fragrant cane, two hundred and fifty; 
-and of cassia five hundred, according to the shekel of the sanctuary; and a hin of olive oil. 
-You will make it into a holy anointing oil, a perfume compounded after the art of the perfumer: it will be a holy anointing oil. 
-You will use it to anoint the Tent of Meeting, the ark of the covenant, 
-the table and all its articles, the lamp stand and its accessories, the altar of incense, 
-the altar of burnt offering with all its utensils, and the basin with its base. 
-You will sanctify them, that they can be most holy. Whatever touches them will be holy. 
-You will anoint Aaron and his sons, and sanctify them, that they can minister to me in the priest's office. 
-You will speak to the children of Israel, saying, 'This will be a holy anointing oil to me throughout your generations. 
-It won't be poured on man's flesh, and don't make any like it, according to its composition. It's holy. It will be holy to you. 
-Whoever compounds any like it, or whoever puts any of it on a stranger, he will be cut off from his people.'" 
-God said to Moses, "Take to yourself sweet spices, gum resin, onycha, and galbanum: sweet spices with pure frankincense. There will be an equal weight of each. 
-You will make incense of it, a perfume after the art of the perfumer, seasoned with salt, pure and holy. 
-You will beat some of it very small, and put some of it before the covenant in the Tent of Meeting, where I'll meet with you. It will be to you most holy. 
-Don't make this incense, according to its composition, for yourselves: it will be to you holy for God. 
-Whoever will make any like that, to smell of it, he will be cut off from his people." 
+﻿"Make an altar for burning incense, of acacia wood. 
+It is to be a cubit long and a cubit wide, a square, two cubits high, with horns all one piece with it. 
+Cover its top, its sides and its horns with pure gold, and put a gold trim all around it. 
+Make two gold rings for it below the trim on its two sides, to hold the poles for carrying it. 
+Make the poles of acacia wood and cover them with gold. 
+Put it in front of the curtain that is by the ark of the covenant, in front of the mercy seat over the covenant, where I will meet with you. 
+Every morning Aaron is to burn fragrant incense on it when he tends the lamps. 
+And when he lights the lamps at dusk he is to burn it, incense that never stops before God, through all your generations. 
+Don't offer any other incense on it, or a burnt offering, or a grain offering, and don't pour a drink offering on it. 
+Once a year Aaron is to make things right on its horns, using the blood of the offering for wrongdoing that makes things right, once a year, through all your generations. It is most holy to God." 
+God spoke to Moses: 
+"When you take a census of the Israelites and count them, each man is to give God a ransom for his life when he is counted, so no plague comes on them when they are counted. 
+Everyone who is counted is to give half a shekel, by the shekel of the sanctuary, which is twenty gerahs, as an offering to God. 
+Everyone counted, twenty years old and up, is to give the offering to God. 
+The rich are not to give more and the poor are not to give less than the half shekel, when you give the offering to God to make things right for your lives. 
+Take the ransom money from the Israelites and put it to the service of the Tent of Meeting, so it will be a memorial for the Israelites before God, making things right for your lives." 
+God spoke to Moses: 
+"Make a bronze basin with a bronze stand for washing. Put it between the Tent of Meeting and the altar, and put water in it. 
+Aaron and his sons are to wash their hands and feet in it. 
+When they go into the Tent of Meeting they must wash with water, so they don't die, and so it is when they come near the altar to serve by burning an offering made by fire to God. 
+So they must wash their hands and feet so they don't die. This is a rule for the eras for them and for their descendants through all their generations." 
+God spoke to Moses: 
+"Take the finest spices: five hundred shekels of liquid myrrh, half that much of fragrant cinnamon, that is two hundred and fifty, two hundred and fifty of fragrant cane, 
+five hundred of cassia by the shekel of the sanctuary, and a hin of olive oil. 
+Blend it into a holy anointing oil, a perfume mixed the way a perfumer works. It will be a holy anointing oil. 
+Use it to anoint the Tent of Meeting, the ark of the covenant, 
+the table and all its equipment, the lampstand and its accessories, the altar of incense, 
+the altar of burnt offering with all its equipment, and the basin with its stand. 
+Set them apart so they are most holy. Whatever touches them will be holy. 
+Anoint Aaron and his sons and set them apart, so they can serve me as priest. 
+Tell the Israelites, 'This will be my holy anointing oil through all your generations. 
+It must not be poured on anyone else's body, and don't make anything like it with the same formula. It is holy, and it is to be holy to you. 
+Anyone who mixes anything like it, or puts any of it on an outsider, will be cut off from his people.'" 
+God said to Moses, "Take fragrant spices, gum resin, onycha and galbanum, along with pure frankincense, all in equal amounts. 
+Blend them into incense, a perfume mixed the way a perfumer works, salted, pure and holy. 
+Grind some of it to powder and put it in front of the covenant in the Tent of Meeting, where I will meet with you. It will be most holy to you. 
+Don't make incense with this formula for yourselves. It is to be holy to you, set apart for God. 
+Anyone who makes anything like it to enjoy its scent will be cut off from his people." 

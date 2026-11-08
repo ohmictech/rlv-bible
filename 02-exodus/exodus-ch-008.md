@@ -1,32 +1,32 @@
-﻿God spoke to Moses, "Go in to Pharaoh, and tell him, 'This is what God says, "Let my people go, that they can serve me. 
-If you refuse to let them go, look, I'll plague all your borders with frogs. 
-The river will swarm with frogs, which will go up and come into your house, and into your bedroom, and on your bed, and into the house of your servants, and on your people, and into your ovens, and into your kneading troughs. 
-The frogs will come up both on you, and on your people, and on all your servants."'" 
-God said to Moses, "Tell Aaron, 'Stretch out your hand with your rod over the rivers, over the streams, and over the pools, and cause frogs to come up on the land of Egypt.'" 
-Aaron stretched out his hand over the waters of Egypt; and the frogs came up, and covered the land of Egypt. 
-The magicians did the same thing with their enchantments, and brought up frogs on the land of Egypt. 
-Then Pharaoh called for Moses and Aaron, and said, "Entreat God, that he take away the frogs from me and from my people; and I'll let the people go, that they can sacrifice to God." 
-Moses said to Pharaoh, "I give you the honor of setting the time that I should pray for you, and for your servants, and for your people, that the frogs be destroyed from you and your houses, and remain in the river only." 
-Pharaoh said, "Tomorrow." Moses said, "Let it be according to your word, that you can know that there's no one like our God. 
-The frogs will depart from you, and from your houses, and from your servants, and from your people. They will remain in the river only." 
-Moses and Aaron went out from Pharaoh, and Moses cried to God concerning the frogs which he had brought on Pharaoh. 
-God did according to the word of Moses, and the frogs died out of the houses, out of the courts, and out of the fields. 
-They gathered them together in heaps, and the land stank. 
-But when Pharaoh saw that there was a respite, he hardened his heart, and didn't listen to them, as God had spoken. 
-God said to Moses, "Tell Aaron, 'Stretch out your rod, and strike the dust of the earth, that it might become lice throughout all the land of Egypt.'" 
-They did so; and Aaron stretched out his hand with his rod, and struck the dust of the earth, and there were lice on man, and on animal; all the dust of the earth became lice throughout all the land of Egypt. 
-The magicians tried with their enchantments to produce lice, but they couldn't. There were lice on man, and on animal. 
-Then the magicians said to Pharaoh, "This is God's finger;" but Pharaoh's heart was hardened, and he didn't listen to them, as God had spoken. 
-God said to Moses, "Rise up early in the morning, and stand before Pharaoh; look, he comes out to the water; and tell him, 'This is what God says, "Let my people go, that they can serve me. 
-Else, if you won't let my people go, look, I'll send swarms of flies on you, and on your servants, and on your people, and into your houses. The houses of the Egyptians will be full of swarms of flies, and also the ground they're on. 
-I'll set apart in that day the land of Goshen, in which my people dwell, that no swarms of flies will be there, to the end you can know that I'm God on the earth. 
-I'll put a division between my people and your people. This sign will happen by tomorrow."'" 
-God did so; and there came grievous swarms of flies into the house of Pharaoh, and into his servants' houses. In all the land of Egypt the land was corrupted by reason of the swarms of flies. 
-Pharaoh called for Moses and for Aaron, and said, "Go, sacrifice to your God in the land!" 
-Moses said, "It isn't appropriate to do so; for we will sacrifice the abomination of the Egyptians to our God. Look, if we sacrifice the abomination of the Egyptians before their eyes, won't they stone us? 
-We'll go three days' journey into the wilderness, and sacrifice to our God, as he will command us." 
-Pharaoh said, "I'll let you go, that you can sacrifice to your God in the wilderness, only you won't go very far away. Pray for me." 
-Moses said, "Look, I'm going out from you. I'll pray to God that the swarms of flies may depart from Pharaoh, from his servants, and from his people, tomorrow; only don't let Pharaoh deal deceitfully any more in not letting the people go to sacrifice to God." 
-Moses went out from Pharaoh, and prayed to God. 
-God did according to the word of Moses, and he removed the swarms of flies from Pharaoh, from his servants, and from his people. There remained not one. 
-Pharaoh hardened his heart this time also, and he didn't let the people go. 
+﻿God said to Moses, "Go to Pharaoh and tell him, 'This is what God says: "Let my people go so they can serve me. 
+If you refuse, I will plague your whole country with frogs. 
+The river will teem with frogs. They will come up into your palace, your bedroom, your bed, the houses of your officials, onto your people, into your ovens and into your bread bowls. 
+The frogs will come up on you, your people and all your officials."'" 
+God said to Moses, "Tell Aaron, 'Stretch out your hand with your staff over the rivers, canals and ponds, and bring frogs up onto the land of Egypt.'" 
+So Aaron stretched out his hand over the waters of Egypt, and frogs came up and covered the land. 
+The magicians did the same thing with their secret arts and brought frogs up onto the land. 
+Then Pharaoh called for Moses and Aaron and said, "Pray to God to take the frogs away from me and my people, and I'll let the people go to sacrifice to God." 
+Moses said to Pharaoh, "You can set the time. When should I pray for you, your officials and your people, so the frogs are gone from you and your houses and left only in the river?" 
+Pharaoh said, "Tomorrow." Moses said, "It will be as you say, so you will know that there is no one like our God. 
+The frogs will leave you and your houses, your officials and your people, and stay only in the river." 
+Moses and Aaron left Pharaoh, and Moses cried out to God about the frogs he had brought on Pharaoh. 
+God did what Moses asked, and the frogs died in the houses, the courtyards and the fields. 
+The people piled them up in heaps, and the land stank. 
+But when Pharaoh saw there was relief, he hardened his heart and wouldn't listen, just as God had said. 
+God said to Moses, "Tell Aaron, 'Stretch out your staff and strike the dust of the ground, and it will become lice all over Egypt.'" 
+They did, and when Aaron stretched out his hand with his staff and struck the dust, lice came on people and animals. All the dust of Egypt turned to lice. 
+The magicians tried to produce lice with their secret arts, but they couldn't, and the lice stayed on people and animals. 
+So the magicians said to Pharaoh, "This is the finger of God." But Pharaoh's heart stayed hard and he wouldn't listen, just as God had said. 
+God said to Moses, "Get up early and stand in front of Pharaoh when he goes out to the water, and tell him, 'This is what God says: "Let my people go so they can serve me. 
+If you won't let my people go, I will send swarms of flies on you, your officials and your people, and into your houses. The houses of the Egyptians will be full of flies, and the ground too. 
+But that day I will set apart the land of Goshen, where my people live, and there will be no flies there, so you will know that I am God in this land. 
+I will make a distinction between my people and yours. This sign will happen tomorrow."'" 
+God did it, and thick swarms of flies came into Pharaoh's palace and his officials' houses. All through Egypt the land was ruined by the flies. 
+Then Pharaoh called for Moses and Aaron and said, "Go and sacrifice to your God, here in the land." 
+Moses said, "That wouldn't be right, because we would be sacrificing animals the Egyptians consider sacred. If they saw us doing that, wouldn't they stone us? 
+We need to take a three day journey into the wilderness and sacrifice to God as he tells us." 
+Pharaoh said, "I'll let you go and sacrifice to your God in the wilderness, as long as you don't go far. Now pray for me." 
+Moses said, "I'm leaving you now, and I will pray to God, and tomorrow the flies will leave Pharaoh, his officials and his people. Only don't start lying to us again about letting the people go to sacrifice to God." 
+Then Moses left Pharaoh and prayed to God. 
+God did what Moses asked, and the flies left Pharaoh, his officials and his people. Not one was left. 
+But Pharaoh hardened his heart again, and he didn't let the people go. 

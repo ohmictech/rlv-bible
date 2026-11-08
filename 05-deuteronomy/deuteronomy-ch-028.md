@@ -55,7 +55,7 @@ The man who's tender among you, and very delicate, his eye will be bad toward hi
 so that he won't give to any of them of the flesh of his children whom he'll eat, because he has nothing left to him, in the siege and in the distress with which your enemy will distress you in all your gates. 
 The tender and delicate woman among you, who wouldn't venture to set the sole of her foot on the ground for delicateness and tenderness, her eye will be bad toward the husband that she loves, toward her son, toward her daughter, 
 toward her young one who comes out from between her feet, and toward her children whom she bears; for she'll eat them secretly for lack of all things in the siege and in the distress with which your enemy will distress you in your gates. 
-If you won't observe to do all the words of this law that are written in this book, that you can fear this glorious and fearful name, THE God your God, 
+If you won't observe to do all the words of this law that are written in this book, that you can fear this glorious and awe-inspiring name, the name of God your God, 
 then God will make your plagues and the plagues of your offspring fearful, even great plagues, and of long duration, and severe sicknesses, and of long duration. 
 He'll bring on you again all the diseases of Egypt, which you were afraid of; and they'll cling to you. 
 Also every sickness and every plague which isn't written in the book of this law, God will bring them on you until you're destroyed. 

@@ -17,5 +17,5 @@ It'll happen that everyone who's left of all the nations that came against Jerus
 It'll be that whoever of all the families of the earth doesn't go up to Jerusalem to worship the King, the God of Armies, on them there will be no rain. 
 If the family of Egypt doesn't go up and doesn't come, neither will it rain on them. This will be the plague with which God will strike the nations that don't go up to keep the feast of booths. 
 This will be the punishment of Egypt and the punishment of all the nations that don't go up to keep the feast of booths. 
-In that day there will be inscribed on the bells of the horses, "HOLY TO THE God"; and the pots in God's house will be like the bowls before the altar. 
+In that day there will be inscribed on the bells of the horses, "SET APART FOR GOD"; and the pots in God's house will be like the bowls before the altar. 
 Yes, every pot in Jerusalem and in Judah will be holy to the God of Armies; and everyone who sacrifices will come and take of them, and cook in them. In that day there will no longer be a Canaanite in the house of the God of Armies. 

@@ -27,7 +27,7 @@ a bell and a pomegranate, a bell and a pomegranate, around the skirts of the rob
 They made the tunics of fine linen of woven work for Aaron and for his sons, 
 the turban of fine linen, the linen headbands of fine linen, the linen trousers of fine twined linen, 
 the sash of fine twined linen, blue, purple, and scarlet, the work of the embroiderer, as God commanded Moses. 
-They made the plate of the holy crown of pure gold, and wrote on it an inscription, like the engravings of a signet: "HOLY TO THE God". 
+They made the plate of the holy crown of pure gold, and wrote on it an inscription, like the engravings of a signet: "SET APART FOR GOD". 
 They tied to it a lace of blue, to fasten it on the turban above, as God commanded Moses. 
 Thus all the work of the tabernacle of the Tent of Meeting was finished. The children of Israel did according to all that God commanded Moses; so they did. 
 They brought the tabernacle to Moses: the tent, with all its furniture, its clasps, its boards, its bars, its pillars, its sockets, 

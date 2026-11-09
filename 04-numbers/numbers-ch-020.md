@@ -1,29 +1,29 @@
-﻿The children of Israel, even the whole congregation, came into the wilderness of Zin in the first month. The people stayed in Kadesh. Miriam died there, and was buried there. 
-There was no water for the congregation; and they assembled themselves together against Moses and against Aaron. 
-The people quarreled with Moses, and spoke, saying, "We wish that we had died when our brothers died before God! 
-Why have you brought God's assembly into this wilderness, that we should die there, we and our animals? 
-Why have you made us to come up out of Egypt, to bring us in to this bad place? It's no place of seed, or of figs, or of vines, or of pomegranates; neither is there any water to drink." 
-Moses and Aaron went from the presence of the assembly to the door of the Tent of Meeting, and fell on their faces. God's glory appeared to them. 
-God spoke to Moses, saying, 
-"Take the rod, and assemble the congregation, you, and Aaron your brother, and speak to the rock before their eyes, that it pour out its water. You will bring water to them out of the rock; so you will give the congregation and their livestock drink." 
-Moses took the rod from before God, as he commanded him. 
-Moses and Aaron gathered the assembly together before the rock, and he said to them, "Hear now, you rebels! Will we bring water out of this rock for you?" 
-Moses lifted up his hand, and struck the rock with his rod twice, and water came out abundantly. The congregation and their livestock drank. 
-God said to Moses and Aaron, "Because you didn't believe in me, to sanctify me in the eyes of the children of Israel, you won't bring this assembly into the land which I have given them." 
-These are the waters of Meribah; because the children of Israel strove with God, and he was sanctified in them. 
-Moses sent messengers from Kadesh to the king of Edom, saying: "Your brother Israel says: You know all the travail that has happened to us; 
-how our fathers went down into Egypt, and we lived in Egypt a long time. The Egyptians mistreated us and our fathers. 
-When we cried to God, he heard our voice, sent a messenger, and brought us out of Egypt. Look, we're in Kadesh, a city in the edge of your border. 
-"Please let's pass through your land. We won't pass through field or through vineyard, neither will we drink from the water of the wells. We'll go along the king's highway. We won't turn away to the right hand nor to the left, until we have passed your border." 
-Edom said to him, "You won't pass through me, lest I come out with the sword against you." 
-The children of Israel said to him, "We'll go up by the highway; and if we drink your water, I and my livestock, then I'll give its price. Only let me, without doing anything else, pass through on my feet." 
-He said, "You won't pass through." Edom came out against him with many people, and with a strong hand. 
-Thus Edom refused to give Israel passage through his border, so Israel turned away from him. 
-They traveled from Kadesh, and the children of Israel, even the whole congregation, came to Mount Hor. 
-God spoke to Moses and Aaron in Mount Hor, by the border of the land of Edom, saying, 
-"Aaron will be gathered to his people; for he won't enter into the land which I have given to the children of Israel, because you rebelled against my word at the waters of Meribah. 
-Take Aaron and Eleazar his son, and bring them up to Mount Hor; 
-and strip Aaron of his garments, and put them on Eleazar his son. Aaron will be gathered, and will die there." 
-Moses did as God commanded. They went up onto Mount Hor in the sight of all the congregation. 
-Moses stripped Aaron of his garments, and put them on Eleazar his son. Aaron died there on the top of the mountain, and Moses and Eleazar came down from the mountain. 
-When all the congregation saw that Aaron was dead, they wept for Aaron thirty days, even all the house of Israel. 
+﻿The Israelites, the whole community, came into the Zin wilderness in the first month, and the people stayed at Kadesh. Miriam died there and was buried there. 
+There was no water for the community, and they gathered against Moses and Aaron. 
+The people argued with Moses and said, "If only we had died when our brothers died before God! 
+Why have you brought God's assembly into this wilderness, so we and our animals die here? 
+Why did you bring us up out of Egypt to this terrible place? There's no grain here, no figs, no vines, no pomegranates, and no water to drink." 
+Moses and Aaron went from the assembly to the entrance of the Tent of Meeting and fell face down, and God's splendor appeared to them. 
+God spoke to Moses: 
+"Take the staff, and gather the community, you and your brother Aaron, and speak to the rock in front of them, and it will pour out its water. You will bring water out of the rock for them, and give the community and their livestock something to drink." 
+Moses took the staff from before God, just as he commanded him. 
+Moses and Aaron gathered the assembly in front of the rock, and he said to them, "Listen, you rebels! Do we have to bring water out of this rock for you?" 
+Moses raised his hand and struck the rock twice with his staff, and water poured out, and the community and their livestock drank. 
+God said to Moses and Aaron, "Because you didn't trust me enough to treat me as set apart in front of the Israelites, you won't bring this assembly into the land I have given them." 
+These are the waters of Meribah, where the Israelites argued with God, and he showed himself set apart among them. 
+Moses sent messengers from Kadesh to the king of Edom: "This is what your brother Israel says. You know all the hardship we have been through, 
+how our fathers went down to Egypt, and we lived in Egypt for a long time, and the Egyptians treated us and our fathers badly. 
+When we cried out to God, he heard us and sent a messenger and brought us out of Egypt. Here we are at Kadesh, a town on the edge of your territory. 
+"Please let us pass through your land. We won't go through fields or vineyards, and we won't drink water from your wells. We will stay on the king's road. We won't turn off to the right or the left until we have passed your border." 
+Edom said to him, "You won't pass through me, or I will come out against you with a sword." 
+The Israelites said to him, "We will go up by the main road, and if we drink your water, I and my livestock, I will pay you for it. Only let us walk through, nothing more." 
+He said, "You won't pass through." And Edom came out against him with a large army and a strong hand. 
+So Edom refused to let Israel pass through his territory, and Israel turned away from him. 
+They set out from Kadesh, and the whole community of Israel came to Mount Hor. 
+God spoke to Moses and Aaron at Mount Hor, on the border of Edom: 
+"Aaron is going to be gathered to his people. He won't enter the land I am giving the Israelites, because the two of you rebelled against my word at the waters of Meribah. 
+Take Aaron and his son Eleazar and bring them up Mount Hor, 
+and take Aaron's garments off him and put them on his son Eleazar. Then Aaron will be gathered to his people and die there." 
+Moses did as God commanded, and they went up Mount Hor while the whole community watched. 
+Moses took Aaron's garments off him and put them on his son Eleazar. Aaron died there on top of the mountain, and Moses and Eleazar came back down. 
+When the whole community saw that Aaron was dead, they wept for him thirty days, the whole house of Israel. 

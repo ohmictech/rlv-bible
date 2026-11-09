@@ -1,22 +1,22 @@
-﻿God spoke to Moses and to Aaron, saying, 
-"This is the statute of the law which God has commanded. Tell the children of Israel to bring you a red heifer without spot, in which is no defect, and which was never yoked. 
-You will give her to Eleazar the priest, and he will bring her outside of the camp, and one will kill her before his face. 
-Eleazar the priest will take some of her blood with his finger, and sprinkle her blood toward the front of the Tent of Meeting seven times. 
-One will burn the heifer in his sight; her skin, and her meat, and her blood, with her dung, will he burn. 
-The priest will take cedar wood, hyssop, and scarlet, and cast it into the middle of the burning of the heifer. 
-Then the priest will wash his clothes, and he will bathe his flesh in water, and afterward he will come into the camp, and the priest will be unclean until the evening. 
-He who burns her will wash his clothes in water, and bathe his flesh in water, and will be unclean until the evening. 
-"A man who's clean will gather up the ashes of the heifer, and lay them up outside of the camp in a clean place; and it will be kept for the congregation of the children of Israel for use in water for cleansing impurity. It's an offering for wrongdoing. 
-He who gathers the ashes of the heifer will wash his clothes, and be unclean until the evening. It will be to the children of Israel, and to the stranger who lives as a foreigner among them, for a statute for the eras. 
-"He who touches the dead body of any man will be unclean seven days. 
-He will purify himself with water on the third day, and on the seventh day he will be clean; but if he doesn't purify himself the third day, then the seventh day he won't be clean. 
-Whoever touches a dead person, the body of a man who has died, and doesn't purify himself, defiles God's tabernacle; and that soul will be cut off from Israel; because the water for impurity wasn't sprinkled on him, he will be unclean. His uncleanness is yet on him. 
-"This is the law when a man dies in a tent: everyone who comes into the tent, and everyone who's in the tent, will be unclean seven days. 
-Every open vessel, which has no covering bound on it, is unclean. 
-"Whoever in the open field touches one who's slain with a sword, or a dead body, or a bone of a man, or a grave, will be unclean seven days. 
-"The unclean, they will take of the ashes of the burning of the offering for wrongdoing; and running water will be poured on them in a vessel. 
-A clean person will take hyssop, dip it in the water, and sprinkle it on the tent, on all the vessels, on the persons who were there, and on him who touched the bone, or the slain, or the dead, or the grave. 
-The clean person will sprinkle on the unclean on the third day, and on the seventh day. On the seventh day, he will purify him. He will wash his clothes and bathe himself in water, and will be clean at evening. 
-But the man who will be unclean, and won't purify himself, that soul will be cut off from among the assembly, because he has defiled the sanctuary of God. The water for impurity hasn't been sprinkled on him. He's unclean. 
-It will be a perpetual statute to them. He who sprinkles the water for impurity will wash his clothes, and he who touches the water for impurity will be unclean until evening. 
-"Whatever the unclean person touches will be unclean; and the soul that touches it will be unclean until evening." 
+﻿God spoke to Moses and Aaron: 
+"This is the rule of the law God has commanded. Tell the Israelites to bring you a red cow with no flaw, with no defect in it, and that has never been yoked. 
+Give her to Eleazar the priest, and he is to take her outside the camp, and someone is to slaughter her in front of him. 
+Eleazar the priest is to take some of her blood with his finger and splash it toward the front of the Tent of Meeting seven times. 
+Someone is to burn the cow while he watches, her hide, her meat and her blood, along with her dung. 
+The priest is to take cedar wood, hyssop and scarlet yarn and throw them into the fire where the cow is burning. 
+Then the priest is to wash his clothes and wash his body in water, and after that he may come into the camp, but the priest will be unclean until evening. 
+The one who burns her is to wash his clothes in water and wash his body in water, and will be unclean until evening. 
+"A man who is clean is to gather up the ashes of the cow and lay them outside the camp in a clean place. They are to be kept for the community of Israel to use in the water that makes things clean. It is an offering for wrongdoing. 
+The one who gathers the ashes is to wash his clothes and be unclean until evening. This is to be a perpetual rule for the Israelites and for the foreigner living among them. 
+"Anyone who touches a dead body will be unclean for seven days. 
+He is to make himself clean with the water on the third day and on the seventh day, and then he will be clean. But if he doesn't make himself clean on the third day, he won't be clean on the seventh. 
+Whoever touches a dead person, the body of someone who has died, and doesn't make himself clean, has made God's tent unclean, and that person is to be cut off from Israel. Because the water that makes things clean wasn't splashed on him, he stays unclean, and his uncleanness is still on him. 
+"This is the law when someone dies in a tent. Everyone who comes into the tent, and everyone already in the tent, will be unclean for seven days. 
+Every open container with no lid tied on is unclean. 
+"Anyone out in the open field who touches someone killed with a sword, or a dead body, or a human bone, or a grave, will be unclean for seven days. 
+"For the unclean person, they are to take some of the ashes from the burning of the offering for wrongdoing, and running water is to be poured over them in a container. 
+A clean person is to take hyssop, dip it in the water, and splash it on the tent, on all the containers, on the people who were there, and on anyone who touched the bone, the slain body, the dead body or the grave. 
+The clean person is to splash it on the unclean person on the third day and on the seventh day, and on the seventh day he is to make him clean. He is to wash his clothes and wash himself in water, and he will be clean that evening. 
+But anyone who is unclean and doesn't make himself clean is to be cut off from the assembly, because he has made God's Holy Place unclean. The water that makes things clean wasn't splashed on him, so he is unclean. 
+This is to be a perpetual rule for them. The one who splashes the water that makes things clean is to wash his clothes, and anyone who touches that water will be unclean until evening. 
+"Anything an unclean person touches becomes unclean, and anyone who touches it will be unclean until evening." 

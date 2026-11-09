@@ -1,41 +1,41 @@
-﻿God spoke to Moses, saying, 
-"Speak to the children of Israel, and tell them, 'When you have come into the land of your habitations, which I give to you, 
-and will make an offering by fire to God, a burnt offering, or a sacrifice, to accomplish a vow, or as a free will offering, or in your set feasts, to make a pleasant aroma to God, of the herd, or of the flock 
-then he who offers his offering will offer to God a meal offering of one tenth of an ephah of fine flour mixed with one fourth of a hin of oil. 
-You will prepare wine for the drink offering, one fourth of a hin, with the burnt offering or for the sacrifice, for each lamb. 
-"'A ram, you will prepare for a meal offering two tenths of an ephah of fine flour mixed with the third part of a hin of oil; 
-and for the drink offering you will offer the third part of a hin of wine, of a pleasant aroma to God. 
-When you prepare a bull for a burnt offering or for a sacrifice, to accomplish a vow, or for offerings for wholeness to God, 
-then he will offer with the bull a meal offering of three tenths of an ephah of fine flour mixed with half a hin of oil; 
-and you will offer for the drink offering half a hin of wine, for an offering made by fire, of a pleasant aroma to God. 
-Thus it will be done for each bull, for each ram, for each of the male lambs, or of the young goats. 
-According to the number that you will prepare, so you will do to everyone according to their number. 
-"'Everyone who's native-born will do these things in this way, in offering an offering made by fire, of a pleasant aroma to God. 
-If a stranger lives as a foreigner with you, or whoever may be among you throughout your generations, and will offer an offering made by fire, of a pleasant aroma to God, as you do, so he will do. 
-The assembly, there will be one statute for you and for the stranger who lives as a foreigner, a statute for the eras throughout your generations. As you are, so the foreigner will be before God. 
-One law and one ordinance will be for you and for the stranger who lives as a foreigner with you.'" 
-God spoke to Moses, saying, 
-"Speak to the children of Israel, and tell them, 'When you come into the land where I bring you, 
-then it will be that when you eat of the bread of the land, you will offer up a wave offering to God. 
-Of the first of your dough you will offer up a cake for a wave offering. As the wave offering of the threshing floor, so you will heave it. 
-Of the first of your dough, you will give to God a wave offering throughout your generations. 
-"'When you err, and don't observe all these commandments which God has spoken to Moses 
-even all that God has commanded you by Moses, from the day that God gave commandment and onward throughout your generations 
-then it will be, if it was done unwittingly, without the knowledge of the congregation, that all the congregation will offer one young bull for a burnt offering, for a pleasant aroma to God, with its meal offering and its drink offering, according to the ordinance, and one male goat for an offering for wrongdoing. 
-The priest will make things right for all the congregation of the children of Israel, and they will be forgiven; for it was an error, and they have brought their offering, an offering made by fire to God, and their offering for wrongdoing before God, for their error. 
-All the congregation of the children of Israel will be forgiven, as well as the stranger who lives as a foreigner among them; for with regard to everyone, it was done unwittingly. 
-"'If a person drifts unwittingly, then he will offer a female goat a year old for an offering for wrongdoing. 
-The priest will make things right for the soul who errs when he drifts unwittingly before God. He will make things right for him; and he will be forgiven. 
-You will have one law for him who does anything unwittingly, for him who's native-born among the children of Israel, and for the stranger who lives as a foreigner among them. 
-"'But the soul who does anything defiantly, whether he's native-born or a foreigner, blasphemes God. That soul will be cut off from among his people. 
-Because he has despised God's word, and has broken his commandment, that soul will be utterly cut off. His guilt will be on him.'" 
-While the children of Israel were in the wilderness, they found a man gathering sticks on the Sabbath day. 
-Those who found him gathering sticks brought him to Moses and Aaron, and to all the congregation. 
-They put him in custody, because it hadn't been declared what should be done to him. 
-God said to Moses, "The man will surely be put to death. All the congregation will stone him with stones outside of the camp." 
-All the congregation brought him outside of the camp, and stoned him to death with stones, as God commanded Moses. 
-God spoke to Moses, saying, 
-"Speak to the children of Israel, and tell them that they should make themselves fringes on the borders of their garments throughout their generations, and that they put on the fringe of each border a cord of blue. 
-It will be to you for a fringe, that you can see it, and remember all God's commandments, and do them; and that you don't follow your own heart and your own eyes, after which you used to play the prostitute; 
-so that you can remember and do all my commandments, and be holy to your God. 
-I'm your God, who brought you out of the land of Egypt, to be your God: I'm your God." 
+﻿God spoke to Moses: 
+"Speak to the Israelites and tell them, 'When you come into the land where you will live, which I am giving you, 
+and you bring an offering made by fire to God, a burnt offering or a sacrifice to keep a vow, or as a freewill offering, or at your appointed feasts, to make a soothing aroma to God, from the herd or the flock, 
+the one who brings his offering is to bring to God a gift offering of a tenth of an ephah of fine flour mixed with a quarter of a hin of oil. 
+Prepare a quarter of a hin of wine as the drink offering with the burnt offering or the sacrifice, for each lamb. 
+"'For a ram, prepare a gift offering of two tenths of an ephah of fine flour mixed with a third of a hin of oil, 
+and bring a third of a hin of wine as the drink offering, a soothing aroma to God. 
+When you prepare a bull as a burnt offering or a sacrifice, to keep a vow or as a wholeness offering to God, 
+the one who brings it is to bring with the bull a gift offering of three tenths of an ephah of fine flour mixed with half a hin of oil, 
+and bring half a hin of wine as the drink offering, an offering made by fire, a soothing aroma to God. 
+This is to be done for each bull, each ram, each male lamb or young goat. 
+Whatever number you prepare, do it that way for each one. 
+"'Everyone born in the land is to do these things this way when bringing an offering made by fire, a soothing aroma to God. 
+If a foreigner living with you, or anyone among you through all your generations, brings an offering made by fire as a soothing aroma to God, he is to do exactly as you do. 
+The community is to have one rule for you and for the foreigner living among you, a perpetual rule through all your generations. As you are, so the foreigner is before God. 
+One law and one decision is to apply to you and to the foreigner living with you.'" 
+God spoke to Moses: 
+"Speak to the Israelites and tell them, 'When you come into the land where I am bringing you, 
+and you eat the bread of the land, you are to lift up a wave offering to God. 
+From the first of your dough you are to lift up a cake as a wave offering, in the same way the offering from the threshing floor is lifted up. 
+From the first of your dough you are to give God a wave offering through all your generations. 
+"'If you go wrong and don't do all these commands God gave Moses, 
+everything God commanded you through Moses, from the day God gave the command onward through all your generations, 
+then if it was done without meaning to and the community didn't know it, the whole community is to bring one young bull as a burnt offering, a soothing aroma to God, with its gift offering and drink offering, following the rule, and one male goat as an offering for wrongdoing. 
+The priest will make things right for the whole community of Israel, and they will be forgiven, because it was a mistake, and they have brought their offering, an offering made by fire to God, and their offering for wrongdoing before God, for their mistake. 
+The whole community of Israel will be forgiven, along with the foreigner living among them, because everyone did it without meaning to. 
+"'If one person drifts without meaning to, he is to bring a female goat a year old as an offering for wrongdoing. 
+The priest will make things right for the person who went wrong without meaning to before God. He will make things right for him, and he will be forgiven. 
+You are to have one law for the one who acts without meaning to, whether he is born among the Israelites or is a foreigner living among them. 
+"'But anyone who acts defiantly, whether born in the land or a foreigner, is speaking badly of God, and that person is to be cut off from his people, 
+because he has treated God's word with contempt and broken his command. That person is to be cut off completely, and his guilt stays on him.'" 
+While the Israelites were in the wilderness, they found a man gathering sticks on the Sabbath. 
+Those who found him gathering sticks brought him to Moses, Aaron and the whole community. 
+They held him in custody, because it hadn't been said what should be done to him. 
+God said to Moses, "The man must be put to death. The whole community is to stone him outside the camp." 
+The whole community took him outside the camp and stoned him to death, just as God commanded Moses. 
+God spoke to Moses: 
+"Speak to the Israelites and tell them to make tassels on the corners of their garments through all their generations, and to put a blue cord on the tassel at each corner. 
+It will be a tassel for you to look at, so you remember all God's commands and do them, and don't wander off after your own heart and your own eyes the way you used to go wandering, 
+so that you remember and do all my commands and are set apart to your God. 
+I am your God, who brought you out of Egypt to be your God. I am your God." 

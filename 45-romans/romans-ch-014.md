@@ -7,20 +7,20 @@ He who observes the day, observes it to the Lord; and he who doesn't observe the
 None of us lives for himself, and none dies for himself. 
 If we live, we live for the Lord. Or if we die, we die for the Lord. If we live or die, we're the Lord's. 
 To this end Christ died, rose, and lived again, so that he'd be Lord of both the dead and the living. 
-But you, why do you judge your brother? Or you again, why do you despise your brother? We'll all stand before the judge's seat of Christ. 
+But you, why do you pass a verdict on your brother? Or why do you despise your brother? We'll all stand before the judgement seat of Christ. 
 It's written, "'As I live,' says the Lord, 'to me every knee will bow. Every tongue will confess to God.'" 
 So then each one of us will give account of himself to God. 
-So let's not judge one another any more, but decide this rather, that no one put a stumbling block in a brother's way, or a trap. 
+So let's not pass verdicts on one another any more, but decide this rather, that no one put a stumbling block in a brother's way, or a trap. 
 I know and am persuaded in the Lord Jesus that nothing is unclean of itself; except that to the one who considers anything to be unclean, to them it's unclean. 
-Yet if because of food your brother is grieved, you walk no longer in love. Don't ruin with your food the one for whom Christ died. 
-Then don't let your good be slandered, 
-for God's reign isn't eating and drinking, but rightness, wholeness, and joy in the Holy Spirit. 
+Yet if your food causes your brother to be upset, you walk no longer in love. Don't ruin with your food the one for whom Christ died. 
+Don't let your good be slandered, 
+for God's reign isn't about eating and drinking, but rightness, wholeness, and joy in the Holy Spirit. 
 He who serves Christ in these things is acceptable to God and approved by people. 
-So then, let's pursue what makes for wholeness, and what builds one another up. 
+So then, let's pursue what brings wholeness, and what builds one another up. 
 Don't overthrow God's work for food's sake. All things indeed are clean, however it's bad for that person who creates a stumbling block by eating. 
 It's good to not eat meat, drink wine, nor do anything by which your brother stumbles, is trapped, or is made weak. 
-Do you have trust? Have it to yourself before God. Flourishing is the one who doesn't judge themselves in that which they approve. 
+Do you have trust? Have it to yourself before God. Flourishing is the one who doesn't pass a verdict on themselves because of what they approve. 
 But the one who doubts is sentenced if they eat, because it isn't of trust; and whatever isn't of trust is the drift. 
-Now to him who's able to establish you according to my Good News and the announcing of Jesus Christ, according to the unveiling of the secret which has been kept secret through long ages, 
+Now to him who's able to establish you according to my Good News and the announcing of Jesus Christ, according to the unveiling of what has been kept secret through long ages, 
 but now is revealed, and by the Scriptures of the spokesmen, according to the commandment of the God of the eras, is made known for obedience of trust to all the nations; 
 to the only wise God, through Jesus Christ, to whom be the weight through all the eras! Amen. 

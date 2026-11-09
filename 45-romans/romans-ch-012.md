@@ -13,7 +13,7 @@ celebrating in expectation, enduring in hard times, continuing steadfastly in pr
 meeting the needs of the set-apart ones, and inclined to hospitality. 
 Bless those who hunt you down; bless, and don't curse. 
 Celebrate with those who celebrate. Weep with those who weep. 
-Be of the same mind one toward another. Don't set your mind on high things, but associate with the humble. Don't be wise in your own eyes. 
+Be of the same mind one toward another. Don't set your mind on high things, but associate with the humble. Don't think you know better. 
 Pay no one back with bad for bad. Respect what's honorable in the sight of everyone. 
 If it's possible, as much as it's up to you, keep wholeness with everyone. 
 Don't take payback into your own hands, truly loved, but leave room for God's heat. It's written, "Payback belongs to me; I'll repay, says the Lord." 

@@ -1,35 +1,35 @@
-﻿The Canaanite, the king of Arad, who lived in the South, heard that Israel came by the way of Atharim. He fought against Israel, and took some of them captive. 
-Israel vowed a vow to God, and said, "If you'll indeed deliver this people into my hand, then I'll utterly destroy their cities." 
-God listened to the voice of Israel, and delivered up the Canaanites; and they utterly destroyed them and their cities. The name of the place was called Hormah. 
-They traveled from Mount Hor by the way to the Red Sea, to go around the land of Edom. The soul of the people was very discouraged because of the journey. 
-The people spoke against God and against Moses: "Why have you brought us up out of Egypt to die in the wilderness? There's no bread, there's no water, and our soul loathes this disgusting food!" 
-God sent venomous snakes among the people, and they bit the people. Many people of Israel died. 
-The people came to Moses, and said, "We have drifted, because we have spoken against God and against you. Pray to God, that he take away the serpents from us." Moses prayed for the people. 
-God said to Moses, "Make a venomous snake, and set it on a pole. It will happen that everyone who's bitten, when he sees it, will live." 
-Moses made a serpent of bronze, and set it on the pole. If a serpent had bitten any man, when he looked at the serpent of bronze, he lived. 
-The children of Israel traveled, and encamped in Oboth. 
-They traveled from Oboth, and encamped at Iyeabarim, in the wilderness which is before Moab, toward the sunrise. 
-From there they traveled, and encamped in the valley of Zered. 
-From there they traveled, and encamped on the other side of the Arnon, which is in the wilderness that comes out of the border of the Amorites; for the Arnon is the border of Moab, between Moab and the Amorites. 
-So it's said in The Book of the Wars of God, "Vaheb in Suphah, the valleys of the Arnon, 
-the slope of the valleys that incline toward the dwelling of Ar, leans on the border of Moab." 
-From there they traveled to Beer; that's the well of which God said to Moses, "Gather the people together, and I'll give them water." 
-Then Israel sang this song: "Spring up, well! Sing to it, 
-the well, which the princes dug, which the nobles of the people dug, with the scepter, and with their poles." From the wilderness they traveled to Mattanah; 
-and from Mattanah to Nahaliel; and from Nahaliel to Bamoth; 
-and from Bamoth to the valley that's in the field of Moab, to the top of Pisgah, which looks down on the desert. 
-Israel sent messengers to Sihon king of the Amorites, saying, 
-"Let me pass through your land. We won't turn away into field or vineyard. We won't drink of the water of the wells. We'll go by the king's highway, until we have passed your border." 
-Sihon wouldn't allow Israel to pass through his border, but Sihon gathered all his people together, and went out against Israel into the wilderness, and came to Jahaz. He fought against Israel. 
-Israel struck him with the edge of the sword, and possessed his land from the Arnon to the Jabbok, even to the children of Ammon; for the border of the children of Ammon was fortified. 
-Israel took all these cities. Israel lived in all the cities of the Amorites, in Heshbon, and in all its villages. 
-Heshbon was the city of Sihon the king of the Amorites, who had fought against the former king of Moab, and taken all his land out of his hand, even to the Arnon. 
-So those who speak in proverbs say, "Come to Heshbon. Let the city of Sihon be built and established; 
-for a fire has gone out of Heshbon, a flame from the city of Sihon. It has devoured Ar of Moab, The lords of the high places of the Arnon. 
-Woe to you, Moab! You're undone, people of Chemosh! He has given his sons as fugitives, and his daughters into captivity, to Sihon king of the Amorites. 
-We have shot at them. Heshbon has perished even to Dibon. We have laid waste even to Nophah, Which reaches to Medeba." 
-Thus Israel lived in the land of the Amorites. 
-Moses sent to spy out Jazer. They took its villages, and drove out the Amorites who were there. 
-They turned and went up by the way of Bashan. Og the king of Bashan went out against them, he and all his people, to battle at Edrei. 
-God said to Moses, "Don't fear him, for I have delivered him into your hand, with all his people, and his land. You will do to him as you did to Sihon king of the Amorites, who lived at Heshbon." 
-So they struck him, with his sons and all his people, until there were no survivors; and they possessed his land. 
+﻿The Canaanite king of Arad, who lived in the Negev, heard that Israel was coming along the Atharim road. He attacked Israel and took some of them captive. 
+Israel made a vow to God: "If you really give these people into my hand, I will completely destroy their cities." 
+God listened to Israel and gave them the Canaanites, and they completely destroyed them and their cities. That place was named Hormah. 
+They set out from Mount Hor by the way to the Red Sea, going around the land of Edom, and the people grew very discouraged on the road. 
+The people spoke against God and against Moses: "Why did you bring us up out of Egypt to die in the wilderness? There's no bread, there's no water, and we're sick of this miserable food." 
+God sent venomous snakes among the people, and they bit them, and many Israelites died. 
+The people came to Moses and said, "We have drifted, because we spoke against God and against you. Pray to God to take the snakes away from us." And Moses prayed for the people. 
+God said to Moses, "Make a venomous snake and put it on a pole, and everyone who is bitten and looks at it will live." 
+Moses made a bronze snake and put it on a pole, and when anyone was bitten by a snake and looked at the bronze snake, he lived. 
+The Israelites set out and camped at Oboth. 
+They set out from Oboth and camped at Iyeabarim, in the wilderness facing Moab toward the sunrise. 
+From there they set out and camped in the Zered valley. 
+From there they set out and camped on the other side of the Arnon, which is in the wilderness that comes out of Amorite territory, since the Arnon is the border between Moab and the Amorites. 
+That is why the Book of the Wars of God says, "Waheb in Suphah, and the valleys of the Arnon, 
+and the slopes of the valleys that run down to the settlement of Ar and lean against the border of Moab." 
+From there they went on to Beer. That is the well where God said to Moses, "Gather the people and I will give them water." 
+Then Israel sang this song: "Spring up, well! Sing to it! 
+The well the leaders dug, the nobles of the people dug with their scepters and their staffs." From the wilderness they went on to Mattanah, 
+and from Mattanah to Nahaliel, and from Nahaliel to Bamoth, 
+and from Bamoth to the valley in the Moab plateau, at the top of Pisgah, which looks out over the wasteland. 
+Israel sent messengers to Sihon king of the Amorites: 
+"Let us pass through your land. We won't turn off into fields or vineyards, and we won't drink water from your wells. We will stay on the king's road until we have passed your border." 
+But Sihon wouldn't let Israel pass through his territory. He gathered all his people, went out against Israel into the wilderness, and came to Jahaz and attacked Israel. 
+Israel struck him down with the sword and took his land from the Arnon to the Jabbok, as far as the Ammonites, because the Ammonite border was fortified. 
+Israel took all these cities and settled in all the Amorite cities, in Heshbon and all its villages. 
+Heshbon was the city of Sihon king of the Amorites, who had fought against the former king of Moab and taken all his land out of his hand as far as the Arnon. 
+That is why the poets say, "Come to Heshbon! Let the city of Sihon be built and made strong, 
+because fire came out of Heshbon, a flame from the city of Sihon. It burned up Ar of Moab, the lords of the high places of the Arnon. 
+Woe to you, Moab! You are ruined, people of Chemosh! He has given his sons up as refugees and his daughters into captivity to Sihon king of the Amorites. 
+We have shot at them. Heshbon is ruined as far as Dibon. We laid waste as far as Nophah, which reaches to Medeba." 
+So Israel settled in the land of the Amorites. 
+Moses sent men to scout out Jazer, and they captured its villages and drove out the Amorites living there. 
+Then they turned and went up by the way of Bashan, and Og king of Bashan came out against them with all his people for battle at Edrei. 
+God said to Moses, "Don't be afraid of him, because I have given him into your hand, with all his people and his land. Do to him what you did to Sihon king of the Amorites, who lived at Heshbon." 
+So they struck him down with his sons and all his people until no one was left, and they took possession of his land. 

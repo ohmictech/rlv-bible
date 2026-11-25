@@ -1,15 +1,15 @@
-﻿These are the inheritances which the children of Israel took in the land of Canaan, which Eleazar the priest, Joshua the son of Nun, and the heads of the fathers' houses of the tribes of the children of Israel, distributed to them, 
-by the lot of their inheritance, as God commanded by Moses, for the nine tribes, and for the half-tribe. 
-Moses had given the inheritance of the two tribes and the half-tribe beyond the Jordan; but to the Levites he gave no inheritance among them. 
-The children of Joseph were two tribes, Manasseh and Ephraim. They gave no portion to the Levites in the land, except cities to dwell in, with their pasture lands for their livestock and for their property. 
-The children of Israel did as God commanded Moses, and they divided the land. 
-Then the children of Judah came near to Joshua in Gilgal. Caleb the son of Jephunneh the Kenizzite said to him, "You know the thing that God spoke to Moses the man of God concerning me and concerning you in Kadesh Barnea. 
-I was forty years old when Moses the servant of God sent me from Kadesh Barnea to spy out the land. I brought him word again as it was in my heart. 
-Nevertheless, my brothers who went up with me made the heart of the people melt; but I wholly followed my God. 
-Moses swore on that day, saying, 'Surely the land where you walked will be an inheritance to you and to your children for the eras, because you have wholly followed my God.' 
-"Now, look, God has kept me alive, as he spoke, these forty-five years, from the time that God spoke this word to Moses, while Israel walked in the wilderness. Now, look, I'm eighty-five years old, today. 
-As yet I'm as strong today as I was in the day that Moses sent me. As my strength was then, even so is my strength now for war, to go out and to come in. 
-Now give me this hill country, of which God spoke in that day; for you heard in that day how the Anakim were there, and great and fortified cities. It may be that God will be with me, and I will drive them out, as God said." 
-Joshua blessed him; and he gave Hebron to Caleb the son of Jephunneh for an inheritance. 
-So Hebron became the inheritance of Caleb the son of Jephunneh the Kenizzite to this day, because he followed the God of Israel wholeheartedly. 
-Now the name of Hebron before was Kiriath Arba, after the greatest man among the Anakim. Then the land had rest from war. 
+﻿These are the inheritances the Israelites received in the land of Canaan, which Eleazar the priest, Joshua son of Nun and the heads of the families of the tribes of Israel divided among them 
+by casting lots, as God had commanded through Moses, for the nine tribes and the half tribe. 
+Moses had already given the inheritance of the two and a half tribes on the east side of the Jordan, but he gave the Levites no inheritance among them. 
+The descendants of Joseph were two tribes, Manasseh and Ephraim. The Levites were given no share of the land, only towns to live in, with pastureland around them for their livestock and their property. 
+The Israelites did as God had commanded Moses, and they divided the land. 
+Then the men of Judah came to Joshua at Gilgal, and Caleb son of Jephunneh the Kenizzite said to him, "You know what God said to Moses the man of God about me and about you at Kadesh Barnea. 
+I was forty years old when Moses the servant of God sent me from Kadesh Barnea to scout out the land, and I came back and told him what I honestly thought. 
+But my brothers who went up with me made the people lose heart. I, however, followed my God with my whole heart. 
+So Moses swore that day, 'The land your feet walked on will be an inheritance for you and your children for the eras, because you followed my God with your whole heart.' 
+Now look, God has kept me alive for these forty-five years since he said that to Moses, while Israel was walking in the wilderness, and now look, I am eighty-five years old today. 
+I am still as strong today as I was the day Moses sent me. My strength is the same now as it was then, whether for war or for going out and coming in. 
+So give me this hill country that God spoke about that day. You heard then that the Anakim were there, with great walled cities. Perhaps God will be with me and I will drive them out, as God said." 
+Joshua blessed him and gave Hebron to Caleb son of Jephunneh as his inheritance. 
+So Hebron has belonged to Caleb son of Jephunneh the Kenizzite ever since, because he followed the God of Israel with his whole heart. 
+Hebron used to be called Kiriath Arba, after the greatest man among the Anakim. Then the land had rest from war. 

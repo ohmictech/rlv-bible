@@ -1,33 +1,33 @@
-﻿Now Joshua was old and well advanced in years. God said to him, "You're old and advanced in years, and there remains yet very much land to be possessed. 
-"This is the land that still remains: all the regions of the Philistines, and all the Geshurites; 
-from the Shihor, which is before Egypt, even to the border of Ekron northward, which is counted as Canaanite; the five lords of the Philistines; the Gazites, and the Ashdodites, the Ashkelonites, the Gittites, and the Ekronites; also the Avvim, 
-on the south; all the land of the Canaanites, and Mearah that belongs to the Sidonians, to Aphek, to the border of the Amorites; 
-and the land of the Gebalites, and all Lebanon, toward the sunrise, from Baal Gad under Mount Hermon to the entrance of Hamath; 
-all the inhabitants of the hill country from Lebanon to Misrephoth Maim, even all the Sidonians. I'll drive them out from before the children of Israel. Just allocate it to Israel for an inheritance, as I have commanded you. 
-Now divide this land for an inheritance to the nine tribes and the half-tribe of Manasseh." 
-With him the Reubenites and the Gadites received their inheritance, which Moses gave them, beyond the Jordan eastward, even as Moses the servant of God gave them: 
-from Aroer, that's on the edge of the valley of the Arnon, and the city that's in the middle of the valley, and all the plain of Medeba to Dibon; 
-and all the cities of Sihon king of the Amorites, who reigned in Heshbon, to the border of the children of Ammon; 
-and Gilead, and the border of the Geshurites and Maacathites, and all Mount Hermon, and all Bashan to Salecah; 
-all the kingdom of Og in Bashan, who reigned in Ashtaroth and in Edrei (who was left of the remnant of the Rephaim); for Moses attacked these, and drove them out. 
-Nevertheless the children of Israel didn't drive out the Geshurites, nor the Maacathites: but Geshur and Maacath live within Israel to this day. 
-Only he gave no inheritance to the tribe of Levi. The offerings of the God of Israel made by fire are his inheritance, as he spoke to him. 
-Moses gave to the tribe of the children of Reuben according to their families. 
-Their border was from Aroer, that's on the edge of the valley of the Arnon, and the city that's in the middle of the valley, and all the plain by Medeba; 
-Heshbon, and all its cities that are in the plain; Dibon, Bamoth Baal, Beth Baal Meon, 
+﻿Joshua was old and well on in years. God said to him, "You are old and well on in years, and there is still a great deal of land left to take. 
+"This is the land that still remains: all the regions of the Philistines and all the Geshurites, 
+from the Shihor, which is east of Egypt, all the way to the border of Ekron in the north, which is counted as Canaanite territory, the five lords of the Philistines, the Gazites, Ashdodites, Ashkelonites, Gittites and Ekronites, and also the Avvim, 
+in the south, all the land of the Canaanites, and Mearah, which belongs to the Sidonians, as far as Aphek and the border of the Amorites, 
+and the land of the Gebalites, and all Lebanon toward the sunrise, from Baal Gad below Mount Hermon to the entrance of Hamath, 
+all the people living in the hill country from Lebanon to Misrephoth Maim, all the Sidonians. I will drive them out ahead of the Israelites. Just divide the land among Israel as an inheritance, as I have commanded you. 
+Now divide this land as an inheritance for the nine tribes and the half tribe of Manasseh." 
+With the other two tribes, the Reubenites and the Gadites had already received their inheritance, which Moses gave them on the east side of the Jordan, as Moses the servant of God gave it: 
+from Aroer on the edge of the Arnon valley, and the city in the middle of the valley, and all the plateau of Medeba as far as Dibon, 
+and all the cities of Sihon king of the Amorites, who ruled in Heshbon, as far as the border of the Ammonites, 
+and Gilead, and the border of the Geshurites and Maacathites, and all Mount Hermon, and all Bashan as far as Salecah, 
+the whole kingdom of Og in Bashan, who ruled in Ashtaroth and Edrei, who was one of the last of the Rephaim; Moses had defeated them and driven them out. 
+But the Israelites didn't drive out the Geshurites or the Maacathites, so Geshur and Maacath live among Israel to this day. 
+To the tribe of Levi, however, Moses gave no inheritance. The offerings made by fire to the God of Israel are their inheritance, as he told him. 
+Moses gave land to the tribe of Reuben, clan by clan. 
+Their territory ran from Aroer on the edge of the Arnon valley, and the city in the middle of the valley, and all the plateau by Medeba: 
+Heshbon and all its towns on the plateau, Dibon, Bamoth Baal, Beth Baal Meon, 
 Jahaz, Kedemoth, Mephaath, 
-Kiriathaim, Sibmah, Zereth Shahar in the mount of the valley, 
+Kiriathaim, Sibmah, Zereth Shahar on the hill in the valley, 
 Beth Peor, the slopes of Pisgah, Beth Jeshimoth, 
-all the cities of the plain, and all the kingdom of Sihon king of the Amorites, who reigned in Heshbon, whom Moses struck with the chiefs of Midian, Evi, Rekem, Zur, Hur, and Reba, the princes of Sihon, who lived in the land. 
-The children of Israel also killed Balaam the son of Beor, the soothsayer, with the sword, among the rest of their slain. 
-The border of the children of Reuben was the bank of the Jordan. This was the inheritance of the children of Reuben according to their families, the cities and its villages. 
-Moses gave to the tribe of Gad, to the children of Gad, according to their families. 
-Their border was Jazer, and all the cities of Gilead, and half the land of the children of Ammon, to Aroer that's near Rabbah; 
-and from Heshbon to Ramath Mizpeh, and Betonim; and from Mahanaim to the border of Debir; 
-and in the valley, Beth Haram, Beth Nimrah, Succoth, and Zaphon, the rest of the kingdom of Sihon king of Heshbon, the Jordan's bank, to the uttermost part of the sea of Chinnereth beyond the Jordan eastward. 
-This is the inheritance of the children of Gad according to their families, the cities and its villages. 
-Moses gave an inheritance to the half-tribe of Manasseh. It was for the half-tribe of the children of Manasseh according to their families. 
-Their border was from Mahanaim, all Bashan, all the kingdom of Og king of Bashan, and all the villages of Jair, which are in Bashan, sixty cities. 
-Half Gilead, Ashtaroth, and Edrei, the cities of the kingdom of Og in Bashan, were for the children of Machir the son of Manasseh, even for the half of the children of Machir according to their families. 
-These are the inheritances which Moses distributed in the plains of Moab, beyond the Jordan at Jericho, eastward. 
-But Moses gave no inheritance to the tribe of Levi. The God of Israel is their inheritance, as he spoke to them. 
+and all the towns of the plateau, and the whole kingdom of Sihon king of the Amorites, who ruled in Heshbon, whom Moses defeated along with the chiefs of Midian, Evi, Rekem, Zur, Hur and Reba, the leaders under Sihon, who lived in the land. 
+The Israelites also killed Balaam son of Beor, the fortune teller, with the sword, along with the rest of those they killed. 
+The border of the Reubenites was the bank of the Jordan. This was the inheritance of the Reubenites clan by clan, the towns and their villages. 
+Moses gave land to the tribe of Gad, the Gadites, clan by clan. 
+Their territory was Jazer and all the towns of Gilead, and half the land of the Ammonites as far as Aroer near Rabbah, 
+and from Heshbon to Ramath Mizpeh and Betonim, and from Mahanaim to the border of Debir, 
+and in the valley, Beth Haram, Beth Nimrah, Succoth and Zaphon, the rest of the kingdom of Sihon king of Heshbon, with the Jordan as its bank, as far as the far end of the sea of Chinnereth on the east side of the Jordan. 
+This is the inheritance of the Gadites clan by clan, the towns and their villages. 
+Moses also gave an inheritance to the half tribe of Manasseh. It went to the half of the Manassites clan by clan. 
+Their territory was from Mahanaim, all Bashan, the whole kingdom of Og king of Bashan, and all the villages of Jair in Bashan, sixty towns, 
+and half of Gilead, and Ashtaroth and Edrei, the cities of the kingdom of Og in Bashan. These went to the descendants of Machir son of Manasseh, to half of the Machirites, clan by clan. 
+These are the inheritances Moses handed out in the plains of Moab, east of the Jordan across from Jericho. 
+But Moses gave no inheritance to the tribe of Levi. The God of Israel is their inheritance, as he told them. 

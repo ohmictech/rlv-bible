@@ -1,18 +1,18 @@
-﻿If a spokesman or a dreamer of dreams arises among you, and he gives you a sign or a wonder, 
-and the sign or the wonder comes to pass, of which he spoke to you, saying, "Let's go after other gods" (which you haven't known) "and let's serve them," 
-you won't listen to the words of that spokesman, or to that dreamer of dreams; for your God is testing you, to know whether you love your God with all your heart and with all your soul. 
-You will walk after your God, fear him, keep his commandments, and obey his voice. You will serve him, and cling to him. 
-That spokesman, or that dreamer of dreams, will be put to death, because he has spoken rebellion against your God, who brought you out of the land of Egypt and bought back you out of the house of bondage, to draw you aside out of the way which your God commanded you to walk in. So you will remove the bad from among you. 
-If your brother, the son of your mother, or your son, or your daughter, or the wife of your bosom, or your friend who's as your own soul, entices you secretly, saying, "Let's go and serve other gods", which you haven't known, you, nor your fathers; 
-of the gods of the peoples who are around you, near to you, or far off from you, from the one end of the earth even to the other end of the earth 
-you won't consent to him nor listen to him; neither will your eye pity him, neither will you spare, neither will you conceal him; 
-but you will surely kill him. Your hand will be first on him to put him to death, and afterwards the hands of everyone. 
-You will stone him to death with stones, because he has sought to draw you away from your God, who brought you out of the land of Egypt, out of the house of bondage. 
-All Israel will hear, and fear, and won't do any more guilt like this among you. 
-If you hear about one of your cities, which your God gives you to dwell there, that 
-certain guilty fellows have gone out from among you and have drawn away the inhabitants of their city, saying, "Let's go and serve other gods," which you haven't known, 
-then you will inquire, investigate, and ask diligently. Look, if it's true, and the thing certain, that such abomination was done among you, 
-you will surely strike the inhabitants of that city with the edge of the sword, destroying it utterly, with all that's therein and its livestock, with the edge of the sword. 
-You will gather all its plunder into the middle of its street, and will burn with fire the city, with all of its plunder, to your God. It will be a heap for the eras. It won't be built again. 
-Nothing of the devoted thing will cling to your hand, that God may turn from the fierceness of his anger and show you mercy, and have compassion on you and multiply you, as he has sworn to your fathers, 
-when you listen to your God's voice, to keep all his commandments which I command you today, to do that which is right in your God's eyes. 
+﻿"If a prophet or someone who dreams dreams appears among you and gives you a sign or a wonder, 
+and the sign or wonder happens, the one he told you about, and he says, 'Let's go after other gods,' gods you have never known, 'and let's serve them,' 
+don't listen to that prophet or that dreamer. Your God is testing you, to find out whether you love your God with all your heart and all your life. 
+Follow your God and fear him. Keep his commands and obey his voice. Serve him and hold on to him. 
+That prophet or that dreamer must be put to death, because he has spoken rebellion against your God, who brought you out of Egypt and bought you back out of the house of slavery, to pull you off the road your God commanded you to walk on. So get rid of the evil among you. 
+If your brother, your own mother's son, or your son or daughter, or the wife you love, or your closest friend quietly persuades you, saying, 'Let's go and serve other gods,' gods neither you nor your fathers have known, 
+from among the peoples around you, near or far, from one end of the earth to the other, 
+don't agree with him or listen to him. Don't look on him with pity, don't spare him and don't cover for him. 
+You must certainly kill him. Your own hand must be the first on him to put him to death, and then the hands of everyone else. 
+Stone him to death, because he tried to pull you away from your God, who brought you out of Egypt, out of the house of slavery. 
+All Israel will hear about it and be afraid, and no one will ever do such an evil thing among you again. 
+If you hear it said about one of the cities your God is giving you to live in 
+that some worthless men have gone out from among you and have led the people of their city away, saying, 'Let's go and serve other gods,' gods you have never known, 
+then you must ask questions and investigate and check carefully. And if it's true and certain that this disgusting thing has been done among you, 
+you must certainly put the people of that city to the sword, destroying it completely, everything in it and its livestock, with the sword. 
+Gather all its plunder into the middle of the street and burn the city and all its plunder completely with fire to your God. It will be a pile of ruins for the eras, never to be built again. 
+Nothing that was given over to destruction may stick to your hand, so that God may turn from his fierce anger and show you mercy and have compassion on you and multiply you, as he swore to your fathers, 
+because you listened to the voice of your God and kept all his commands that I am giving you today, doing what is right in the eyes of your God. 

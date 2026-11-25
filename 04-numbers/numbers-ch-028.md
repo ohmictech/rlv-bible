@@ -1,31 +1,31 @@
-﻿God spoke to Moses, saying, 
-"Command the children of Israel, and tell them, 'See that you present my offering, my food for my offerings made by fire, as a pleasant aroma to me, in their due season.' 
-You will tell them, 'This is the offering made by fire which you will offer to God: male lambs a year old without defect, two day by day, for a continual burnt offering. 
-You will offer the one lamb in the morning, and you will offer the other lamb at evening, 
-with one tenth of an ephah of fine flour for a meal offering, mixed with the fourth part of a hin of beaten oil. 
-It's a continual burnt offering which was ordained in Mount Sinai for a pleasant aroma, an offering made by fire to God. 
-Its drink offering will be the fourth part of a hin for each lamb. You will pour out a drink offering of strong drink to God in the holy place. 
-The other lamb you will offer at evening. As the meal offering of the morning, and as its drink offering, you will offer it, an offering made by fire, for a pleasant aroma to God. 
-"'On the Sabbath day, you will offer two male lambs a year old without defect, and two tenths of an ephah of fine flour for a meal offering mixed with oil, and its drink offering: 
-this is the burnt offering of every Sabbath, in addition to the continual burnt offering and its drink offering. 
-"'In the beginnings of your months, you will offer a burnt offering to God: two young bulls, one ram, seven male lambs a year old without defect, 
-and three tenths of an ephah of fine flour for a meal offering mixed with oil, for each bull; and two tenth parts of fine flour for a meal offering mixed with oil, for the one ram; 
-and one tenth part of fine flour mixed with oil for a meal offering to every lamb, as a burnt offering of a pleasant aroma, an offering made by fire to God. 
-Their drink offerings will be half a hin of wine for a bull, the third part of a hin for the ram, and the fourth part of a hin for a lamb. This is the burnt offering of every month throughout the months of the year. 
-Also, one male goat for an offering for wrongdoing to God will be offered in addition to the continual burnt offering and its drink offering. 
-"'In the first month, on the fourteenth day of the month, is God's Passover. 
-On the fifteenth day of this month will be a feast. Unleavened bread will be eaten for seven days. 
-In the first day will be a holy convocation. You will do no regular work, 
-but you will offer an offering made by fire, a burnt offering to God: two young bulls, one ram, and seven male lambs a year old. They will be without defect, 
-with their meal offering, fine flour mixed with oil. You will offer three tenths for a bull, and two tenths for the ram. 
-You will offer one tenth for every lamb of the seven lambs; 
-and one male goat for an offering for wrongdoing, to make things right for you. 
-You will offer these in addition to the burnt offering of the morning, which is for a continual burnt offering. 
-In this way you will offer daily, for seven days, the food of the offering made by fire, of a pleasant aroma to God. It will be offered in addition to the continual burnt offering and its drink offering. 
-On the seventh day you will have a holy convocation. You will do no regular work. 
-"'Also in the day of the first fruits, when you offer a new meal offering to God in your feast of weeks, you will have a holy convocation. You will do no regular work; 
-but you will offer a burnt offering for a pleasant aroma to God: two young bulls, one ram, seven male lambs a year old; 
-and their meal offering, fine flour mixed with oil, three tenths for each bull, two tenths for the one ram, 
-one tenth for every lamb of the seven lambs; 
-and one male goat, to make things right for you. 
-Besides the continual burnt offering and its meal offering, you will offer them and their drink offerings. See that they're without defect. 
+﻿God spoke to Moses: 
+"Command the Israelites and tell them, 'Be careful to bring my offering at the right time, my food for my offerings made by fire, a soothing aroma to me.' 
+Tell them, 'This is the offering made by fire you are to bring to God: two male lambs a year old without defect, every day, as the regular burnt offering. 
+Bring one lamb in the morning and the other at dusk, 
+with a gift offering of a tenth of an ephah of fine flour mixed with a quarter of a hin of pressed oil. 
+It is the regular burnt offering, first set up at Mount Sinai, a soothing aroma, an offering made by fire to God. 
+Its drink offering is to be a quarter of a hin for each lamb, poured out in the Holy Place as a drink offering of strong drink to God. 
+Bring the other lamb at dusk, with the same gift offering and drink offering as in the morning, an offering made by fire, a soothing aroma to God. 
+"'On the Sabbath day bring two male lambs a year old without defect, with two tenths of an ephah of fine flour mixed with oil as a gift offering, and its drink offering. 
+This is the Sabbath burnt offering, in addition to the regular burnt offering and its drink offering. 
+"'At the beginning of each month bring a burnt offering to God: two young bulls, one ram and seven male lambs a year old without defect, 
+with three tenths of an ephah of fine flour mixed with oil as a gift offering for each bull, two tenths for the ram, 
+and a tenth for each lamb, as a burnt offering, a soothing aroma, an offering made by fire to God. 
+Their drink offerings are to be half a hin of wine for a bull, a third of a hin for the ram and a quarter of a hin for a lamb. This is the monthly burnt offering for each month of the year. 
+Also bring one male goat as an offering for wrongdoing to God, in addition to the regular burnt offering and its drink offering. 
+"'On the fourteenth day of the first month is God's Passover. 
+On the fifteenth day of this month is a feast. Bread made without yeast is to be eaten for seven days. 
+On the first day there is to be a set apart gathering, and you are to do no regular work, 
+but bring an offering made by fire, a burnt offering to God: two young bulls, one ram and seven male lambs a year old, all without defect, 
+with their gift offering of fine flour mixed with oil: three tenths for a bull and two tenths for the ram, 
+and a tenth for each of the seven lambs, 
+and one male goat as an offering for wrongdoing, to make things right for you. 
+Bring these in addition to the morning burnt offering, which is the regular burnt offering. 
+Do this every day for seven days: the food of an offering made by fire, a soothing aroma to God, offered in addition to the regular burnt offering and its drink offering. 
+On the seventh day you are to have a set apart gathering and do no regular work. 
+"'On the day of firstfruits, when you bring a new gift offering to God at your Feast of Weeks, you are to have a set apart gathering and do no regular work, 
+but bring a burnt offering, a soothing aroma to God: two young bulls, one ram and seven male lambs a year old, 
+with their gift offering of fine flour mixed with oil: three tenths for each bull and two tenths for the ram, 
+and a tenth for each of the seven lambs, 
+and one male goat to make things right for you. 
+Bring them with their drink offerings, in addition to the regular burnt offering and its gift offering. Make sure they are without defect. 

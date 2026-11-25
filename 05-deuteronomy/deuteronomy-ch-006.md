@@ -1,25 +1,25 @@
-﻿Now these are the commandments, the statutes, and the ordinances, which your God commanded to teach you, that you might do them in the land that you go over to possess; 
-that you might fear your God, to keep all his statutes and his commandments, which I command you, you, your son, and your son's son, all the days of your life; and that your days may be prolonged. 
-Hear, Israel, and observe to do it, that it might be well with you, and that you can increase mightily, as the God of your fathers has promised to you, in a land flowing with milk and honey. 
+﻿"Now these are the commands, the rules and the decisions your God told me to teach you, so you can do them in the land you are crossing into to take as your own, 
+so that you and your son and your grandson will fear your God all your lives by keeping all his rules and commands that I am giving you, and so that you may live long. 
+Hear, Israel, and be careful to do this, so that things go well for you and you grow strong, just as the God of your fathers promised you, in a land flowing with milk and honey. 
 Hear, Israel: God is our God. God is one. 
-You will love your God with all your heart, with all your soul, and with all your might. 
-These words, which I command you today, will be on your heart; 
-and you will teach them diligently to your children, and will talk of them when you sit in your house, and when you walk by the way, and when you lie down, and when you rise up. 
-You will bind them for a sign on your hand, and they will be for frontlets between your eyes. 
-You will write them on the door posts of your house and on your gates. 
-It will be, when your God brings you into the land which he swore to your fathers, to Abraham, to Isaac, and to Jacob, to give you, a land with great and good cities which you didn't build, 
-and houses full of all good things which you didn't fill, and cisterns dug out which you didn't dig, vineyards and olive trees which you didn't plant, and you will eat and be full; 
-then beware lest you forget God, who brought you out of the land of Egypt, out of the house of bondage. 
-You will fear your God; and you will serve him, and will swear by his name. 
-Don't go after other gods, of the gods of the peoples who are around you, 
-for your God among you is a jealous God, lest the anger of your God be kindled against you, and he destroy you from off the face of the earth. 
-Don't tempt your God, as you tempted him in Massah. 
-You will diligently keep the commandments of your God, and his testimonies, and his statutes, which he has commanded you. 
-You will do that which is right and good in God's sight, that it might be well with you and that you can go in and possess the good land which God swore to your fathers, 
-to thrust out all your enemies from before you, as God has spoken. 
-When your son asks you in time to come, saying, "What do the testimonies, the statutes, and the ordinances, which our God has commanded you mean?" 
-then you will tell your son, "We were Pharaoh's slaves in Egypt. God brought us out of Egypt with a mighty hand; 
-and God showed great and awesome signs and wonders on Egypt, on Pharaoh, and on all his house, before our eyes; 
-and he brought us out from there, that he might bring us in, to give us the land which he swore to our fathers. 
-God commanded us to do all these statutes, to fear our God, for our good always, that he might preserve us alive, as we're today. 
-It will be righteousness to us, if we observe to do all these commandments before our God, as he has commanded us." 
+Love your God with all your heart, with all your life and with all your strength. 
+These words I am giving you today are to be on your heart. 
+Teach them carefully to your children. Talk about them when you sit at home and when you walk along the road, when you lie down and when you get up. 
+Tie them on your hand as a sign, and put them on your forehead between your eyes. 
+Write them on the doorposts of your house and on your gates. 
+"When your God brings you into the land he swore to your fathers, to Abraham, Isaac and Jacob, to give you, a land with great and good towns you didn't build, 
+houses full of good things you didn't fill, cisterns already dug that you didn't dig, vineyards and olive trees you didn't plant, and you eat and are full, 
+then be careful not to forget God, who brought you out of Egypt, out of the house of slavery. 
+Fear your God, serve him, and swear by his name. 
+Don't go after other gods, the gods of the peoples around you, 
+because your God among you is a jealous God, and the anger of your God may burn against you and wipe you off the face of the earth. 
+Don't test your God the way you tested him at Massah. 
+Be careful to keep the commands of your God, and his rules and his decisions that he has given you. 
+Do what is right and good in God's sight, so that things go well for you and you can go in and take the good land God swore to your fathers, 
+driving out all your enemies ahead of you, just as God said. 
+"When your son asks you later, 'What do all these rules and decisions our God commanded you mean?' 
+tell your son, 'We were Pharaoh's slaves in Egypt, and God brought us out of Egypt with a strong hand. 
+God did great and fearful signs and wonders against Egypt, against Pharaoh and all his household, right in front of us. 
+He brought us out of there to bring us in, to give us the land he swore to our fathers. 
+God commanded us to do all these rules and to fear our God, for our good always, to keep us alive as we are today. 
+And it will be counted to us as right if we are careful to do all these commands before our God, just as he commanded us.'" 

@@ -1,21 +1,21 @@
-﻿When your God cuts off the nations whose land your God gives you, and you succeed them and dwell in their cities and in their houses, 
-you will set apart three cities for yourselves in the middle of your land, which your God gives you to possess. 
-You will prepare the way, and divide the borders of your land which your God causes you to inherit into three parts, that every man slayer may flee there. 
-This is the case of the man slayer who will flee there and live: Whoever kills his neighbor unintentionally, and didn't hate him in time past 
-as when a man goes into the forest with his neighbor to chop wood and his hand swings the ax to cut down the tree, and the head slips from the handle and hits his neighbor so that he dies, he will flee to one of these cities and live. 
-Otherwise, the avenger of blood might pursue the man slayer while hot anger is in his heart and overtake him, because the way is long, and strike him mortally, even though he wasn't worthy of death, because he didn't hate him in time past. 
-So I command you to set apart three cities for yourselves. 
-If your God enlarges your border, as he has sworn to your fathers, and gives you all the land which he promised to give to your fathers; 
-and if you keep all this commandment to do it, which I command you today, to love your God, and to walk ever in his ways, then you will add three cities more for yourselves, in addition to these three. 
-This is so that innocent blood won't be shed in the middle of your land which your God gives you for an inheritance, leaving blood guilt on you. 
-But if any man hates his neighbor, lies in wait for him, rises up against him, strikes him mortally so that he dies, and he flees into one of these cities; 
-then the elders of his city will send and bring him there, and deliver him into the hand of the avenger of blood, that he can die. 
-Your eye won't pity him, but you will purge the innocent blood from Israel that it may go well with you. 
-Don't remove your neighbor's landmark, which they of old time have set, in your inheritance which you will inherit, in the land that your God gives you to possess. 
-One witness won't rise up against a man for any guilt, or for any wrong that someone does. At the mouth of two witnesses, or at the mouth of three witnesses, will a matter be established. 
-If an unrighteous witness rises up against any man to testify against him of wrongdoing, 
-then both the men, between whom the controversy is, will stand before God, before the priests and the judges who will be in those days; 
-and the judges will make diligent inquisition; and look, if the witness is a false witness, and has testified falsely against his brother, 
-then you will do to him as he had thought to do to his brother. So you will remove the bad from among you. 
-Those who remain will hear, and fear, and will never again commit any such bad among you. 
-Your eyes won't pity: life for life, eye for eye, tooth for tooth, hand for hand, foot for foot. 
+﻿"When your God cuts off the nations whose land your God is giving you, and you take their place and live in their cities and their houses, 
+set apart three cities for yourselves in the middle of the land your God is giving you to take. 
+Prepare the roads, and divide the land your God is giving you as an inheritance into three parts, so that anyone who has killed someone can run there. 
+This is the case of the killer who runs there and lives: someone who kills his neighbor by accident and never hated him before, 
+as when a man goes into the forest with his neighbor to cut wood, and his hand swings the ax to cut down the tree, and the blade slips off the handle and hits his neighbor so that he dies. He may run to one of these cities and live. 
+Otherwise the avenger of blood might chase the killer while his anger is hot and catch him, because the road is long, and strike him dead, even though he doesn't deserve to die, because he never hated him before. 
+That is why I command you to set apart three cities for yourselves. 
+If your God widens your borders, as he swore to your fathers, and gives you all the land he promised to give your fathers, 
+and if you keep all this command and do it, which I am giving you today, loving your God and always walking in his ways, then add three more cities to these three. 
+This is so that innocent blood won't be spilled in the middle of the land your God is giving you as an inheritance, and so that the guilt of blood won't be on you. 
+But if a man hates his neighbor and lies in wait for him and attacks him and strikes him so that he dies, and then runs to one of these cities, 
+the elders of his city must send men to bring him back and hand him over to the avenger of blood, and he must die. 
+Don't look on him with pity. You must clear the innocent blood out of Israel, so that things go well for you. 
+Don't move your neighbor's boundary stone that the men of old set up, in your inheritance in the land your God is giving you to take. 
+One witness is not enough to convict anyone of any crime or any wrong they have done. A matter is settled on the testimony of two or three witnesses. 
+If a dishonest witness stands up against someone to accuse him of wrongdoing, 
+then both men involved in the dispute are to stand before God, before the priests and the judges in office at that time, 
+and the judges must look into it carefully. If the witness turns out to be lying and has given false testimony against his brother, 
+then do to him exactly what he intended to do to his brother. So get rid of the evil among you. 
+Everyone else will hear and be afraid, and no one will ever do such an evil thing among you again. 
+Don't show pity: a life for a life, an eye for an eye, a tooth for a tooth, a hand for a hand, a foot for a foot. 

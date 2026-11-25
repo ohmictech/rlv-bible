@@ -1,20 +1,20 @@
-﻿When you go out to battle against your enemies, and see horses, chariots, and a people more numerous than you, you won't be afraid of them; for your God, who brought you up out of the land of Egypt, is with you. 
-It will be, when you draw near to the battle, that the priest will approach and speak to the people, 
-and will tell them, "Hear, Israel, you draw near today to battle against your enemies. Don't let your heart faint! Don't be afraid, nor tremble, neither be scared of them; 
-for your God is he who goes with you, to fight for you against your enemies, to save you." 
-The officers will speak to the people, saying, "What man is there who has built a new house, and hasn't dedicated it? Let him go and return to his house, lest he die in the battle, and another man dedicate it. 
-What man is there who has planted a vineyard, and hasn't used its fruit? Let him go and return to his house, lest he die in the battle, and another man use its fruit. 
-What man is there who has pledged to be married to a wife, and hasn't taken her? Let him go and return to his house, lest he die in the battle, and another man take her." 
-The officers will speak further to the people, and they will say, "What man is there who's fearful and faint-hearted? Let him go and return to his house, lest his brother's heart melt as his heart." 
-It will be, when the officers have finished speaking to the people, that they will appoint captains of armies at the head of the people. 
-When you draw near to a city to fight against it, then proclaim peace to it. 
-It will be, if it gives you answer of peace and opens to you, then it will be that everyone who's found therein will become forced laborers to you, and will serve you. 
-If it'll make no peace with you, but will make war against you, then you will besiege it. 
-When your God delivers it into your hand, you will strike every male of it with the edge of the sword; 
-but the women, the little ones, the livestock, and all that's in the city, even all its plunder, you will take for plunder for yourself. You can use the plunder of your enemies, which your God has given you. 
-Thus you will do to all the cities which are very far off from you, which aren't of the cities of these nations. 
-But of the cities of these peoples that your God gives you for an inheritance, you will save alive nothing that breathes; 
-but you will utterly destroy them: the Hittite, the Amorite, the Canaanite, the Perizzite, the Hivite, and the Jebusite, as your God has commanded you; 
-that they not teach you to follow all their abominations, which they have done for their gods; so would you wrong your God. 
-When you will besiege a city a long time, in making war against it to take it, you won't destroy its trees by wielding an ax against them; for you can eat of them. You won't cut them down, for is the tree of the field man, that it should be besieged by you? 
-Only the trees that you know aren't trees for food, you will destroy and cut them down. You will build bulwarks against the city that makes war with you, until it falls. 
+﻿"When you go out to fight your enemies and you see horses and chariots and an army larger than yours, don't be afraid of them, because your God, who brought you up out of Egypt, is with you. 
+When you are about to go into battle, the priest will come forward and speak to the people 
+and say to them, 'Hear, Israel. Today you are going into battle against your enemies. Don't lose heart. Don't be afraid, don't panic and don't be terrified of them, 
+because your God is going with you to fight for you against your enemies and to save you.' 
+The officers will speak to the people and say, 'Has anyone built a new house and not yet moved into it? Let him go home, or he might die in battle and another man move in. 
+Has anyone planted a vineyard and not yet eaten from it? Let him go home, or he might die in battle and another man eat from it. 
+Has anyone promised to marry a woman and not yet taken her? Let him go home, or he might die in battle and another man marry her.' 
+The officers will go on speaking to the people and say, 'Is anyone afraid and losing his nerve? Let him go home, so his brothers' hearts don't melt the way his does.' 
+When the officers have finished speaking to the people, they will appoint commanders over the army at the head of the people. 
+When you come near a city to fight against it, first offer it peace. 
+If it accepts peace and opens its gates, then all the people in it will become forced labor for you and serve you. 
+If it won't make peace with you and wages war against you, then surround it with your army. 
+When your God hands it over to you, put every male in it to the sword. 
+But the women, the children, the livestock and everything else in the city, all its plunder, you may take for yourselves. You may use the plunder of your enemies, which your God has given you. 
+Do this to all the cities that are far away from you and not among the cities of these nations. 
+But in the cities of these peoples that your God is giving you as an inheritance, don't leave anything alive that breathes. 
+Destroy them completely, the Hittites, Amorites, Canaanites, Perizzites, Hivites and Jebusites, as your God has commanded you, 
+so that they don't teach you to copy all their disgusting practices, which they did for their gods, and so make you sin against your God. 
+When you surround a city and fight against it for a long time to take it, don't destroy its trees by chopping them down with an ax, because you can eat their fruit. Don't cut them down. Are the trees of the field people, that you should lay siege to them? 
+Only trees that you know don't produce food may you destroy and cut down, and use the wood to build siege works against the city that is fighting you, until it falls. 

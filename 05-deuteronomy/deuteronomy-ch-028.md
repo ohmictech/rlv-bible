@@ -1,68 +1,68 @@
-﻿It will happen, if you will listen diligently to your God's voice, to observe to do all his commandments which I command you today, that your God will set you high above all the nations of the earth. 
-All these blessings will come upon you, and overtake you, if you listen to your God's voice. 
-You will be blessed in the city, and you will be blessed in the field. 
-You will be blessed in the fruit of your body, the fruit of your ground, the fruit of your animals, the increase of your livestock, and the young of your flock. 
-Your basket and your kneading trough will be blessed. 
-You will be blessed when you come in, and you will be blessed when you go out. 
-God will cause your enemies who rise up against you to be struck before you. They'll come out against you one way, and will flee before you seven ways. 
-God will command the blessing on you in your barns, and in all that you put your hand to. He'll bless you in the land which your God gives you. 
-God will establish you for a holy people to himself, as he has sworn to you, if you will keep the commandments of your God, and walk in his ways. 
-Everyones of the earth will see that you're called by God's name, and they'll be afraid of you. 
-God will grant you abundant prosperity in the fruit of your body, in the fruit of your livestock, and in the fruit of your ground, in the land which God swore to your fathers to give you. 
-God will open to you his good treasure in the sky, to give the rain of your land in its season, and to bless all the work of your hand. You'll lend to many nations, and you won't borrow. 
-God will make you the head, and not the tail. You'll be above only, and you won't be beneath, if you listen to the commandments of your God which I command you today, to observe and to do, 
-and won't turn away from any of the words which I command you today, to the right hand or to the left, to go after other gods to serve them. 
-But it will come to pass, if you won't listen to your God's voice, to observe to do all his commandments and his statutes which I command you today, that all these curses will come on you and overtake you. 
-You'll be cursed in the city, and you'll be cursed in the field. 
-Your basket and your kneading trough will be cursed. 
-The fruit of your body, the fruit of your ground, the increase of your livestock, and the young of your flock will be cursed. 
-You'll be cursed when you come in, and you'll be cursed when you go out. 
-God will send on you cursing, confusion, and rebuke in all that you put your hand to do, until you're destroyed and until you perish quickly, because of the bad of your doings, by which you have forsaken me. 
-God will make the pestilence cling to you, until he has consumed you from off the land where you go in to possess it. 
-God will strike you with consumption, with fever, with inflammation, with fiery heat, with the sword, with blight, and with mildew. They'll pursue you until you perish. 
-Your sky that's over your head will be bronze, and the earth that's under you'll be iron. 
-God will make the rain of your land powder and dust. It'll come down on you from the sky, until you're destroyed. 
-God will cause you to be struck before your enemies. You'll go out one way against them, and will flee seven ways before them. You'll be tossed back and forth among all the kingdoms of the earth. 
-Your dead bodies will be food to all birds of the sky, and to the animals of the earth; and there will be no one to frighten them away. 
-God will strike you with the boils of Egypt, with the tumors, with the scurvy, and with the itch, of which you can't be healed. 
-God will strike you with madness, with blindness, and with astonishment of heart. 
-You'll grope at noonday, as a blind person gropes in darkness, and you won't prosper in your ways. You'll only be oppressed and robbed always, and there will be no one to save you. 
-You'll betroth a wife, and another man will lie with her. You'll build a house, and you won't dwell in it. You'll plant a vineyard, and not use its fruit. 
-Your ox will be slain before your eyes, and you won't eat any of it. Your donkey will be violently taken away from before your face, and won't be restored to you. Your sheep will be given to your enemies, and you'll have no one to save you. 
-Your sons and your daughters will be given to another people. Your eyes will look and fail with longing for them all day long. There will be no power in your hand. 
-A nation which you don't know will eat the fruit of your ground and all of your work. You'll only be oppressed and crushed always, 
-so that the sights that you see with your eyes will drive you mad. 
-God will strike you in the knees and in the legs with a sore boil, of which you can't be healed, from the sole of your foot to the crown of your head. 
-God will bring you, and your king whom you'll set over yourselves, to a nation that you haven't known, you nor your fathers. There you'll serve other gods of wood and stone. 
-You'll become an astonishment, a proverb, and a byword among everyones where God will lead you away. 
-You'll carry much seed out into the field, and will gather little in, for the locust will consume it. 
-You'll plant vineyards and dress them, but you'll neither drink of the wine, nor harvest, because worms will eat them. 
-You'll have olive trees throughout all your borders, but you won't anoint yourself with the oil, for your olives will drop off. 
-You'll father sons and daughters, but they won't be yours, for they'll go into captivity. 
-Locusts will consume all of your trees and the fruit of your ground. 
-The foreigner who's among you'll mount up above you higher and higher, and you'll come down lower and lower. 
-He'll lend to you, and you won't lend to him. He'll be the head, and you'll be the tail. 
-All these curses will come on you, and will pursue you and overtake you, until you're destroyed, because you didn't listen to your God's voice, to keep his commandments and his statutes which he commanded you. 
-They'll be for a sign and for a wonder to you and to your offspring for the eras. 
-Because you didn't serve your God with joyfulness and with gladness of heart, by reason of the abundance of all things; 
-So you'll serve your enemies whom God sends against you, in hunger, in thirst, in nakedness, and in lack of all things. He'll put an iron yoke on your neck until he has destroyed you. 
-God will bring a nation against you from far away, from the end of the earth, as the eagle flies: a nation whose language you won't understand, 
-a nation of fierce facial expressions, that doesn't respect the elderly, nor show favor to the young. 
-They'll eat the fruit of your livestock and the fruit of your ground, until you're destroyed. They also won't leave you grain, new wine, oil, the increase of your livestock, or the young of your flock, until they have caused you to perish. 
-They'll besiege you in all your gates until your high and fortified walls in which you trusted come down throughout all your land. They'll besiege you in all your gates throughout all your land which your God has given you. 
-You'll eat the fruit of your own body, the flesh of your sons and of your daughters, whom your God has given you, in the siege and in the distress with which your enemies will distress you. 
-The man who's tender among you, and very delicate, his eye will be bad toward his brother, toward the wife whom he loves, and toward the remnant of his children whom he has remaining, 
-so that he won't give to any of them of the flesh of his children whom he'll eat, because he has nothing left to him, in the siege and in the distress with which your enemy will distress you in all your gates. 
-The tender and delicate woman among you, who wouldn't venture to set the sole of her foot on the ground for delicateness and tenderness, her eye will be bad toward the husband that she loves, toward her son, toward her daughter, 
-toward her young one who comes out from between her feet, and toward her children whom she bears; for she'll eat them secretly for lack of all things in the siege and in the distress with which your enemy will distress you in your gates. 
-If you won't observe to do all the words of this law that are written in this book, that you can fear this glorious and awe-inspiring name, the name of God your God, 
-then God will make your plagues and the plagues of your offspring fearful, even great plagues, and of long duration, and severe sicknesses, and of long duration. 
-He'll bring on you again all the diseases of Egypt, which you were afraid of; and they'll cling to you. 
-Also every sickness and every plague which isn't written in the book of this law, God will bring them on you until you're destroyed. 
-You'll be left few in number, even though you were as the stars of the sky for multitude, because you didn't listen to your God's voice. 
-It'll happen that as God rejoiced over you to do you good, and to multiply you, so God will rejoice over you to cause you to perish and to destroy you. You'll be plucked from the land that you're going in to possess. 
-God will scatter you among all peoples, from one end of the earth to the other end of the earth. There you'll serve other gods which you haven't known, you nor your fathers, even wood and stone. 
-Among these nations you'll find no ease, and there will be no rest for the sole of your foot; but God will give you there a trembling heart, failing of eyes, and pining of soul. 
-Your life will hang in doubt before you. You'll be afraid night and day, and will have no assurance of your life. 
-In the morning you'll say, "I wish it were evening!" and at evening you'll say, "I wish it were morning!" for the fear of your heart which you'll fear, and for the sights which your eyes will see. 
-God will bring you into Egypt again with ships, by the way of which I told you that you'd never see it again. There you'll offer yourselves to your enemies for male and female slaves, and nobody will buy you. 
+﻿"If you carefully listen to the voice of your God and are careful to do all his commands that I am giving you today, then your God will set you high above all the nations of the earth. 
+All these blessings will come on you and overtake you, if you listen to the voice of your God. 
+You will be blessed in the city and blessed in the field. 
+Your children will be blessed, and your crops, and the young of your livestock and your flocks. 
+Your basket and your kneading bowl will be blessed. 
+You will be blessed when you come in and blessed when you go out. 
+God will make your enemies who rise against you be beaten in front of you. They will come at you one way and run from you seven ways. 
+God will command a blessing on your barns and on everything you put your hand to, and he will bless you in the land your God is giving you. 
+God will establish you as a people set apart to himself, as he swore to you, if you keep the commands of your God and walk in his ways. 
+All the peoples of the earth will see that you are called by the name of God, and they will be afraid of you. 
+God will give you abundance in children, in livestock and in crops, in the land God swore to your fathers to give you. 
+God will open his good storehouse in the sky for you, to give your land rain in its season and to bless all the work of your hands. You will lend to many nations and you won't borrow. 
+God will make you the head and not the tail. You will be on top and never underneath, if you listen to the commands of your God that I am giving you today, and are careful to do them, 
+and don't turn away from any of the words I am giving you today, either to the right or to the left, to go after other gods and serve them. 
+But if you won't listen to the voice of your God and aren't careful to do all his commands and his rules that I am giving you today, then all these curses will come on you and overtake you. 
+You will be cursed in the city and cursed in the field. 
+Your basket and your kneading bowl will be cursed. 
+Your children will be cursed, and your crops, and the young of your livestock and your flocks. 
+You will be cursed when you come in and cursed when you go out. 
+God will send curses, confusion and rebuke on you in everything you put your hand to, until you are destroyed and quickly wiped out, because of the evil things you have done and because you have turned your back on me. 
+God will make disease cling to you until he has wiped you off the land you are going in to take. 
+God will strike you with wasting disease, with fever, with swelling, with scorching heat, with the sword, with blight and with mildew. They will chase you until you are gone. 
+The sky over your head will be bronze and the ground under you will be iron. 
+God will turn the rain of your land into powder and dust. It will come down on you from the sky until you are destroyed. 
+God will make your enemies beat you. You will go out one way against them and run from them seven ways, and you will be tossed around among all the kingdoms of the earth. 
+Your dead bodies will be food for every bird in the sky and every animal on the earth, and there will be no one to scare them away. 
+God will strike you with the boils of Egypt, with tumors, with scabs and with an itch that can't be healed. 
+God will strike you with madness, with blindness and with a stunned mind. 
+At noon you will grope around like a blind person groping in the dark, and nothing you do will succeed. You will be cheated and robbed every day, and there will be no one to save you. 
+You will get engaged to a woman and another man will sleep with her. You will build a house and not live in it. You will plant a vineyard and not eat from it. 
+Your ox will be slaughtered in front of your eyes and you won't eat any of it. Your donkey will be taken away from you by force and never come back. Your sheep will be given to your enemies, and no one will save you. 
+Your sons and daughters will be given to another people. Your eyes will wear out watching for them all day long, and you will have no power to do anything. 
+A nation you don't know will eat the crops of your ground and everything you work for. You will only be cheated and crushed day after day, 
+until what you see with your own eyes drives you out of your mind. 
+God will strike you on the knees and legs with painful boils that can't be healed, from the sole of your foot to the top of your head. 
+God will bring you and the king you set over you to a nation you and your fathers have never known, and there you will serve other gods made of wood and stone. 
+You will become a shock, a joke and a byword among all the peoples where God drives you. 
+You will carry plenty of seed out to the field and bring very little in, because the locusts will eat it. 
+You will plant vineyards and tend them, but you won't drink the wine or harvest the grapes, because worms will eat them. 
+You will have olive trees all through your land, but you won't use the oil on yourself, because your olives will drop off. 
+You will father sons and daughters, but they won't stay yours, because they will be taken away as captives. 
+Locusts will eat all your trees and the crops of your ground. 
+The foreigner living among you will rise higher and higher above you, and you will sink lower and lower. 
+He will lend to you, and you won't lend to him. He will be the head and you will be the tail. 
+All these curses will come on you, chase you and overtake you, until you are destroyed, because you didn't listen to the voice of your God and keep his commands and his rules that he gave you. 
+They will be a sign and a warning to you and your descendants for the eras. 
+Because you did not serve your God with joy and gladness of heart while you had plenty of everything, 
+you will serve the enemies God sends against you, in hunger, in thirst, in nakedness and in need of everything. He will put an iron yoke on your neck until he has destroyed you. 
+God will bring a nation against you from far away, from the ends of the earth, swooping down like an eagle, a nation whose language you won't understand, 
+a nation with fierce faces that shows no respect for the old and no mercy to the young. 
+They will eat the young of your livestock and the crops of your ground until you are destroyed. They won't leave you grain, new wine or oil, or the young of your cattle or your flocks, until they have wiped you out. 
+They will surround you inside all your towns until your high, walled cities, the ones you trusted in, come crashing down all through your land. They will surround you inside all your towns throughout the land your God has given you. 
+You will eat the fruit of your own body, the flesh of your sons and daughters whom your God has given you, during the siege and the hardship with which your enemies press you. 
+Even the gentlest and most refined man among you will look coldly at his brother, at the wife he loves and at the children he has left, 
+so that he won't give any of them any of the flesh of his children that he is eating, because he has nothing left, during the siege and the hardship with which your enemy presses you inside your towns. 
+The gentlest and most refined woman among you, too refined even to set the sole of her foot on the ground, will look coldly at the husband she loves, at her son and at her daughter, 
+and at the baby she has just delivered and the children she has borne, because she will eat them in secret when there is nothing left, during the siege and the hardship with which your enemy presses you inside your towns. 
+If you won't be careful to do all the words of this law written in this scroll, and so fear this glorious and fearsome name, the name of God your God, 
+then God will make your plagues and the plagues of your descendants terrifying: great plagues that last a long time, and terrible sicknesses that last a long time. 
+He will bring back on you all the diseases of Egypt that you were afraid of, and they will cling to you. 
+God will also bring on you every sickness and every plague not written in the scroll of this law, until you are destroyed. 
+You will be left few in number, even though you were as many as the stars in the sky, because you didn't listen to the voice of your God. 
+Just as God delighted in doing you good and making you many, so God will delight in ruining you and destroying you, and you will be pulled up out of the land you are going in to take. 
+God will scatter you among all peoples, from one end of the earth to the other, and there you will serve other gods of wood and stone that neither you nor your fathers have known. 
+Among those nations you will find no peace, and there will be no rest for the sole of your foot. God will give you a trembling heart there, eyes that fail and a heart that wastes away. 
+Your life will hang in doubt in front of you. You will be afraid night and day, and you will have no certainty of living. 
+In the morning you will say, 'I wish it were evening,' and in the evening you will say, 'I wish it were morning,' because of the fear in your heart and the things your eyes will see. 
+God will bring you back to Egypt in ships, on the road I said you would never see again, and there you will offer yourselves to your enemies as male and female slaves, and no one will buy you." 

@@ -1,13 +1,13 @@
-﻿The heads of the fathers' households of the family of the children of Gilead, the son of Machir, the son of Manasseh, of the families of the sons of Joseph, came near and spoke before Moses and before the princes, the heads of the fathers' households of the children of Israel. 
-They said, "God commanded my lord to give the land for inheritance by lot to the children of Israel. My lord was commanded by God to give the inheritance of Zelophehad our brother to his daughters. 
-If they're married to any of the sons of the other tribes of the children of Israel, then their inheritance will be taken away from the inheritance of our fathers, and will be added to the inheritance of the tribe to which they will belong. So it'll be taken away from the lot of our inheritance. 
-When the jubilee of the children of Israel comes, then their inheritance will be added to the inheritance of the tribe to which they will belong. So their inheritance will be taken away from the inheritance of the tribe of our fathers." 
-Moses commanded the children of Israel according to God's word, saying, "The tribe of the sons of Joseph speak what's right. 
-This is the thing which God commands concerning the daughters of Zelophehad, saying, 'Let them be married to whom they think best, only they will marry into the family of the tribe of their father. 
-So will no inheritance of the children of Israel move from tribe to tribe; for the children of Israel will all keep the inheritance of the tribe of his fathers. 
-Every daughter who possesses an inheritance in any tribe of the children of Israel will be wife to one of the family of the tribe of her father, that the children of Israel may each possess the inheritance of his fathers. 
-So will no inheritance move from one tribe to another tribe; for the tribes of the children of Israel will each keep his own inheritance.'" 
-The daughters of Zelophehad did as God commanded Moses: 
-for Mahlah, Tirzah, Hoglah, Milcah, and Noah, the daughters of Zelophehad, were married to their father's brothers' sons. 
-They were married into the families of the sons of Manasseh the son of Joseph. Their inheritance remained in the tribe of the family of their father. 
-These are the commandments and the ordinances which God commanded by Moses to the children of Israel in the plains of Moab by the Jordan at Jericho. 
+﻿The heads of the families of Gilead son of Machir, son of Manasseh, from the families of the sons of Joseph, came and spoke in front of Moses and the leaders, the heads of the families of the Israelites. 
+They said, "God commanded my lord to give the land as an inheritance by lot to the Israelites, and my lord was commanded by God to give our brother Zelophehad's inheritance to his daughters. 
+But if they marry men from another tribe of Israel, their inheritance will be taken away from our fathers' inheritance and added to the tribe they marry into, so it will be taken out of the lot that fell to us. 
+And when the jubilee of the Israelites comes, their inheritance will be added to the tribe they belong to, and it will be taken away from our fathers' tribe." 
+Moses gave the Israelites God's word: "The tribe of the sons of Joseph are right. 
+This is what God commands about the daughters of Zelophehad: 'They may marry anyone they think best, but they must marry within their father's tribe. 
+No inheritance in Israel is to pass from tribe to tribe, because each Israelite is to hold on to the inheritance of his ancestral tribe. 
+Any daughter who inherits land in a tribe is to marry someone from her father's tribe, so that each Israelite keeps his fathers' inheritance. 
+No inheritance is to pass from one tribe to another, because each tribe of Israel is to keep its own inheritance.'" 
+The daughters of Zelophehad did as God commanded Moses. 
+Mahlah, Tirzah, Hoglah, Milcah and Noah, the daughters of Zelophehad, married their cousins, 
+into the families of the sons of Manasseh son of Joseph, and their inheritance stayed in the tribe of their father's family. 
+These are the commands and decisions God gave through Moses to the Israelites on the plains of Moab by the Jordan across from Jericho. 

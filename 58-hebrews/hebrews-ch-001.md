@@ -11,4 +11,4 @@ And, "You, Lord, laid the foundation of the earth in the beginning. The skies ar
 They'll wear out, but you go on. They'll all grow old like a piece of clothing. 
 You'll roll them up like a coat, and they'll be changed; but you're the same. Your years will never run out." 
 But to which of the messengers did he ever say, "Sit at my right hand until I make your enemies a footstool for your feet"? 
-Are they not all spirits who serve, sent out to serve for the sake of those who are going to be given the charge of rescue? 
+Are they not all spirits who serve, sent out to serve for the sake of those who are going to be given charge of restoration? 

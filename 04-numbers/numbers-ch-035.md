@@ -1,34 +1,34 @@
-﻿God spoke to Moses in the plains of Moab by the Jordan at Jericho, saying, 
-"Command the children of Israel to give to the Levites cities to dwell in out of their inheritance. You will give pasture lands for the cities around them to the Levites. 
-They will have the cities to dwell in. Their pasture lands will be for their livestock, and for their possessions, and for all their animals. 
-"The pasture lands of the cities, which you will give to the Levites, will be from the wall of the city and outward one thousand cubits around it. 
-You will measure outside of the city for the east side two thousand cubits, and for the south side two thousand cubits, and for the west side two thousand cubits, and for the north side two thousand cubits, the city being in the middle. This will be the pasture lands of their cities. 
-"The cities which you will give to the Levites, they will be the six cities of refuge, which you will give for the man slayer to flee to. Besides them you will give forty-two cities. 
-All the cities which you will give to the Levites will be forty-eight cities together with their pasture lands. 
-Concerning the cities which you will give of the possession of the children of Israel, from the many you will take many, and from the few you will take few. Everyone according to his inheritance which he inherits will give some of his cities to the Levites." 
-God spoke to Moses, saying, 
-"Speak to the children of Israel, and tell them, 'When you pass over the Jordan into the land of Canaan, 
-then you will appoint for yourselves cities to be cities of refuge for you, that the man slayer who kills any person unwittingly may flee there. 
-The cities will be for your refuge from the avenger, that the man slayer not die until he stands before the congregation for judgment. 
-The cities which you will give will be for you six cities of refuge. 
-You will give three cities beyond the Jordan, and you will give three cities in the land of Canaan. They will be cities of refuge. 
-These six cities will be refuge for the children of Israel, for the stranger, and for the foreigner living among them, that everyone who kills any person unwittingly may flee there. 
-"'But if he struck him with an instrument of iron, so that he died, he's a murderer. The murderer will surely be put to death. 
-If he struck him with a stone in the hand, by which a man may die, and he died, he's a murderer. The murderer will surely be put to death. 
-Or if he struck him with a weapon of wood in the hand, by which a man may die, and he died, he's a murderer. The murderer will surely be put to death. 
-The avenger of blood will himself put the murderer to death. When he meets him, he will put him to death. 
-If he shoved him out of hatred, or hurled something at him while lying in wait, so that he died, 
-or in hostility struck him with his hand, so that he died, he who struck him will surely be put to death. He's a murderer. The avenger of blood will put the murderer to death when he meets him. 
-"'But if he shoved him suddenly without hostility, or hurled on him anything without lying in wait, 
-or with any stone, by which a man can die, not seeing him, and cast it on him so that he died, and he wasn't his enemy and not seeking his harm, 
-then the congregation will judge between the striker and the avenger of blood according to these ordinances. 
-The congregation will deliver the man slayer out of the hand of the avenger of blood, and the congregation will restore him to his city of refuge, where he had fled. He will dwell therein until the death of the high priest, who was anointed with the holy oil. 
-"'But if the man slayer will at any time go beyond the border of his city of refuge where he flees, 
-and the avenger of blood finds him outside of the border of his city of refuge, and the avenger of blood kills the man slayer, he won't be guilty of blood, 
-because he should have remained in his city of refuge until the death of the high priest. But after the death of the high priest, the man slayer will return into the land of his possession. 
-"'These things will be for a statute and ordinance to you throughout your generations in all your dwellings. 
-"'Whoever kills any person, the murderer will be slain based on the testimony of witnesses; but one witness won't testify alone against any person so that he dies. 
-"'Moreover you will take no ransom for the life of a murderer who's guilty of death. He will surely be put to death. 
-"'You will take no ransom for him who has fled to his city of refuge, that he can come again to dwell in the land before the death of the priest. 
-"'So you won't pollute the land where you live; for blood pollutes the land. Nothing can make things right for the land for the blood that's shed in it, but by the blood of him who shed it. 
-Don't defile the land which you inhabit, where I dwell; for I, God, dwell among the children of Israel.'" 
+﻿God spoke to Moses on the plains of Moab by the Jordan across from Jericho: 
+"Command the Israelites to give the Levites towns to live in out of their inheritance, and give the Levites the pasture land around those towns. 
+The towns will be theirs to live in, and the pasture land will be for their livestock, their property and all their animals. 
+"The pasture land around the towns you give the Levites is to reach a thousand cubits out from the town wall in every direction. 
+Measure two thousand cubits outside the town on the east, two thousand on the south, two thousand on the west and two thousand on the north, with the town in the middle. That is to be the pasture land for the towns. 
+"The towns you give the Levites are the six towns of refuge, where someone who has killed a person can run, and in addition to them you are to give forty-two towns. 
+All the towns you give the Levites will be forty-eight towns, together with their pasture land. 
+As for the towns you take from the property of the Israelites, take more from those who have more and fewer from those who have less. Each tribe is to give some of its towns to the Levites in proportion to its inheritance." 
+God spoke to Moses: 
+"Speak to the Israelites and tell them, 'When you cross the Jordan into the land of Canaan, 
+choose towns to be your towns of refuge, where someone who has killed a person by accident can run. 
+Those towns will be a refuge from the avenger, so the killer doesn't die before standing trial in front of the community. 
+The towns you give are to be six towns of refuge: 
+three across the Jordan and three in the land of Canaan. They are to be towns of refuge. 
+These six towns will be a refuge for the Israelites, for the foreigner and for anyone living among them, so that anyone who kills a person by accident can run there. 
+"'But if someone struck another with an iron tool and the person died, he is a murderer, and the murderer must be put to death. 
+If he struck him with a stone that could kill, and he died, he is a murderer, and the murderer must be put to death. 
+Or if he struck him with a wooden tool that could kill, and he died, he is a murderer, and the murderer must be put to death. 
+The avenger of blood is to put the murderer to death himself. When he finds him, he is to kill him. 
+If he pushed him out of hatred, or threw something at him on purpose, and he died, 
+or struck him with his hand out of hostility and he died, the one who struck him must be put to death. He is a murderer, and the avenger of blood is to kill him when he finds him. 
+"'But if he pushed him suddenly without hatred, or threw something at him without meaning to, 
+or dropped a stone that could kill on him without seeing him, and he died, and he wasn't his enemy and meant him no harm, 
+then the community is to decide between the one who struck him and the avenger of blood, following these rules. 
+The community is to rescue the killer from the avenger of blood and return him to the town of refuge where he ran. He is to live there until the high priest dies, the one anointed with the set apart oil. 
+"'But if the killer ever leaves the boundary of the town of refuge he ran to, 
+and the avenger of blood finds him outside that boundary and kills him, the avenger is not guilty of blood, 
+because he should have stayed in his town of refuge until the high priest died. But after the high priest dies, the killer may go back to his own property. 
+"'These are to be a rule and a decision for you through all your generations, wherever you live. 
+"'Anyone who kills a person is to be put to death on the testimony of witnesses, but one witness alone can't testify against anyone in a case that means death. 
+"'You are not to accept a payment for the life of a murderer who deserves death. He must be put to death. 
+"'You are not to accept a payment from someone who has run to his town of refuge, letting him come back and live in the land before the high priest dies. 
+"'So you are not to pollute the land where you live, because blood pollutes the land. Nothing can make things right for the land where blood has been shed except the blood of the one who shed it. 
+Don't make the land unclean where you live, where I live, because I, God, live among the Israelites.'" 

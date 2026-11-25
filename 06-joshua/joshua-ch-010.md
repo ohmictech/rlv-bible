@@ -1,43 +1,43 @@
-﻿Now when Adoni-Zedek king of Jerusalem heard how Joshua had taken Ai, and had utterly destroyed it; as he had done to Jericho and her king, so he had done to Ai and her king; and how the inhabitants of Gibeon had made peace with Israel, and were among them, 
-they were very afraid, because Gibeon was a great city, as one of the royal cities, and because it was greater than Ai, and all its men were mighty. 
-So Adoni-Zedek king of Jerusalem sent to Hoham king of Hebron, Piram king of Jarmuth, Japhia king of Lachish, and Debir king of Eglon, saying, 
-"Come up to me and help me. Let's strike Gibeon; for they have made peace with Joshua and with the children of Israel." 
-So the five kings of the Amorites, the king of Jerusalem, the king of Hebron, the king of Jarmuth, the king of Lachish, and the king of Eglon, gathered themselves together and went up, they and all their armies, and encamped against Gibeon, and made war against it. 
-The men of Gibeon sent to Joshua at the camp at Gilgal, saying, "Don't abandon your servants! Come up to us quickly and save us! Help us; for all the kings of the Amorites that dwell in the hill country have gathered together against us." 
-So Joshua went up from Gilgal, he and the whole army with him, including all the mighty men of valor. 
-God said to Joshua, "Don't fear them, for I have delivered them into your hands. Not a man of them will stand before you." 
-Joshua came to them suddenly. He marched from Gilgal all night. 
-God confused them before Israel. He killed them with a great slaughter at Gibeon, and chased them by the way of the ascent of Beth Horon, and struck them to Azekah and to Makkedah. 
-As they fled from before Israel, while they were at the descent of Beth Horon, God hurled down great stones from the sky on them to Azekah, and they died. There were more who died from the hailstones than those whom the children of Israel killed with the sword. 
-Then Joshua spoke to God in the day when God delivered up the Amorites before the children of Israel. He said in the sight of Israel, "Sun, stand still on Gibeon! You, moon, stop in the valley of Aijalon!" 
-The sun stood still, and the moon stayed, until the nation had avenged themselves of their enemies. Isn't this written in the book of Jashar? The sun stayed in the middle of the sky, and didn't hurry to go down about a whole day. 
-There was no day like that before it or after it, that God listened to the voice of a man; for God fought for Israel. 
-Joshua returned, and all Israel with him, to the camp to Gilgal. 
-These five kings fled, and hid themselves in the cave at Makkedah. 
-Joshua was told, saying, "The five kings have been found, hidden in the cave at Makkedah." 
-Joshua said, "Roll large stones to cover the cave's entrance, and set men by it to guard them; 
-but don't stay there. Pursue your enemies, and attack them from the rear. Don't allow them to enter into their cities; for your God has delivered them into your hand." 
-When Joshua and the children of Israel had finished killing them with a very great slaughter until they were consumed, and the remnant which remained of them had entered into the fortified cities, 
-everyone returned to the camp to Joshua at Makkedah in peace. None moved his tongue against any of the children of Israel. 
-Then Joshua said, "Open the cave entrance, and bring those five kings out of the cave to me." 
-They did so, and brought those five kings out of the cave to him: the king of Jerusalem, the king of Hebron, the king of Jarmuth, the king of Lachish, and the king of Eglon. 
-When they brought those kings out to Joshua, Joshua called for all the men of Israel, and said to the chiefs of the men of war who went with him, "Come near. Put your feet on the necks of these kings." They came near, and put their feet on their necks. 
-Joshua said to them, "Don't be afraid, nor be dismayed. Be strong and courageous, for God will do this to all your enemies against whom you fight." 
-Afterward Joshua struck them, put them to death, and hanged them on five trees. They were hanging on the trees until the evening. 
-At the time of the going down of the sun, Joshua commanded, and they took them down off the trees, and threw them into the cave in which they had hidden themselves, and laid great stones on the mouth of the cave, which remain to this very day. 
-Joshua took Makkedah on that day, and struck it with the edge of the sword, with its king. He utterly destroyed it and all the souls who were in it. He left no one remaining. He did to the king of Makkedah as he had done to the king of Jericho. 
-Joshua passed from Makkedah, and all Israel with him, to Libnah, and fought against Libnah. 
-God delivered it also, with its king, into the hand of Israel. He struck it with the edge of the sword, and all the souls who were in it. He left no one remaining in it. He did to its king as he had done to the king of Jericho. 
-Joshua passed from Libnah, and all Israel with him, to Lachish, and encamped against it, and fought against it. 
-God delivered Lachish into the hand of Israel. He took it on the second day, and struck it with the edge of the sword, with all the souls who were in it, according to all that he had done to Libnah. 
-Then Horam king of Gezer came up to help Lachish; and Joshua struck him and his people, until he had left him no one remaining. 
-Joshua passed from Lachish, and all Israel with him, to Eglon; and they encamped against it and fought against it. 
-They took it on that day, and struck it with the edge of the sword. He utterly destroyed all the souls who were in it that day, according to all that he had done to Lachish. 
-Joshua went up from Eglon, and all Israel with him, to Hebron; and they fought against it. 
-They took it, and struck it with the edge of the sword, with its king and all its cities, and all the souls who were in it. He left no one remaining, according to all that he had done to Eglon; but he utterly destroyed it, and all the souls who were in it. 
-Joshua returned, and all Israel with him, to Debir, and fought against it. 
-He took it, with its king and all its cities. They struck them with the edge of the sword, and utterly destroyed all the souls who were in it. He left no one remaining. As he had done to Hebron, so he did to Debir, and to its king; as he had done also to Libnah, and to its king. 
-So Joshua struck all the land, the hill country, the South, the lowland, the slopes, and all their kings. He left no one remaining, but he utterly destroyed all that breathed, as the God of Israel commanded. 
-Joshua struck them from Kadesh Barnea even to Gaza, and all the country of Goshen, even to Gibeon. 
-Joshua took all these kings and their land at one time because the God of Israel, fought for Israel. 
-Joshua returned, and all Israel with him, to the camp to Gilgal. 
+﻿When Adoni-Zedek king of Jerusalem heard that Joshua had taken Ai and completely destroyed it, doing to Ai and its king what he had done to Jericho and its king, and that the people of Gibeon had made peace with Israel and were living alongside them, 
+he and his people were very much afraid, because Gibeon was a large city, as big as a royal city, larger than Ai, and all its men were fighters. 
+So Adoni-Zedek king of Jerusalem sent word to Hoham king of Hebron, Piram king of Jarmuth, Japhia king of Lachish and Debir king of Eglon: 
+"Come up and help me. Let's attack Gibeon, because they have made peace with Joshua and the Israelites." 
+So the five kings of the Amorites, the king of Jerusalem, the king of Hebron, the king of Jarmuth, the king of Lachish and the king of Eglon, gathered with all their armies and went up and camped against Gibeon and attacked it. 
+The men of Gibeon sent word to Joshua at the camp at Gilgal: "Don't abandon your servants. Come up to us quickly and save us. Help us, because all the kings of the Amorites living in the hill country have gathered against us." 
+So Joshua went up from Gilgal with his whole army, all his fighting men. 
+God said to Joshua, "Don't be afraid of them, because I have handed them over to you. Not one of them will be able to stand against you." 
+Joshua came on them suddenly, marching from Gilgal all night. 
+God threw them into confusion in front of Israel, and Joshua struck them down in a great slaughter at Gibeon. He chased them along the road up to Beth Horon and struck them down as far as Azekah and Makkedah. 
+As they ran from Israel on the slope of Beth Horon, God hurled large hailstones down on them from the sky all the way to Azekah, and they died. More of them died from the hailstones than the Israelites killed with the sword. 
+Then Joshua spoke to God on the day God handed the Amorites over to the Israelites, and he said in front of all Israel, "Sun, stand still over Gibeon! Moon, stop over the valley of Aijalon!" 
+The sun stood still and the moon stopped until the nation had taken revenge on its enemies. Isn't this written in the Book of Jashar? The sun stayed in the middle of the sky and didn't hurry to set for about a whole day. 
+There has never been a day like that before or since, when God listened to a man's voice, because God was fighting for Israel. 
+Then Joshua and all Israel with him went back to the camp at Gilgal. 
+But the five kings had run away and hidden in a cave at Makkedah. 
+Joshua was told, "The five kings have been found, hiding in the cave at Makkedah." 
+Joshua said, "Roll large stones over the mouth of the cave and put men there to guard it. 
+But don't stay there. Chase your enemies and attack them from behind. Don't let them get back into their cities, because your God has handed them over to you." 
+When Joshua and the Israelites had finished killing them in a very great slaughter until they were gone, and the few who were left had got into the walled cities, 
+all the army came back to Joshua at Makkedah in peace, and no one said a word against any of the Israelites. 
+Then Joshua said, "Open the cave and bring those five kings out to me." 
+They did, and brought the five kings out of the cave: the king of Jerusalem, the king of Hebron, the king of Jarmuth, the king of Lachish and the king of Eglon. 
+When they had brought these kings out to Joshua, Joshua called all the men of Israel and said to the commanders of the fighting men who had gone with him, "Come here and put your feet on the necks of these kings." So they came and put their feet on their necks. 
+Joshua said to them, "Don't be afraid and don't lose heart. Be strong and brave, because God will do this to all your enemies you fight against." 
+After that Joshua struck them down, put them to death and hung them on five trees, and they hung there until evening. 
+At sunset Joshua gave the order, and they took them down from the trees and threw them into the cave where they had hidden, and put large stones over the mouth of the cave, which are still there today. 
+Joshua took Makkedah that day and struck it and its king with the sword. He completely destroyed it and everyone in it, leaving no one alive, and he did to the king of Makkedah what he had done to the king of Jericho. 
+Then Joshua and all Israel with him moved on from Makkedah to Libnah and attacked it. 
+God handed that city over too, with its king, and Joshua struck it with the sword and everyone in it, leaving no one alive, and did to its king what he had done to the king of Jericho. 
+Then Joshua and all Israel with him moved on from Libnah to Lachish, camped against it and attacked it. 
+God handed Lachish over to Israel, and Joshua took it on the second day and struck it and everyone in it with the sword, just as he had done to Libnah. 
+Then Horam king of Gezer came up to help Lachish, and Joshua struck him and his army until no one was left. 
+Then Joshua and all Israel with him moved on from Lachish to Eglon, camped against it and attacked it. 
+They took it that day and struck it and everyone in it with the sword, completely destroying everyone in it that day, just as he had done to Lachish. 
+Then Joshua and all Israel with him went up from Eglon to Hebron and attacked it. 
+They took it and struck it, its king and all its towns, and everyone in it with the sword, leaving no one alive, just as he had done to Eglon. He completely destroyed it and everyone in it. 
+Then Joshua and all Israel with him turned back to Debir and attacked it. 
+He took it, with its king and all its towns, and they struck them with the sword, completely destroying everyone in it and leaving no one alive. As he had done to Hebron, so he did to Debir and its king, and as he had done to Libnah and its king. 
+So Joshua struck the whole land: the hill country, the Negev, the lowlands, the slopes and all their kings. He left no one alive, but completely destroyed everything that breathed, as the God of Israel commanded. 
+Joshua struck them down from Kadesh Barnea all the way to Gaza, and all the country of Goshen as far as Gibeon. 
+Joshua took all these kings and their land in one campaign, because the God of Israel fought for Israel. 
+Then Joshua and all Israel with him went back to the camp at Gilgal. 

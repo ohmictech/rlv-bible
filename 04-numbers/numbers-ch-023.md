@@ -1,30 +1,30 @@
-﻿Balaam said to Balak, "Build here seven altars for me, and prepare here seven bulls and seven rams for me." 
-Balak did as Balaam had spoken; and Balak and Balaam offered on every altar a bull and a ram. 
-Balaam said to Balak, "Stand by your burnt offering, and I'll go. Perhaps God will come to meet me. Whatever he shows me I'll tell you." He went to a bare height. 
-God met Balaam, and he said to him, "I have prepared the seven altars, and I have offered up a bull and a ram on every altar." 
-God put a word in Balaam's mouth, and said, "Return to Balak, and thus you will speak." 
-He returned to him, and look, he was standing by his burnt offering, he, and all the princes of Moab. 
-He took up his parable, and said, "From Aram has Balak brought me, the king of Moab from the mountains of the East. Come, curse Jacob for me. Come, defy Israel. 
-How will I curse whom God hasn't cursed? How will I defy whom God hasn't defied? 
-From the top of the rocks I see him. From the hills I see him. Look, it's a people that dwells alone, and won't be listed among the nations. 
-Who can count the dust of Jacob, or count the fourth part of Israel? Let me die the death of the righteous! Let my last end be like his!" 
-Balak said to Balaam, "What have you done to me? I took you to curse my enemies, and look, you have blessed them altogether." 
-He answered and said, "Must I not take heed to speak that which God puts in my mouth?" 
-Balak said to him, "Please come with me to another place, where you can see them. You will see just part of them, and won't see them all. Curse them from there for me." 
-He took him into the field of Zophim, to the top of Pisgah, and built seven altars, and offered up a bull and a ram on every altar. 
-He said to Balak, "Stand here by your burnt offering, while I meet God over there." 
-God met Balaam, and put a word in his mouth, and said, "Return to Balak, and say this." 
-He came to him, and look, he was standing by his burnt offering, and the princes of Moab with him. Balak said to him, "What has God spoken?" 
-He took up his parable, and said, "Rise up, Balak, and hear! Listen to me, you son of Zippor. 
-God isn't a man, that he should lie, nor a son of man, that he should repent. Has he said, and he won't do it? Or has he spoken, and he won't make it good? 
-Look, I have received a command to bless. He has blessed, and I can't reverse it. 
-He hasn't seen guilt in Jacob. Neither has he seen perverseness in Israel. His God is with him. The shout of a king is among them. 
-God brings them out of Egypt. He has as it were the strength of the wild ox. 
-Surely there's no enchantment with Jacob; neither is there any divination with Israel. Now it will be said of Jacob and of Israel, 'What has God done!' 
-Look, a people rises up as a lioness. As a lion he lifts himself up. He won't lie down until he eats of the prey, and drinks the blood of the slain." 
-Balak said to Balaam, "Neither curse them at all, nor bless them at all." 
-But Balaam answered Balak, "Didn't I tell you, saying, 'All that God speaks, that I must do'?" 
-Balak said to Balaam, "Come now, I'll take you to another place; perhaps it'll please God that you can curse them for me from there." 
-Balak took Balaam to the top of Peor, that looks down on the desert. 
-Balaam said to Balak, "Build seven altars for me here, and prepare seven bulls and seven rams for me here." 
-Balak did as Balaam had said, and offered up a bull and a ram on every altar. 
+﻿Balaam said to Balak, "Build seven altars for me here, and get seven bulls and seven rams ready for me here." 
+Balak did as Balaam said, and Balak and Balaam offered a bull and a ram on each altar. 
+Balaam said to Balak, "Stand by your burnt offering and I will go. Perhaps God will come to meet me, and whatever he shows me I will tell you." So he went off to a bare hilltop. 
+God met Balaam, and Balaam said to him, "I have set up the seven altars, and I have offered a bull and a ram on each one." 
+God put a message in Balaam's mouth and said, "Go back to Balak and say this." 
+He went back to him, and there was Balak standing by his burnt offering with all the leaders of Moab. 
+Balaam spoke his oracle: "Balak brought me from Aram, the king of Moab from the eastern mountains. 'Come, curse Jacob for me. Come, denounce Israel.' 
+How can I curse anyone God hasn't cursed? How can I denounce anyone God hasn't denounced? 
+From the rocky peaks I see him. From the hills I look at him. There is a people living alone, not counting themselves among the nations. 
+Who can count the dust of Jacob, or number even a quarter of Israel? Let me die the death of the upright. Let my end be like theirs!" 
+Balak said to Balaam, "What have you done to me? I brought you to curse my enemies, and you have done nothing but bless them." 
+He answered, "Don't I have to be careful to say whatever God puts in my mouth?" 
+Balak said to him, "Come with me to another place where you can see them. You will see only some of them, not all of them, and curse them from there for me." 
+He took him to the field of Zophim, on top of Pisgah, and built seven altars and offered a bull and a ram on each one. 
+He said to Balak, "Stand here by your burnt offering while I meet God over there." 
+God met Balaam and put a message in his mouth and said, "Go back to Balak and say this." 
+He came to him, and there was Balak standing by his burnt offering with the leaders of Moab. Balak asked, "What has God said?" 
+Balaam spoke his oracle: "Get up, Balak, and listen. Hear me, son of Zippor. 
+God is not a human being, that he should lie, or a human child, that he should change his mind. Does he say something and not do it? Does he speak and not carry it through? 
+Look, I have been given a command to bless. He has blessed, and I can't undo it. 
+He has found no fault in Jacob and seen no trouble in Israel. God is with him, and the shout of a king is among them. 
+God brought them out of Egypt. They have the strength of a wild ox. 
+There is no spell that works against Jacob, and no divination against Israel. Now it will be said of Jacob and Israel, 'Look what God has done!' 
+Look, the people rise up like a lioness, and lift themselves like a lion. He won't rest until he has eaten the prey and drunk the blood of the slain." 
+Balak said to Balaam, "Then don't curse them and don't bless them at all." 
+But Balaam answered, "Didn't I tell you that I must do whatever God says?" 
+Balak said to Balaam, "Come, I will take you to another place. Maybe God will be pleased to let you curse them from there." 
+Balak took Balaam to the top of Peor, which looks down over the wasteland. 
+Balaam said to Balak, "Build seven altars for me here and get seven bulls and seven rams ready." 
+Balak did as Balaam said and offered a bull and a ram on each altar. 

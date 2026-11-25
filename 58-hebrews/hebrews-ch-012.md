@@ -1,4 +1,4 @@
-﻿So then, since we're surrounded by such a great cloud of witnesses, let's put aside everything that weighs us down and the drift that so easily tangles our feet, and let's run with staying power the race set in front of us, 
+﻿So then, since we're surrounded by such a great cloud of witnesses, let's put aside everything that weighs us down and the drift that so easily tangles our feet, and let's run with determination the race set in front of us, 
 keeping our eyes on Jesus, the one who starts and finishes our trust, who for the joy set in front of him endured the cross, thinking nothing of its shame, and has sat down at the right hand of the throne of God. 
 Think about the one who put up with such hostility from those who drifted, so that you don't grow tired and give up. 
 In your struggle against the drift, you haven't yet resisted to the point of blood. 
@@ -11,7 +11,7 @@ They trained us for a few days as they thought best, but God trains us for our o
 No training seems pleasant at the time; it hurts. But later it produces the peaceful fruit of rightness in those who have been trained by it. 
 So strengthen the hands that hang down and the knees that have given way, 
 and make straight paths for your feet, so that what's lame isn't dislocated, but healed. 
-Chase wholeness with everyone, and the setting apart without which no one will see the Lord. 
+Chase wholeness with everyone, and the setting apart which no one will see the Lord without. 
 See to it that no one falls short of God's favor, and that no root of bitterness springs up to trouble you and make many of you unclean by it. 
 See that no one is someone who sleeps around or treats what's set apart as common, like Esau, who sold his birthright for one meal. 
 You know that afterward, when he wanted to receive the blessing, he was turned down, and he couldn't find room for a change of heart, even though he looked for it with tears. 

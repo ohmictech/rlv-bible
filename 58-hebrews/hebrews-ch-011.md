@@ -34,7 +34,7 @@ who through trust conquered kingdoms, did what was right, received what was prom
 put out the power of fire, escaped the edge of the sword, were made strong out of weakness, became mighty in battle, and made foreign armies run. 
 Women received their dead back by a rising again. Others were tortured and refused to be set free, so that they might rise again to something better. 
 Others were tested with mocking and whipping, and also with chains and prison. 
-They were stoned. They were sawn in two. They were tested. They were killed with the sword. They went around in sheepskins and goatskins, being poor, mistreated, and badly treated, 
+They were stoned. They were sawn in two. They were tested. They were killed with the sword. They went around in sheepskins and goatskins, being poor, mistreated,
 the world wasn't worthy of them, wandering in deserts, mountains, caves, and the holes of the earth. 
 All these were approved because of their trust, and yet they didn't receive what was promised, 
 because God had planned something better for us, so that they wouldn't be made complete without us. 

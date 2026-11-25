@@ -1,29 +1,29 @@
-﻿These are the words of the covenant which God commanded Moses to make with the children of Israel in the land of Moab, in addition to the covenant which he made with them in Horeb. 
-Moses called to all Israel, and said to them: Your eyes have seen all that God did in the land of Egypt to Pharaoh, and to all his servants, and to all his land; 
-the great trials which your eyes saw, the signs, and those great wonders. 
-But God hasn't given you a heart to know, eyes to see, and ears to hear, to this day. 
-I have led you forty years in the wilderness. Your clothes haven't grown old on you, and your sandals haven't grown old on your feet. 
-You haven't eaten bread, neither have you drunk wine or strong drink, that you can know that I'm your God. 
-When you came to this place, Sihon the king of Heshbon and Og the king of Bashan came out against us to battle, and we struck them. 
-We took their land, and gave it for an inheritance to the Reubenites, and to the Gadites, and to the half-tribe of the Manassites. 
-So keep the words of this covenant and do them, that you can prosper in all that you do. 
-All of you stand today in the presence of your God: your heads, your tribes, your elders, and your officers, even all the men of Israel, 
-your little ones, your wives, and the foreigners who are in the middle of your camps, from the one who cuts your wood to the one who draws your water, 
-that you can enter into the covenant of your God, and into his oath, which your God makes with you today, 
-that he can establish you today as his people, and that he can be your God, as he spoke to you and as he swore to your fathers, to Abraham, to Isaac, and to Jacob. 
-Neither do I make this covenant and this oath with you only, 
-but with those who stand here with us today before our God, and also with those who aren't here with us today 
-(for you know how we lived in the land of Egypt, and how we came through the middle of the nations through which you passed; 
-and you have seen their abominations and their idols of wood, stone, silver, and gold, which were among them); 
-lest there should be among you man, woman, family, or tribe whose heart turns away today from our God, to go to serve the gods of those nations; lest there should be among you a root that produces bitter poison; 
-and it happen, when he hears the words of this curse, that he bless himself in his heart, saying, "I will have peace, though I walk in the stubbornness of my heart," to destroy the moist with the dry. 
-God won't pardon him, but then God's anger and his jealousy will smoke against that man, and all the curse that's written in this book will fall on him, and God will blot out his name from under the sky. 
-God will set him apart for bad out of all the tribes of Israel, according to all the curses of the covenant written in this book of the law. 
-The generation to come, your children who will rise up after you, and the foreigner who will come from a far land, will say, when they see the plagues of that land, and the sicknesses with which God has made it sick, 
-that all of its land is sulfur, salt, and burning, that it isn't sown, doesn't produce, nor does any grass grow in it, like the overthrow of Sodom, Gomorrah, Admah, and Zeboiim, which God overthrew in his anger, and in his wrath. 
-Even all the nations will say, "Why has God done this to this land? What does the heat of this great anger mean?" 
-Then men will say, "Because they abandoned the covenant of the God of their fathers, which he made with them when he brought them out of the land of Egypt, 
-and went and served other gods and worshiped them, gods that they didn't know and that he hadn't given to them. 
-So God's anger burned against this land, to bring on it all the curses that are written in this book. 
-God rooted them out of their land in anger, in wrath, and in great indignation, and thrust them into another land, as it's today." 
-The secret things belong to our God; but the things that are revealed belong to us and to our children for the eras, that we can do all the words of this law. 
+﻿These are the words of the covenant God commanded Moses to make with the Israelites in the land of Moab, in addition to the covenant he made with them at Horeb. 
+Moses called all Israel together and said to them: Your eyes have seen everything God did in the land of Egypt to Pharaoh, to all his servants and to all his land, 
+the great tests your eyes saw, those signs and great wonders. 
+But to this day God hasn't given you a heart that understands, or eyes that see, or ears that hear. 
+I have led you forty years in the wilderness. Your clothes haven't worn out on you and your sandals haven't worn out on your feet. 
+You haven't eaten bread, and you haven't drunk wine or strong drink, so that you would know that I am your God. 
+When you came to this place, Sihon king of Heshbon and Og king of Bashan came out against us to fight, and we defeated them. 
+We took their land and gave it as an inheritance to the Reubenites, the Gadites and the half tribe of Manasseh. 
+So keep the words of this covenant and do them, so that everything you do will succeed. 
+All of you are standing today in the presence of your God: your leaders, your tribes, your elders, your officials, every man of Israel, 
+your little ones, your wives, and the foreigners in the middle of your camps, from the one who cuts your wood to the one who draws your water, 
+so that you may enter into the covenant of your God and into his oath, which your God is making with you today, 
+so that he can establish you today as his people, and he can be your God, as he spoke to you and as he swore to your fathers, to Abraham, to Isaac and to Jacob. 
+I am not making this covenant and this oath with you alone, 
+but with those standing here with us today before our God, and also with those who aren't here with us today. 
+You know how we lived in the land of Egypt, and how we passed through the middle of the nations on the way here. 
+You have seen their disgusting things and their idols of wood, stone, silver and gold, which were among them. 
+Make sure there is no man, woman, family or tribe among you whose heart turns away today from our God to go and serve the gods of those nations. Make sure there is no root among you that grows bitter poison. 
+When such a person hears the words of this curse, he shouldn't bless himself in his heart and say, 'I will have peace even though I walk in the stubbornness of my heart,' because that would sweep away the wet along with the dry. 
+God won't forgive him. Instead, God's anger and jealousy will burn like smoke against that man, and every curse written in this scroll will fall on him, and God will wipe out his name from under the sky. 
+God will single him out for disaster out of all the tribes of Israel, according to all the curses of the covenant written in the scroll of this law. 
+The next generation, your children who rise up after you, and the foreigner who comes from a faraway land, will see the plagues on that land and the sicknesses with which God has made it sick. 
+They will see that all its land is sulfur and salt and burning, not sown, not producing, with no grass growing in it, like the destruction of Sodom, Gomorrah, Admah and Zeboiim, which God destroyed in his anger and his fury. 
+All the nations will ask, 'Why has God done this to this land? What does this great, hot anger mean?' 
+And the answer will be, 'Because they walked away from the covenant of the God of their fathers, which he made with them when he brought them out of the land of Egypt. 
+They went and served other gods and bowed down to them, gods they had never known and that he had never given them. 
+So God's anger burned against this land, bringing on it every curse written in this scroll. 
+God pulled them out of their land in anger, in fury and in great rage, and threw them into another land, as it is today.' 
+The hidden things belong to our God, but the revealed things belong to us and to our children for the eras, so that we can do all the words of this law. 

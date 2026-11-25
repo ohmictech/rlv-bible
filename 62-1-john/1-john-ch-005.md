@@ -3,10 +3,10 @@ This is how we know that we love God's children: when we love God and keep his c
 This is what loving God means: keeping his commands. And his commands aren't a heavy load. 
 Everything born of God wins the victory over the world. And this is the victory that has won over the world: your trust. 
 Who's it that wins the victory over the world? The one who trusts that Jesus is the Son of God. 
-This is the one who came by water and blood: Jesus Christ. He didn't come by water only, but by water and blood. And it's the Spirit who bears witness, because the Spirit is the truth. 
-There are three that bear witness: 
+This is the one who came by water and blood: Jesus Christ. He didn't come by water only, but by water and blood. And it's the Spirit who testifies, because the Spirit is the truth. 
+There are three that testify: 
 the Spirit, the water, and the blood; and the three agree as one. 
-If we accept what people bear witness to, what God bears witness to is greater, because this is God's own witness, which he has given about his Son. 
+If we accept what people testify to, what God testifies to is greater, because this is God's own witness, which he has given about his Son. 
 Whoever trusts in the Son of God has that witness in themselves. Whoever doesn't trust God has made God out to be a liar, because they haven't trusted the witness God gave about his Son. 
 And this is the witness: God gave us the real life of the era, and this life is in his Son. 
 Whoever has the Son has the life. Whoever doesn't have God's Son doesn't have the life. 

@@ -15,7 +15,7 @@ Flourishing are those who do his commands, so that they can have the right to th
 Outside are the dogs, the drug-magicians, those who sleep around, the murderers, the idol worshipers, and everyone who loves and tells lies. 
 I, Jesus, have sent my messenger to give you this witness for the gatherings. I'm the root and the offspring of David, the bright morning star." 
 The Spirit and the bride say, "Come!" Let everyone who hears say, "Come!" Let anyone who's thirsty come. Let anyone who wants take the water of real life freely. 
-I bear witness to everyone who hears the words spoken for God in this scroll: if anyone adds anything to them, God will add to them the plagues that are written in this scroll. 
+I testify to everyone who hears the words spoken for God in this scroll: if anyone adds anything to them, God will add to them the plagues that are written in this scroll. 
 And if anyone takes away from the words of this scroll of prophecy, God will take away their share in the tree of real life and in the holy city, which are described in this scroll. 
-The one who bears witness to these things says, "Yes, I'm coming soon." Amen! Come, Lord Jesus! 
+The one who testifies to these things says, "Yes, I'm coming soon." Amen! Come, Lord Jesus! 
 May the favor of the Lord Jesus Christ be with all the set-apart ones. Amen. 

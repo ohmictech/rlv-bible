@@ -3,7 +3,7 @@ The kings of the land slept around with her, and those who live on the land got 
 He carried me away in the Spirit into a desert. I saw a woman sitting on a scarlet beast that was covered with names of slander and had seven heads and ten horns. 
 The woman was dressed in purple and scarlet and covered with gold, precious stones, and pearls. In her hand she held a golden cup full of hateful things and the filth of the land's sleeping around. 
 On her forehead a name was written: "SECRET, BABYLON THE GREAT, THE MOTHER OF PROSTITUTES AND OF THE HATEFUL THINGS OF THE LAND." 
-I saw that the woman was drunk with the blood of the set-apart ones and with the blood of those who bore witness to Jesus. When I saw her, I was greatly amazed. 
+I saw that the woman was drunk with the blood of the set-apart ones and with the blood of those who testified to Jesus. When I saw her, I was greatly amazed. 
 The messenger said to me, "Why are you amazed? I'll tell you the secret of the woman and of the beast that carries her, which has the seven heads and the ten horns. 
 The beast you saw was, and isn't, and is about to come up out of the deep and go to its ruin. Those who live on the land, whose names haven't been written in the book of real life since the founding of the world, will be amazed when they see the beast, because it was, and isn't, and is yet to come. 
 This calls for a mind with wisdom. The seven heads are seven hills that the woman sits on. 

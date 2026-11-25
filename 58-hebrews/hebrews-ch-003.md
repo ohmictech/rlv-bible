@@ -2,7 +2,7 @@
 He was trustworthy to the one who appointed him, just as Moses was trustworthy in all God's house. 
 He has been given more weight than Moses, just as the one who builds a house has more honor than the house itself. 
 Every house is built by someone, but the one who built everything is God. 
-Moses was trustworthy in all God's house as a servant, to bear witness to what would be spoken later, 
+Moses was trustworthy in all God's house as a servant, to testify to what would be spoken later, 
 but Christ is trustworthy as a Son over God's house. We're his house, if we hold tightly to our boldness and to the pride we take in our expectation, firm to the end. 
 So, just as the Holy Spirit says, "Today, if you hear his voice, 
 don't harden your hearts as they did in the rebellion, on the day they tested me in the wilderness, 

@@ -1,5 +1,5 @@
 ﻿This is the unveiling of Jesus Christ, which God gave him to show his slaves what must happen soon. He made it known by sending his messenger to his slave John, 
-who bore witness to God's message and to the witness Jesus Christ gave, about everything he saw. 
+who testified to God's message and to the witness Jesus Christ gave, about everything he saw. 
 Flourishing is the one who reads this aloud, and those who hear these words spoken for God and do what's written in it, because the time is near. 
 From John, to the seven gatherings that are in Asia: Favor and wholeness to you from the one who's and who was and who's coming, and from the seven Spirits who are in front of his throne, 
 and from Jesus Christ, the trustworthy witness, the firstborn from the dead, and the ruler of the kings of the land. To the one who loves us and washed us from our mistakes with his blood, 

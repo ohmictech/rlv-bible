@@ -11,7 +11,7 @@ This is what love is: not that we loved God, but that he loved us and sent his S
 My truly loved friends, if God loved us like that, we should love one another too. 
 No one has ever seen God, but if we love one another, God makes his home in us, and his love has been made complete in us. 
 This is how we know that we make our home in him and he in us: he has given us his Spirit. 
-We have seen and we bear witness that the Father has sent the Son to be the Restorer of the world. 
+We have seen and we testify that the Father has sent the Son to be the Restorer of the world. 
 Whoever openly declares that Jesus is the Son of God, God makes his home in them, and they in God. 
 We know the love God has for us, and we have put our trust in it. God is love, and whoever makes their home in love makes their home in God, and God makes his home in them. 
 This is how love has been made complete among us, so that we can have boldness on the day of the verdict: in this world we're just as he is. 

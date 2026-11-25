@@ -12,19 +12,19 @@ Every priest stands day after day serving and offering the same sacrifices over 
 But this one, after he had offered a single sacrifice for wrongdoing for all time, sat down at the right hand of God, 
 and from then on he waits until his enemies are made a footstool for his feet. 
 By one offering he has made complete for all time those who are being set apart. 
-The Holy Spirit also bears witness to us. First he says, 
+The Holy Spirit also testifies to us. First he says, 
 "This is the binding arrangement I'll make with them after those days," says the Lord, "I'll put my laws on their hearts, I'll also write them on their minds;" then he says, 
 "I'll remember their mistakes and their living as if there were no law no more." 
 And where these have been released, there's no longer any offering for wrongdoing. 
 So then, brothers and sisters, we have boldness to enter the Holy Place by the blood of Jesus, 
 by a new and living way he opened for us through the curtain, that is, through his flesh. 
 And we have a great priest over God's house. 
-So let's come near with a sincere heart, in the full assurance that comes from trust, with our hearts sprinkled clean from a guilty conscience and our bodies washed with pure water. 
+So let's come near with a sincere heart, in the deep conviction that comes from trust, with our hearts sprinkled clean from a guilty conscience and our bodies washed with pure water. 
 Let's hold tightly to the expectation we declare, without wavering, because the one who promised is trustworthy. 
 Let's think about how to stir one another up to love and good deeds, 
 not staying away from meeting together, as some have gotten into the habit of doing, but encouraging one another, and all the more as you see the Day coming closer. 
 If we keep on drifting, knowing what we're doing, after we have received the knowledge of the truth, there's no longer any sacrifice for wrongdoing, 
-only a terrifying expectation of the verdict, and a raging fire that will consume those who are against God. 
+only a frightening wait for the verdict, and a raging fire that will consume those who are against God. 
 Anyone who set aside Moses' law died without mercy on the word of two or three witnesses. 
 How much worse a penalty do you think that person deserves, who has trampled the Son of God underfoot, who has treated the blood of the arrangement as something ordinary even though it set them apart, and who has insulted the Spirit of favor? 
 We know the one who said, "Payback belongs to me. I'll repay," says the Lord. And again, "The Lord will pass a verdict on his people." 

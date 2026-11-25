@@ -9,6 +9,6 @@ So we should welcome people like that, so that we can work alongside them for th
 I wrote to the gathering, but Diotrephes, who loves to be the most important among them, doesn't accept what we say. 
 So if I come, I'll bring up what he's doing, spreading wicked rumors about us. And he isn't satisfied with that: he refuses to welcome the brothers and sisters himself, and he stops those who would, and throws them out of the gathering. 
 My truly loved friend, don't imitate what's bad; imitate what's good. Whoever does good belongs to God. Whoever does bad hasn't seen God. 
-Everyone bears witness to Demetrius, and so does the truth itself. We also bear witness, and you know that our witness is true. 
+Everyone speaks well of Demetrius, and so does the truth itself. We also testify, and you know that our witness is true. 
 I had many things to write to you, but I'm unwilling to write to you with ink and pen; 
 but I hope to see you soon, and then we'll speak face to face. Wholeness be with you. The friends send you greetings. Greet each friend by name. 

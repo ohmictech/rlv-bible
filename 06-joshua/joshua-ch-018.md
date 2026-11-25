@@ -1,28 +1,28 @@
-﻿The whole congregation of the children of Israel assembled themselves together at Shiloh, and set up the Tent of Meeting there. The land was subdued before them. 
-Seven tribes remained among the children of Israel, which hadn't yet divided their inheritance. 
-Joshua said to the children of Israel, "How long will you neglect to go in to possess the land, which the God of your fathers has given you? 
-Appoint for yourselves three men from each tribe. I'll send them, and they will arise, walk through the land, and describe it according to their inheritance; then they will come to me. 
-They will divide it into seven portions. Judah will live in his borders on the south, and the house of Joseph will live in their borders on the north. 
-You will survey the land into seven parts, and bring the description here to me; and I'll cast lots for you here before our God. 
-However, the Levites have no portion among you; for the priesthood of God is their inheritance. Gad, Reuben, and the half-tribe of Manasseh have received their inheritance east of the Jordan, which Moses the servant of God gave them." 
-The men arose and went. Joshua commanded those who went to survey the land, saying, "Go walk through the land, survey it, and come again to me. I'll cast lots for you here before God in Shiloh." 
-The men went and passed through the land, and surveyed it by cities into seven portions in a book. They came to Joshua to the camp at Shiloh. 
-Joshua cast lots for them in Shiloh before God. There Joshua divided the land to the children of Israel according to their divisions. 
-The lot of the tribe of the children of Benjamin came up according to their families. The border of their lot went out between the children of Judah and the children of Joseph. 
-Their border on the north quarter was from the Jordan. The border went up to the side of Jericho on the north, and went up through the hill country westward. It ended at the wilderness of Beth Aven. 
-The border passed along from there to Luz, to the side of Luz (also called Bethel), southward. The border went down to Ataroth Addar, by the mountain that lies on the south of Beth Horon the lower. 
-The border extended, and turned around on the west quarter southward, from the mountain that lies before Beth Horon southward; and ended at Kiriath Baal (also called Kiriath Jearim), a city of the children of Judah. This was the west quarter. 
-The south quarter was from the farthest part of Kiriath Jearim. The border went out westward, and went out to the spring of the waters of Nephtoah. 
-The border went down to the farthest part of the mountain that lies before the valley of the son of Hinnom, which is in the valley of Rephaim northward. It went down to the valley of Hinnom, to the side of the Jebusite southward, and went down to En Rogel. 
-It extended northward, went out at En Shemesh, and went out to Geliloth, which is opposite the ascent of Adummim. It went down to the stone of Bohan the son of Reuben. 
-It passed along to the side opposite the Arabah northward, and went down to the Arabah. 
-The border passed along to the side of Beth Hoglah northward; and the border ended at the north bay of the Salt Sea, at the south end of the Jordan. This was the south border. 
-The Jordan was its border on the east quarter. This was the inheritance of the children of Benjamin, by the borders around it, according to their families. 
-Now the cities of the tribe of the children of Benjamin according to their families were Jericho, Beth Hoglah, Emek Keziz, 
+﻿The whole community of the Israelites gathered at Shiloh and set up the Tent of Meeting there, and the land was subdued before them. 
+Seven tribes were still left among the Israelites who hadn't yet received their inheritance. 
+Joshua said to the Israelites, "How long will you wait before you go in and take the land the God of your fathers has given you? 
+Choose three men from each tribe. I will send them out, and they will go and walk through the land and write down a description of it, divided by inheritance, and then come back to me. 
+They will divide it into seven parts. Judah will stay in its territory in the south, and the house of Joseph in theirs in the north. 
+You will survey the land in seven parts and bring the description back here to me, and I will cast lots for you here before our God. 
+The Levites get no share among you, because serving as priests of God is their inheritance. Gad, Reuben and the half tribe of Manasseh have already received their inheritance east of the Jordan, which Moses the servant of God gave them." 
+So the men got up and went. Joshua told those going to survey the land, "Go and walk through the land and write down a description, then come back to me, and I will cast lots for you here before God at Shiloh." 
+The men went and passed through the land and wrote down a description of it by towns, in seven parts, in a scroll, and came back to Joshua at the camp at Shiloh. 
+Joshua cast lots for them at Shiloh before God, and there he divided the land among the Israelites according to their tribes. 
+The lot came up for the tribe of Benjamin, clan by clan, and their territory lay between the people of Judah and the descendants of Joseph. 
+Their northern border began at the Jordan, went up to the north side of Jericho and up through the hill country west, ending at the wilderness of Beth Aven. 
+From there the border went on to Luz, to the south side of Luz, that is, Bethel, and down to Ataroth Addar, by the mountain south of lower Beth Horon. 
+From the mountain facing Beth Horon on the south, the border turned and went around on the west side, ending at Kiriath Baal, that is, Kiriath Jearim, a town of the people of Judah. That was the western side. 
+The southern side began at the far end of Kiriath Jearim, and the border went out west to the spring at Nephtoah. 
+It went down to the foot of the mountain facing the valley of the son of Hinnom, at the north end of the valley of Rephaim, down into the valley of Hinnom to the south slope of the Jebusite city, and down to En Rogel. 
+Then it went north to En Shemesh and out to Geliloth, opposite the ascent of Adummim, and down to the stone of Bohan son of Reuben. 
+It went on to the slope opposite the Arabah on the north and down into the Arabah. 
+Then it passed along the north side of Beth Hoglah and ended at the northern bay of the Salt Sea, at the south end of the Jordan. That was the southern border. 
+The Jordan was its border on the east. This was the inheritance of the tribe of Benjamin, all the way around, clan by clan. 
+The towns of the tribe of Benjamin, clan by clan, were Jericho, Beth Hoglah, Emek Keziz, 
 Beth Arabah, Zemaraim, Bethel, 
 Avvim, Parah, Ophrah, 
-Chephar Ammoni, Ophni, and Geba; twelve cities with their villages. 
+Chephar Ammoni, Ophni and Geba. That is twelve towns with their villages. 
 Gibeon, Ramah, Beeroth, 
 Mizpeh, Chephirah, Mozah, 
 Rekem, Irpeel, Taralah, 
-Zelah, Eleph, the Jebusite (also called Jerusalem), Gibeath, and Kiriath; fourteen cities with their villages. This is the inheritance of the children of Benjamin according to their families. 
+Zelah, Eleph, the Jebusite city, that is, Jerusalem, Gibeath and Kiriath. That is fourteen towns with their villages. This was the inheritance of the tribe of Benjamin, clan by clan. 

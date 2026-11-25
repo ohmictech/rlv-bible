@@ -1,29 +1,29 @@
-﻿God spoke to Moses, saying, 
-"Command the children of Israel, and tell them, 'When you come into the land of Canaan (this is the land that will fall to you for an inheritance, even the land of Canaan according to its borders), 
-then your south quarter will be from the wilderness of Zin along by the side of Edom, and your south border will be from the end of the Salt Sea eastward. 
-Your border will turn about southward of the ascent of Akrabbim, and pass along to Zin; and it will pass southward of Kadesh Barnea; and it will go from there to Hazar Addar, and pass along to Azmon. 
-The border will turn about from Azmon to the brook of Egypt, and it will end at the sea. 
-"'The western border, you will have the great sea and its border. This will be your west border. 
-"'This will be your north border: from the great sea you will mark out for yourselves Mount Hor. 
-From Mount Hor you will mark out to the entrance of Hamath; and the border will pass by Zedad. 
-Then the border will go to Ziphron, and it will end at Hazar Enan. This will be your north border. 
-"'You will mark out your east border from Hazar Enan to Shepham. 
-The border will go down from Shepham to Riblah, on the east side of Ain. The border will go down, and will reach to the side of the sea of Chinnereth eastward. 
-The border will go down to the Jordan, and end at the Salt Sea. This will be your land according to its borders around it.'" 
-Moses commanded the children of Israel, saying, "This is the land which you will inherit by lot, which God has commanded to give to the nine tribes, and to the half-tribe; 
-for the tribe of the children of Reuben according to their fathers' houses, the tribe of the children of Gad according to their fathers' houses, and the half-tribe of Manasseh have received their inheritance. 
-The two tribes and the half-tribe have received their inheritance beyond the Jordan at Jericho eastward, toward the sunrise." 
-God spoke to Moses, saying, 
-"These are the names of the men who will divide the land to you for inheritance: Eleazar the priest, and Joshua the son of Nun. 
-You will take one prince of every tribe, to divide the land for inheritance. 
-These are the names of the men: Of the tribe of Judah, Caleb the son of Jephunneh. 
-Of the tribe of the children of Simeon, Shemuel the son of Ammihud. 
-Of the tribe of Benjamin, Elidad the son of Chislon. 
-Of the tribe of the children of Dan a prince, Bukki the son of Jogli. 
-Of the children of Joseph: of the tribe of the children of Manasseh a prince, Hanniel the son of Ephod. 
-Of the tribe of the children of Ephraim a prince, Kemuel the son of Shiphtan. 
-Of the tribe of the children of Zebulun a prince, Elizaphan the son of Parnach. 
-Of the tribe of the children of Issachar a prince, Paltiel the son of Azzan. 
-Of the tribe of the children of Asher a prince, Ahihud the son of Shelomi. 
-Of the tribe of the children of Naphtali a prince, Pedahel the son of Ammihud." 
-These are they whom God commanded to divide the inheritance to the children of Israel in the land of Canaan. 
+﻿God spoke to Moses: 
+"Command the Israelites and tell them, 'When you come into the land of Canaan, this is the land that will fall to you as your inheritance, the land of Canaan within its borders. 
+Your southern part will run from the Zin wilderness along Edom, and your southern border will start from the end of the Salt Sea on the east. 
+Your border will turn south of the Scorpion Pass, run on to Zin, and pass south of Kadesh Barnea, then go to Hazar Addar and on to Azmon. 
+From Azmon the border will turn to the brook of Egypt and end at the sea. 
+"'Your western border will be the Great Sea and its coastline. That is your western border. 
+"'This will be your northern border: from the Great Sea draw a line to Mount Hor, 
+and from Mount Hor draw a line to Lebo Hamath, and the border will run on to Zedad. 
+Then the border will go to Ziphron and end at Hazar Enan. That is your northern border. 
+"'Draw your eastern border from Hazar Enan to Shepham. 
+The border will go down from Shepham to Riblah, east of Ain, then down along the eastern side of the Sea of Chinnereth. 
+Then the border will go down to the Jordan and end at the Salt Sea. That is your land, with its borders all around.'" 
+Moses commanded the Israelites, "This is the land you are to divide by lot, which God has commanded to give to the nine tribes and the half tribe, 
+because the tribe of Reuben, the tribe of Gad and the half tribe of Manasseh have already received their inheritance by family. 
+Those two and a half tribes have received their inheritance east of the Jordan across from Jericho, toward the sunrise." 
+God spoke to Moses: 
+"These are the men who are to divide the land for you: Eleazar the priest and Joshua son of Nun. 
+Take one leader from each tribe to divide the land. 
+These are the names of the men: from the tribe of Judah, Caleb son of Jephunneh; 
+from the tribe of Simeon, Shemuel son of Ammihud; 
+from the tribe of Benjamin, Elidad son of Chislon; 
+from the tribe of Dan, a leader, Bukki son of Jogli; 
+from the sons of Joseph: from the tribe of Manasseh, a leader, Hanniel son of Ephod, 
+and from the tribe of Ephraim, a leader, Kemuel son of Shiphtan; 
+from the tribe of Zebulun, a leader, Elizaphan son of Parnach; 
+from the tribe of Issachar, a leader, Paltiel son of Azzan; 
+from the tribe of Asher, a leader, Ahihud son of Shelomi; 
+from the tribe of Naphtali, a leader, Pedahel son of Ammihud." 
+These are the men God commanded to divide the inheritance among the Israelites in the land of Canaan. 

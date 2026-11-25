@@ -1,24 +1,24 @@
-﻿Now these are the kings of the land, whom the children of Israel struck, and possessed their land beyond the Jordan toward the sunrise, from the valley of the Arnon to Mount Hermon, and all the Arabah eastward: 
-Sihon king of the Amorites, who lived in Heshbon, and ruled from Aroer, which is on the edge of the valley of the Arnon, and the middle of the valley, and half Gilead, even to the river Jabbok, the border of the children of Ammon; 
-and the Arabah to the sea of Chinneroth, eastward, and to the sea of the Arabah, even the Salt Sea, eastward, the way to Beth Jeshimoth; and on the south, under the slopes of Pisgah: 
-and the border of Og king of Bashan, of the remnant of the Rephaim, who lived at Ashtaroth and at Edrei, 
-and ruled in Mount Hermon, and in Salecah, and in all Bashan, to the border of the Geshurites and the Maacathites, and half Gilead, the border of Sihon king of Heshbon. 
-Moses the servant of God and the children of Israel struck them. Moses the servant of God gave it for a possession to the Reubenites, and the Gadites, and the half-tribe of Manasseh. 
-These are the kings of the land whom Joshua and the children of Israel struck beyond the Jordan westward, from Baal Gad in the valley of Lebanon even to Mount Halak, that goes up to Seir. Joshua gave it to the tribes of Israel for a possession according to their divisions; 
-in the hill country, and in the lowland, and in the Arabah, and in the slopes, and in the wilderness, and in the South; the Hittite, the Amorite, and the Canaanite, the Perizzite, the Hivite, and the Jebusite: 
-the king of Jericho, one; the king of Ai, which is beside Bethel, one; 
-the king of Jerusalem, one; the king of Hebron, one; 
-the king of Jarmuth, one; the king of Lachish, one; 
-the king of Eglon, one; the king of Gezer, one; 
-the king of Debir, one; the king of Geder, one; 
-the king of Hormah, one; the king of Arad, one; 
-the king of Libnah, one; the king of Adullam, one; 
-the king of Makkedah, one; the king of Bethel, one; 
-the king of Tappuah, one; the king of Hepher, one; 
-the king of Aphek, one; the king of Lassharon, one; 
-the king of Madon, one; the king of Hazor, one; 
-the king of Shimron Meron, one; the king of Achshaph, one; 
-the king of Taanach, one; the king of Megiddo, one; 
-the king of Kedesh, one; the king of Jokneam in Carmel, one; 
-the king of Dor in the height of Dor, one; the king of Goiim in Gilgal, one; 
-the king of Tirzah, one: all the kings thirty-one. 
+﻿These are the kings of the land the Israelites struck down and whose land they took on the east side of the Jordan, from the valley of the Arnon to Mount Hermon, and all the Arabah eastward: 
+Sihon king of the Amorites, who lived in Heshbon and ruled from Aroer on the edge of the Arnon valley, and from the middle of the valley, and half of Gilead as far as the river Jabbok, the border of the Ammonites, 
+and the Arabah as far as the sea of Chinneroth on the east, and as far as the sea of the Arabah, the Salt Sea, on the east toward Beth Jeshimoth, and southward below the slopes of Pisgah; 
+and the territory of Og king of Bashan, one of the last of the Rephaim, who lived at Ashtaroth and Edrei 
+and ruled over Mount Hermon, Salecah and all Bashan as far as the border of the Geshurites and Maacathites, and half of Gilead as far as the border of Sihon king of Heshbon. 
+Moses the servant of God and the Israelites struck them down, and Moses the servant of God gave their land as a possession to the Reubenites, the Gadites and the half tribe of Manasseh. 
+These are the kings of the land Joshua and the Israelites struck down on the west side of the Jordan, from Baal Gad in the valley of Lebanon as far as Mount Halak, which rises toward Seir. Joshua gave their land to the tribes of Israel as a possession, divided among them, 
+in the hill country, the lowlands, the Arabah, the slopes, the wilderness and the Negev: the Hittites, Amorites, Canaanites, Perizzites, Hivites and Jebusites. 
+The king of Jericho, the king of Ai near Bethel, 
+the king of Jerusalem, the king of Hebron, 
+the king of Jarmuth, the king of Lachish, 
+the king of Eglon, the king of Gezer, 
+the king of Debir, the king of Geder, 
+the king of Hormah, the king of Arad, 
+the king of Libnah, the king of Adullam, 
+the king of Makkedah, the king of Bethel, 
+the king of Tappuah, the king of Hepher, 
+the king of Aphek, the king of Lasharon, 
+the king of Madon, the king of Hazor, 
+the king of Shimron Meron, the king of Achshaph, 
+the king of Taanach, the king of Megiddo, 
+the king of Kedesh, the king of Jokneam in Carmel, 
+the king of Dor in the heights of Dor, the king of Goiim in Gilgal, 
+the king of Tirzah. Thirty-one kings in all. 

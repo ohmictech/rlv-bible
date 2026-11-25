@@ -1,36 +1,36 @@
-﻿After the death of Joshua, the children of Israel asked of God, saying, "Who should go up for us first against the Canaanites, to fight against them?" 
-God said, "Judah will go up. Look, I have delivered the land into his hand." 
-Judah said to Simeon his brother, "Come up with me into my lot, that we can fight against the Canaanites; and I likewise will go with you into your lot." So Simeon went with him. 
-Judah went up, and God delivered the Canaanites and the Perizzites into their hand. They struck ten thousand men in Bezek. 
-They found Adoni-Bezek in Bezek, and they fought against him. They struck the Canaanites and the Perizzites. 
-But Adoni-Bezek fled. They pursued him, caught him, and cut off his thumbs and his big toes. 
-Adoni-Bezek said, "Seventy kings, having their thumbs and their big toes cut off, scavenged under my table. As I have done, so God has done to me." They brought him to Jerusalem, and he died there. 
-The children of Judah fought against Jerusalem, took it, struck it with the edge of the sword, and set the city on fire. 
-After that, the children of Judah went down to fight against the Canaanites who lived in the hill country, and in the South, and in the lowland. 
-Judah went against the Canaanites who lived in Hebron. (The name of Hebron before that was Kiriath Arba.) They struck Sheshai, Ahiman, and Talmai. 
-From there he went against the inhabitants of Debir. (The name of Debir before that was Kiriath Sepher.) 
-Caleb said, "I'll give Achsah my daughter as wife to the man who strikes Kiriath Sepher, and takes it." 
-Othniel the son of Kenaz, Caleb's younger brother, took it, so he gave him Achsah his daughter as his wife. 
-When she came, she got him to ask her father for a field. She got off her donkey; and Caleb said to her, "What would you like?" 
-She said to him, "Give me a blessing; because you have set me in the land of the South, give me also springs of water." Then Caleb gave her the upper springs and the lower springs. 
-The children of the Kenite, Moses' brother-in-law, went up out of the city of palm trees with the children of Judah into the wilderness of Judah, which is in the south of Arad; and they went and lived with the people. 
-Judah went with Simeon his brother, and they struck the Canaanites who inhabited Zephath, and utterly destroyed it. The name of the city was called Hormah. 
-Also Judah took Gaza with its border, and Ashkelon with its border, and Ekron with its border. 
-God was with Judah, and drove out the inhabitants of the hill country; for he couldn't drive out the inhabitants of the valley, because they had chariots of iron. 
+﻿After Joshua died, the Israelites asked God, "Who should go up first for us to fight the Canaanites?" 
+God said, "Judah will go up. Look, I have handed the land over to him." 
+Judah said to his brother Simeon, "Come up with me into the land allotted to me, and we will fight the Canaanites together, and then I will go with you into yours." So Simeon went with him. 
+Judah went up, and God handed the Canaanites and Perizzites over to them, and they struck down ten thousand men at Bezek. 
+They found Adoni-Bezek at Bezek and fought against him, and they struck down the Canaanites and Perizzites. 
+But Adoni-Bezek ran away. They chased him, caught him and cut off his thumbs and his big toes. 
+Adoni-Bezek said, "Seventy kings with their thumbs and big toes cut off used to pick up scraps under my table. What I did to them, God has done to me." They brought him to Jerusalem, and he died there. 
+The men of Judah fought against Jerusalem and took it, struck it with the sword and set the city on fire. 
+After that the men of Judah went down to fight the Canaanites living in the hill country, in the Negev and in the lowlands. 
+Judah went against the Canaanites living in Hebron, which used to be called Kiriath Arba, and struck down Sheshai, Ahiman and Talmai. 
+From there he went against the people of Debir, which used to be called Kiriath Sepher. 
+Caleb said, "I will give my daughter Achsah as a wife to whoever strikes Kiriath Sepher and takes it." 
+Othniel son of Kenaz, Caleb's younger brother, took it, so Caleb gave him his daughter Achsah as his wife. 
+When she came to him, she urged him to ask her father for a field. She got off her donkey, and Caleb asked her, "What would you like?" 
+She said, "Give me a blessing. Since you have given me land in the Negev, give me springs of water too." So Caleb gave her the upper springs and the lower springs. 
+The descendants of the Kenite, Moses' father-in-law, went up with the men of Judah from the city of palm trees into the wilderness of Judah, which is south of Arad, and they went and settled with the people. 
+Then Judah went with his brother Simeon, and they struck down the Canaanites living in Zephath and completely destroyed it. The city was named Hormah. 
+Judah also took Gaza with its territory, Ashkelon with its territory and Ekron with its territory. 
+God was with Judah, and he drove out the people of the hill country, but he couldn't drive out those in the valley, because they had iron chariots. 
 They gave Hebron to Caleb, as Moses had said, and he drove the three sons of Anak out of there. 
-The children of Benjamin didn't drive out the Jebusites who inhabited Jerusalem, but the Jebusites dwell with the children of Benjamin in Jerusalem to this day. 
+The Benjamites didn't drive out the Jebusites living in Jerusalem, so the Jebusites still live with the Benjamites in Jerusalem to this day. 
 The house of Joseph also went up against Bethel, and God was with them. 
-The house of Joseph sent to spy out Bethel. (The name of the city before that was Luz.) 
-The watchers saw a man come out of the city, and they said to him, "Please show us the entrance into the city, and we'll deal kindly with you." 
-He showed them the entrance into the city, and they struck the city with the edge of the sword; but they let the man and all his family go. 
-The man went into the land of the Hittites, built a city, and called its name Luz, which is its name to this day. 
-Manasseh didn't drive out the inhabitants of Beth Shean and its towns, nor Taanach and its towns, nor the inhabitants of Dor and its towns, nor the inhabitants of Ibleam and its towns, nor the inhabitants of Megiddo and its towns; but the Canaanites would dwell in that land. 
-When Israel had grown strong, they put the Canaanites to forced labor, and didn't utterly drive them out. 
-Ephraim didn't drive out the Canaanites who lived in Gezer, but the Canaanites lived in Gezer among them. 
-Zebulun didn't drive out the inhabitants of Kitron, nor the inhabitants of Nahalol; but the Canaanites lived among them, and became subject to forced labor. 
-Asher didn't drive out the inhabitants of Acco, nor the inhabitants of Sidon, nor of Ahlab, nor of Achzib, nor of Helbah, nor of Aphik, nor of Rehob; 
-but the Asherites lived among the Canaanites, the inhabitants of the land, for they didn't drive them out. 
-Naphtali didn't drive out the inhabitants of Beth Shemesh, nor the inhabitants of Beth Anath; but he lived among the Canaanites, the inhabitants of the land. Nevertheless the inhabitants of Beth Shemesh and of Beth Anath became subject to forced labor. 
-The Amorites forced the children of Dan into the hill country, for they wouldn't allow them to come down to the valley; 
-but the Amorites would dwell in Mount Heres, in Aijalon, and in Shaalbim. Yet the hand of the house of Joseph prevailed, so that they became subject to forced labor. 
-The border of the Amorites was from the ascent of Akrabbim, from the rock, and upward. 
+The house of Joseph sent men to scout out Bethel, which used to be called Luz. 
+The scouts saw a man coming out of the city and said to him, "Please show us the way into the city, and we will deal kindly with you." 
+He showed them the way into the city, and they struck the city with the sword, but they let the man and all his family go. 
+The man went into the land of the Hittites, built a city and named it Luz, which is still its name today. 
+Manasseh didn't drive out the people of Beth Shean and its towns, or Taanach and its towns, or the people of Dor and its towns, or the people of Ibleam and its towns, or the people of Megiddo and its towns, so the Canaanites kept living in that land. 
+When Israel grew strong, they put the Canaanites to forced labor, but they never drove them out completely. 
+Ephraim didn't drive out the Canaanites living in Gezer, so the Canaanites lived among them in Gezer. 
+Zebulun didn't drive out the people of Kitron or the people of Nahalol, so the Canaanites lived among them and were forced to work for them. 
+Asher didn't drive out the people of Acco, or Sidon, or Ahlab, or Achzib, or Helbah, or Aphik, or Rehob, 
+so the Asherites lived among the Canaanites who were in the land, because they didn't drive them out. 
+Naphtali didn't drive out the people of Beth Shemesh or Beth Anath, so he lived among the Canaanites who were in the land, but the people of Beth Shemesh and Beth Anath were forced to work for them. 
+The Amorites pushed the Danites back into the hill country and wouldn't let them come down into the valley. 
+The Amorites kept living on Mount Heres, in Aijalon and in Shaalbim, but the hand of the house of Joseph grew strong against them, and they were forced to work for Joseph. 
+The border of the Amorites ran from the ascent of Akrabbim, from the rock, upward. 

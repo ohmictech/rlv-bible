@@ -1,32 +1,32 @@
-﻿These are the statutes and the ordinances which you will observe to do in the land which the God of your fathers has given you to possess all the days that you live on the earth. 
-You will surely destroy all the places in which the nations that you will dispossess served their gods: on the high mountains, and on the hills, and under every green tree. 
-You will break down their altars, dash their pillars in pieces, and burn their Asherah poles with fire. You will cut down the engraved images of their gods. You will destroy their name out of that place. 
-Don't do so to your God. 
-But to the place which your God will choose out of all your tribes, to put his name there, you will seek his habitation, and you will come there. 
-You will bring your burnt offerings, your sacrifices, your tithes, the wave offering of your hand, your vows, your free will offerings, and the firstborn of your herd and of your flock there. 
-There you will eat before your God, and you will rejoice in all that you put your hand to, you and your households, in which your God has blessed you. 
-Don't do all the things that we do here today, every man whatever is right in his own eyes; 
-for you haven't yet come to the rest and to the inheritance which your God gives you. 
-But when you go over the Jordan and dwell in the land which your God causes you to inherit, and he gives you rest from all your enemies around you, so that you dwell in safety, 
-then it will happen that to the place which your God will choose, to cause his name to dwell there, there you will bring all that I command you: your burnt offerings, your sacrifices, your tithes, the wave offering of your hand, and all your choice vows which you vow to God. 
-You will rejoice before your God, you, and your sons, your daughters, your male servants, your female servants, and the Levite who's within your gates, because he has no portion nor inheritance with you. 
-Be careful that you don't offer your burnt offerings in every place that you see; 
-but in the place which God chooses in one of your tribes, there you will offer your burnt offerings, and there you will do all that I command you. 
-Yet you can kill and eat meat within all your gates, after all the desire of your soul, according to your God's blessing which he has given you. The unclean and the clean may eat of it, as of the gazelle and the deer. 
-Only you won't eat the blood. You will pour it out on the earth like water. 
-You can't eat within your gates the tithe of your grain, or of your new wine, or of your oil, or the firstborn of your herd or of your flock, nor any of your vows which you vow, nor your free will offerings, nor the wave offering of your hand; 
-but you will eat them before your God in the place which your God will choose: you, your son, your daughter, your male servant, your female servant, and the Levite who's within your gates. You will rejoice before your God in all that you put your hand to. 
-Be careful that you don't forsake the Levite as long as you live in your land. 
-When your God enlarges your border, as he has promised you, and you say, "I want to eat meat," because your soul desires to eat meat, you can eat meat, after all the desire of your soul. 
-If the place which your God will choose to put his name is too far from you, then you will kill of your herd and of your flock, which God has given you, as I have commanded you; and you can eat within your gates, after all the desire of your soul. 
-Even as the gazelle and as the deer is eaten, so you will eat of it. The unclean and the clean may eat of it alike. 
-Only be sure that you don't eat the blood; for the blood is the life. You won't eat the life with the meat. 
-Don't eat it. You will pour it out on the earth like water. 
-Don't eat it, that it may go well with you and with your children after you, when you do that which is right in God's eyes. 
-Only your holy things which you have, and your vows, you will take and go to the place which God will choose. 
-You will offer your burnt offerings, the meat and the blood, on your God's altar. The blood of your sacrifices will be poured out on your God's altar, and you will eat the meat. 
-Observe and hear all these words which I command you, that it may go well with you and with your children after you for the eras, when you do that which is good and right in your God's eyes. 
-When your God cuts off the nations from before you where you go in to dispossess them, and you dispossess them and dwell in their land, 
-be careful that you aren't ensnared to follow them after they're destroyed from before you, and that you not inquire after their gods, saying, "How do these nations serve their gods? I'll do likewise." 
-Don't do so to your God; for every abomination to God, which he hates, they have done to their gods; for they even burn their sons and their daughters in the fire to their gods. 
-Whatever thing I command you, that you will observe to do. You won't add to it, nor take away from it. 
+﻿"These are the rules and decisions you are to be careful to do in the land your God, the God of your fathers, has given you, all the days you live on the earth. 
+You must completely destroy all the places where the nations you are taking over served their gods, on the high mountains and the hills and under every green tree. 
+Tear down their altars, smash their sacred stones, burn their Asherah poles with fire, cut down the carved images of their gods and wipe out their names from those places. 
+Don't do that to your God. 
+Instead, go to the place your God will choose out of all your tribes to put his name, and seek him there, and come there. 
+Bring there your burnt offerings, your sacrifices, your tithes, the contribution of your hand, your vows, your freewill offerings, and the firstborn of your herd and flock. 
+There you will eat before your God, and you will celebrate everything you put your hand to, you and your households, because your God has blessed you. 
+Don't do here today what each of you is doing, every man doing whatever seems right in his own eyes, 
+because you haven't yet come to the rest and the inheritance your God is giving you. 
+When you cross the Jordan and live in the land your God gives you as your inheritance, and he gives you rest from all your enemies all around, and you live in safety, 
+then to the place your God will choose to put his name, there you will bring everything I command you: your burnt offerings, your sacrifices, your tithes, the contribution of your hand, and all your chosen vows that you promise to God. 
+And you will celebrate before your God, you, your sons and daughters, your male and female servants, and the Levite inside your gates, because he has no share or inheritance with you. 
+Be careful not to offer your burnt offerings anywhere you happen to see. 
+Offer your burnt offerings in the place God chooses in one of your tribes, and there do everything I command you. 
+Even so, you may kill and eat meat anywhere inside your gates, as much as you want, according to the blessing your God has given you. Anyone unclean or clean may eat it, just as they eat gazelle or deer. 
+Only you must not eat the blood. Pour it out on the ground like water. 
+Inside your gates you must not eat the tithe of your grain, your new wine or your oil, or the firstborn of your herd or flock, or any of the vows you promise, or your freewill offerings, or the contribution of your hand. 
+Eat those before your God in the place your God will choose: you, your son, your daughter, your male and female servants, and the Levite inside your gates. Celebrate before your God everything you put your hand to. 
+Be careful never to neglect the Levite as long as you live in your land. 
+When your God widens your borders as he promised you, and you say, 'I want to eat meat,' because you are hungry for meat, then you may eat meat, as much as you want. 
+If the place where your God chooses to put his name is too far away, you may slaughter from your herd and flock that God has given you, as I have commanded you, and you may eat inside your gates, as much as you want. 
+Eat it just the way gazelle and deer are eaten. Anyone unclean or clean may eat it alike. 
+Only be sure you don't eat the blood, because the blood is the life. Don't eat the life along with the meat. 
+Don't eat it. Pour it out on the ground like water. 
+Don't eat it, so that things go well for you and your children after you, when you do what is right in God's eyes. 
+But the holy things you have, and your vows, you are to take and go to the place God will choose. 
+Offer your burnt offerings, the meat and the blood, on the altar of your God. The blood of your sacrifices is to be poured out on the altar of your God, and you may eat the meat. 
+Be careful to hear all these words I am commanding you, so things go well for you and your children after you for the eras, when you do what is good and right in the eyes of your God. 
+When your God cuts off the nations ahead of you where you are going in to take over, and you take over from them and live in their land, 
+be careful not to be trapped into following them after they have been destroyed ahead of you. Don't ask about their gods, saying, 'How did these nations serve their gods? I will do the same.' 
+Don't do that to your God, because everything God hates, everything disgusting, they did for their gods. They even burn their sons and daughters in the fire to their gods. 
+Whatever I command you, that is what you must be careful to do. Don't add to it and don't take away from it. 

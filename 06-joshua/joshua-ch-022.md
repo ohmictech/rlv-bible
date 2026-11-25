@@ -1,34 +1,34 @@
-﻿Then Joshua called the Reubenites, the Gadites, and the half-tribe of Manasseh, 
-and said to them, "You have kept all that Moses the servant of God commanded you, and have listened to my voice in all that I commanded you. 
-You haven't left your brothers these many days to this day, but have performed the duty of the commandment of your God. 
-Now your God has given rest to your brothers, as he spoke to them. So now return and go to your tents, to the land of your possession, which Moses the servant of God gave you beyond the Jordan. 
-Only take diligent heed to do the commandment and the law which Moses the servant of God commanded you, to love your God, to walk in all his ways, to keep his commandments, to hold fast to him, and to serve him with all your heart and with all your soul." 
-So Joshua blessed them, and sent them away; and they went to their tents. 
-Now to the one half-tribe of Manasseh Moses had given inheritance in Bashan; but Joshua gave to the other half among their brothers beyond the Jordan westward. Moreover when Joshua sent them away to their tents, he blessed them, 
-and spoke to them, saying, "Return with much wealth to your tents, with very much livestock, with silver, with gold, with bronze, with iron, and with very much clothing. Divide the plunder of your enemies with your brothers." 
-The children of Reuben and the children of Gad and the half-tribe of Manasseh returned, and departed from the children of Israel out of Shiloh, which is in the land of Canaan, to go to the land of Gilead, to the land of their possession, which they owned, according to the commandment of God by Moses. 
-When they came to the region near the Jordan, that's in the land of Canaan, the children of Reuben and the children of Gad and the half-tribe of Manasseh built an altar there by the Jordan, a great altar to look at. 
-The children of Israel heard this, "Look, the children of Reuben and the children of Gad and the half-tribe of Manasseh have built an altar along the border of the land of Canaan, in the region around the Jordan, on the side that belongs to the children of Israel." 
-When the children of Israel heard of it, the whole congregation of the children of Israel gathered themselves together at Shiloh, to go up against them to war. 
-The children of Israel sent to the children of Reuben, and to the children of Gad, and to the half-tribe of Manasseh, into the land of Gilead, Phinehas the son of Eleazar the priest. 
-With him were ten princes, one prince of a fathers' house for each of the tribes of Israel; and they were each head of their fathers' houses among the thousands of Israel. 
-They came to the children of Reuben, and to the children of Gad, and to the half-tribe of Manasseh, to the land of Gilead, and they spoke with them, saying, 
-"The whole congregation of God says, 'What trespass is this that you have committed against the God of Israel, to turn away today from following God, in that you have built yourselves an altar, to rebel today against God? 
-Is the guilt of Peor too little for us, from which we haven't cleansed ourselves to this day, although there came a plague on the congregation of God, 
-that you must turn away today from following God? It'll be, since you rebel today against God, that tomorrow he'll be angry with the whole congregation of Israel. 
-However, if the land of your possession is unclean, then pass over to the land of the possession of God, in which God's tabernacle dwells, and take possession among us; but don't rebel against God, nor rebel against us, in building an altar other than our God's altar. 
-Didn't Achan the son of Zerah commit a trespass in the devoted thing, and wrath fell on all the congregation of Israel? That man didn't perish alone in his guilt.'" 
-Then the children of Reuben and the children of Gad and the half-tribe of Manasseh answered, and spoke to the heads of the thousands of Israel, 
-"The Mighty One, God, the Mighty One, God, God, he knows; and Israel will know: if it was in rebellion, or if in trespass against God (don't save us today), 
-that we have built us an altar to turn away from following God; or if to offer burnt offering or meal offering, or if to offer sacrifices of offerings for wholeness, let God himself require it. 
-"If we haven't out of concern done this, and for a reason, saying, 'In time to come your children might speak to our children, saying, "What have you to do with the God of Israel? 
-God has made the Jordan a border between us and you, you children of Reuben and children of Gad. You have no portion in God."' So your children might make our children cease from fearing God. 
-"So we said, 'Let's now prepare to build ourselves an altar, not for burnt offering, nor for sacrifice; 
-but it'll be a witness between us and you, and between our generations after us, that we can perform the service of God before him with our burnt offerings, with our sacrifices, and with our offerings for wholeness;' that your children can't tell our children in time to come, 'You have no portion in God.' 
-"So we said, 'It will be, when they tell us or our generations this in time to come, that we will say, "Look the pattern of God's altar, which our fathers made, not for burnt offering, nor for sacrifice; but it's a witness between us and you."' 
-"Far be it from us that we should rebel against God, and turn away today from following God, to build an altar for burnt offering, for meal offering, or for sacrifice, besides our God's altar that's before his tabernacle!" 
-When Phinehas the priest, and the princes of the congregation, even the heads of the thousands of Israel that were with him, heard the words that the children of Reuben and the children of Gad and the children of Manasseh spoke, it pleased them well. 
-Phinehas the son of Eleazar the priest said to the children of Reuben, to the children of Gad, and to the children of Manasseh, "Today we know that God is among us, because you haven't committed this trespass against God. Now you have delivered the children of Israel out of God's hand." 
-Phinehas the son of Eleazar the priest, and the princes, returned from the children of Reuben, and from the children of Gad, out of the land of Gilead, to the land of Canaan, to the children of Israel, and brought them word again. 
-The thing pleased the children of Israel; and the children of Israel blessed God, and spoke no more of going up against them to war, to destroy the land in which the children of Reuben and the children of Gad lived. 
-The children of Reuben and the children of Gad named the altar "A Witness Between Us that he's God." 
+﻿Then Joshua called the Reubenites, the Gadites and the half tribe of Manasseh 
+and said to them, "You have done everything Moses the servant of God commanded you, and you have listened to me in everything I commanded you. 
+You haven't left your brothers all this time, right up to today, but have done the duty your God required of you. 
+Now your God has given your brothers rest, as he said he would. So go back to your tents, to the land you own, which Moses the servant of God gave you on the east side of the Jordan. 
+Only be very careful to do the command and the law Moses the servant of God gave you: love your God, walk in all his ways, keep his commands, hold on to him and serve him with all your heart and all your life." 
+So Joshua blessed them and sent them away, and they went to their tents. 
+Moses had given one half of the tribe of Manasseh land in Bashan, and Joshua gave the other half land among their brothers on the west side of the Jordan. When Joshua sent them away to their tents, he blessed them 
+and said, "Go back to your tents with great wealth, with very much livestock, with silver, gold, bronze and iron, and with plenty of clothing. Share the plunder from your enemies with your brothers." 
+So the Reubenites, the Gadites and the half tribe of Manasseh went back and left the Israelites at Shiloh in the land of Canaan, heading for the land of Gilead, the land they owned, as God had commanded through Moses. 
+When they came to the region near the Jordan in the land of Canaan, the Reubenites, the Gadites and the half tribe of Manasseh built an altar there by the Jordan, a large and impressive altar. 
+The Israelites heard about it: "Look, the Reubenites, the Gadites and the half tribe of Manasseh have built an altar on the border of the land of Canaan, in the region around the Jordan, on the Israelite side." 
+When the Israelites heard it, the whole community gathered at Shiloh to go up and fight them. 
+So the Israelites sent Phinehas son of Eleazar the priest to the Reubenites, the Gadites and the half tribe of Manasseh in the land of Gilead, 
+and with him ten leaders, one from each of the tribes of Israel, each the head of his family among the thousands of Israel. 
+They came to the Reubenites, the Gadites and the half tribe of Manasseh in the land of Gilead and said to them, 
+"The whole community of God asks, 'What is this broken faith you have committed against the God of Israel? Today you have turned away from following God by building yourselves an altar and rebelling against God today. 
+Was the guilt of Peor not enough for us? We haven't been cleansed from it to this day, even though a plague came on the community of God. 
+And now you are turning away from following God today. If you rebel against God today, tomorrow he will be angry with the whole community of Israel. 
+If the land you own is unclean, then cross over into the land God owns, where God's tent stands, and take land among us. But don't rebel against God or against us by building an altar other than the altar of our God. 
+Didn't Achan son of Zerah break faith over what was given over to destruction, and anger fell on the whole community of Israel? And he wasn't the only one who died because of his guilt.'" 
+Then the Reubenites, the Gadites and the half tribe of Manasseh answered the heads of the thousands of Israel, 
+"God, the God of gods, knows! He knows, and Israel will know too. If this was rebellion or broken faith against God, don't spare us today. 
+If we built an altar to turn away from following God, or to offer burnt offerings or gift offerings on it, or to offer wholeness offerings on it, then let God himself demand an answer. 
+No. We did it because we were afraid, thinking, 'Someday your children will say to our children, "What do you have to do with the God of Israel? 
+God has put the Jordan as a border between us and you, you Reubenites and Gadites. You have no share in God." So your children could stop our children from fearing God. 
+That is why we said, 'Let's build an altar for ourselves, not for burnt offerings or sacrifices, 
+but as a witness between us and you, and between the generations after us, that we do serve God before him with our burnt offerings, our sacrifices and our wholeness offerings.' Then your children can't say to our children in time to come, 'You have no share in God.' 
+So we said, 'If they ever say this to us or to our descendants in time to come, we will answer, "Look at this copy of the altar of God that our fathers made, not for burnt offerings or sacrifices, but as a witness between us and you."' 
+Far be it from us to rebel against God and turn away from following him today by building an altar for burnt offerings, gift offerings or sacrifices, besides the altar of our God that stands in front of his tent!" 
+When Phinehas the priest and the leaders of the community, the heads of the thousands of Israel who were with him, heard what the Reubenites, the Gadites and the Manassites said, they were pleased. 
+Phinehas son of Eleazar the priest said to the Reubenites, the Gadites and the Manassites, "Today we know that God is among us, because you haven't broken faith with God in this. Now you have saved the Israelites from God's hand." 
+Then Phinehas son of Eleazar the priest and the leaders went back from the Reubenites and the Gadites in the land of Gilead to the land of Canaan, to the Israelites, and reported to them. 
+The Israelites were pleased, and they blessed God and said no more about going up to fight them and destroy the land where the Reubenites and the Gadites lived. 
+The Reubenites and the Gadites named the altar "A Witness Between Us That God Is God." 

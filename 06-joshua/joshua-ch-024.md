@@ -1,33 +1,33 @@
-﻿Joshua gathered all the tribes of Israel to Shechem, and called for the elders of Israel, for their heads, for their judges, and for their officers; and they presented themselves before God. 
-Joshua said to everyone, "The God of Israel says, 'Your fathers lived of old time beyond the River, even Terah, the father of Abraham, and the father of Nahor. They served other gods. 
-I took your father Abraham from beyond the River, and led him throughout all the land of Canaan, and multiplied his offspring, and gave him Isaac. 
-I gave to Isaac Jacob and Esau: and I gave to Esau Mount Seir, to possess it. Jacob and his children went down into Egypt. 
-"'I sent Moses and Aaron, and I plagued Egypt, according to that which I did among them: and afterward I brought you out. 
-I brought your fathers out of Egypt: and you came to the sea. The Egyptians pursued your fathers with chariots and with horsemen to the Red Sea. 
-When they cried out to God, he put darkness between you and the Egyptians, and brought the sea on them, and covered them; and your eyes saw what I did in Egypt. You lived in the wilderness many days. 
-"'I brought you into the land of the Amorites, that lived beyond the Jordan. They fought with you, and I gave them into your hand. You possessed their land, and I destroyed them from before you. 
-Then Balak the son of Zippor, king of Moab, arose and fought against Israel. He sent and called Balaam the son of Beor to curse you, 
-but I wouldn't listen to Balaam; he blessed you still. So I delivered you out of his hand. 
-"'You went over the Jordan, and came to Jericho. The men of Jericho fought against you, the Amorite, the Perizzite, the Canaanite, the Hittite, the Girgashite, the Hivite, and the Jebusite; and I delivered them into your hand. 
-I sent the hornet before you, which drove them out from before you, even the two kings of the Amorites; not with your sword, nor with your bow. 
-I gave you a land on which you hadn't labored, and cities which you didn't build, and you live in them. You eat of vineyards and olive groves which you didn't plant.' 
-"Now fear God, and serve him in sincerity and in truth. Put away the gods which your fathers served beyond the River, in Egypt; and serve God. 
-If it seems bad to you to serve God, choose today whom you'll serve; whether the gods which your fathers served that were beyond the River, or the gods of the Amorites, in whose land you dwell; but as for me and my house, we'll serve God." 
-The people answered, "Far be it from us that we should forsake God, to serve other gods; 
-for it's our God who brought us and our fathers up out of the land of Egypt, from the house of bondage, and who did those great signs in our sight, and preserved us in all the way in which we went, and among everyones through the middle of whom we passed. 
-God drove out from before us everyones, even the Amorites who lived in the land. So we also will serve God; for he's our God." 
-Joshua said to the people, "You can't serve God, for he's a holy God. He's a jealous God. He won't forgive your disobedience nor your mistakes. 
-If you forsake God, and serve foreign gods, then he'll turn and do you bad, and consume you, after he has done you good." 
-The people said to Joshua, "No, but we'll serve God." 
-Joshua said to the people, "You're witnesses against yourselves that you have chosen God yourselves, to serve him." They said, "We're witnesses." 
-"Now put away the foreign gods which are among you, and incline your heart to the God of Israel." 
-The people said to Joshua, "We'll serve our God, and we'll listen to his voice." 
-So Joshua made a covenant with the people that day, and made for them a statute and an ordinance in Shechem. 
-Joshua wrote these words in the book of the law of God; and he took a great stone, and set it up there under the oak that was by the sanctuary of God. 
-Joshua said to everyone, "Look, this stone will be a witness against us, for it has heard all God's words which he spoke to us. It will be a witness against you, lest you deny your God." 
+﻿Joshua gathered all the tribes of Israel at Shechem and called for the elders of Israel, their heads, their judges and their officials, and they presented themselves before God. 
+Joshua said to all the people, "The God of Israel says, 'Long ago your fathers lived beyond the River, Terah, the father of Abraham and of Nahor, and they served other gods. 
+I took your father Abraham from beyond the River and led him through all the land of Canaan, and I gave him many descendants and gave him Isaac. 
+To Isaac I gave Jacob and Esau. I gave Esau the hill country of Seir to own, but Jacob and his children went down into Egypt. 
+Then I sent Moses and Aaron, and I struck Egypt with plagues, just as I did among them, and afterwards I brought you out. 
+I brought your fathers out of Egypt, and you came to the sea. The Egyptians chased your fathers with chariots and horsemen as far as the Red Sea. 
+When they cried out to God, he put darkness between you and the Egyptians and brought the sea down on them and covered them, and your own eyes saw what I did in Egypt. Then you lived in the wilderness for a long time. 
+I brought you into the land of the Amorites east of the Jordan. They fought against you, and I handed them over to you. You took their land, and I destroyed them ahead of you. 
+Then Balak son of Zippor, king of Moab, got up and fought against Israel, and he sent for Balaam son of Beor to curse you, 
+but I wouldn't listen to Balaam. He blessed you instead, and I saved you out of his hand. 
+You crossed the Jordan and came to Jericho, and the men of Jericho fought against you, along with the Amorites, Perizzites, Canaanites, Hittites, Girgashites, Hivites and Jebusites, and I handed them over to you. 
+I sent hornets ahead of you that drove out the two kings of the Amorites ahead of you, not by your sword or your bow. 
+I gave you land you hadn't worked for and towns you hadn't built, and you live in them and eat from vineyards and olive groves you didn't plant.'" 
+"Now fear God and serve him with honesty and truth. Put away the gods your fathers served beyond the River and in Egypt, and serve God. 
+But if it doesn't seem good to you to serve God, then choose today whom you will serve, whether the gods your fathers served beyond the River, or the gods of the Amorites in whose land you are living. As for me and my household, we will serve God." 
+The people answered, "Far be it from us to leave God and serve other gods, 
+because it is our God who brought us and our fathers up out of Egypt, out of the house of slavery, and who did those great signs before our eyes and protected us on the whole way we went, and among all the peoples we passed through. 
+God drove out all the peoples ahead of us, including the Amorites who lived in the land. So we too will serve God, because he is our God." 
+Joshua said to the people, "You can't serve God, because he is a holy God. He is a God who will not share you. He won't forgive your rebellion or your wrongs. 
+If you leave God and serve foreign gods, then he will turn and bring disaster on you and make an end of you, after he has done you good." 
+The people said to Joshua, "No, we will serve God." 
+Joshua said to the people, "You are witnesses against yourselves that you have chosen God to serve him." They said, "We are witnesses." 
+"Now put away the foreign gods among you and turn your heart to the God of Israel." 
+The people said to Joshua, "We will serve our God and listen to his voice." 
+So Joshua made a covenant with the people that day, and gave them a rule and a decision at Shechem. 
+Joshua wrote these words in the scroll of the law of God. Then he took a large stone and set it up there under the oak by the sanctuary of God. 
+Joshua said to all the people, "Look, this stone will be a witness against us, because it has heard all the words God spoke to us. It will be a witness against you if you ever deny your God." 
 So Joshua sent the people away, each to his own inheritance. 
-After these things, Joshua the son of Nun, the servant of God, died, being one hundred ten years old. 
-They buried him in the border of his inheritance in Timnathserah, which is in the hill country of Ephraim, on the north of the mountain of Gaash. 
-Israel served God all the days of Joshua, and all the days of the elders who outlived Joshua, and had known all the work of God, that he had worked for Israel. 
-They buried the bones of Joseph, which the children of Israel brought up out of Egypt, in Shechem, in the parcel of ground which Jacob bought from the sons of Hamor the father of Shechem for a hundred pieces of silver. They became the inheritance of the children of Joseph. 
-Eleazar the son of Aaron died. They buried him in the hill of Phinehas his son, which was given him in the hill country of Ephraim. 
+After these things Joshua son of Nun, the servant of God, died at a hundred and ten years old. 
+They buried him in his own land at Timnath Serah in the hill country of Ephraim, north of Mount Gaash. 
+Israel served God all the days of Joshua and all the days of the elders who outlived Joshua and had known everything God had done for Israel. 
+The Israelites brought the bones of Joseph up out of Egypt and buried them at Shechem, in the piece of ground Jacob had bought from the sons of Hamor, Shechem's father, for a hundred pieces of silver, and it became the inheritance of the descendants of Joseph. 
+Eleazar son of Aaron died, and they buried him at Gibeah in the hill country of Ephraim, which had been given to his son Phinehas. 

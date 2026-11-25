@@ -1,29 +1,29 @@
-﻿This is the blessing with which Moses the man of God blessed the children of Israel before his death. 
-He said, "God came from Sinai, and rose from Seir to them. He shone from Mount Paran. He came from the ten thousands of holy ones. At his right hand was a fiery law for them. 
-Yes, he loves the people. All his saints are in your hand. They sat down at your feet. Each receives your words. 
-Moses commanded us a law, an inheritance for the assembly of Jacob. 
-He was king in Jeshurun, when the heads of the people were gathered, all the tribes of Israel together. 
-"Let Reuben live, and not die; Nor let his men be few." 
-This is for Judah. He said, "Hear, God, the voice of Judah. Bring him in to his people. With his hands he contended for himself. You will be a help against his adversaries." 
-About Levi he said, "Your Thummim and your Urim are with your godly one, whom you proved at Massah, with whom you contended at the waters of Meribah. 
-He said of his father, and of his mother, 'I haven't seen him.' He didn't acknowledge his brothers, nor did he know his own children; for they have observed your word, and keep your covenant. 
-They will teach Jacob your ordinances, and Israel your law. They will put incense before you, and whole burnt offering on your altar. 
-God, bless his skills. Accept the work of his hands. Strike through the hips of those who rise up against him, of those who hate him, that they not rise again." 
-About Benjamin he said, "The beloved of God will dwell in safety by him. He covers him all day long. He dwells between his shoulders." 
-About Joseph he said, "His land is blessed by God, for the precious things of the sky, for the dew, for the deep that couches beneath, 
-for the precious things of the fruits of the sun, for the precious things that the moon can yield, 
-for the best things of the ancient mountains, for the precious things of the perpetual hills, 
-for the precious things of the earth and its fullness, the good will of him who lived in the bush. Let this come on the head of Joseph, on the crown of the head of him who was separated from his brothers. 
-Majesty belongs to the firstborn of his herd. His horns are the horns of the wild ox. With them he'll push everyones to the ends of the earth. They're the ten thousands of Ephraim. They're the thousands of Manasseh." 
-About Zebulun he said, "Rejoice, Zebulun, in your going out; and Issachar, in your tents. 
-They'll ceveryones to the mountain. There they'll offer sacrifices of righteousness, for they'll draw out the abundance of the seas, the hidden treasures of the sand." 
-About Gad he said, "He who enlarges Gad is blessed. He dwells as a lioness, and tears the arm and the crown of the head. 
-He provided the first part for himself, for the lawgiver's portion was reserved for him. He came with the heads of the people. He executed the righteousness of God, His ordinances with Israel." 
-About Dan he said, "Dan is a lion's cub that leaps out of Bashan." 
-About Naphtali he said, "Naphtali, satisfied with favor, full of God's blessing, Possess the west and the south." 
-About Asher he said, "Asher is blessed with children. Let him be acceptable to his brothers. Let him dip his foot in oil. 
-Your bars will be iron and bronze. As your days, so your strength will be. 
-"There's no one like God, Jeshurun, who rides on the sky for your help, in his excellency on the skies. 
-The eternal God is your dwelling place. Underneath are the perpetual arms. He thrust out the enemy from before you, and said, 'Destroy!' 
-Israel dwells in safety, the fountain of Jacob alone, In a land of grain and new wine. Yes, his skies drop down dew. 
-You're happy, Israel! Who's like you, a people saved by God, the shield of your help, the sword of your excellency? Your enemies will submit themselves to you. You'll tread on their high places." 
+﻿This is the blessing Moses the man of God gave the Israelites before he died. 
+He said, "God came from Sinai and rose on them from Seir. He shone out from Mount Paran. He came with ten thousand holy ones, and at his right hand a blazing fire for them. 
+Yes, he loves the peoples. All his holy ones are in your hand. They sit down at your feet and receive your words. 
+Moses gave us a law, an inheritance for the gathering of Jacob. 
+He was king in Jeshurun when the heads of the people gathered, all the tribes of Israel together. 
+"Let Reuben live and not die, and let his men not be few." 
+This is what he said about Judah: "Hear the voice of Judah, God, and bring him to his people. He fights for his own cause with his hands. Be a help against his enemies." 
+About Levi he said, "Your Thummim and your Urim belong to your faithful one, the one you tested at Massah and argued with at the waters of Meribah. 
+He said of his father and mother, 'I have never seen them.' He didn't acknowledge his brothers or know his own children, because they have kept your word and held to your covenant. 
+They will teach Jacob your decisions and Israel your law. They will put incense before you and whole burnt offerings on your altar. 
+Bless what he has, God, and accept the work of his hands. Break the hips of those who rise against him and of those who hate him, so they can't get up again." 
+About Benjamin he said, "The one God loves will live in safety beside him. He covers him all day long, and lives between his shoulders." 
+About Joseph he said, "His land is blessed by God with the best of the sky, with dew, and with the deep water that lies beneath, 
+with the best crops the sun can grow and the best the months can bring, 
+with the finest produce of the ancient mountains and the best of the hills that last through the eras, 
+with the best of the earth and everything in it, and the favor of the one who appeared in the burning bush. Let all this come on the head of Joseph, on the crown of the one set apart from his brothers. 
+He is majestic like a firstborn bull, and his horns are the horns of a wild ox. With them he will push the peoples to the ends of the earth. These are the ten thousands of Ephraim. These are the thousands of Manasseh." 
+About Zebulun he said, "Rejoice, Zebulun, when you go out, and Issachar, in your tents. 
+They will call the peoples to the mountain. There they will offer the right sacrifices, because they draw out the abundance of the seas and the hidden treasures of the sand." 
+About Gad he said, "Blessed is the one who makes Gad large. He lives like a lioness and tears off arm and scalp together. 
+He took the first share for himself, because the leader's portion was kept for him. He came with the heads of the people and did what was right before God, and carried out his decisions for Israel." 
+About Dan he said, "Dan is a lion cub leaping out of Bashan." 
+About Naphtali he said, "Naphtali is satisfied with favor and full of God's blessing. Take the west and the south as your own." 
+About Asher he said, "Asher is blessed among the sons. Let him be the favorite of his brothers, and let him dip his foot in olive oil. 
+Your gates will be barred with iron and bronze, and your strength will match your days. 
+"There is no one like the God of Jeshurun, who rides across the sky to help you and comes in majesty on the clouds. 
+The God of long ago is your home, and underneath you are arms that last through the eras. He drives the enemy out ahead of you and says, 'Destroy them.' 
+So Israel lives in safety, the spring of Jacob safe and alone, in a land of grain and new wine, where the skies drop dew. 
+You are happy, Israel! Who is like you, a people rescued by God, the shield that helps you, the sword you boast in? Your enemies will cringe before you, and you will trample on their high places." 

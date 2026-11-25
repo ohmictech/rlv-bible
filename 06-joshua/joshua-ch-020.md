@@ -1,9 +1,9 @@
-﻿God spoke to Joshua, saying, 
-"Speak to the children of Israel, saying, 'Assign the cities of refuge, of which I spoke to you by Moses, 
-that the man slayer who kills any person accidentally or unintentionally may flee there. They will be to you for a refuge from the avenger of blood. 
-He will flee to one of those cities, and will stand at the entrance of the gate of the city, and declare his case in the ears of the elders of that city. They will take him into the city with them, and give him a place, that he can live among them. 
-If the avenger of blood pursues him, then they won't deliver up the man slayer into his hand; because he struck his neighbor unintentionally, and didn't hate him before. 
-He will dwell in that city until he stands before the congregation for judgment, until the death of the high priest that will be in those days. Then the man slayer will return, and come to his own city, and to his own house, to the city he fled from.'" 
-They set apart Kedesh in Galilee in the hill country of Naphtali, Shechem in the hill country of Ephraim, and Kiriath Arba (also called Hebron) in the hill country of Judah. 
-Beyond the Jordan at Jericho eastward, they assigned Bezer in the wilderness in the plain out of the tribe of Reuben, Ramoth in Gilead out of the tribe of Gad, and Golan in Bashan out of the tribe of Manasseh. 
-These were the appointed cities for all the children of Israel, and for the alien who lives among them, that whoever kills any person unintentionally might flee there, and not die by the hand of the avenger of blood, until he stands trial before the congregation. 
+﻿God spoke to Joshua and said, 
+"Tell the Israelites, 'Assign the cities of refuge I told you about through Moses, 
+so that anyone who kills a person by accident, without meaning to, can run there. They will be your refuge from the avenger of blood. 
+He is to run to one of those cities, stand at the entrance of the city gate and state his case to the elders of that city. They will take him into the city and give him a place to live among them. 
+If the avenger of blood chases him, they must not hand the killer over, because he killed his neighbor by accident and had never hated him before. 
+He is to stay in that city until he has stood trial before the community, and until the high priest of that time has died. Then the killer may go back to his own town and his own house, to the town he ran from.'" 
+So they set apart Kedesh in Galilee in the hill country of Naphtali, Shechem in the hill country of Ephraim, and Kiriath Arba, that is, Hebron, in the hill country of Judah. 
+East of the Jordan across from Jericho they assigned Bezer in the wilderness on the plateau from the tribe of Reuben, Ramoth in Gilead from the tribe of Gad, and Golan in Bashan from the tribe of Manasseh. 
+These were the appointed cities for all the Israelites and for the foreigners living among them, so that anyone who killed a person by accident could run there and not die at the hands of the avenger of blood before standing trial before the community. 

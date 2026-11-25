@@ -1,45 +1,45 @@
-﻿Then the heads of fathers' houses of the Levites came near to Eleazar the priest, and to Joshua the son of Nun, and to the heads of fathers' houses of the tribes of the children of Israel. 
-They spoke to them at Shiloh in the land of Canaan, saying, "God commanded through Moses to give us cities to dwell in, with their pasture lands for our livestock." 
-The children of Israel gave to the Levites out of their inheritance, according to the commandment of God, these cities with their pasture lands. 
-The lot came out for the families of the Kohathites. The children of Aaron the priest, who were of the Levites, had thirteen cities by lot out of the tribe of Judah, out of the tribe of the Simeonites, and out of the tribe of Benjamin. 
-The rest of the children of Kohath had ten cities by lot out of the families of the tribe of Ephraim, out of the tribe of Dan, and out of the half-tribe of Manasseh. 
-The children of Gershon had thirteen cities by lot out of the families of the tribe of Issachar, out of the tribe of Asher, out of the tribe of Naphtali, and out of the half-tribe of Manasseh in Bashan. 
-The children of Merari according to their families had twelve cities out of the tribe of Reuben, out of the tribe of Gad, and out of the tribe of Zebulun. 
-The children of Israel gave these cities with their pasture lands by lot to the Levites, as God commanded by Moses. 
-They gave out of the tribe of the children of Judah, and out of the tribe of the children of Simeon, these cities which are mentioned by name: 
-and they were for the children of Aaron, of the families of the Kohathites, who were of the children of Levi; for theirs was the first lot. 
-They gave them Kiriath Arba, named after the father of Anak (also called Hebron), in the hill country of Judah, with its pasture lands around it. 
-But they gave the fields of the city and its villages to Caleb the son of Jephunneh for his possession. 
-To the children of Aaron the priest they gave Hebron with its pasture lands, the city of refuge for the man slayer, Libnah with its pasture lands, 
-Jattir with its pasture lands, Eshtemoa with its pasture lands, 
-Holon with its pasture lands, Debir with its pasture lands, 
-Ain with its pasture lands, Juttah with its pasture lands, and Beth Shemesh with its pasture lands: nine cities out of those two tribes. 
-Out of the tribe of Benjamin, Gibeon with its pasture lands, Geba with its pasture lands, 
-Anathoth with its pasture lands, and Almon with its pasture lands: four cities. 
-All the cities of the children of Aaron, the priests, were thirteen cities with their pasture lands. 
-The families of the children of Kohath, the Levites, even the rest of the children of Kohath, had the cities of their lot out of the tribe of Ephraim. 
-They gave them Shechem with its pasture lands in the hill country of Ephraim, the city of refuge for the man slayer, and Gezer with its pasture lands, 
-Kibzaim with its pasture lands, and Beth Horon with its pasture lands: four cities. 
-Out of the tribe of Dan, Elteke with its pasture lands, Gibbethon with its pasture lands, 
-Aijalon with its pasture lands, Gath Rimmon with its pasture lands: four cities. 
-Out of the half-tribe of Manasseh, Taanach with its pasture lands, and Gath Rimmon with its pasture lands: two cities. 
-All the cities of the families of the rest of the children of Kohath were ten with their pasture lands. 
-They gave to the children of Gershon, of the families of the Levites, out of the half-tribe of Manasseh Golan in Bashan with its pasture lands, the city of refuge for the man slayer, and Be Eshterah with its pasture lands: two cities. 
-Out of the tribe of Issachar, Kishion with its pasture lands, Daberath with its pasture lands, 
-Jarmuth with its pasture lands, En Gannim with its pasture lands: four cities. 
-Out of the tribe of Asher, Mishal with its pasture lands, Abdon with its pasture lands, 
-Helkath with its pasture lands, and Rehob with its pasture lands: four cities. 
-Out of the tribe of Naphtali, Kedesh in Galilee with its pasture lands, the city of refuge for the man slayer, Hammothdor with its pasture lands, and Kartan with its pasture lands: three cities. 
-All the cities of the Gershonites according to their families were thirteen cities with their pasture lands. 
-To the families of the children of Merari, the rest of the Levites, out of the tribe of Zebulun, Jokneam with its pasture lands, Kartah with its pasture lands, 
-Dimnah with its pasture lands, and Nahalal with its pasture lands: four cities. 
-Out of the tribe of Reuben, Bezer with its pasture lands, Jahaz with its pasture lands, 
-Kedemoth with its pasture lands, and Mephaath with its pasture lands: four cities. 
-Out of the tribe of Gad, Ramoth in Gilead with its pasture lands, the city of refuge for the man slayer, and Mahanaim with its pasture lands, 
-Heshbon with its pasture lands, Jazer with its pasture lands: four cities in all. 
-All these were the cities of the children of Merari according to their families, even the rest of the families of the Levites. Their lot was twelve cities. 
-All the cities of the Levites among the possessions of the children of Israel were forty-eight cities with their pasture lands. 
-Each of these cities included their pasture lands around them. It was this way with all these cities. 
-So God gave to Israel all the land which he swore to give to their fathers. They possessed it, and lived in it. 
-God gave them rest all around, according to all that he swore to their fathers. Not a man of all their enemies stood before them. God delivered all their enemies into their hand. 
-Nothing failed of any good thing which God had spoken to the house of Israel. All came to pass. 
+﻿Then the heads of the Levite families came to Eleazar the priest, to Joshua son of Nun and to the heads of the families of the tribes of Israel. 
+They said to them at Shiloh in the land of Canaan, "God commanded through Moses that we be given towns to live in, with pastureland for our livestock." 
+So the Israelites gave the Levites these towns with their pastureland out of their own inheritance, as God had commanded. 
+The lot came out for the Kohathite clans. The descendants of Aaron the priest, who were Levites, received thirteen towns by lot from the tribes of Judah, Simeon and Benjamin. 
+The rest of the Kohathites received ten towns by lot from the clans of Ephraim and Dan and from the half tribe of Manasseh. 
+The descendants of Gershon received thirteen towns by lot from the clans of Issachar, Asher and Naphtali and from the half tribe of Manasseh in Bashan. 
+The descendants of Merari, clan by clan, received twelve towns from the tribes of Reuben, Gad and Zebulun. 
+So the Israelites gave these towns with their pastureland to the Levites by lot, as God had commanded through Moses. 
+From the tribes of Judah and Simeon they gave these towns, named here, 
+to the descendants of Aaron, one of the Kohathite clans of the Levites, because the first lot was theirs. 
+They gave them Kiriath Arba, named after the father of Anak, that is, Hebron, in the hill country of Judah, with the pastureland around it. 
+But the fields and villages around the town they gave to Caleb son of Jephunneh as his own. 
+To the descendants of Aaron the priest they gave Hebron, the city of refuge for the killer, with its pastureland, and Libnah with its pastureland, 
+Jattir with its pastureland, Eshtemoa with its pastureland, 
+Holon with its pastureland, Debir with its pastureland, 
+Ain with its pastureland, Juttah with its pastureland and Beth Shemesh with its pastureland. That is nine towns from those two tribes. 
+From the tribe of Benjamin: Gibeon with its pastureland, Geba with its pastureland, 
+Anathoth with its pastureland and Almon with its pastureland. That is four towns. 
+All the towns of the descendants of Aaron, the priests, were thirteen towns with their pastureland. 
+The rest of the Kohathite clans of the Levites received towns by lot from the tribe of Ephraim. 
+They gave them Shechem, the city of refuge for the killer, with its pastureland in the hill country of Ephraim, and Gezer with its pastureland, 
+Kibzaim with its pastureland and Beth Horon with its pastureland. That is four towns. 
+From the tribe of Dan: Elteke with its pastureland, Gibbethon with its pastureland, 
+Aijalon with its pastureland and Gath Rimmon with its pastureland. That is four towns. 
+From the half tribe of Manasseh: Taanach with its pastureland and Gath Rimmon with its pastureland. That is two towns. 
+All the towns of the rest of the Kohathite clans were ten, with their pastureland. 
+To the descendants of Gershon, one of the Levite clans, they gave from the half tribe of Manasseh: Golan in Bashan, the city of refuge for the killer, with its pastureland, and Be Eshterah with its pastureland. That is two towns. 
+From the tribe of Issachar: Kishion with its pastureland, Daberath with its pastureland, 
+Jarmuth with its pastureland and En Gannim with its pastureland. That is four towns. 
+From the tribe of Asher: Mishal with its pastureland, Abdon with its pastureland, 
+Helkath with its pastureland and Rehob with its pastureland. That is four towns. 
+From the tribe of Naphtali: Kedesh in Galilee, the city of refuge for the killer, with its pastureland, Hammoth Dor with its pastureland and Kartan with its pastureland. That is three towns. 
+All the towns of the Gershonite clans were thirteen, with their pastureland. 
+To the clans of the descendants of Merari, the rest of the Levites, they gave from the tribe of Zebulun: Jokneam with its pastureland, Kartah with its pastureland, 
+Dimnah with its pastureland and Nahalal with its pastureland. That is four towns. 
+From the tribe of Reuben: Bezer with its pastureland, Jahaz with its pastureland, 
+Kedemoth with its pastureland and Mephaath with its pastureland. That is four towns. 
+From the tribe of Gad: Ramoth in Gilead, the city of refuge for the killer, with its pastureland, and Mahanaim with its pastureland, 
+Heshbon with its pastureland and Jazer with its pastureland. That is four towns in all. 
+All these were the towns of the Merarite clans, the rest of the Levite clans, twelve towns. 
+All the Levite towns among the land owned by the Israelites came to forty-eight towns with their pastureland. 
+Each of these towns had pastureland around it, and that was true of every one of them. 
+So God gave Israel all the land he had sworn to give their fathers. They took it and lived in it. 
+God gave them rest on every side, just as he had sworn to their fathers. Not one of their enemies stood against them, because God handed all their enemies over to them. 
+Not one good thing God had promised the house of Israel failed. Everything came true. 

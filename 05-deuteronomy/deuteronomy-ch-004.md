@@ -1,49 +1,49 @@
-﻿Now, Israel, listen to the statutes and to the ordinances which I teach you, to do them, that you can live and go in and possess the land which the God of your fathers, gives you. 
-Don't add to the word which I command you, neither will you take away from it, that you can keep the commandments of your God which I command you. 
-Your eyes have seen what God did because of Baal Peor; for your God has destroyed all the men who followed Baal Peor from among you. 
-But you who were faithful to your God are all alive today. 
-Look, I have taught you statutes and ordinances, even as my God commanded me, that you should do so in the middle of the land where you go in to possess it. 
-Keep and do them; for this is your wisdom and your understanding in the sight of the peoples who will hear all these statutes and say, "Surely this great nation is a wise and understanding people." 
-What great nation is there that has a god so near to them as our God is whenever we call on him? 
-What great nation is there that has statutes and ordinances so righteous as all this law which I set before you today? 
-Only be careful, and keep your soul diligently, lest you forget the things which your eyes saw, and lest they depart from your heart all the days of your life; but make them known to your children and your children's children 
-the day that you stood before your God in Horeb, when God said to me, "Assemble the people to me, and I'll make them hear my words, that they can learn to fear me all the days that they live on the earth, and that they can teach their children." 
-You came near and stood under the mountain. The mountain burned with fire to the heart of the sky, with darkness, cloud, and thick darkness. 
-God spoke to you out of the middle of the fire: you heard the voice of words, but you saw no form; you only heard a voice. 
-He declared to you his covenant, which he commanded you to perform, even the ten commandments. He wrote them on two stone tablets. 
-God commanded me at that time to teach you statutes and ordinances, that you might do them in the land where you go over to possess it. 
-Be very careful, for you saw no kind of form on the day that God spoke to you in Horeb out of the middle of the fire, 
-lest you corrupt yourselves, and make yourself a carved image in the form of any figure, the likeness of male or female, 
-the likeness of any animal that's on the earth, the likeness of any winged bird that flies in the sky, 
-the likeness of anything that creeps on the ground, the likeness of any fish that's in the water under the earth; 
-and lest you lift up your eyes to the sky, and when you see the sun and the moon and the stars, even all the army of the sky, you're drawn away and worship them, and serve them, which your God has allotted to everyones under the whole sky. 
-But God has taken you, and brought you out of the iron furnace, out of Egypt, to be to him a people of inheritance, as it's today. 
-Furthermore God was angry with me for your sakes, and swore that I shouldn't go over the Jordan, and that I shouldn't go in to that good land which your God gives you for an inheritance; 
-but I must die in this land. I must not go over the Jordan, but you will go over and possess that good land. 
-Be careful, lest you forget the covenant of your God, which he made with you, and make yourselves a carved image in the form of anything which your God has forbidden you. 
-Your God is a devouring fire, a jealous God. 
-When you father children and children's children, and you have been long in the land, and then corrupt yourselves, and make a carved image in the form of anything, and do that which is bad in your God's sight to provoke him to anger, 
-I call the sky and earth to witness against you today, that you'll soon utterly perish from off the land which you go over the Jordan to possess it. You won't prolong your days on it, but will utterly be destroyed. 
-God will scatter you among the peoples, and you'll be left few in number among the nations where God will lead you away. 
-There you'll serve gods, the work of men's hands, wood and stone, which neither see, nor hear, nor eat, nor smell. 
-But from there you will seek your God, and you'll find him when you search after him with all your heart and with all your soul. 
-When you're in oppression, and all these things have come on you, in the latter days you will return to your God and listen to his voice. 
-Your God is a merciful God. He won't fail you nor destroy you, nor forget the covenant of your fathers which he swore to them. 
-Ask now of the days that are past, which were before you, since the day that God created man on the earth, and from the one end of the sky to the other, whether there has been anything as great as this thing is, or has been heard like it? 
-Did a people ever hear the voice of God speaking out of the middle of the fire, as you have heard, and live? 
-Or has God tried to go and take a nation for himself from among another nation, by trials, by signs, by wonders, by war, by a mighty hand, by an outstretched arm, and by great terrors, according to all that your God did for you in Egypt before your eyes? 
-It was shown to you so that you might know that he's God. There's no one else besides him. 
-Out of the sky he made you to hear his voice, that he might instruct you. On earth he made you to see his great fire; and you heard his words out of the middle of the fire. 
-Because he loved your fathers, he chose their offspring after them, and brought you out with his presence, with his great power, out of Egypt; 
-to drive out nations from before you greater and mightier than you, to bring you in, to give you their land for an inheritance, as it's today. 
-Know today, and take it to heart, that God is the true God in the sky above and on the earth beneath. There's no one else. 
-You will keep his statutes and his commandments which I command you today, that it may go well with you and with your children after you, and that you can prolong your days in the land which your God gives you for all time. 
-Then Moses set apart three cities beyond the Jordan toward the sunrise, 
-that the man slayer might flee there, who kills his neighbor unintentionally and didn't hate him in time past, and that fleeing to one of these cities he might live: 
-Bezer in the wilderness, in the plain country, for the Reubenites; and Ramoth in Gilead for the Gadites; and Golan in Bashan for the Manassites. 
-This is the law which Moses set before the children of Israel. 
-These are the testimonies, and the statutes, and the ordinances which Moses spoke to the children of Israel when they came out of Egypt, 
-beyond the Jordan, in the valley opposite Beth Peor, in the land of Sihon king of the Amorites, who lived at Heshbon, whom Moses and the children of Israel struck when they came out of Egypt. 
-They took possession of his land and the land of Og king of Bashan, the two kings of the Amorites, who were beyond the Jordan toward the sunrise; 
-from Aroer, which is on the edge of the valley of the Arnon, even to Mount Siyon (also called Hermon), 
-and all the Arabah beyond the Jordan eastward, even to the sea of the Arabah, under the slopes of Pisgah. 
+﻿"Now, Israel, listen to the rules and decisions I am teaching you to do, so that you may live and go in and take the land the God of your fathers is giving you. 
+Don't add anything to what I command you, and don't take anything away from it, so that you keep the commands of your God that I am giving you. 
+Your own eyes have seen what God did because of Baal Peor. Your God destroyed everyone among you who followed Baal Peor. 
+But all of you who stayed faithful to your God are alive today. 
+Look, I have taught you rules and decisions just as my God commanded me, so you can do them in the land you are going in to take. 
+Keep them and do them, because that is your wisdom and your understanding in the eyes of the peoples. When they hear all these rules, they will say, 'This great nation is a wise and understanding people.' 
+What other great nation has a god as near to it as our God is to us whenever we call on him? 
+And what other great nation has rules and decisions as right as all this law I am setting in front of you today? 
+Only be careful and watch yourself closely, so you don't forget the things your eyes have seen and they don't slip out of your heart as long as you live. Teach them to your children and your grandchildren, 
+especially the day you stood in front of your God at Horeb, when God said to me, 'Gather the people to me and I will let them hear my words, so they learn to fear me as long as they live on the earth and teach their children.' 
+You came near and stood at the foot of the mountain, and the mountain burned with fire up into the heart of the sky, with darkness, cloud and thick gloom. 
+God spoke to you out of the middle of the fire. You heard the sound of words, but you saw no shape. There was only a voice. 
+He told you his covenant, the ten words he commanded you to do, and he wrote them on two stone tablets. 
+At that time God commanded me to teach you rules and decisions, so you can do them in the land you are crossing into to take. 
+So be very careful, because you saw no shape at all the day God spoke to you out of the fire at Horeb. 
+Don't ruin yourselves by making a carved image of any kind, whether shaped like a man or a woman, 
+like any animal on the earth, any bird that flies in the sky, 
+any creature that crawls on the ground, or any fish in the water under the earth. 
+And when you look up at the sky and see the sun, the moon, the stars and everything else up there, don't be drawn away to bow down to them and serve them. Your God has given those to all the peoples under the whole sky. 
+But God took you and brought you out of that iron furnace, out of Egypt, to be a people that belongs to him, as you are today. 
+God was angry with me because of you, and he swore that I wouldn't cross the Jordan or go into the good land your God is giving you as your inheritance. 
+I have to die in this land. I will not cross the Jordan, but you will cross and take that good land. 
+Be careful not to forget the covenant your God made with you and make a carved image of anything your God has forbidden. 
+Your God is a fire that consumes, and a God who will not share you. 
+When you have children and grandchildren, and you have lived in the land a long time, and you ruin yourselves by making a carved image of any kind, doing what is bad in the sight of your God and making him angry, 
+I call the sky and the earth as witnesses against you today that you will quickly be wiped out of the land you are crossing the Jordan to take. You won't live long in it. You will be destroyed. 
+God will scatter you among the peoples, and you will be left few in number among the nations where God drives you. 
+There you will serve gods made by human hands, out of wood and stone, gods that can't see or hear or eat or smell. 
+But there you will look for your God, and you will find him when you search for him with all your heart and all your life. 
+When you are in trouble and all these things have happened to you, in the days to come you will come back to your God and listen to his voice. 
+Your God is a God of mercy. He won't let you go or destroy you, and he won't forget the covenant with your fathers that he swore to them. 
+Ask about the days long past, before you were born, since the day God created people on the earth, and search from one end of the sky to the other. Has anything as great as this ever happened, or has anything like it ever been heard? 
+Has any people ever heard the voice of God speaking out of the middle of the fire, as you have, and lived? 
+Or has any god ever tried to go and take a nation for himself out of another nation, by tests, by signs, by wonders, by war, by a strong hand and an outstretched arm, and by great terrors, the way your God did all that for you in Egypt, right in front of your eyes? 
+You were shown all this so you would know that God is God. There is no one else. 
+He let you hear his voice from the sky to teach you, and on the earth he let you see his great fire, and you heard his words out of the fire. 
+Because he loved your fathers, he chose their descendants after them and brought you out of Egypt himself, by his great power, 
+to drive out nations bigger and stronger than you ahead of you, and to bring you in and give you their land as your inheritance, as it is today. 
+So know this today and take it to heart: God is God in the sky above and on the earth below. There is no one else. 
+Keep his rules and his commands that I am giving you today, so that things go well for you and your children after you, and so that you live long in the land your God is giving you for all time." 
+Then Moses set apart three towns across the Jordan toward the sunrise, 
+where someone who killed a person could run: someone who killed his neighbor by accident, without having hated him before, could run to one of these towns and live. 
+They were Bezer in the wilderness on the plateau, for the Reubenites; Ramoth in Gilead, for the Gadites; and Golan in Bashan, for the Manassites. 
+This is the law Moses set before the Israelites. 
+These are the rules, the decisions and the laws Moses spoke to the Israelites after they came out of Egypt, 
+across the Jordan in the valley opposite Beth Peor, in the land of Sihon king of the Amorites, who lived at Heshbon, whom Moses and the Israelites defeated when they came out of Egypt. 
+They took his land as their own, and the land of Og king of Bashan, the two Amorite kings across the Jordan toward the sunrise, 
+from Aroer on the edge of the Arnon valley to Mount Siyon, also called Hermon, 
+and all the Arabah across the Jordan on the east, as far as the sea of the Arabah, below the slopes of Pisgah. 

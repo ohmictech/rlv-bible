@@ -1,27 +1,27 @@
-﻿Now Jericho was tightly shut up because of the children of Israel. No one went out, and no one came in. 
-God said to Joshua, "Look, I have given Jericho into your hand, with its king and the mighty men of valor. 
-All of your men of war will march around the city, going around the city once. You will do this six days. 
-Seven priests will bear seven trumpets of rams' horns before the ark. On the seventh day, you will march around the city seven times, and the priests will blow the trumpets. 
-It will be that when they make a long blast with the ram's horn, and when you hear the sound of the trumpet, everyone will shout with a great shout; then the city wall will fall down flat, and the people will go up, every man straight in front of him." 
-Joshua the son of Nun called the priests, and said to them, "Take up the ark of the covenant, and let seven priests bear seven trumpets of rams' horns before God's ark." 
-They said to the people, "Advance! March around the city, and let the armed men pass on before God's ark." 
-It was so, that when Joshua had spoken to the people, the seven priests bearing the seven trumpets of rams' horns before God advanced and blew the trumpets, and the ark of God's covenant followed them. 
-The armed men went before the priests who blew the trumpets, and the ark went after them. The trumpets sounded as they went. 
-Joshua commanded the people, saying, "You won't shout nor let your voice be heard, neither will any word proceed out of your mouth until the day I tell you to shout. Then you will shout." 
-So he caused God's ark to go around the city, circling it once. Then they came into the camp, and stayed in the camp. 
-Joshua rose early in the morning, and the priests took up God's ark. 
-The seven priests bearing the seven trumpets of rams' horns in front of God's ark went on continually, and blew the trumpets. The armed men went in front of them. The rear guard came after God's ark. The trumpets sounded as they went. 
-The second day they marched around the city once, and returned into the camp. They did this six days. 
-On the seventh day, they rose early at the dawning of the day, and marched around the city in the same way seven times. On this day only they marched around the city seven times. 
-At the seventh time, when the priests blew the trumpets, Joshua said to the people, "Shout, for God has given you the city! 
-The city will be devoted, even it and all that's in it, to God. Only Rahab the prostitute will live, she and everyone who's with her in the house, because she hid the messengers that we sent. 
-But as for you, only keep yourselves from what's devoted to destruction, lest when you have devoted it, you take of the devoted thing; so you'd make the camp of Israel accursed and trouble it. 
-But all the silver, gold, and vessels of bronze and iron are holy to God. They will come into God's treasury." 
-So the people shouted and the priests blew the trumpets. When the people heard the sound of the trumpet, the people shouted with a great shout, and the wall fell down flat, so that the people went up into the city, every man straight in front of him, and they took the city. 
-They utterly destroyed all that was in the city, both man and woman, both young and old, and ox, sheep, and donkey, with the edge of the sword. 
-Joshua said to the two men who had spied out the land, "Go into the prostitute's house, and bring the woman and all that she has out from there, as you swore to her." 
-The young men who were spies went in, and brought out Rahab with her father, her mother, her brothers, and all that she had. They also brought out all of her relatives, and they set them outside of the camp of Israel. 
-They burned the city with fire, and all that was in it. Only they put the silver, the gold, and the vessels of bronze and of iron into the treasury of God's house. 
-But Rahab the prostitute, her father's household, and all that she had, Joshua saved alive. She lives in the middle of Israel to this day, because she hid the messengers whom Joshua sent to spy out Jericho. 
-Joshua commanded them with an oath at that time, saying, "Cursed is the man before God who rises up and builds this city Jericho. With the loss of his firstborn he'll lay its foundation, and with the loss of his youngest son he'll set up its gates." 
-So God was with Joshua; and his fame was in all the land. 
+﻿Now Jericho was locked up tight because of the Israelites. No one went out and no one came in. 
+God said to Joshua, "Look, I have handed Jericho over to you, with its king and its fighting men. 
+All your fighting men are to march around the city, going around it once. Do this for six days. 
+Seven priests are to carry seven trumpets made from rams' horns ahead of the ark. On the seventh day, march around the city seven times, and the priests will blow the trumpets. 
+When they give a long blast on the ram's horn and you hear the sound of the trumpet, everyone is to shout a great shout. Then the city wall will fall flat, and the people will go up, each man straight ahead." 
+Joshua son of Nun called the priests and said to them, "Take up the ark of the covenant, and let seven priests carry seven rams' horn trumpets ahead of the ark of God." 
+Then he told the people, "Move out! March around the city, and let the armed men go ahead of the ark of God." 
+So when Joshua had spoken to the people, the seven priests carrying the seven rams' horn trumpets ahead of God moved forward and blew the trumpets, and the ark of God's covenant followed them. 
+The armed men went ahead of the priests blowing the trumpets, and the rear guard followed the ark. The trumpets sounded as they went. 
+Joshua ordered the people, "Don't shout, don't let your voice be heard, and don't let a word come out of your mouth until the day I tell you to shout. Then you will shout." 
+So he had the ark of God carried around the city, circling it once. Then they came back to the camp and stayed there. 
+Joshua got up early in the morning, and the priests took up the ark of God. 
+The seven priests carrying the seven rams' horn trumpets ahead of the ark of God went on and on, blowing the trumpets. The armed men went in front of them, and the rear guard followed the ark of God. The trumpets sounded as they went. 
+On the second day they marched around the city once and went back to the camp. They did this for six days. 
+On the seventh day they got up at dawn and marched around the city in the same way seven times. That was the only day they marched around it seven times. 
+The seventh time around, when the priests blew the trumpets, Joshua said to the people, "Shout, because God has given you the city! 
+The city and everything in it must be given over to God for destruction. Only Rahab the prostitute will live, she and everyone with her in the house, because she hid the messengers we sent. 
+But you must keep away from what has been given over to destruction, or when you have handed it over you will take some of it yourself, and you will bring ruin and trouble on the camp of Israel. 
+All the silver and gold and the utensils of bronze and iron are set apart to God. They go into the treasury of God." 
+So the people shouted and the priests blew the trumpets. When the people heard the sound of the trumpet, they gave a great shout, and the wall fell flat, and the people went up into the city, each man straight ahead, and they took the city. 
+They destroyed everything in the city with the sword: men and women, young and old, and oxen, sheep and donkeys. 
+Joshua said to the two men who had spied out the land, "Go into the prostitute's house and bring out the woman and everyone with her, as you swore to her." 
+So the young men who had been spies went in and brought out Rahab, her father, her mother, her brothers and everyone she had. They brought out all her relatives and put them outside the camp of Israel. 
+Then they burned the city and everything in it. But they put the silver, the gold and the utensils of bronze and iron into the treasury of the house of God. 
+Joshua spared Rahab the prostitute, her father's household and everything she had, and she has lived among the Israelites to this day, because she hid the messengers Joshua sent to spy out Jericho. 
+At that time Joshua put them under an oath: "Cursed before God is the man who gets up and rebuilds this city, Jericho. He will lay its foundation at the cost of his firstborn son, and set up its gates at the cost of his youngest." 
+So God was with Joshua, and his fame spread through all the land. 

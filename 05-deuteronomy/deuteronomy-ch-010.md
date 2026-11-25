@@ -1,22 +1,22 @@
-﻿At that time God said to me, "Cut two stone tablets like the first, and come up to me onto the mountain, and make an ark of wood. 
-I'll write on the tablets the words that were on the first tablets which you broke, and you will put them in the ark." 
-So I made an ark of acacia wood, and cut two stone tablets like the first, and went up onto the mountain, having the two tablets in my hand. 
-He wrote on the tablets, according to the first writing, the ten commandments, which God spoke to you on the mountain out of the middle of the fire in the day of the assembly; and God gave them to me. 
-I turned and came down from the mountain, and put the tablets in the ark which I had made; and there they're as God commanded me. 
-(The children of Israel traveled from Beeroth Bene Jaakan to Moserah. There Aaron died, and there he was buried; and Eleazar his son ministered in the priest's office in his place. 
-From there they traveled to Gudgodah; and from Gudgodah to Jotbathah, a land of brooks of water. 
-At that time God set apart the tribe of Levi to bear the ark of God's covenant, to stand before God to minister to him, and to bless in his name, to this day. 
-So Levi has no portion nor inheritance with his brothers; God is his inheritance, according as your God spoke to him.) 
-I stayed on the mountain, as at the first time, forty days and forty nights; and God listened to me that time also. God wouldn't destroy you. 
-God said to me, "Arise, take your journey before the people; and they will go in and possess the land which I swore to their fathers to give to them." 
-Now, Israel, what does your God require of you, but to fear your God, to walk in all his ways, to love him, and to serve your God with all your heart and with all your soul, 
-to keep God's commandments and statutes, which I command you today for your good? 
-Look, to your God belongs the sky, the sky above the skies, and the earth, with all that's therein. 
-Only God had a delight in your fathers to love them, and he chose their offspring after them, even you above all peoples, as it's today. 
-Circumcise the foreskin of your heart, and be no more stiff-necked. 
-Your God is God of gods and Lord of lords, the great God, the mighty, and the awesome, who doesn't respect persons or take bribes. 
-He executes justice for the fatherless and widow and loves the foreigner in giving him food and clothing. 
-So love the foreigner, for you were foreigners in the land of Egypt. 
-You will fear your God. You will serve him. You will cling to him, and you will swear by his name. 
-He's your praise, and he's your God, who has done for you these great and awesome things which your eyes have seen. 
-Your fathers went down into Egypt with seventy persons; and now your God has made you as the stars of the sky for multitude. 
+﻿At that time God said to me, 'Cut two stone tablets like the first ones and come up to me on the mountain, and make an ark of acacia wood. 
+I will write on the tablets the words that were on the first tablets, the ones you smashed, and you will put them in the ark.' 
+So I made an ark of acacia wood and cut two stone tablets like the first ones, and went up the mountain with the two tablets in my hands. 
+He wrote on the tablets what he had written before, the ten words, which God spoke to you on the mountain out of the middle of the fire, on the day of the gathering, and God gave them to me. 
+I turned and came down the mountain and put the tablets in the ark I had made, and there they are, as God commanded me. 
+(The Israelites traveled from Beeroth Bene Jaakan to Moserah. There Aaron died and was buried, and his son Eleazar served as priest in his place. 
+From there they traveled to Gudgodah, and from Gudgodah to Jotbathah, a land with streams of water. 
+At that time God set apart the tribe of Levi to carry the ark of God's covenant, to stand before God and serve him, and to bless in his name, which they do to this day. 
+That is why Levi has no share or inheritance with his brothers. God is his inheritance, just as your God said to him.) 
+I stayed on the mountain forty days and forty nights, as at the first time, and God listened to me that time too. God would not destroy you. 
+God said to me, 'Get up and lead the people on their way, so they can go in and take the land I swore to their fathers to give them.' 
+And now, Israel, what does your God ask of you but to fear your God, to walk in all his ways, to love him, and to serve your God with all your heart and all your life, 
+and to keep the commands and rules of God that I am giving you today for your own good? 
+Look, the sky and the highest heavens belong to your God, and the earth and everything in it. 
+Yet God set his heart on your fathers and loved them, and he chose their descendants after them, you, out of all peoples, as it is today. 
+So cut away the hard covering of your heart, and don't be stiff-necked any longer. 
+Your God is God of gods and Lord of lords, the great God, mighty and fearsome, who shows no favoritism and takes no bribes. 
+He does what is right for orphans and widows, and he loves the foreigner, giving him food and clothing. 
+So love the foreigner, because you were foreigners in the land of Egypt. 
+Fear your God. Serve him. Hold on to him, and swear by his name. 
+He is the one you praise, and he is your God, who has done these great and fearsome things for you that your eyes have seen. 
+Your fathers went down to Egypt as seventy people, and now your God has made you as many as the stars in the sky. 

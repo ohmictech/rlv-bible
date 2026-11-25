@@ -1,20 +1,20 @@
-﻿You will observe to do all the commandments which I command you today, that you can live, and multiply, and go in and possess the land which God swore to your fathers. 
-You will remember all the way which your God has led you these forty years in the wilderness, that he might humble you, to test you, to know what was in your heart, whether you'd keep his commandments or not. 
-He humbled you, allowed you to be hungry, and fed you with manna, which you didn't know, neither did your fathers know, that he might teach you that man doesn't live by bread only, but man lives by every word that proceeds out of God's mouth. 
-Your clothing didn't grow old on you, neither did your foot swell, these forty years. 
-You will consider in your heart that as a man disciplines his son, so your God disciplines you. 
-You will keep the commandments of your God, to walk in his ways, and to fear him. 
-Your God brings you into a good land, a land of brooks of water, of springs, and underground water flowing into valleys and hills; 
-a land of wheat, barley, vines, fig trees, and pomegranates; a land of olive trees and honey; 
-a land in which you will eat bread without scarcity, you won't lack anything in it; a land whose stones are iron, and out of whose hills you can dig copper. 
-You will eat and be full, and you will bless your God for the good land which he has given you. 
-Beware lest you forget your God, in not keeping his commandments, his ordinances, and his statutes, which I command you today; 
-lest, when you have eaten and are full, and have built fine houses and lived in them; 
-and when your herds and your flocks multiply, and your silver and your gold is multiplied, and all that you have is multiplied; 
-then your heart might be lifted up, and you forget your God, who brought you out of the land of Egypt, out of the house of bondage; 
-who led you through the great and terrible wilderness, with venomous snakes and scorpions, and thirsty ground where there was no water; who poured water for you out of the rock of flint; 
-who fed you in the wilderness with manna, which your fathers didn't know, that he might humble you, and that he might prove you, to do you good at your latter end; 
-and lest you say in your heart, "My power and the might of my hand has gotten me this wealth." 
-But you will remember your God, for it's he who gives you power to get wealth, that he can establish his covenant which he swore to your fathers, as it's today. 
-It will be, if you will forget your God, and walk after other gods, and serve them and worship them, I testify against you today that you will surely perish. 
-As the nations that God makes to perish before you, so you will perish, because you wouldn't listen to your God's voice. 
+﻿"Be careful to do every command I am giving you today, so that you may live and multiply and go in and take the land God swore to your fathers. 
+Remember the whole road your God has led you along these forty years in the wilderness, to humble you and test you, to find out what was in your heart and whether you would keep his commands. 
+He humbled you and let you go hungry, and then fed you with manna that you had never seen and your fathers had never seen, to teach you that a person doesn't live on bread alone, but on every word that comes from God's mouth. 
+Your clothes didn't wear out and your feet didn't swell, all these forty years. 
+So take this to heart: the way a man disciplines his son, that is how your God disciplines you. 
+Keep the commands of your God, walking in his ways and fearing him. 
+Your God is bringing you into a good land, a land with streams of water, springs and deep water flowing out into the valleys and hills, 
+a land of wheat and barley, of vines, fig trees and pomegranates, a land of olive oil and honey, 
+a land where you will eat bread and never run short, where you will lack nothing, a land whose stones contain iron and whose hills you can dig copper out of. 
+You will eat and be full, and you will bless your God for the good land he has given you. 
+Be careful not to forget your God by failing to keep his commands, his decisions and his rules that I am giving you today. 
+When you have eaten and are full, and have built fine houses and settled in them, 
+and your herds and flocks have multiplied, and your silver and gold have multiplied, and everything you own has multiplied, 
+then don't let your heart become proud and forget your God, who brought you out of Egypt, out of the house of slavery, 
+who led you through that great and terrible wilderness with its venomous snakes and scorpions and thirsty ground where there was no water, who brought water out of hard rock for you, 
+who fed you manna in the wilderness that your fathers had never seen, to humble you and test you and in the end do you good. 
+And don't say to yourself, 'My own power and the strength of my own hand got me this wealth.' 
+Remember your God, because it is he who gives you the power to get wealth, so that he can keep the covenant he swore to your fathers, as he is doing today. 
+If you do forget your God and go after other gods and serve them and bow down to them, I warn you today that you will certainly be destroyed. 
+Just as the nations God is destroying ahead of you, that is how you will be destroyed, because you wouldn't listen to the voice of your God." 

@@ -1,16 +1,16 @@
-﻿Moses spoke to the heads of the tribes of the children of Israel, saying, "This is the thing which God has commanded. 
-When a man vows a vow to God, or swears an oath to bind his soul with a bond, he won't break his word. He will do according to all that proceeds out of his mouth. 
-"Also, when a woman vows a vow to God and binds herself by a pledge, being in her father's house, in her youth, 
-and her father hears her vow and her pledge with which she has bound her soul, and her father says nothing to her, then all her vows will stand, and every pledge with which she has bound her soul will stand. 
-But if her father forbids her in the day that he hears, none of her vows or of her pledges with which she has bound her soul, will stand. God will forgive her, because her father has forbidden her. 
-"If she has a husband, while her vows are on her, or the rash utterance of her lips with which she has bound her soul, 
-and her husband hears it, and says nothing to her in the day that he hears it; then her vows will stand, and her pledges with which she has bound her soul will stand. 
-But if her husband forbids her in the day that he hears it, then he makes void her vow which is on her and the rash utterance of her lips, with which she has bound her soul. God will forgive her. 
-"But the vow of a widow, or of her who's divorced, everything with which she has bound her soul will stand against her. 
-"If she vowed in her husband's house or bound her soul by a bond with an oath, 
-and her husband heard it, and held his peace at her and didn't disallow her, then all her vows will stand, and every pledge with which she bound her soul will stand. 
-But if her husband made them null and void in the day that he heard them, then whatever proceeded out of her lips concerning her vows, or concerning the bond of her soul, won't stand. Her husband has made them void. God will forgive her. 
-Every vow, and every binding oath to afflict the soul, her husband may establish it, or her husband may make it void. 
-But if her husband says nothing to her from day to day, then he establishes all her vows or all her pledges which are on her. He has established them, because he said nothing to her in the day that he heard them. 
-But if he makes them null and void after he has heard them, then he will bear her guilt." 
-These are the statutes which God commanded Moses, between a man and his wife, between a father and his daughter, being in her youth, in her father's house. 
+﻿Moses spoke to the heads of the tribes of Israel: "This is what God has commanded. 
+When a man makes a vow to God or swears an oath to bind himself by a pledge, he must not break his word. He is to do everything he said. 
+"And when a woman makes a vow to God and binds herself by a pledge while she is young and living in her father's house, 
+and her father hears her vow and the pledge she bound herself with, and says nothing to her, then all her vows stand, and every pledge she bound herself with stands. 
+But if her father forbids her on the day he hears it, none of her vows or pledges stand, and God will forgive her, because her father forbade her. 
+"If she is married and has vows on her, or a rash promise from her lips that bound her, 
+and her husband hears it and says nothing to her on the day he hears it, then her vows stand, and the pledges she bound herself with stand. 
+But if her husband forbids her on the day he hears it, he cancels the vow that is on her and the rash promise from her lips that bound her, and God will forgive her. 
+"But the vow of a widow or a divorced woman stands against her, whatever she bound herself with. 
+"If a woman made a vow in her husband's house or bound herself with an oath, 
+and her husband heard it and said nothing and didn't stop her, then all her vows stand and every pledge she bound herself with stands. 
+But if her husband cancels them on the day he hears them, then nothing that came from her lips, whether a vow or a pledge, stands. Her husband has cancelled them, and God will forgive her. 
+Every vow and every oath of self-denial can be upheld by her husband or cancelled by him. 
+But if her husband says nothing to her day after day, then he upholds all her vows and pledges that are on her. He upholds them because he said nothing on the day he heard them. 
+But if he cancels them after he has heard them, then he will carry her guilt." 
+These are the rules God gave Moses for a man and his wife, and for a father and his daughter while she is young and living in her father's house. 

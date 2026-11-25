@@ -1,23 +1,23 @@
-﻿If someone is found slain in the land which your God gives you to possess, lying in the field, and it isn't known who has struck him, 
-then your elders and your judges will come out, and they will measure to the cities which are around him who's slain. 
-It will be that the elders of the city which is nearest to the slain man will take a heifer of the herd, which hasn't been worked with and which hasn't drawn in the yoke. 
-The elders of that city will bring the heifer down to a valley with running water, which is neither plowed nor sown, and will break the heifer's neck there in the valley. 
-The priests the sons of Levi will come near, for them your God has chosen to minister to him, and to bless in God's name; and according to their word will every controversy and every assault be decided. 
-All the elders of that city which is nearest to the slain man will wash their hands over the heifer whose neck was broken in the valley. 
-They will answer and say, "Our hands haven't shed this blood, neither have our eyes seen it. 
-Forgive, God, your people Israel, whom you have bought back, and don't allow innocent blood among your people Israel." The blood will be forgiven them. 
-So you will put away the innocent blood from among you, when you will do that which is right in God's eyes. 
-When you go out to battle against your enemies, and your God delivers them into your hands and you carry them away captive, 
-and see among the captives a beautiful woman, and you're attracted to her, and desire to take her as your wife, 
-then you will bring her home to your house. She will shave her head and trim her nails. 
-She will take off the clothing of her captivity, and will remain in your house, and bewail her father and her mother a full month. After that you will go in to her and be her husband, and she will be your wife. 
-It will be, if you have no delight in her, then you will let her go where she desires; but you won't sell her at all for money. You won't deal with her as a slave, because you have humbled her. 
-If a man has two wives, the one beloved and the other hated, and they have borne him children, both the beloved and the hated, and if the firstborn son is hers who was hated, 
-then it will be, in the day that he causes his sons to inherit that which he has, that he can't give the son of the beloved the rights of the firstborn before the son of the hated, who's the firstborn; 
-but he will acknowledge the firstborn, the son of the hated, by giving him a double portion of all that he has; for he's the beginning of his strength. The right of the firstborn is his. 
-If a man has a stubborn and rebellious son who won't obey the voice of his father or the voice of his mother, and though they chasten him, won't listen to them, 
-then his father and his mother will take hold of him and bring him out to the elders of his city and to the gate of his place. 
-They will tell the elders of his city, "This our son is stubborn and rebellious. He won't obey our voice. He's a glutton and a drunkard." 
-All the men of his city will stone him to death with stones. So you will remove the bad from among you. All Israel will hear, and fear. 
-If a man has committed wrongdoing worthy of death, and he's put to death, and you hang him on a tree, 
-his body won't remain all night on the tree, but you will surely bury him the same day; for he who's hanged is accursed of God. Don't defile your land which your God gives you for an inheritance. 
+﻿"If someone is found killed in the land your God is giving you to take, lying in a field, and no one knows who struck him, 
+then your elders and judges must go out and measure the distance to the cities around the dead man. 
+The elders of the city nearest the dead man must take a young cow from the herd that has never been worked and has never worn a yoke. 
+The elders of that city must bring the young cow down to a valley with running water that has never been plowed or planted, and there in the valley they must break its neck. 
+The priests, the sons of Levi, must come near, because your God has chosen them to serve him and to bless in the name of God, and every dispute and every case of assault is settled by their word. 
+All the elders of the city nearest the dead man must wash their hands over the young cow whose neck was broken in the valley. 
+They must say, 'Our hands did not spill this blood, and our eyes did not see it. 
+Forgive your people Israel, God, the people you bought back, and don't hold innocent blood against your people Israel.' And the blood will be forgiven them. 
+So you must clear the innocent blood from among you, by doing what is right in the eyes of God. 
+When you go out to fight your enemies and your God hands them over to you and you take captives, 
+and you see among the captives a beautiful woman and you are drawn to her and want to take her as your wife, 
+then bring her home to your house. She is to shave her head and trim her nails. 
+She is to take off the clothes she was captured in and stay in your house, and mourn for her father and mother for a full month. After that you may go to her and be her husband, and she will be your wife. 
+If you no longer want her, let her go wherever she wishes. You must not sell her for money or treat her as a slave, because you have taken advantage of her. 
+If a man has two wives, one he loves and one he doesn't, and both have given him sons, the loved one and the unloved one, and the firstborn son belongs to the one he doesn't love, 
+then on the day he gives his property to his sons, he can't give the firstborn's rights to the son of the wife he loves instead of the real firstborn, the son of the wife he doesn't love. 
+He must recognize the firstborn, the son of the wife he doesn't love, by giving him a double share of everything he has, because he is the first of his strength. The rights of the firstborn belong to him. 
+If a man has a stubborn and rebellious son who won't obey his father or his mother, and they discipline him and he still won't listen, 
+then his father and mother must take hold of him and bring him out to the elders of his city at the gate of his town. 
+They must say to the elders of his city, 'This son of ours is stubborn and rebellious. He won't obey us. He is a glutton and a drunkard.' 
+Then all the men of his city must stone him to death. So get rid of the evil among you. All Israel will hear and be afraid. 
+If a man has committed a wrong that deserves death and he is put to death, and you hang his body on a tree, 
+don't leave his body on the tree overnight. Bury him the same day, because anyone hung on a tree is under God's curse. Don't make your land unclean, the land your God is giving you as an inheritance. 

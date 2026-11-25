@@ -1,52 +1,52 @@
-﻿Give ear, you skies, and I'll speak. Let the earth hear the words of my mouth. 
-My doctrine will drop as the rain. My speech will condense as the dew, as the misty rain on the tender grass, as the showers on the herb. 
-I'll proclaim God's name. Ascribe greatness to our God! 
-The Rock: his work is perfect, for all his ways are just. A God of faithfulness who does no wrong, just and right is he. 
-They have dealt corruptly with him. They aren't his children, because of their defect. They're a perverse and crooked generation. 
-Is this the way you repay God, foolish and unwise people? Isn't he your father who has bought you? He has made you and established you. 
-Remember the days of old. Consider the years of many generations. Ask your father, and he'll show you; your elders, and they'll tell you. 
-When the Most High gave to the nations their inheritance, when he separated the children of men, he set the bounds of the peoples according to the number of the children of Israel. 
-God's portion is his people. Jacob is the lot of his inheritance. 
-He found him in a desert land, in the waste howling wilderness. He surrounded him. He cared for him. He kept him as the apple of his eye. 
-As an eagle that stirs up her nest, that flutters over her young, he spread abroad his wings, he took them, he bore them on his feathers. 
-God alone led him. There was no foreign god with him. 
-He made him ride on the high places of the earth. He ate the increase of the field. He caused him to suck honey out of the rock, oil out of the flinty rock; 
-butter from the herd, and milk from the flock, with fat of lambs, rams of the breed of Bashan, and goats, with the finest of the wheat. From the blood of the grape, you drank wine. 
-But Jeshurun grew fat, and kicked. You have grown fat. You have grown thick. You have become sleek. Then he abandoned God who made him, and rejected the Rock of his salvation. 
-They moved him to jealousy with strange gods. They provoked him to anger with abominations. 
-They sacrificed to demons, not God, to gods that they didn't know, to new gods that came up recently, which your fathers didn't dread. 
-Of the Rock who became your father, you're unmindful, and have forgotten God who gave you birth. 
-God saw and abhorred, because of the provocation of his sons and his daughters. 
-He said, "I'll hide my face from them. I'll see what their end will be; for they're a very perverse generation, children in whom is no faithfulness. 
-They have moved me to jealousy with that which isn't God. They have provoked me to anger with their vanities. I'll move them to jealousy with those who aren't a people. I'll provoke them to anger with a foolish nation. 
-A fire is kindled in my anger, that burns to the lowest Hades, devours the earth with its increase, and sets the foundations of the mountains on fire. 
-"I'll heap bad things on them. I'll spend my arrows on them. 
-They will be wasted with hunger, and devoured with burning heat and bitter destruction. I'll send the teeth of animals on them, with the venom of vipers that glide in the dust. 
-Outside the sword will bereave, and in the rooms, terror on both young man and virgin, the nursing infant with the gray-haired man. 
-I said that I'd scatter them afar. I'd make their memory to cease from among men; 
-were it not that I feared the provocation of the enemy, lest their adversaries should judge wrongly, lest they should say, 'Our hand is exalted; God hasn't done all this.'" 
-They're a nation void of counsel. There's no understanding in them. 
-Oh that they were wise, that they understood this, that they'd consider their latter end! 
-How could one chase a thousand, and two put ten thousand to flight, unless their Rock had sold them, and God had delivered them up? 
-Their rock isn't as our Rock, even our enemies themselves concede. 
-Their vine is of the vine of Sodom, of the fields of Gomorrah. Their grapes are poison grapes. Their clusters are bitter. 
-Their wine is the poison of serpents, the cruel venom of asps. 
-"Isn't this laid up in store with me, sealed up among my treasures? 
-Vengeance is mine, and recompense, at the time when their foot slides, for the day of their calamity is at hand. Their doom rushes at them." 
-God will judge his people, and have compassion on his servants, when he sees that their power is gone, that there's no one remaining, shut up or left at large. 
-He'll say, "Where are their gods, the rock in which they took refuge, 
-which ate the fat of their sacrifices, and drank the wine of their drink offering? Let them rise up and help you! Let them be your protection. 
-"See now that I myself am he. There's no god with me. I kill and I make alive. I wound and I heal. There's no one who can deliver out of my hand. 
-I lift up my hand to the sky and declare, as I live for the eras, 
-if I sharpen my glittering sword, my hand grasps it in judgment; I'll take vengeance on my adversaries, and will repay those who hate me. 
-I'll make my arrows drunk with blood. My sword will devour flesh with the blood of the slain and the captives, from the head of the leaders of the enemy." 
-Rejoice, you nations, with his people, for he'll avenge the blood of his servants. He'll take vengeance on his adversaries, and will make things right for his land and for his people. 
-Moses came and spoke all the words of this song in the ears of the people, he and Joshua the son of Nun. 
-Moses finished reciting all these words to all Israel. 
-He said to them, "Set your heart to all the words which I testify to you today, which you will command your children to observe to do, all the words of this law. 
-It's no vain thing for you, because it's your life, and through this thing you will prolong your days in the land, where you go over the Jordan to possess it." 
-God spoke to Moses that same day, saying, 
-"Go up into this mountain of Abarim, to Mount Nebo, which is in the land of Moab, that's across from Jericho; and see the land of Canaan, which I give to the children of Israel for a possession. 
-Die on the mountain where you go up, and be gathered to your people, as Aaron your brother died on Mount Hor, and was gathered to his people; 
-because you trespassed against me among the children of Israel at the waters of Meribah of Kadesh, in the wilderness of Zin; because you didn't uphold my holiness among the children of Israel. 
-You will see the land from a distance; but you won't go there into the land which I give the children of Israel." 
+﻿"Listen, you skies, and I will speak. Let the earth hear what I say. 
+My teaching will fall like rain. My words will settle like dew, like gentle rain on new grass, like showers on young plants. 
+I will proclaim the name of God. Give our God the greatness he deserves. 
+The Rock: his work is perfect, and all his ways are right. God is faithful and does no wrong. He is just and true. 
+They have ruined themselves. They aren't his children, because of their flaw. They are a twisted and crooked generation. 
+Is this how you pay God back, you foolish and unwise people? Isn't he your father, who bought you? He made you and set you up. 
+Remember the days of long ago. Think about the years of many generations. Ask your father and he will tell you; ask your elders and they will explain. 
+When the Most High gave the nations their inheritance, when he divided up the human race, he set the borders of the peoples by the number of the Israelites, 
+because God's share is his people. Jacob is the portion of his inheritance. 
+He found him in a desert land, in an empty, howling wilderness. He surrounded him, cared for him and guarded him like the apple of his eye. 
+Like an eagle that stirs up its nest and hovers over its young, he spread his wings, took them up and carried them on his feathers. 
+God alone led him, and there was no foreign god with him. 
+He made him ride on the high places of the earth and eat the crops of the fields. He gave him honey to suck from the rock, and oil from the hard rock, 
+curds from the herd and milk from the flock, with the fat of lambs, rams from Bashan and goats, with the best wheat, and wine from the blood of grapes for you to drink. 
+But Jeshurun grew fat and kicked. You grew fat, you grew thick, you grew sleek. Then he left God who made him and rejected the Rock of his rescue. 
+They made him jealous with strange gods and made him angry with disgusting things. 
+They sacrificed to demons, which are not God, to gods they had never known, to new gods that had just appeared, which your fathers never feared. 
+You forgot the Rock who was your father, and you forgot the God who gave you birth. 
+God saw it and rejected them, because his sons and daughters made him angry. 
+He said, 'I will hide my face from them. I will see how they end up, because they are a twisted generation, children with no faithfulness in them. 
+They made me jealous with what isn't a god. They made me angry with their worthless idols. So I will make them jealous with people who aren't a people. I will make them angry with a foolish nation. 
+A fire has started in my anger that burns down to the lowest Hades, that eats the earth and its crops and sets the foundations of the mountains on fire. 
+I will pile bad things on them. I will use up my arrows on them. 
+They will waste away with hunger and be eaten up by fever and bitter disease. I will send the teeth of wild animals against them, with the poison of snakes that glide in the dust. 
+Outside, the sword will take their children, and inside, terror: young man and young woman alike, the nursing baby and the gray-haired man.' 
+I would have said, 'I will scatter them far away, and I will make people forget they ever existed,' 
+except that I was afraid of what the enemy would say, in case their enemies misunderstood and said, 'We won by our own hand. God didn't do all this.'" 
+They are a nation with no sense. There is no understanding in them. 
+If only they were wise and understood this and thought about how it will end. 
+How could one man chase a thousand, and two make ten thousand run, unless their Rock had sold them and God had handed them over? 
+Even our enemies admit that their rock isn't like our Rock. 
+Their vine comes from the vine of Sodom, from the fields of Gomorrah. Their grapes are poison grapes and their clusters are bitter. 
+Their wine is the poison of snakes, the deadly venom of cobras. 
+"Isn't this kept in store with me, sealed up in my storehouses? 
+Vengeance belongs to me, and payback, for the time when their foot slips, because the day of their disaster is near and their doom is rushing at them." 
+God will judge his people and have compassion on his servants, when he sees their strength is gone and there is no one left, bound or free. 
+He will say, "Where are their gods, the rock they ran to for shelter, 
+the ones that ate the fat of their sacrifices and drank the wine of their drink offerings? Let them get up and help you. Let them shelter you. 
+See now that I, I am he. There is no god beside me. I kill and I make alive. I wound and I heal. No one can rescue anyone out of my hand. 
+I lift my hand to the sky and say: as I live for the eras, 
+when I sharpen my flashing sword and my hand takes hold of judgment, I will pay back my enemies and repay those who hate me. 
+I will make my arrows drunk with blood, and my sword will eat flesh, with the blood of the killed and the captives, from the leaders of the enemy." 
+Rejoice, you nations, together with his people, because he will avenge the blood of his servants. He will pay back his enemies and make things right for his land and his people. 
+Moses came and recited all the words of this song in the hearing of the people, he and Joshua son of Nun. 
+When Moses had finished speaking all these words to all Israel, 
+he said to them, "Take all these words to heart that I am testifying to you today, and pass them on to your children as a command to be careful to do everything in this law. 
+They aren't just empty words for you. They are your life, and by them you will live a long time in the land you are crossing the Jordan to take." 
+God spoke to Moses that same day, 
+"Go up onto Mount Nebo, in the Abarim range in the land of Moab, across from Jericho, and look at the land of Canaan, which I am giving to the Israelites as their own. 
+Die on the mountain you go up, and join your ancestors, just as your brother Aaron died on Mount Hor and joined his ancestors, 
+because you broke faith with me among the Israelites at the waters of Meribah Kadesh in the wilderness of Zin, and you didn't honor me as set apart among the Israelites. 
+You will see the land from a distance, but you won't go in to the land I am giving the Israelites." 

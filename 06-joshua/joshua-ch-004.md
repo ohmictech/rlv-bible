@@ -1,24 +1,24 @@
-﻿When all the nation had completely crossed over the Jordan, God spoke to Joshua, saying, 
-"Take twelve men out of the people, a man out of every tribe, 
-and command them, saying, 'Take from out of the middle of the Jordan, out of the place where the priests' feet stood firm, twelve stones, carry them over with you, and lay them down in the place where you'll camp tonight.'" 
-Then Joshua called the twelve men whom he had prepared of the children of Israel, a man out of every tribe. 
-Joshua said to them, "Cross before the ark of your God into the middle of the Jordan, and each of you pick up a stone and put it on your shoulder, according to the number of the tribes of the children of Israel; 
-that this may be a sign among you, that when your children ask in the future, saying, 'What do you mean by these stones?' 
-then you will tell them, 'Because the waters of the Jordan were cut off before the ark of God's covenant. When it crossed over the Jordan, the waters of the Jordan were cut off. These stones will be for a memorial to the children of Israel for the eras.'" 
-The children of Israel did as Joshua commanded, and took up twelve stones out of the middle of the Jordan, as God spoke to Joshua, according to the number of the tribes of the children of Israel. They carried them over with them to the place where they camped, and laid them down there. 
-Joshua set up twelve stones in the middle of the Jordan, in the place where the feet of the priests who bore the ark of the covenant stood; and they're there to this day. 
-The priests who bore the ark stood in the middle of the Jordan until everything was finished that God commanded Joshua to speak to the people, according to all that Moses commanded Joshua; and the people hurried and passed over. 
-When everyone had completely crossed over, God's ark crossed over with the priests in the presence of the people. 
-The children of Reuben, and the children of Gad, and the half-tribe of Manasseh crossed over armed before the children of Israel, as Moses spoke to them. 
-About forty thousand men, ready and armed for war, passed over before God to battle, to the plains of Jericho. 
-On that day, God magnified Joshua in the sight of all Israel; and they feared him, as they feared Moses, all the days of his life. 
-God spoke to Joshua, saying, 
-"Command the priests who bear the ark of the covenant, that they come up out of the Jordan." 
-Joshua commanded the priests, saying, "Come up out of the Jordan!" 
-When the priests who bore the ark of God's covenant had come up out of the middle of the Jordan, and the soles of the priests' feet had been lifted up to the dry ground, the waters of the Jordan returned to their place, and went over all its banks, as before. 
-The people came up out of the Jordan on the tenth day of the first month, and encamped in Gilgal, on the east border of Jericho. 
-Joshua set up those twelve stones, which they took out of the Jordan, in Gilgal. 
-He spoke to the children of Israel, saying, "When your children ask their fathers in time to come, saying, 'What do these stones mean?' 
-Then you will let your children know, saying, 'Israel came over this Jordan on dry land. 
-Your God dried up the waters of the Jordan from before you until you had crossed over, as your God did to the Red Sea, which he dried up from before us, until we had crossed over, 
-that everyones of the earth may know that God's hand is mighty, and that you can fear your God for the eras.'" 
+﻿When the whole nation had completely crossed the Jordan, God spoke to Joshua and said, 
+"Choose twelve men from the people, one from each tribe, 
+and tell them, 'Take twelve stones from the middle of the Jordan, from the place where the priests stood firm, carry them over with you and set them down where you camp tonight.'" 
+So Joshua called the twelve men he had chosen from the Israelites, one from each tribe, 
+and said to them, "Go ahead of the ark of your God into the middle of the Jordan, and each of you lift a stone onto his shoulder, one for each of the tribes of Israel, 
+so that this can be a sign among you. When your children ask you later, 'What do these stones mean?' 
+you will tell them, 'The water of the Jordan was cut off in front of the ark of God's covenant. When it crossed the Jordan, the water was cut off. These stones will remind the Israelites of this for the eras.'" 
+The Israelites did as Joshua commanded. They took twelve stones from the middle of the Jordan, as God had told Joshua, one for each tribe, carried them over to where they camped and set them down there. 
+Joshua also set up twelve stones in the middle of the Jordan, where the priests carrying the ark of the covenant had stood, and they are there to this day. 
+The priests carrying the ark stood in the middle of the Jordan until everything God had commanded Joshua to tell the people was finished, just as Moses had commanded Joshua, and the people hurried across. 
+When everyone had finished crossing, the ark of God crossed over with the priests, with the people watching. 
+The Reubenites, the Gadites and the half tribe of Manasseh crossed over armed ahead of the Israelites, as Moses had told them. 
+About forty thousand men ready and armed for war crossed over before God to the plains of Jericho. 
+That day God made Joshua great in the eyes of all Israel, and they stood in awe of him as they had stood in awe of Moses, all the days of his life. 
+God spoke to Joshua and said, 
+"Tell the priests who carry the ark of the covenant to come up out of the Jordan." 
+So Joshua told the priests, "Come up out of the Jordan." 
+When the priests carrying the ark of God's covenant came up out of the middle of the Jordan, and their feet touched dry ground, the water of the Jordan went back to its place and overflowed all its banks as before. 
+The people came up out of the Jordan on the tenth day of the first month and camped at Gilgal, on the east border of Jericho. 
+Joshua set up those twelve stones they had taken from the Jordan at Gilgal, 
+and said to the Israelites, "When your children ask their fathers later, 'What do these stones mean?' 
+then tell your children, 'Israel crossed over this Jordan on dry ground. 
+Your God dried up the water of the Jordan ahead of you until you had crossed over, just as your God did to the Red Sea, which he dried up ahead of us until we had crossed over, 
+so that all the peoples of the earth may know that the hand of God is strong, and that you may fear your God for the eras.'" 
